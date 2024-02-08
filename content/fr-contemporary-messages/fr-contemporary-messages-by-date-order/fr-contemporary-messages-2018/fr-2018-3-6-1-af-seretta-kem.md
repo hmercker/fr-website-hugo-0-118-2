@@ -36,3 +36,7 @@ Chacun d’entre vous est un enfant de Dieu. Chacun de vous le sait. Chacun d’
 Nous poursuivons donc nos efforts. Nous voyons vos progrès. Nous reconnaissons vos désirs sincères qui émanent de vos âmes. Nous continuons à vous entourer et à vous protéger, à vous élever et à vous soutenir. Mais votre responsabilité, mes bien-aimés, est de vous engager avec nous dans cet effort d’élévation et de soutien. Vous devez nous rencontrer à un endroit où nous pouvons travailler étroitement ensemble et être en harmonie, où ces deux instruments, l’instrument de votre âme et l’instrument de nos âmes, peuvent s’harmoniser ensemble, créant des sons si beaux, profonds et résonnants qui atteignent le Père Céleste et apportent une réponse puissante.
 
 Soyez avec Dieu, mes bien-aimés. Vous êtes avec Dieu. Recevez les bénédictions de Son Amour et sachez que vous êtes aimés et sachez que vous devenez l’Amour. Qu’il en soit ainsi, qu’il en soit ainsi. Que Dieu vous bénisse, mes bien-aimés. Je suis votre ami et serviteur, Seretta Kem, et je vous aime. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

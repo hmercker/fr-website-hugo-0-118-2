@@ -20,3 +20,7 @@ Ainsi, vous avez multiplié vos forces, vos dons, vos êtres de lumière à un t
 Nous ne vous quitterons pas, mes amis. Nous ne faisons que commencer une relation qui va se poursuivre et s’intensifier. En relation avec vos anges Célestes, nous travaillons ensemble, le ferons dans des incréments toujours plus grands, des dédicaces, des niveaux de conscience, de belles découvertes ensemble, âmes bien-aimées. Soyez bénies et joyeuses, car vous avez beaucoup surmonté et gagné sur ce voyage qui se poursuivra encore et encore dans la lumière.
 
 Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse en profondeur, profondément, puissamment, de manière extraordinaire, de manière magnifique. Le Toucher de l’Amour apportera toutes ces choses et plus encore. Notre amour est avec vous. Notre souhait est que tout ce qui est censé être et tout ce qui sera, vive dans nos cœurs comme il le fait dans le vôtre. Que Dieu vous bénisse. Je suis Orion.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

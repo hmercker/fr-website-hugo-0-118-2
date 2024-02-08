@@ -17,4 +17,7 @@ J'ai dit dans [ma canalisation du 17 Janvier 2007](/fr-contemporary-messages/fr-
 
 Eh bien, oui. C'est vrai. Mais nous, les Juifs, considérions que l'influence Grecque était étrangère et nuisible à notre religion et à nos traditions, et nous nous en sommes donc tenus à l'écart.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

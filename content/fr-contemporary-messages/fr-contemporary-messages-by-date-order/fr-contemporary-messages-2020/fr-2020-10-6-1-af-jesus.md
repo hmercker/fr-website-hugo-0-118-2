@@ -20,3 +20,7 @@ Une grande opportunité vous est offerte ici, alors que vous vous rassemblez. En
 Que Son Amour pleuve sur vous, âmes bien-aimées, en portant tout ce qui est bon, étonnant et joyeux. Il vous appartient de le recevoir en ce moment même, car Dieu est avec nous. Ses paroles silencieuses, Son Souffle d’Amour, implorent l’âme d’être pleinement présente auprès de Dieu.
 
 Que Dieu vous bénisse, mes chers amis. Je suis avec vous dans la prière. Je suis Jésus, Maître des Cieux Célestes, votre frère et ami sur ce voyage d’amour. Que Dieu vous bénisse, qu’il vous porte, qu’il vous porte, âmes bien-aimées. La paix soit avec vous.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

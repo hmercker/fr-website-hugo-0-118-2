@@ -11,7 +11,7 @@ weight:
 
 Ludwig van Beethoven - reçu par FAB le 13 Janvier 2003, Santa Cruz, Californie, USA.
 
-C’est moi, Beethoven.
+C’est moi, Beethoven.<sup id="a1">[1](#f1)</sup>
 
 Je sais que vous avez l’impression que le [premier message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-10-1-fab-ludwig-van-beethoven/) que vous avez reçu sur la relation entre l’artistique et le spirituel, n’est pas passé assez clairement. Mais vous devez comprendre que le problème n’était pas votre manque d’état ou le mien – nous étions tous deux dans un état spirituel élevé. Non, le problème était simplement que c’est une chose difficile à comprendre pour un mortel parce que vous n’avez pas d’équivalents exacts en mots pour les réalités de ce que vous appelez « art » dans le monde des esprits, et particulièrement dans les sphères supérieures.
 
@@ -32,7 +32,13 @@ Cependant, en raison du caractère unique de la personnalité de chaque âme, il
 Au fur et à mesure que ces messages se dérouleront, vous aurez une idée plus claire du sujet qui nous occupe.
 
 Amour, Beethoven.
+<small>
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)
+1. <large id=”f1”> Beethoven avait prédemment communiqué [le 03 Janvier 2003](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-3-1-fab-ludwig-van-beethoven/), il a ultérieurement communiqué [le 27 Janvier 2003](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-27-2-fab-ludwig-van-beethoven/)[↩](#a1)
+
+### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
 
 

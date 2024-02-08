@@ -22,3 +22,7 @@ Je vous félicite donc, mes amis, je vous félicite pour vos efforts, pour ce qu
 Je continuerai à faire ce que je peux de mon côté de la vie en coopération avec beaucoup de ceux qui travaillent avec vous pour réaliser ce cadeau. Des progrès ont été réalisés aujourd'hui et certains d'entre vous ont ressenti une différence dans l'état et la puissance de leur cercle. Il n'y a pas lieu de s'alarmer. Ils utilisent des énergies qui ne vous sont pas familières et qui vous sembleront quelque peu étrangères. Mais c'est nécessaire. C'est comme goûter un plat que vous n'avez jamais goûté auparavant, en utilisant des éléments qui ne vous sont pas familiers. C'est donc comme cela que cela se passe, une sensation de quelque chose de différent, d'inhabituel. Mais de cette façon, vous découvrez beaucoup, vous faites l'expérience d'un tout nouveau monde, d'une toute nouvelle compréhension - les pouvoirs de la Création, le pouvoir de l'Amour.
 
 Continuez, mes amis, continuez. Que Dieu vous bénisse dans tout ce que vous faites. Je suis Albert Einstein et je suis avec vous. Je suis avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

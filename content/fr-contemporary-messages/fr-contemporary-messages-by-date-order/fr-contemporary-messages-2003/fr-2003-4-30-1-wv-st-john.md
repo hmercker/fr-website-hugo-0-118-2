@@ -37,4 +37,6 @@ Essayez et essayez encore.
 
 D’une certaine manière, c’est comme un jeu vidéo. Vous apprenez d’abord à passer un niveau jusqu’à ce que vous en sachiez assez pour passer au suivant.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)
+### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

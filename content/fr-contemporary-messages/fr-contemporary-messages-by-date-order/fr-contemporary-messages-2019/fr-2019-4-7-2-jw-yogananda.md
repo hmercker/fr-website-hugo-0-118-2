@@ -20,3 +20,7 @@ Je souhaite donc dire aussi que le rituel peut devenir comme une dépendance. Lo
 Je remercie ce cher frère de s'être avancé et de m'avoir permis de parler. Je le ferai à l'avenir car j'ai beaucoup de choses à communiquer non seulement à mes disciples sur Terre, mais à tous. Du Royaume Céleste, nous vous envoyons notre amour et notre lumière. Je souhaite vous embrasser tous dans l'Amour de Dieu comme le fait cette chère âme.
 
 Je suis Yogananda et je vous aime.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

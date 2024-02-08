@@ -109,3 +109,7 @@ Que Dieu vous bénisse, mes amis, beaux amis, amis terrestres, frères et sœurs
 <small>
 
 1. <large id=”f1”> Une clarification supplémentaire de la question du libre arbitre et des vaccins a été apportée ultérieurement (Cf message du 11 Novembre 2021).[↩](#a1)
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

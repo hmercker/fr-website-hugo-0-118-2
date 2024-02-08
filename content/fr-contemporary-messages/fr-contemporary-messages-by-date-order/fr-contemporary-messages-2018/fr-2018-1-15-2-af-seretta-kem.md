@@ -22,3 +22,7 @@ Un nouveau jour se lève, mes bien-aimés. Un nouveau jour, un réveil, l’util
 Nous sommes heureux de vos efforts, mes bien-aimés. Nous continuons à travailler avec vous de nombreuses façons différentes pour ouvrir des portes, exploiter des opportunités, des possibilités qui apporteront une nouvelle croissance, de nouvelles compréhensions, une conscience plus profonde, un plus grand Amour. Donc, vous continuez à avancer, à trouver vos voies, à connaître votre vrai moi. Vous êtes bénis, mes bien-aimés. Le Père vous bénit tous, vous enveloppe dans Son Amour, vous porte avec Sa profonde attention et Son Amour pour vous.
 
 Continuez à marcher dans ce flux de Lumière, cette belle relation avec votre âme et Sa grande Âme. Tant de choses vont venir en cela. Tant de choses viendront et trouveront leur chemin et s’exprimeront dans votre monde. Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem et je vous aime. Je vous aime tendrement. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

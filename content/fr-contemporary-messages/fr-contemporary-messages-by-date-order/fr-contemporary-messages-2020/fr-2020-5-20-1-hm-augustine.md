@@ -18,3 +18,7 @@ La prière fidèle et continue, dans l’amour, de l’amour et pour l’Amour d
 Dieu a donné à chaque âme le potentiel de rechercher cette nourriture pour se lier et s’ancrer dans l’amour pur, la paix et l’harmonie. Ces pâturages avec leurs couleurs joyeuses de fleurs reflètent les cadeaux que Dieu présente à votre âme, bénis avec des gouttes de rosée, les gouttes de l’amour de Dieu. Buvez profondément, absorbez tout, et laissez les fleurs de votre âme s’épanouir dans des couleurs spectaculaires et vibrantes pour que tout le monde puisse les voir. Partagez l’amour alors que l’âme se développe avec tous ses potentiels et ses dons, enrichissant le monde, rapprochant le souhait de Dieu de sa réalisation.
 
 Je vous apporte ma bénédiction alors que le nouveau jour se lève et que vous êtes prêts à vous engager dans une journée pleine de prière et d’amour. Que Dieu vous bénisse, je suis avec vous. Augustin vous aime.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

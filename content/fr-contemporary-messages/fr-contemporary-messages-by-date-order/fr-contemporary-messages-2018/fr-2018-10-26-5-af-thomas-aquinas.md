@@ -22,3 +22,8 @@ Le temps que vous passez ensemble est certes court, mais il a ouvert de nombreus
 Âmes bien-aimées, vous avez bien fait. Vous avez bien choisi. Vous avez prié avec ferveur. Vous avez connu une profonde honnêteté en vous et vous êtes en train de connaître la vérité dans toute sa splendeur. Elle devient plus claire avec chaque jour. Votre force grandit. Vos perceptions s’approfondissent. Votre capacité à aimer est plus profonde avec la plénitude de vos beaux cœurs exprimant l’amour. Vous êtes profondément bénis, mes bien-aimés, et nous marchons toujours avec vous.
 
 Que Dieu vous bénisse. Je suis Thomas. Mon amour est avec vous.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

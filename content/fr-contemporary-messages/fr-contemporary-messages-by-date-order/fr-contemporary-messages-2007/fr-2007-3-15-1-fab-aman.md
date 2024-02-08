@@ -32,5 +32,7 @@ Ainsi, pour résumer, nous étions un cas spécial et, bien que nous ne possédi
 
 1. <large id="f1"> Les différents messages relatifs à Aman(Adam), Amon(Eve) et leur famille sont disponibles par l'intermédiaire [de ce lien](/fr-james-padgett-messages/1-9-fr-messages-related-to-adam-and-eve/).[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

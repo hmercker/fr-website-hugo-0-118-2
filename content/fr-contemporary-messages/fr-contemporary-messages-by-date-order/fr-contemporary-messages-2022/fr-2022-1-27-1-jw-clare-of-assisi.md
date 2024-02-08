@@ -24,3 +24,7 @@ Plus vous vous ouvrez, comme certains d’entre vous l’ont découvert, plus vo
 Alors, que vos âmes soient remplies, que votre chant soit vrai, saint et plein de pardon pour tous, y compris pour vous-même, afin que vous puissiez progresser chaque jour plus près de la Fontaine de l’Amour de Dieu où tout est lumière et où il n’existe rien d’autre que le vrai bonheur. Prenez ce cadeau offert gratuitement par le Père Céleste. Laissez-le remplir votre âme et devenir votre chanson.
 
 Avec tout mon amour et mes bénédictions, je suis votre sœur dans le Christ. Je suis Claire d’Assise, désormais ange Céleste et vraiment votre amie éternelle. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

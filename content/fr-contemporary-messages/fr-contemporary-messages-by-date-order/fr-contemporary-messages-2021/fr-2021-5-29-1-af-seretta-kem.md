@@ -26,3 +26,7 @@ Vous êtes allés loin dans ce voyage, et vous continuerez à vous débarrasser 
 Nous sommes avec vous, âmes bien-aimées. Nous sommes très heureux de vos efforts et de votre conversation. Puissiez-vous continuer à explorer les possibilités de vous réunir et de chercher à travailler avec nous d’une manière spirituelle, matérielle et émotionnelle pour que ce don se manifeste dans toute sa puissance, sa gloire et sa beauté au profit de l’humanité. Que tous puissent voir par eux-mêmes le grand Amour de Dieu se manifestant dans la lumière, dans l’émerveillement, dans la joie, dans la vérité et dans l’incarnation de la Vérité.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre Seretta Kem. Je suis souvent avec vous et je continuerai à travailler avec vous tous dans les nombreuses entreprises que vous avez consacrées à l’expression d’un travail spirituel, d’une expression spirituelle, d’un dévouement et de votre amour pour Dieu et pour l’humanité. Que Dieu vous bénisse. Que Dieu vous bénisse tous. Seretta Kem vous aime tendrement. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -52,4 +52,6 @@ Jésus | [Guerre et paix et le plan de Dieu Partie 5](/fr-contemporary-messages/
 Jésus | [Guerre et paix et le plan de Dieu Partie 6](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-12-14-1-fab-jesus/) | 14 Décembre 2008
 Jésus | [Guerre et paix et le plan de Dieu Partie 7](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-12-14-2-fab-jesus/) | 14 Décembre 2008
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -18,3 +18,7 @@ Vous avez de nombreux dons dans votre communauté et il y en a beaucoup dans le 
 Comme vous le savez, il y a toujours de la résistance. Mais il n’y a aucune force négative dans le monde qui puisse s’opposer à l’Amour de Dieu, à l’Amour et à la Lumière dans chacune de vos âmes. Reposez votre volonté dans la Volonté de Dieu. Acceptez et permettez à l’Amour de montrer le chemin. Vous saurez quel chemin prendre. Mais mettez en avant, dans le monde, ces dons que tant d’entre vous ont. Aidez-vous mutuellement de cette manière. Demandez et les ressources seront là pour vous. Elles étaient certainement là pour moi. Je parle en tant que personne qui connaît le pouvoir de la prière pour l’âme et pour construire sur cette Terre une présence durable de l’amour de Dieu. Vous vaincrez.
 
 Je vous exprime ma profonde gratitude et mon soutien total. Nous avons tellement besoin de vous et vous êtes une bénédiction dans ce monde. Je suis ravie, comme toujours, de venir dans votre Cercle et ils sont nombreux (ici). Je vous quitte donc maintenant avec tout mon amour et mon affection en vous souhaitant la plus grande bénédiction dans l’Amour de Dieu. Je suis votre sœur dans l’amour de Dieu, Eileen.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

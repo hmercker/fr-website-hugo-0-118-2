@@ -28,3 +28,7 @@ Si vous souhaitez emprunter un chemin véritablement spirituel, il est essentiel
 Comme toujours, c’est votre choix, chers étudiants, mais je vous dis que le chemin difficile de la recherche de la vérité par le mental est difficile et long. Pour ceux qui tiennent compte de mes paroles et s’ouvrent à leur propre âme et cherchent une relation durable et contraignante avec Dieu pour recevoir la bénédiction de Son Amour, ils trouveront la route droite et courte vers le but de la vérité. Puissiez-vous trouver votre chemin, âmes bien-aimées. Puissiez-vous libérer ce manteau de considération minutieuse et permettre l’ouverture et la liberté expansives qui viennent lorsque l’âme est éveillée dans l’amour et la vérité.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre enseignant Augustin et je suis toujours à vos côtés, cherchant à vous guider dans la direction de l’âme et de la vérité de l’amour que Dieu a fourni à chacun sur ce monde et tous les mondes. Que Dieu vous bénisse, mes bien-aimés. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

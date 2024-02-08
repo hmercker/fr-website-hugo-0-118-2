@@ -22,3 +22,7 @@ Rappelez-vous de choisir cela, âmes bien-aimées, de toujours chercher à ce qu
 Que Dieu vous bénisse, mes chers et bien-aimés amis. Puissions-nous continuer à travailler ensemble, en recherchant le plus haut, en permettant à tout ce qui vous est destiné de venir afin que l'Amour de Dieu puisse trouver un afflux constant dans vos âmes, mes chers amis, une expansion constante de vos âmes. De cette façon, vous pouvez intégrer tous ces changements et ces bénédictions et parvenir à la pleine réalisation de tous les potentiels que nous souhaitons maintenant allumer en vous, afin qu'ils puissent entrer pleinement en jeu, pleinement réalisés et exprimés. Que Dieu vous bénisse, mes bien-aimés.
 
 Seretta Kem toujours avec vous, toujours en train de vous aimer. Mes charges bien-aimées, je vous aime tellement. Belles, belles âmes. Que Dieu vous bénisse. Je vous aime.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

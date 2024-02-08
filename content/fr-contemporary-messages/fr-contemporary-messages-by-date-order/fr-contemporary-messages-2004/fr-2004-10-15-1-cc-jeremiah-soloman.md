@@ -9,7 +9,7 @@ weight:
 ---
 ### Donnez votre amour
 
-Jérémie et Salomon - reçu par CC le 15 Octobre 2004, New York, USA.
+Jérémie et Salomon <sup id="a1">[1](#f1)</sup> - reçu par CC le 15 Octobre 2004, New York, USA.
 
 Cher C.C., nous sommes heureux d’être à nouveau en relation avec toi. Cela fait un moment, en termes de temps mortel, que nous avons exprimé nos pensées à travers toi. Néanmoins, nous sommes maintenant réunis dans l’amour et la joie. Tu te demandes de quoi nous allons parler aujourd’hui ? Quels mots pouvons-nous avoir pour nos jeunes frères et sœurs que nous aimons tant ?
 
@@ -36,5 +36,10 @@ Le don de votre amour peut prendre de nombreuses formes et nous vous laissons ic
 Nous vous aimons et sommes toujours avec vous, chers enfants. Nous prions pour que l’Amour du Père vous remplisse et vous inspire à donner votre amour à tous vos frères et sœurs.
 
 Nous sommes vos gardiens, Jéremie et Salomon.
+<small>
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004)
+1. <large id="f1"> Il est possible de lire les divers messages commuiqués par Jérémie et Salomon par l'intermédiaire de [ce lien](fr-contemporary-messages\6-3-fr-contemporary-messages-by-author\6-3-10-fr-historical-figures.md) :[↩](#a1)
+
+### [**Lien vers les messages des années 2004**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

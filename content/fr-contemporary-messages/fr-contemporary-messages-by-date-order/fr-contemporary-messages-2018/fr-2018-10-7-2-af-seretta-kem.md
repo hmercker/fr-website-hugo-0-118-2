@@ -24,3 +24,7 @@ Vous mettez en œuvre le plan de Dieu de cette façon et vous suppliez l’human
 Vous connaîtrez dans vos vies votre propre âme éveillée et elle brûlera avec éclat. Elle vous portera loin. Elle vous montrera la voie à suivre, car la volonté de Dieu se reflète dans votre âme et vous en viendrez à la connaître clairement et à agir en conséquence. Vous en viendrez à reconnaître la puissance de l’Amour de Dieu pour vous et pour tous et cela vous motivera dans votre travail, votre service à Dieu, chacun jouant son rôle dans ce plan puissant qui balayera le monde.
 
 Nous sommes ensemble dans cela mes amis, faisant partie du grand continuum du service dans l’amour. Que Dieu vous bénisse, âmes bien-aimées. Serretta Kem est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

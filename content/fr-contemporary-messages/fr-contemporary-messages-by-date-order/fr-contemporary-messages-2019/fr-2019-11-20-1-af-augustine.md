@@ -36,3 +36,8 @@ Bien que vous aimeriez voir beaucoup d’entre eux renoncer à leur erreur et re
 Vous savez combien vous êtes profondément aimées, mes bien-aimées, combien nous sommes profondément aimés et combien nous sommes heureux que vous continuiez à répondre à l’appel du service et de l’amour pour l’humanité. Continuez dans vos efforts, dans votre désir et votre capacité d’aimer vos frères et sœurs. Continuez dans l’harmonie et l’amour et vous serez élevés et bénis par Dieu.
 
 Dieu vous bénit, âmes bien-aimées. Votre enseignant Augustin est toujours à vos côtés, cherchant toujours à vous aider dans votre compréhension et votre éveil de l’âme à la Vérité. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

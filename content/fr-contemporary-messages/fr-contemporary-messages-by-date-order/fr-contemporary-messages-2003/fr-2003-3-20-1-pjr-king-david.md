@@ -42,4 +42,13 @@ Je sais que tu as été très occupé par ton travail et tous tes « projets »,
 
 1. <large id="f1"> C’est-à-dire l’utilisation d’armes chimiques ou biologiques.[↩](#a1)
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)
+2. <large id="f1"> Le Roi David a également commmuniqué les messages suivants :[↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Le roi David | [Le roi David et la guerre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-8-1-fab-king-david/) | 8 Février 2003
+Le Roi David | [David, roi des Juifs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-18-2-af-king-david/) | 18 Novembre 2017
+
+### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

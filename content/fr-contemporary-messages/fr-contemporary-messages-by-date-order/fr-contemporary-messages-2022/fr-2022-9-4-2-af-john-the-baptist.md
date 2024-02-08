@@ -20,3 +20,7 @@ Vous reconnaissez que vous êtes Ses enfants, que vous marchez dans la grâce de
 Tout est donné à ceux qui sont sincères dans leurs désirs. Tout arrive à ceux qui sont ouverts aux bénédictions de Dieu. Soyez cet enfant simple, sachant que vous êtes vraiment béni et vraiment connu, avec une foi, et une connaissance retentissantes, que Dieu vous aime et que l’Amour de Dieu est un cadeau pour votre âme.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Jean, et moi aussi je vous aime, comme le font tous les anges du Royaume Céleste. Leur amour pour vous est grand. Ainsi, nous voyageons ensemble dans la merveilleuse vérité et les révélations des bénédictions de Dieu sur nous. Que Dieu vous bénisse, mes bien-aimés, que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

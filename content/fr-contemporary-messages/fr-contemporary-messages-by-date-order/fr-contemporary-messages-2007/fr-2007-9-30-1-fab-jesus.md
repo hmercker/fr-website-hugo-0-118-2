@@ -43,4 +43,6 @@ Tout comme j'ai eu un effet puissant sur les mortels, j'ai également eu un effe
 
 Donc, en résumé, cette bande d'esprits m'a effectivement aidé à connaître ma mission, en plus de subvenir à mes autres besoins. Mais il y avait certaines intuitions que seul Dieu pouvait prodiguer.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -17,3 +17,7 @@ Lorsque vous êtes dans le cercle de l’amour et que vous êtes connecté à la
 <small>
 
 1. <large id=”f1”> Ceci est présent et se ressent dans l’église que François et ses amis ont construit jusqu’à ce jour en dehors d’Assise.[↩](#a1)
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

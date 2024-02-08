@@ -35,4 +35,6 @@ J'étais fier de mes enfants lorsqu'ils réussissaient, et j'ai été encouragé
 
 [J'écrirai à nouveau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-27-1-fab-johann-sebastian-bach/). Permettez-moi de terminer en vous souhaitant une bonne année.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)
+### [**Lien vers les messages des années 2002**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

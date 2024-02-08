@@ -24,3 +24,7 @@ Mes âmes bien-aimées, vous détenez la clé, la clé qui déverrouillera la po
 Vos âmes continuent de s’éveiller à cela, mes amis bien-aimés. Vous reconnaîtrez la vérité. Vous verrez l’erreur. Vous trouverez votre chemin à travers la forêt d’erreurs que l’humanité a créée et vous arriverez à ces prairies ensoleillées de paix, de vérité et d’harmonie. C’est votre destin, âmes bien-aimées, alors que vous continuez à recevoir ce don de l’Amour Divin. Vous êtes donc attirées par la lumière et tout ce qui est bon. Vous êtes attirés par Dieu et Dieu vous guidera et vous amènera à la lumière. Vous avez bien choisi, mes bien-aimés. Vous avez choisi de marcher sur la route de l’amour et de la vérité, de la paix et de l’harmonie. Et cela vous mènera loin, plus loin que l’œil ne peut voir, car ce voyage est pour toute l’éternité. Âmes bien-aimées, soyez avec Dieu et tout se déroulera et coulera dans l’amour gracieux, l’amour enveloppant, l’amour renforçant, l’amour embrassant, l’amour merveilleux.
 
 Dieu vous bénisse, mes chers amis. Je suis André. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

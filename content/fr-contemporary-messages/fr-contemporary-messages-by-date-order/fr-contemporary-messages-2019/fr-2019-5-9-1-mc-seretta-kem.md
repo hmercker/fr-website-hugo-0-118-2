@@ -26,3 +26,7 @@ Le voyage d'une âme qui s'éveille à l'Amour Divin exige que vous vous engagie
 Je vous remercie donc de m'avoir permis de venir partager mes mots d'encouragement. J'espère vous inspirer à vous engager dans l'éveil de votre âme, à vous engager à recevoir cette grande Essence de l'Amour de Dieu dans votre âme, et à vous permettre d'être transformé de nombreuses façons, des façons qui apporteront une grande paix, de la joie et de nombreuses bénédictions. Car tous les grands Cadeaux viennent de Dieu, mes bien-aimés.
 
 Je suis Seretta Kem et mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

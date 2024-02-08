@@ -21,3 +21,7 @@ Je voulais aborder ce sujet car je sais qu’il fait partie de vos discussions e
 <small>
 
 1. <large id=”f1”> Ceci fait référence au message de Jean Marc dans le livre Judas de Kerioth pages 179 à 18. On le trouve [aussi ici](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-29-1-hr-john-mark/).[↩](#a1)
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

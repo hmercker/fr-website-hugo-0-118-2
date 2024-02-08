@@ -26,3 +26,7 @@ Il y a des moments où cela peut être fait ou donné afin de vous aider dans vo
 Oui, il y a beaucoup à faire, mais l’action est dans le moment, dans la Lumière que vous portez, dans la foi que vous portez, dans les prières que vous exprimez, dans les pensées que vous entretenez. Ce qui se manifeste à travers vous et autour de vous est important. Considérez l’instant présent, âmes bien-aimées. Considérez le moment présent et soyez en harmonie avec Dieu.
 
 Cela vous apportera toutes les réponses que vous cherchez. Cela vous apportera la révélation du moment en ce qui concerne le plan de Dieu. Tout vient avec la foi, la confiance et l’amour. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse profondément avec Son Amour en éveillant la grande sagesse de l’âme, en vous donnant la compréhension qui est plus profonde que l’esprit, qui va au-delà de l’intellect, des mots, des pensées linéaires, jusqu’à ce lieu de l’âme qui est multidimensionnel et habilité par l’Amour. Que Dieu vous bénisse, mes chers. Je suis Flavius Josèphe.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

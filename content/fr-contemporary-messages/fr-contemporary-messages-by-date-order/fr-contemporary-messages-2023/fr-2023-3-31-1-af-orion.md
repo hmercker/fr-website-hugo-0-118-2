@@ -20,3 +20,7 @@ Dans notre monde, nous ne connaissons pas la douleur. Nous ne souffrons pas. Nou
 Puissiez-vous toucher beaucoup d’âmes, mes amis. Soyez un canal de lumière et d’amour pour beaucoup. Mettez de côté tout ce qui en vous n’est pas de cette lumière. Car le temps est venu pour vous d’être pleinement dans la lumière, de mettre de côté ces choses humaines en vous, vieilles et oubliées, inutiles et qui ne sont pas de la nouvelle manière que vous prescrivez et acceptez dans votre vie.
 
 Mettez de côté ce qui est désuet et embrassez le nouveau, ce qui est plus harmonieux et plus joyeux, l’amour et la lumière. Cela vous entoure en ce moment même, l’énergie est palpable, n’est-ce pas ? Le sentiment d’élévation est palpable, l’âme répond avec impatience pour boire de ces eaux, de cette nourriture. Et c’est ce que nous ferons, mes amis, dans une contemplation tranquille. Nous nous immergerons et boirons profondément cette grande lumière bien-aimée de Dieu. Que Dieu vous bénisse. Je suis Orion, mon amour est avec vous pour toujours et à jamais. Je suis avec vous comme votre frère, comme votre ami dans la vérité de l’amour de Dieu. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

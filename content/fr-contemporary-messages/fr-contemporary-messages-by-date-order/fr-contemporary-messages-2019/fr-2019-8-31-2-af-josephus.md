@@ -30,3 +30,7 @@ Je vous encourage donc, mes amis, à rechercher le plus élevé. Cherchez la bé
 Que Dieu vous bénisse au cours de ce voyage, mes amis, et vous garde près de la Source de Tout, vous bénisse profondément et vous réveille, vous réveille pour que vos yeux soient ouverts, que vos âmes aspirent à plus, et que tous ces merveilleux dons et capacités en vous commencent à bouger et à se déplacer et viennent à voir la Vérité.
 
 Que Dieu vous bénisse sur ce voyage, mes amis, je suis Flavius Josèphe et je suis avec vous sur ce voyage comme le sont tous les anges et tous les esprits brillants de l’Univers qui cherchent la Vérité, qui cherchent Dieu, qui cherchent les merveilles de l’Univers. Que Dieu vous bénisse. Je suis avec vous. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

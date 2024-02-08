@@ -18,5 +18,6 @@ Oui, j'ai vu la futilité et l'immoralité de la Rome antique. Et dans mon cœur
 
 1. <large id="f1"> **Publius (ou Gaius) Cornelius Tacitus** (vers 56 - vers 117) est l'un des historiens les plus importants de l'Antiquité Romaine. Les parties qui subsistent de ses deux œuvres majeures - les Annales et les Histoires - traitent des règnes des empereurs romains Tibère, Claude, Néron et de ceux qui ont régné pendant l'année des Quatre Empereurs. (Source : Wikipedia)[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
 
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

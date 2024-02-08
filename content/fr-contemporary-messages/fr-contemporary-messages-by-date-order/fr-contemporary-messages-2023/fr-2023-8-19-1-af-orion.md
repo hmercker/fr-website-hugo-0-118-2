@@ -40,3 +40,7 @@ Ainsi, vous devenez forts, mes amis bien-aimés, dans un environnement et une si
 Que Dieu vous bénisse dans votre voyage, chers amis. Nous sommes avec vous, comme vous le savez, de nombreux esprits brillants, des anges, des amis stellaires continuent de vous entourer, créant un tampon entre le pire de ces forces destructrices et vous-même, qui restez dans la lumière et la protection de la main de Dieu sur vous. Vous êtes vraiment bénis, bien-aimés, vraiment aimés, vraiment pris en charge. Cela se fera plus abondamment lorsque vous marcherez sur ce chemin de lumière et d’amour. Il sera donné gratuitement, abondamment, sans réserve, il sera toujours donné.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Orion. Mon amour pour vous est grand, tout comme ma compassion pour vos luttes. Pourtant, je vois la résilience, la force d’un humain sur une planète difficile qui se rebelle contre sa propre création, ses propres peuples. Quel dilemme vous faites face, et pourtant, vous le faites avec beaucoup de force, de foi et d’acceptation. Que Dieu vous bénisse. Que Dieu vous bénisse tous. Je vous aime.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

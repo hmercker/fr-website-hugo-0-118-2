@@ -9,7 +9,7 @@ weight:
 ---
 ### Une ampoule dans une pièce sombre (2021 Groupe d’étude James Padgett)
 
-James Padgett - reçu par Jimbeau Walsh le 29 Avril 2021, Punalu’u, Oahu, Hawaii, USA.
+James Padgett<sup id="a1">[1](#f1)</sup> - reçu par Jimbeau Walsh le 29 Avril 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis votre frère et ami dans l’Amour de Dieu et j’ai été avec vous pendant cette session, rayonnant de la joie de votre voyage, de votre désir de comprendre, de cette transformation de l’âme, de ces vérités que j’ai reçues.
 
@@ -20,3 +20,10 @@ Pourtant, comme beaucoup, lorsque j’étais en crise, lorsque mon cœur était 
 Comme Cliff et Dorothé l’ont mentionné, les messages que j’ai reçus véhiculent des vérités profondes dans un certain nombre de domaines qui ne sont pas souvent explorés par les humains. Je voudrais ajouter à ce qui a été dit que j’ai reçu pas mal de connaissances et de vérités concernant les sphères et le voyage dans le monde des esprits. Depuis les enfers jusqu’à la septième sphère et les Cieux Célestes, en passant par les différentes sphères. Vous verrez, si vous n’avez pas lu ces messages, qu’ils sont très diversifiés et proviennent de nombreux esprits différents pour vous donner une image de la façon dont l’âme se transforme, où qu’elle soit, que ce soit dans les profondeurs de l’enfer, dans la fadeur de la normalité, dans la bonne personne, dans l’âme nostalgique, du simple mortel à l’ange Divin Céleste.
 
 C’est donc avec une profonde gratitude que je vous remercie et que je vous encourage à explorer et à prier. Vous recevrez sûrement lorsque vous demanderez à votre âme. Que Dieu vous bénisse avec le grand afflux de l’Amour Divin. Je suis votre véritable frère et ami dans les Cieux Célestes. Je suis James Padgett. Que Dieu vous bénisse.
+<small>
+
+1. <large id=”f1”> L'ensemble des messages communiqués par James Padgett  est disponible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-12-fr-family-and-friends-of-james-padgett/)[↩](#a2) 
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -48,3 +48,7 @@ Lorsque je marchais sur la Terre, je me sentais souvent seul. J'avais souvent l'
 Le don sera également le vôtre si vous continuez à suivre cette voie et à vous efforcer et à aspirer à l'union avec Dieu. Il viendra à vous comme il est venu à moi. Car vous connaissez le chemin et nous ne faisons que vous accompagnez, nous les Anges de Dieu. Nous sommes avec vous. Nous sommes avec vous, mes amis, et notre amour pour vous est grand. Notre intérêt pour vous est grand. Nos prières pour vous sont grandes. Nous venons pour vous aider, pour vous soutenir, pour vous guider, pour vous bénir. Nous sommes avec vous, mes amis. Nous sommes avec vous et nous ne vous quitterons jamais.
 
 Que Dieu vous bénisse dans le voyage de l'éveil de l'âme, qu'il vous garde sur votre chemin. Que vous puissiez avancer fermement, en acquérant une grande sagesse, une grande force et l'Amour au fur et à mesure que vous avancez. Que Dieu vous bénisse. Votre ami Yogananda est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -35,4 +35,6 @@ Je prie pour que mon message soit porteur d'espoir et que vous puissiez voir cla
 
 Nous vous aimons, chacun d'entre vous. Nous vous entourons de notre amour. Nous travaillons à vos côtés pour aider les enfants de Dieu à apprendre comment progresser vers les Sphères Célestes. Nous sommes des habitants de ces sphères, et nous sommes le Christ, à part entière, né à nouveau dans l'Amour Divin. Je vous remercie de vous être rendu disponible pour canaliser mes pensées par écrit ce matin. Je suis votre ami, et votre frère en esprit, Jacques l'Apôtre, mais nous sommes nombreux à être ici avec vous.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)
+### [**Lien vers les messages des années 2002**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

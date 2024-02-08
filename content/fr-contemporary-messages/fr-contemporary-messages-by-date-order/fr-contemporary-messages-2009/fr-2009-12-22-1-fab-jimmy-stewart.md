@@ -21,4 +21,6 @@ Ce que je veux dire, c'est que mes sentiments patriotiques, qui étaient forts, 
 
 Ce ne sont pas vos propres sentiments, anti-guerre, qui ressortent. Ce sont mes pensées, et je ne les ai pas trouvées facilement. Elles sont venues à la suite, franchement, d'un choc, qui m'a donné des remords.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

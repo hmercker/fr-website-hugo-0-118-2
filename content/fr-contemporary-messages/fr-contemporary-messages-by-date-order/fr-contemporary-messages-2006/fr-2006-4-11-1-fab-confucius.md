@@ -31,11 +31,16 @@ Je vois combien tout cela vous enthousiasme. Vous n’avez jamais imaginé que l
 
 Je vous souhaite une soirée heureuse et paisible.
 
-Amour, Confucius.
+Amour, Confucius.<sup id="a3">[3](#f3)</sup>
 <small>
 
 1. <large id="f1"> **Confucius**, lit. « Maître Kung », (551 avant J.-C. – 479 avant J.-C.) était un penseur et un philosophe social chinois, dont les enseignements et la philosophie ont profondément influencé la pensée et la vie des Chinois, des Coréens, des Japonais et des Vietnamiens. Sa philosophie mettait l’accent sur la moralité personnelle et gouvernementale, la justesse des relations sociales, la justice et la sincérité. Ces valeurs ont pris le pas en Chine sur d’autres doctrines, comme le légalisme ou le taoïsme, pendant la dynastie Han. Les pensées de Confucius ont été développées dans un système de philosophie connu sous le nom de confucianisme. Il a été introduit en Europe par le Jésuite Matteo Ricci, qui a été le premier à latiniser le nom en tant que « Confucius ». (Source : Wikipedia) Confucius est actuellement un guide et un enseignant régulier du médium Canadien Al Fike. Vous pouvez prendre connaissance de ses nombreux entretiens sur le site divine-love-sanctuary.ca.[↩](#a1)
 
 2. <large id="f2"> Les Entretiens de Confucius, aussi connus sous le nom d’Analectes, sont une compilation de discours de Confucius et de ses disciples ainsi que de discussions entre eux. (Source : Wikipedia)[↩][↩](#a2)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+3. <large id="f3"> Les diffétents messages communiqués  par Confucius sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a3)
+
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

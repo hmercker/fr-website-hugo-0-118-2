@@ -17,4 +17,6 @@ Le changement viendra lorsque le dysfonctionnement actuel évoluera vers une app
 
 Nous voyons chaque personne dans ce système actuel comme un enfant bien-aimé de Dieu, et nous voulons aider l'humanité à surmonter cette épreuve actuelle.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

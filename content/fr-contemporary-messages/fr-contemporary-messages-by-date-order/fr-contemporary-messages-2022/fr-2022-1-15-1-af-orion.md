@@ -48,3 +48,7 @@ Choisissez sagement, âmes bien-aimées. Choisissez toujours la lumière. Rappel
 Âmes bien-aimées, continuez à vous aligner avec la lumière et à marcher dans le monde comme une lumière, un canal de vérité et d’amour. Bénédictions, beaucoup de bénédictions pour vous. Ne permettez pas à ces facteurs de la condition humaine de restreindre et d’étrangler cela. Soyez libres, âmes bien-aimées. Soyez libres et soyez dans la lumière.
 
 Bénédictions pour vous. Je suis Orion. Mon amour et mon dévouement sont avec vous tous. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

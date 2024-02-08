@@ -30,3 +30,7 @@ Bien-aimés, bien-aimés beaux enfants de Dieu, nous sommes avec vous. Notre amo
 Que Dieu vous bénisse profondément, mes amis. Que l'Amour de Dieu soit la force première de votre vie, l'agent activateur de votre âme, la lumière que vous portez, l'instrumentalité qui est la vôtre et la vôtre seulement, unique et belle.
 
 Âmes bien-aimées, mon amour est avec vous. L'Amour de Dieu est avec vous. Buvez profondément ces eaux vives et sachez combien vous êtes aimées, combien vous êtes vraiment aimées. Le plus haut de tous les amours, le plus grand de tous les dons, vous est donné librement et abondamment. Buvez profondément, mes amis, et soyez dans la Grâce de Dieu pour ces moments ensemble. Que Dieu vous bénisse. Je suis François, et je prie avec vous, âmes bien-aimées. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

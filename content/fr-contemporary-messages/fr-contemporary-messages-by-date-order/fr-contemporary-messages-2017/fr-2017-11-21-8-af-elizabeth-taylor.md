@@ -16,3 +16,7 @@ Je m'appelle Elizabeth Taylor. Je souhaite moi aussi me joindre à mes amis pour
 Mon amour est avec vous. J'ai observé avec attention vos progrès. Je vous remercie pour vos efforts.
 
 Merci pour tout ce que vous faites pour essayer de rapprocher notre monde et le vôtre et de rapprocher la Vérité et Dieu de l'humanité. Mes bénédictions à vous, mes amis, mon amour, mon amour. Continuez, s'il vous plaît, continuez.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

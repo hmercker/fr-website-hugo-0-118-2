@@ -32,3 +32,7 @@ Oui, le monde continuera à vous défier et vous continuerez à vous défier vou
 Que Dieu vous bénisse de Son Amour, âmes bien-aimées, et vous garde toujours dans Sa Lumière. Mon amour est avec vous et ma lumière que j’apporte afin que vous soyez bénis et élevés et que vous le fassiez pour vos frères et sœurs, car cette grande chaîne de Lumière continue à couler et à toucher beaucoup de gens. Que Dieu vous bénisse.
 
 Matthew vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

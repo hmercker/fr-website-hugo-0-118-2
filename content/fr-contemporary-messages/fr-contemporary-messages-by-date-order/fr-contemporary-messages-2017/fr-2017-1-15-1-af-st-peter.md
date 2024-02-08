@@ -26,3 +26,7 @@ C’est ce qui est nécessaire dans votre monde. C’est l’Amour qui guérira 
 Beaucoup de choses reposent sur vous, mes âmes bien-aimées. Ceux qui cherchent la Lumière reçoivent une grande responsabilité pour parcourir ce monde et exprimer la Vérité et l’Amour. Puissiez-vous être assez forts, assez clairs et avec Dieu d’une manière puissante pour que vous puissiez vraiment aider à amener ce monde vers un lieu d’harmonie et d’équilibre, de joie et de paix. Le pouvoir de l’Amour, mes bien-aimés, le pouvoir de l’Amour vous portera et portera ce monde vers ce lieu de Lumière et d’Harmonie. Marchez avec Dieu, âmes bien-aimées et soyez ce canal d’amour.
 
 Que Dieu vous bénisse. Je suis Pierre et je vous bénis avec le don de la force et de la perception afin que vous puissiez voir votre chemin à travers ces forêts de dilemmes, de confusion, vers un lieu de clarté et d’instrumentalité puissante dans le monde. Que Dieu vous bénisse. Embrassez cette lumière et soyez dans la lumière. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -49,3 +49,7 @@ Je suis votre ami, je suis votre frère, et je vous aime tendrement. Je suis Jé
 <small>
 
 1. <large id="f1"> Pour une raison quelconque, ceci n’a pas été couvert à ce moment.[↩](#a1)
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

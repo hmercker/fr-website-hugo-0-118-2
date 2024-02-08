@@ -46,3 +46,7 @@ L’humanité a un avenir merveilleux devant elle, un grand potentiel et de nomb
 Que les bénédictions de notre grand Créateur et de notre Source vous inondent et vous amènent à un plus grand éveil et à la vérité afin que vos yeux soient ouverts, que vos esprits soient remplis de connaissances puissantes et que vos âmes intègrent ces connaissances et en fassent la vérité, en les exprimant de manière à soulager toutes les souffrances de votre monde, à ramener l’harmonie et à avancer de nombreuses manières.
 
 Merci, mes amis bien-aimés. Je reviendrai au moment prévu et je répondrai à vos questions au fur et à mesure qu’elles seront posées. Je suis Orion. Mon amour pour vous est grand, âmes précieuses dans la lumière, beaux joyaux dans un monde obscurci. Que Dieu vous bénisse tous.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

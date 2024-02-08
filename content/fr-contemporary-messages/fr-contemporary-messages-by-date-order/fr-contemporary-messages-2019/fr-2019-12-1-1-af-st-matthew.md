@@ -34,3 +34,7 @@ Que Dieu vous bénisse dans ce voyage, âmes bien-aimées. Puissiez-vous en veni
 Car une âme éveillée est une âme avec une grande capacité à aimer, à être vraiment un enfant de Dieu, à être vraiment tout ce qu’elle est censée être dans ce monde et dans le prochain. Que Dieu vous bénisse dans ce voyage. Vous serez toujours accompagnés par les anges et par la Main de Dieu qui repose sur vous, âmes bien-aimées. Bannissez vos doutes et acceptez votre destin d’âme transformée sur ce Chemin Divin.
 
 Que Dieu vous bénisse. Je suis Matthieu et mon amour est avec vous. Belles âmes toutes, mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

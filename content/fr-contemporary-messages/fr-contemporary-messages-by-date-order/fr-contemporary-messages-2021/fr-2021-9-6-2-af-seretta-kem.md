@@ -28,3 +28,7 @@ Beaucoup peut être accompli dans ce court laps de temps que nous avons ensemble
 Soyez dans la Grâce de Dieu, âmes bien-aimées. Marchez dans la Grâce de Dieu. Vous êtes Ses serviteurs élus pour une tâche particulière et nous espérons que nous réussirons tous dans cette entreprise. Que Dieu nous bénisse tous alors que nous marchons ensemble dans la Grâce de Son Toucher, les bénédictions généreuses qui sont sur nous et qui continueront à couler. Ce qui peut venir est déterminé par votre volonté, vos pensées et vos efforts de chaque instant, vos désirs, votre désir sincère et fidèle de servir Dieu et de servir tout le monde.
 
 Que Dieu vous bénisse. Je suis votre serviteur, Seretta Kem. Je me réjouis de votre présence, chacun étant une belle lumière. Que Dieu vous bénisse. Que Dieu vous bénisse profondément, âmes bien-aimées. Mon amour est avec vous tous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

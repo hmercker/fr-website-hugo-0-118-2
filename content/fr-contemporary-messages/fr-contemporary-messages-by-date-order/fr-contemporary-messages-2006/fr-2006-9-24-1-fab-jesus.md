@@ -33,4 +33,6 @@ La vie terrestre est imparfaite, mais les vérités de Dieu sont parfaites. Et l
 
 Aux personnes qui ont ce problème, je dis : *« Cherchez dans votre cœur. Trouvez-y un désir ardent de connaître Dieu, de faire l'expérience de ce merveilleux Amour, et si vous y parvenez, vous serez en mesure de mettre cette question, certes importante, dans sa juste perspective.»*
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

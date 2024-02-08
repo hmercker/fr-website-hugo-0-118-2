@@ -31,3 +31,7 @@ Je suis Yeshua bar Yosef <sup id="a1">[1](#f1)</sup>, le Chemin, la Vérité et 
 <small>
 
 1. <large id=”f1”> Pour une raison quelconque, Yeshua a aujourd’hui utilisé, dans son nom, le terme araméen « bar » plutôt que le terme hébreu « ben ». Veuillez également remarquer, en référence au contenu de ce message, que je (le médium) réside en Amérique du Nord.[↩](#a1) 
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

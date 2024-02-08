@@ -22,3 +22,7 @@ Vous êtes bénis, âmes bien-aimées, sur un chemin plein de possibilités et d
 Que Dieu vous bénisse. Je suis Keea Atta Kem et je suis avec vous. Mon amour est avec vous et nous allons travailler ensemble.
 
 Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -40,3 +40,7 @@ Chacun de vous est très doué. Chacun d’entre vous porte la responsabilité d
 Nous continuons à progresser vers la lumière. Nous travaillons tous en tant qu’instruments de Dieu. Nous continuerons à briller, n’est-ce pas ? Dans un endroit sombre, il y a toujours de la lumière, il y aura toujours de la lumière. Avec le temps, la lumière inondera votre Terre et la changera à jamais.
 
 Que Dieu vous bénisse, mes amis, je suis Orion. Mon amour pour vous est grand. Je vous remercie d’avoir écouté mon petit discours aujourd’hui pour vous aider sur votre chemin vers une plus grande lumière. Que Dieu vous bénisse, mes amis. Que Son Amour continue à se déverser dans votre âme en si grande abondance que vous soyez vraiment et complètement guéris et éveillés et que vous progressiez vers l’harmonisation avec le grand Créateur de l’Univers. Que Dieu vous bénisse. Que Dieu vous bénisse, mes amis. Orion vous aime.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -25,7 +25,13 @@ C’est merveilleux d’être témoin lorsque vous, belles âmes, avez tant d’
 
 Lorsque le moment sera venu pour vous de passer de notre côté de la Lumière, mes amis, vous serez extraordinairement satisfaits de vos efforts profonds, sincères et véridiques. Je vous embrasse profondément et nous sommes aussi avec vous. Il y en a beaucoup dans les Cieux Célestes, issus de différentes traditions qu’ils ont pratiquées sur Terre. Pour la Lumière et l’Amour dont Dieu nous a bénis, nous voyons l’unité de l’humanité. Je vous remercie. Je vous remercie de m’avoir écouté. Je remercie cet instrument d’honorer son chemin.
 
-Je suis Guru Ram Das, l’un de vos Anges Célestes qui vous aiment et vous guident. Sat nam.
+Je suis Guru Ram Das<sup id=”a2”>[2](#f2)</sup>, l’un de vos Anges Célestes qui vous aiment et vous guident. Sat nam.
 <small>
 
 1. <large id=”f1”> Guru Ram Das était le quatrième des dix Gurus du Sikhisme. Il est né le 24 septembre 1534 dans une famille basée à Lahore, en Inde.[↩](#a1)
+
+2. <large id="f2"> Guru Ram Das s'était antérieurement exprimé [le 11 Octobre 2018](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-11-3-mc-guru-ram-das/)[↩](#a2)
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

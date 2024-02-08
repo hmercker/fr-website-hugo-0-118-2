@@ -33,3 +33,7 @@ Ainsi, vous devenez les précurseurs d’une nouvelle ère, une ère d’illumin
 <small>
 
 <large id=”f1”> Copernic s’était exprimé précédemment [le 09 Septembre 2019](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-9-3-af-copernicus/) et [le 02 Décembre 2019](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-2-2-af-copernicus/).[↩](#a1)
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

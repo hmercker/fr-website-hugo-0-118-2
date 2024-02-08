@@ -32,3 +32,7 @@ Vous êtes préparés pour une époque où le monde aura grand besoin de vous, o
 Beaucoup de choses sont encore à venir, mes amis, et beaucoup de choses doivent encore se dérouler, mais vous êtes en effet sur la bonne voie. Vous ne vous éloignez pas de ce chemin droit et étroit, et nous sommes ici pour vous aider toujours, pour être vos amis bien-aimés qui désirent le meilleur et le plus élevé, le plus beau et le plus merveilleux pour chacun de vous.
 
 Que Dieu vous bénisse dans ce voyage. Je suis le professeur Salyards. Je suis heureux de m’adresser à vous aujourd’hui. Je suis tout près de vous alors que vous continuez à prier ensemble et à travailler ensemble. Que Dieu vous bénisse. Que Dieu bénisse vos âmes bien-aimées avec un grand afflux de l’Essence Divine. Que Dieu vous bénisse. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

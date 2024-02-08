@@ -27,7 +27,8 @@ Sois sérieux, tes progrès se feront progressivement. Tu commences à sentir no
 
 Je te dis au revoir avec mon amour, Pierre, ton frère et adepte des Vérités Divines.
 
-[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+### [**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

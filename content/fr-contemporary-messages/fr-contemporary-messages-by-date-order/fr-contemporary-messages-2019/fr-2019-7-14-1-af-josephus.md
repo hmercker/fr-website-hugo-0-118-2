@@ -66,3 +66,7 @@ Que Dieu vous bénisse au cours de ce voyage, âmes bien-aimées. Sachez que nou
 Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse et vous garde près de son sein afin que vous puissiez être ouvertes à Son Amour. Reconnaissez-le chaque jour, avec chaque respiration, reconnaissez Dieu et Son Amour pour vous. Vous trouverez une telle joie dans cette connaissance, un tel émerveillement dans vos vies à chaque instant. De grandes bénédictions viennent de la manière la plus humble, âmes bien-aimées. De grandes bénédictions viennent dans les actes les plus humbles de service et d’amour pour les autres. De grandes bénédictions viennent avec la prière pure et vraie pour implorer Dieu de toucher votre âme et de réveiller tout ce qui est à l’intérieur.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Flavius Josèphe et je suis heureux de venir vous parler de cette manière. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -51,4 +51,6 @@ Nous pensons que l’essentiel du message est important pour que vous appreniez 
 
 Nous sommes là pour vous. Soyez là pour vous-mêmes en faisant confiance à votre propre bonté divine. Dieu vous bénit chaque jour, et nous veillons sur vous et vous guidons autant que vous nous le permettez.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)
+### [**Lien vers les messages des années 2001**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

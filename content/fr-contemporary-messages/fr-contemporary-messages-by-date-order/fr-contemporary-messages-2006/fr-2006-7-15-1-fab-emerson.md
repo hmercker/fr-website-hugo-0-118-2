@@ -25,5 +25,6 @@ Alors, mon jeune ami, gardez vous espoirs, et ayez foi en vos rêves, car ils se
 
 Votre ami, Emerson.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
 
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

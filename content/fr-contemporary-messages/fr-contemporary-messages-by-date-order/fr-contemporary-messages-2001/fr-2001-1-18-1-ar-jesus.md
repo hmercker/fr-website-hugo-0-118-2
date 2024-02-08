@@ -37,4 +37,6 @@ J’écrirai plus, ultérieurement, sur ce sujet, ma chère sœur, et je vous re
 
 Votre frère et ami, Jésus de la Bible et Maître des Cieux Célestes.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)
+### [**Lien vers les messages des années 2001**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

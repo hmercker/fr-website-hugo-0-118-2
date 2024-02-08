@@ -11,7 +11,7 @@ weight:
 
 Anne Rollins - reçu par Jimbeau Walsh le 30 Avril 2023, Nashville, TN, USA.
 
-Je viens. Je suis votre sœur en Christ, Anne Rollins. Mes chers, où que vous soyez, que les bénédictions de l’Amour de Dieu coulent en abondance dans chacune de vos âmes. Je suis dans le monde de l’esprit depuis de nombreuses années et je réside dans les Cieux Célestes, là où les sphères ne sont plus numérotées
+Je viens. Je suis votre sœur en Christ, Anne Rollins.<sup id="a1">[1](#f1)</sup> Mes chers, où que vous soyez, que les bénédictions de l’Amour de Dieu coulent en abondance dans chacune de vos âmes. Je suis dans le monde de l’esprit depuis de nombreuses années et je réside dans les Cieux Célestes, là où les sphères ne sont plus numérotées
 
 Au début des années 1900, j’ai écrit de nombreux messages par l’intermédiaire de mon cher petit-fils, James Padgett, et je voudrais en aborder un en particulier que je vous encourage à explorer. Il s’agissait d’un message sur le pardon, sur le fait de se pardonner à soi-même et de permettre à l’Amour de Dieu de vous permettre de dépasser votre culpabilité, mais j’ai également abordé le sujet de l’expiation et du fait que, même si la loi de la compensation, comme on l’appelle, « où l’on récolte ce que l’o a semé », est vraiment une loi, cette loi est remplacée par une autre, encore plus grande, appelée la loi de l’Amour Divin.
 
@@ -24,3 +24,10 @@ Alors, comment fait-on pour vivre là dans ce monde de malheurs et de distractio
 C’est le don, c’est le baume, cette guérison dans l’Amour de Dieu. Oh, comme nous le souhaitons pour vous tous chaque jour à chaque instant. Car nous voyons que votre destin est Divin. Votre chemin du mortel à l’Ange Divin est assuré et nous serons toujours avec vous quand vous nous demanderez, quand vous nous invoquerez. S’il vous plaît rappelez-vous ceci. Je vais me retirer pour être avec vous tous membres de ce beau cercle d’âmes, dans cette prière dans l’Amour de Dieu.
 
 Je suis votre sœur et amie éternelle en Christ. Je suis Anne Rollins. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> L'ensemble des messages communiqués par Annne Rollins  est disponible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-12-fr-family-and-friends-of-james-padgett/)[↩](#a1) 
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

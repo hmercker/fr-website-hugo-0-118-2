@@ -23,4 +23,6 @@ Vous entrez dans une phase plus intensive de votre médiumnité. Nous vous utili
 
 Oh, l’Égypte ancienne ! Si seulement tu avais pu voir que tes dieux n’étaient que de vulgaires babioles !
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

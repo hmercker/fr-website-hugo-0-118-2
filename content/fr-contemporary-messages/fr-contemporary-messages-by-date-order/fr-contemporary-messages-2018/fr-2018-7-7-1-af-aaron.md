@@ -22,3 +22,7 @@ Rappelez-vous ceci, âmes bien-aimées, ce sont vos désirs, vos intentions, vos
 Chaque jour est votre défi, chaque jour a le potentiel de grandes bénédictions. Et puissiez-vous continuer à trouver votre chemin vers le haut de cette échelle de lumière, que chaque jour de votre vie puisse approfondir les bénédictions, la compréhension, la conscience de votre âme, une connexion plus profonde avec Dieu. Et en cela, la joie doit être le résultat. La vraie joie, le vrai bonheur, viennent d’une âme qui chante dans la joie de l’amour. Puissiez-vous continuer à être bénis, mes bien-aimés, et je continuerai à vous accompagner, comme le feront de nombreux anges, alors que vous marchez sur cette route de la vie et que vous recherchez une plus grande lumière. Car vous n’êtes jamais seules, âmes bien-aimées, jamais. Dieu est toujours là. Pour ceux d’entre vous qui cherchent cette vérité de l’amour, vous serez toujours accompagnés d’un ange, qui vous protégera et vous guidera, vous enseignera et vous inspirera. C’est le cadeau de Dieu pour vous, mes bien-aimés. C’est le cadeau de Dieu à tous ceux qui cherchent.
 
 Que Dieu vous bénisse. Je suis Aaron et mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

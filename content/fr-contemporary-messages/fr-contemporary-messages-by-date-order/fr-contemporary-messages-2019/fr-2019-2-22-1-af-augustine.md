@@ -42,3 +42,7 @@ Puissiez-vous continuer à libérer toutes les conditions qui sont des obstacles
 Puissiez-vous être profondément bénis, mes bien-aimés. Puissiez-vous être profondément bénis et connaître le contact de Son Amour, son pouvoir de réveiller, de guérir, d’apporter la paix et l’harmonie. Le Père veut que tout le bien, toute la grâce, tout l’amour et l’harmonie soient dans vos vies, qu’ils soient une manifestation puissante de votre être. La grâce de Son Amour apportera cela. Et vous parviendrez à vous connaître et à changer de manière radicale et merveilleuse, par la puissance de Son Amour.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre enseignant, Augustin, et je vous aime. J’ai une grande compassion pour vos luttes. Pourtant, je dois vous enseigner la vérité de manière à ce que vous puissiez comprendre et en venir à voir le chemin à parcourir dans la lumière. Que Dieu vous bénisse, mes bien-aimés. Votre enseignant, Augustin, vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

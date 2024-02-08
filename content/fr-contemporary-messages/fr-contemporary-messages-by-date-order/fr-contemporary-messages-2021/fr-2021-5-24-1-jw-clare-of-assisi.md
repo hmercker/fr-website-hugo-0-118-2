@@ -23,3 +23,7 @@ Nous allons nous retirer pour être en prière avec vous dans la louange de Dieu
 <small>
 
 1. <large id=”f1”> Il s’agit de ses sœurs de l’ordre des Clarisses.[↩](#a1)
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

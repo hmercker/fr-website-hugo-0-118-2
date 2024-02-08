@@ -42,3 +42,7 @@ Dieu ne vous imposera rien, mais il continue à sonner le glas pour passer à l�
 Il existe de nombreuses façons de servir et cela ouvre de nombreuses portes pour vos propres bénédictions et fortifications, en exprimant vos propres potentiels et dons. Tout cela est possible grâce à la puissance de l’Amour, la puissance de l’Amour de Dieu qui transforme et réveille et bénit chaque âme.
 
 Que les portes s’ouvrent pour vous, âmes bien-aimées. Puissiez-vous avoir la sagesse et la perception, le discernement et la force de voir ce qui se présente à vous. Puissiez-vous utiliser chaque jour et chaque opportunité pour réaliser le potentiel que chaque jour vous apporte. Qu’il y ait une floraison et un épanouissement de quelque chose de lumineux pour chacun de vous, afin que vous puissiez progresser plus loin et plus près de Dieu. Que Dieu vous bénisse sur ce chemin, âmes bien-aimées. Je suis votre enseignant Augustin et j’espère que mes paroles ont apporté de la nourriture pour la pensée et pour votre âme. Que Dieu vous bénisse, mes bien-aimés. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

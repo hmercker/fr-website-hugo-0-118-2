@@ -26,3 +26,7 @@ Vous devez avancer dans la lumière, âmes bien-aimées, être fortes dans la lu
 Que Dieu vous bénisse, mes âmes bien-aimées, et vous garde sur ce chemin, sans jamais vaciller, les pieds bien ancrés sur le chemin que Dieu a placé devant vous. Laissez tomber les soucis et les préoccupations de ce monde, et connaissez la paix qui dépasse toute compréhension, mes bien-aimés.
 
 Que Dieu vous bénisse. Je suis avec vous. Sachez que je suis avec vous, que de nombreux anges marchent aussi avec vous, sur un chemin de lumière et d’illumination. Cela vient à chaque pas. Elle est à vous, non pas au-delà de votre portée, mais à votre portée. Embrassez la vérité, mes bien-aimés, et libérez tout ce qui est erroné. Nous sommes avec vous dans l’amour, toujours. Que Dieu vous bénisse, âmes bien-aimées, que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

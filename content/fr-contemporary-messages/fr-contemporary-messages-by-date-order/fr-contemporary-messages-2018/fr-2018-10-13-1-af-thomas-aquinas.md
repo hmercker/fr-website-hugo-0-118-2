@@ -22,3 +22,7 @@ C’est ce dont parlent les mystiques, mes bien-aimés. C’est ce dont a parlé
 Vous avez un festin devant vous, mes bien-aimés, un festin merveilleux de vérité, de bénédictions, de guérison et d’amour. En votre temps, selon vos propres désirs, vous ingérerez ces fruits de vérité. Cette eau de vie, ces bouchées qui nourrissent l’âme, l’esprit et le corps, sont toutes déposées devant vous, mes bien-aimés. Que votre faim grandisse et que votre capacité à être dans ce flux d’Amour, de Vérité et de Lumière de Dieu continue à éveiller vos âmes. Dieu ne limite pas ce que vous pouvez consommer à cet égard, Sa largesse est illimitée. Son désir pour votre croissance et votre bonheur, votre joie et votre renforcement continue à assurer que vous êtes nourris, que vous recevez tout ce dont vous avez besoin pour être éveillés et pour que votre nouvelle et tendre âme grandisse jusqu’à la maturité et au-delà. Vous êtes bénis mes amis, tellement bénis. Acceptez les offrandes de Dieu, ayez faim des fruits de son âme, buvez les eaux de l’Esprit Saint, éveillez-vous à la nouvelle aube de vérité qui émerge en vous.
 
 Que Dieu vous bénisse, mes amis. Je suis Thomas et je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -16,3 +16,7 @@ Que l’Amour soit sur vous, âmes bien-aimées, je suis Mylora et je viens prie
 Continuez dans vos pensées à voir chaque enfant comme un enfant de Dieu, à marcher sur la route de la lumière et de l’amour sans hésitation ni distraction, mais à avancer, à avancer toujours plus loin dans une intention d’amour, alors que Dieu éclaire votre chemin sur le sentier. Vous êtes tous des lumières, vous êtes tous de belles âmes. Puissiez-vous en venir à vous considérer comme tels et savoir que nous marchons avec vous, recherchant comme vous chaque occasion d’être l’instrument de Dieu dans le monde. Et ainsi nous pouvons nous approcher quand vous le désirez. Lorsque vous demandez à Dieu d’ouvrir ce canal en vous, tant de cadeaux et de bénédictions coulent, tant d’anges sont présents et la lumière coule à travers vous vers tous ceux que vous rencontrez. Mes amis, vous êtes aimés et vous êtes des âmes adorables, adorables. Soyez fidèles à cela, soyez vraiment expressifs et vos jours seront bénis et beaucoup bénéficieront de vous et de ce que vous êtes en tant que lumière et enfant de Dieu.
 
 Que Dieu vous bénisse, mes bien-aimés, que Dieu vous bénisse. Je suis Mylora et je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

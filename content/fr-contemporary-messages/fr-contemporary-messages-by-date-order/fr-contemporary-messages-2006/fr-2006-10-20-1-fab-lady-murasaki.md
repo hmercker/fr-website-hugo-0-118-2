@@ -22,4 +22,6 @@ Non, j'avais un esprit curieux, et tout comme sur Terre, ma curiosité m'a pouss
 
 1. <large id="f1"> **Murasaki Shikibu (Lady Murasaki)**, (vers 973 ou 978 - vers 1014 ou 1031) était une romancière, poète et dame de compagnie Japonaise à la cour impériale pendant la période Heian. Elle est surtout connue comme l'auteur du Conte de Genji, écrit en japonais entre 1000 et 1012 environ. Murasaki Shikibu est un surnom ; son vrai nom est inconnu, mais il se peut qu'elle ait été Fujiwara Takako, mentionnée dans un journal de la cour de 1007 comme dame de compagnie impériale.[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

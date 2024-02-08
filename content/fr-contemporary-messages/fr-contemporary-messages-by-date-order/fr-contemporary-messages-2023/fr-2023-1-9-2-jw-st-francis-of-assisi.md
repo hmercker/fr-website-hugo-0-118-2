@@ -18,3 +18,7 @@ Nous venons souvent vous aider en cela, attirés par l’amour, attirés par vos
 Pour ceux qui souhaitent servir, il est important de faire la distinction entre le service de Dieu et le besoin de reconnaissance. En effet, chaque âme réclame de l’amour et, ce faisant, fait souvent des choix qui ne sont pas vraiment aimants mais seulement momentanément satisfaisants. Lorsque l’on est confronté à l’échec de ces choix, l’occasion merveilleuse de crier à Dieu, de prier pour l’aide, pour la guérison, se présente. Certains dirigeants découvrent bien sûr la voie du service, et cela les transforme, mais le plus souvent, dans l’histoire du monde, ceux qui ont choisi le service sont devenus des dirigeants parce que leur connexion avec Dieu leur a donné l’inspiration, la perspicacité, la direction qui pouvait guider les autres. Lorsque vous faites cela, mes frères et sœurs, nous nous réjouissons, et Dieu fait briller sa lumière dans vos âmes.
 
 Merci de nous avoir permis de venir ce soir. C’est un honneur et un privilège de parler à de si belles âmes que vous êtes vraiment. Vos cœurs ouverts nous touchent, et nous allons retourner dans le silence et la sainteté de cette communion dans l’amour de Dieu. Je vous remercie. Claire vous remercie. Nous vous aimons. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

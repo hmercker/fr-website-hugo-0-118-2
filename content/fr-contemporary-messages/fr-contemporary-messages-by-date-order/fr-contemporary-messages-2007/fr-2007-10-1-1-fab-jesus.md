@@ -23,4 +23,7 @@ J'ai également fait référence dans ce message à un intérêt accru pour les 
 
 La conséquence la plus importante de l'Empire Américain du Président Bush est d'unir les peuples du monde contre le type de tyrannie et de pouvoir injuste qu'il représente. Et vous n'êtes pas seuls. Le Créateur et le Royaume Céleste sont très actifs partout, et vous verrez bientôt les fruits de nos efforts.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

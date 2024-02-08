@@ -38,3 +38,8 @@ Tant de choses viennent sur les talons de la prière, bien-aimés. Ne sous-estim
 Que Dieu vous bénisse dans ce voyage. Nous sommes avec vous. Vous continuez à chercher ensemble la bénédiction et la direction de Dieu. C’est ainsi que nous répondons, alors que les lois entrent en jeu et que l’activation de vos désirs et motivations intérieures, qui apportent ces bénédictions, devient chaque jour plus puissante. Vous accumulez de la lumière, âmes bien-aimées. Vous êtes de magnifiques canaux de lumière. Vous êtes les enfants de Dieu. Soyez avec Dieu en ce moment de prière et sachez que Dieu répond dans son étreinte douce mais ferme de votre âme. L'Esprit Saint vient à chacun de vous et ouvre la porte à cette bénédiction. Vous êtes gratifiés du plus grand cadeau de tout l’univers, à savoir l’essence affluente de votre Créateur, qui ne se perd jamais, qui brûle toujours dans votre âme et qui s’accumule en vous de manière toujours plus lumineuse.
 
 Que Dieu vous bénisse, bien-aimés. Je suis votre enseignant, Augustin. Je viens vous parler de la simple bénédiction de la prière pour l’amour de Dieu et de son pouvoir de transformer, de son pouvoir d’apporter la lumière, de son pouvoir de vous utiliser comme canal de lumière. Que Dieu vous bénisse, bien-aimés, et vous maintienne dans la lumière. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

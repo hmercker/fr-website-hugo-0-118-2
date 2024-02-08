@@ -20,3 +20,7 @@ Je marche avec toi, ma chère, et j’apporte mon amour et mes chants, ma joie e
 *« Dieu miséricordieux, nous prions pour tous les enfants, pour tous ceux qui aspirent à ton Amour. Ouvre nos âmes lorsque nous venons vers toi, cher Dieu, et prie pour que Ton Amour nous remplisse. »*
 
 Bénis sois-tu ma fille, je suis heureux que tu aies commencé à m’écrire et je peux venir t’apporter mon amour et mon soutien dans le développement de nos communications de cette manière. Tu reconnais facilement ma présence et tu sais que je suis souvent avec toi, ma chère enfant. Je reviendrai, car je désire ardemment être avec les enfants de Dieu qui cherchent Son Amour. Que Dieu te bénisse, mon âme bien-aimée. François est souvent avec toi. Que Dieu te bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

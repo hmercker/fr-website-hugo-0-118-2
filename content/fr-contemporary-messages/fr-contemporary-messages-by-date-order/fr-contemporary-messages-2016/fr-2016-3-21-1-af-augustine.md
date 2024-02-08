@@ -18,3 +18,7 @@ Ne sentez-vous pas cela, mes bien-aimés, les réveils, les remous en vous, le d
 Continuez à sentir la chaleur de l’Amour de Dieu vous animer et vous amener à de plus grandes compréhensions, à comprendre plus pleinement ce but unique que vous portez tous. Reconnaissez l’enthousiasme dans vos âmes qui vous amènera à ce lieu de service et d’émerveillement et au déploiement du plan de Dieu pour chacun d’entre vous. Âmes bien-aimées, buvez profondément les eaux, alimentez les feux, pensez ces pensées qui sont élevées et pures et laissez Dieu vous porter sur Son Souffle.
 
 Âmes bien-aimées, vous êtes bénies. Vous portez cette bénédiction comme un témoignage puissant de la présence de Dieu dans le monde. Dieu vous bénit. Votre enseignant Augustin vous aime vraiment et se réjouit de voir chacun d’entre vous émerger de son sommeil et venir vraiment à connaître ce qu’est l’Amour, le pouvoir de l’Amour, la guérison de l’Amour et tous les avantages et les bénédictions qui viennent avec l’Amour qui est de votre Père Céleste. Que Dieu vous bénisse et vous garde toujours dans cet Amour et cette Lumière. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

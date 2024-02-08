@@ -20,5 +20,6 @@ Cela ne signifie pas qu'il faille ignorer, par exemple, la science environnement
 
 1. <large id="f1"> Jésus avait communiqué antérieurement, sur l’environnement, [le 29 Octobre 2006](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-10-29-1-fab-jesus/) et [le 09 Septembre 2007](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-9-9-1-fab-jesus/).[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
 
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

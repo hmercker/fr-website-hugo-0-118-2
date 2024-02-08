@@ -32,4 +32,6 @@ Voilà donc un peu de mon histoire.
 
 1. <large id="f1"> **Herbert George Wells** (21 Septembre 1866 – 13 Août 1946) était un auteur anglais, connu en tant qu’écrivain sous le nom de H.G. Wells. (Source : Wikipedia). Il est surtout connu pour ses romans de science fiction dont le plus connu est la guerre des mondes. Il est également l’auteur de nombreux romans de satire sociale, d’œuvres de prospective, de réflexions politiques et sociales ainsi que d’ouvrages de vulgarisation touchant aussi bien à la biologie et à l’histoire qu’aux questions sociales. Il est considéré comme le père de la science-fiction contemporaine.[↩](#a1)
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/)
+### [**Lien vers les messages des années 2011**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

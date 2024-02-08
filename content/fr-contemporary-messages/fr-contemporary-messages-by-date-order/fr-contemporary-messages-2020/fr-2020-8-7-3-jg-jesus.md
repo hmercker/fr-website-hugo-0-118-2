@@ -24,3 +24,8 @@ Choisissez vos actions avec sagesse. Elles déterminent votre destin. Et écoute
 Je vous laisse avec un aperçu de nature personnelle. Il n'y a pas une seule âme sur cette terre qui ne soit pas prête à mourir. C'est inhérent. La volonté de vivre coexiste avec la connaissance et la certitude que l'on va inévitablement mourir. N'ayez pas peur de la mort. Elle n'est qu'une transition, une porte d'entrée d'un royaume à l'autre.
 
 Je reviendrai pour poursuivre cette discussion. Je suis Yeshua ben Yosef du Royaume Céleste, celui qui fut là où vous êtes maintenant.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

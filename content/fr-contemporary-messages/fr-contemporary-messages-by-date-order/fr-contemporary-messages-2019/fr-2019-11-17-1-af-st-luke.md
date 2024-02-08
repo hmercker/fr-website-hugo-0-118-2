@@ -44,3 +44,8 @@ Il y a beaucoup de travail à faire dans ce monde. Je suis sûr que pour beaucou
 Dieu vous guidera ainsi, mes amis. Dieu vous montrera le chemin et Dieu sera toujours avec vous. Vous pouvez compter sur la force et l’Amour de Dieu, les bénédictions de Dieu, la guidance de Dieu. Tout cela est à venir si vous choisissez de suivre le chemin de l’Amour et de la Lumière.
 
 Que Dieu vous bénisse dans ce voyage, âmes bien-aimées, et vous garde dans Sa Lumière, Sa protection et Son Amour, créant pour vous un merveilleux flux d’expérience, d’éveil, de joie et d’Amour. Que Dieu vous bénisse. Je suis Luc. Merci d’attirer la Lumière parmi vous et d’amener vos amis anges à parler et à apporter les bénédictions de Dieu sur vous. Que Dieu vous bénisse, mes amis. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

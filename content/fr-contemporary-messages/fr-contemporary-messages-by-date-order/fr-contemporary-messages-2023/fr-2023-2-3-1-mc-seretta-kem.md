@@ -24,3 +24,7 @@ Dans chaque pièce qui a rassemblé de nombreuses personnes, il y a une foule d�
 Nous sommes en bonne voie et tandis que vous vous asseyez en silence, ouvrez-vous complètement, recevez ce portail, ressentez ses fréquences, embrassez pleinement ce dans quoi vous êtes entrés. Nous serons constamment avec vous au cours de ces prochains jours. Il y a beaucoup d’appréciation et d’amour de notre part car vous nous donnez l’occasion de répondre au plan d’amour que le Créateur a établi pour votre rassemblement. Sachez que la Terre est touchée d’une certaine manière par votre rassemblement qui crée un changement, apportant plus d’harmonie, d’amour et de lumière sur la Terre.
 
 Que Dieu vous bénisse. Je suis Seretta Kem. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

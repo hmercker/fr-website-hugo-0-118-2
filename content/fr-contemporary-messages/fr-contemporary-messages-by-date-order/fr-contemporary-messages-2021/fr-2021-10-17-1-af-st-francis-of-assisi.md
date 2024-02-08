@@ -38,3 +38,7 @@ Puissiez-vous vous tenir aux côtés de Jésus, de Gandhi et des nombreux autres
 Que Dieu vous bénisse dans vos voyages. Sachez que vous êtes aimés, profondément aimés par Dieu et rien ne peut changer cela. Car, l’Amour de Dieu pour vous est présent à chaque instant de chaque jour. Votre amour pour la Présence de Dieu est-il présent à chaque instant de chaque jour ? Qu’il en soit ainsi. Car c’est dans cette union d’amour que se trouvent les réponses à tous les dilemmes et tout ce qui est nécessaire pour transformer votre monde afin qu’il soit vraiment en harmonie, en grâce et en lumière.
 
 Que Dieu vous bénisse dans ce voyage, mes amis. Je suis Francis et mon amour pour vous est grand, comme il l’est pour votre monde, comme il l’est pour toute la Création de Dieu, comme il l’est pour mon Père Céleste, que j’aime. Que Dieu vous bénisse, mes amis. Que Dieu vous bénisse dans vos voyages. Je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

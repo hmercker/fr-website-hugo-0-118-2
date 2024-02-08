@@ -17,4 +17,6 @@ Oui, ils ont un pouvoir monolithique, et ce pouvoir augmente. Mais cela ne signi
 
 Ainsi, lorsque vous ne trouvez pas de chemin, Dieu en trouve un.
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/)
+### [**Lien vers les messages des années 2011**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

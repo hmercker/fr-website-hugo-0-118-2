@@ -20,3 +20,7 @@ Considérez que vous êtes unique. Considérez d’une part que les dons donnés
 Il y a de nombreuses façons d’être un médium. La manière dont je m’exprime aujourd’hui à travers cet instrument n’est pas, loin s’en faut, la seule manière dont cela peut être exprimé. La chère âme à ma gauche qui lit ces questions a exprimé une expérience qu’elle a eue où elle a senti de belles bénédictions couler à travers son être. Elle agissait en tant que médium pour Dieu, apportant une bénédiction à chacun d’entre vous et à ce monde.
 
 Beaucoup d’entre vous font l’expérience de cette chose particulière et de l’expression de leur âme. C’est cela être un médium, âmes bien-aimées. Vous êtes un canal pour Dieu. C’est important de reconnaître que vous êtes tous des canaux pour Dieu de nombreuses manières merveilleuses, de manière unique, de multiples manières. Vous êtes les médiums de Dieu, les canaux d’Amour de Dieu dans le monde. C’est une joyeuse, joyeuse bénédiction pour vous et pour les autres, de le faire de cette manière, cette manière innocente et réceptive de vous-même permettant à Dieu de travailler à travers vous dans ces belles et profondes bénédictions pour tous. Merci.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -22,3 +22,7 @@ Telles sont les bénédictions de ceux qui marchent sur le chemin Divin et cherc
 Joignez-vous à cette sainte communion, à cette expérience profonde du toucher de Dieu et vous serez puissamment bénis en fonction de vos efforts et de vos désirs, de vos envies et de vos prières. Tous viendront avec ce don et aucun ne sera délaissé car Dieu donne à tous Ses enfants qu'Il aime tendrement. Il n'y a pas de jugement dans l'Amour. Il n'y a pas de reproche ou de retenue, seulement l'Amour et l'acceptation, la paix et la joie. Tels sont les dons de Dieu à Ses enfants.
 
 Puissiez-vous être puissamment bénis, âmes bien-aimées, et trouver votre chemin chaque jour vers une communion plus étroite avec le Créateur et une compréhension plus profonde de vos propres merveilles et de la merveille de la création. Que Dieu vous bénisse. Je suis votre enseignant Augustin. Je vous aime tendrement, âmes bénies. Âmes bénies de ce monde, continuez à prier, à désirer et à être dans le flux de Son Amour. Je continuerai à être avec vous pendant votre voyage. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

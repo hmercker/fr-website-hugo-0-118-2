@@ -47,4 +47,6 @@ Je ne dis pas ces choses pour vous effrayer, mes bien-aimés, mais pour vous dir
 
 Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse et qu’il vous garde toujours dans son attention, sa protection et son amour. Il sera donné à toute âme qui le désire. Que Dieu vous bénisse, mes bien-aimés. Votre maître Augustin vous aime. Je vous aime aussi. Que Dieu vous bénisse.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015)
+### [**Lien vers les messages des années 2015**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

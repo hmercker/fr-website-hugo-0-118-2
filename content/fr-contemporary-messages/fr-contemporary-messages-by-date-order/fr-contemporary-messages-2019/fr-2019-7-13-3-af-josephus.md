@@ -39,3 +39,7 @@ Nous ne vous suggérons pas d’assumer cette tâche et de développer ces dons 
 Considérez la sagesse de Dieu et le désir de Dieu que vous travailliez avec Dieu, que vous soyez avec Dieu, que vous permettiez à Dieu de travailler à travers vous. C’est la plus haute des aspirations. Cela vient avec la puissance de Son Amour dans vos âmes. Cherchez à servir dans le flux d’harmonie de la volonté et de l’Amour de Dieu dans ce monde et tout viendra comme il se doit, se déploiera et s’éveillera dans ce plan. Oui, beaucoup seront élevés. Beaucoup trouveront la guérison et la libération de l’obscurité et trouveront la joie plutôt que la douleur dans leur vie. Ayez la foi que vous jouerez votre rôle, que vous exprimerez vos dons, que votre service aura un sens, mes bien-aimés, et aura son impact dans le monde. Ayez confiance en Dieu. Ayez confiance en la volonté de Dieu.
 
 Je vous remercie, mes âmes bien-aimées. Je suis Flavius Josèphe et je vais faire mes adieux pour l’instant, mais je reviendrai. Que Dieu vous bénisse, mes âmes bien-aimées. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

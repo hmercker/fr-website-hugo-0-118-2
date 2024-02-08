@@ -36,3 +36,7 @@ Le monde est un endroit complexe rempli de nombreuses idées complexes. La véri
 Merci de m’avoir écouté. Merci d’être une lumière dans le monde. Je vous aime tous tendrement. Je suis André et je suis souvent avec vous et je suis si heureux de vos efforts et de vos tentatives pour marcher dans la foi et dans l’Amour. Vous deviendrez plus forts. Vous saurez, à partir de ce lieu intérieur, que votre vie deviendra plus simple, mais ce que vous faites sera varié, important, puissant et exigera beaucoup de vous, mes bien-aimés. Pourtant, vous serez en paix et vous saurez que vous faites le travail de Dieu. Dieu vous bénisse, âmes bien-aimées, qui êtes prêtes à suivre le Chemin Divin et à enseigner l’Amour de Dieu.
 
 Vous êtes aimés. Vous êtes vraiment aimés. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

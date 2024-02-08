@@ -44,4 +44,7 @@ A mon époque, les grandes Vérités spirituelles devaient être enseignées par
 
 Ces paraboles sont la Vérité, mais la plus grande Vérité réside dans les âmes qui suivent mes enseignements en faisant entrer l'Amour Divin dans leur âme par la prière et la foi sincères.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

@@ -22,3 +22,7 @@ Je sais, mes bien-aimés, que vous appréciez la compagnie des autres, que vous 
 Le moment est venu, mes bien-aimés. Apprenez à connaître le désir qui est en vous, apprenez à connaître la réponse de Dieu lorsque vous recevez ses bénédictions. Soyez ensemble d'une seule voix, mes âmes bien-aimées, dans cette prière qui ne vient pas de la tête, mais de votre âme : *« Père, ouvre mon âme à l'afflux de Ton Essence Divine, ouvre mon âme »*. Sentez-vous le désir en vous, mes bien-aimés ? Apprenez à le connaître, à l'exprimer. Ce désir est votre ami, ce désir est vraiment vous. Ne négligez jamais d'être conscients, d'honorer ce désir dans votre âme et Dieu sera toujours là, présent, aimant, déversant son amour en vous.
 
 Dieu vous bénisse, âmes bien-aimées, Dieu vous bénisse. Que cette Paix qui dépasse toute compréhension soit la vôtre, un cadeau pour vous, mes bien-aimés. Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

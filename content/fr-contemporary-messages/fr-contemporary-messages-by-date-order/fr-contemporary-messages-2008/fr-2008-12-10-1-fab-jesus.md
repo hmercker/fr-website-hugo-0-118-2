@@ -31,4 +31,6 @@ Afin de se débarrasser d'une émotion négative telle que le ressentiment ou la
 
 Mais il peut y avoir confusion, car dans votre langage, le ressentiment peut parfois signifier en fait l'indignation. La différence entre les deux est une différence d'objectif.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

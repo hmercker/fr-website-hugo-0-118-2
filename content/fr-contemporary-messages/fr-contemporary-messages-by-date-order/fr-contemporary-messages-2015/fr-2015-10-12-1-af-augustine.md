@@ -25,4 +25,6 @@ Bien-aimés, continuez à prier pour l’Essence Divine et vous saurez vraiment 
 
 Continuez à chercher la Vérité et ouvrez-vous à ce grand Don et beaucoup vous sera donné au-delà de ce que vous pouvez comprendre en ce moment. Vous le ressentez dans vos âmes, mes bien-aimés, qu’il y a quelque chose de merveilleux qui se passe en vous. Vous le savez, vous le désirez ardemment et cela vous sera donné tant que vous resterez fidèles à ce désir et que vous chercherez à atteindre le plus haut, à atteindre le plus haut. Et sachez que Dieu prend soin de vous dans tous les aspects de vos vies et de vos êtres et qu’il vous touche profondément, vous fait avancer, toujours aimant, toujours dans Sa Grâce, mes bien-aimés, toujours dans Sa Grâce. Que Dieu vous bénisse. Que Dieu vous bénisse.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015)
+### [**Lien vers les messages des années 2015**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

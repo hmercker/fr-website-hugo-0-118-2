@@ -18,3 +18,7 @@ Vous êtes précieuses pour nous, âmes bien-aimées, car vous continuez à tend
 Nous sommes ensemble, vous sur le plan terrestre et nous qui venons des cieux Célestes pour prier avec vous. Ensemble, nous créons ce lieu de lumière, ce sanctuaire qui vous rapproche de Dieu. Nous poursuivons donc notre voyage d’éveil, de guérison, de joie et d’amour. Que Dieu vous bénisse profondément, âmes bien-aimées. Ouvrez-vous à tout ce que Dieu a à vous donner en ce moment. Ce faisant, vous ouvrez également la porte pour que Dieu vous utilise comme une bénédiction et un canal pour les autres afin qu’ils puissent être bénis.
 
 Les dons de Dieu affluent vers vous en ce moment. Nous sommes dans l’unicité et l’unité de désir pour tous les dons et les bénédictions les plus élevés que Dieu peut donner. Que Dieu vous bénisse et vous garde près de lui. Je suis André, mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

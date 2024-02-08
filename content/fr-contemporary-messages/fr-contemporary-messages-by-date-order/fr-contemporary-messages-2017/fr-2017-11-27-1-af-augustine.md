@@ -22,3 +22,7 @@ Il y a tellement de façons dont Dieu peut utiliser chaque âme qui aspire à ap
 Mais il faut que chaque âme le désire et demande cette bénédiction. C'est un choix de libre arbitre que de recevoir ce cadeau. Pour recevoir toutes les bénédictions que Dieu a à donner à chaque âme, cette âme doit décider d'être ouverte et réceptive à ces bénédictions. La prière, mes bien-aimés, la prière est le lien entre vous et Dieu, la prière qui est l'expression des désirs de votre âme, la prière qui est un désir ardent, la prière qui est l'expression d'un désir ardent, vos vrais désirs, ces endroits profonds en vous qui aspirent à l'Amour, qui aspirent à Dieu. Puissiez-vous découvrir le pouvoir de la prière qui apporte les dons à vos âmes.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant Augustin. Puissiez-vous continuer à découvrir tout ce que Dieu a à donner, ses nombreuses bénédictions. Puissiez-vous participer à cette grande fête de l'âme. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

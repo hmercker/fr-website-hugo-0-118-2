@@ -32,11 +32,6 @@ Walt Disney | [Inharmonie et Boomerang](/fr-contemporary-messages/fr-contemporar
 Walt Disney | [Le sens moral de Walt Disney](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-6-21-2-fab-walt-disney/) | 21 Juin 2012
 Walt Disney | [La mentalité de guerre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-2-21-2-fab-walt-disney/) | 21 Février 2013
 
-Walt Disney | [L'espoir de Walt Disney](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-1-1-fab-walt-disney/) | 1 Mai 2009
-Walt Disney | [Un changement de perspective](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-9-8-1-fab-walt-disney/) | 8 Septembre 2009
-Walt Disney | [Walt Disney et ses studios en grève - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-11-20-1-fab-walt-disney/) | 20 Novembre 2010
-Walt Disney | [Walt Disney, l’histoire et l’espoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-1-6-1-fab-walt-disney/) | 6 Janvier 2011
-Walt Disney | [Le sens moral de Walt Disney](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-6-21-2-fab-walt-disney/) | 21 Juin 2012
-Walt Disney | [La mentalité de guerre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-2-21-2-fab-walt-disney/) | 21 Février 2013
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

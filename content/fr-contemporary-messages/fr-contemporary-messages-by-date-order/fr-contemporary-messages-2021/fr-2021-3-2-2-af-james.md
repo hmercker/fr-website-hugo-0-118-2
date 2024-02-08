@@ -24,3 +24,8 @@ Je vous invite à prier pour que le dessein que Dieu a pour vous puisse être r�
 Alors, je vous en prie, enfants de Dieu, exprimez ce qui est au fond de vous, permettez à Dieu d’agir à travers vous, libérez toutes les barrières à cette expression et permettez à l’amour de guider tout ce que vous faites et tout ce que vous êtes. De cette façon, ce don profond de la vie, doté d’un but, s’exprimera et beaucoup d’autres dans votre monde bénéficieront de cette expression.
 
 Que Dieu vous bénisse, âmes bien-aimées, je suis Jacques. Je suis heureux d’être avec vous ce soir pour prier avec vous et pour vous parler. Âmes précieuses de Dieu, précieuses et de lumière, vous vous joignez donc à Dieu dans le grand flux intentionnel de son plan pour le salut de l’humanité. Puissiez-vous trouver votre place et réaliser vos dons et votre but accompli, dans le flux de votre vie et la beauté de votre expression dans la lumière de votre être, proche de votre Créateur, profondément béni par Son Amour. Que Dieu vous bénisse, âmes bien-aimées, je suis Jacques et j’aime chacun d’entre vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

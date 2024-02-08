@@ -37,4 +37,6 @@ Si je n'ai pas répondu de manière appropriée à vos questions ce matin, je su
 
 Oui, Dieu vous bénit abondamment ; tout ce que vous avez à faire pour être réceptive à ces bénédictions et les ressentir, c'est de vous détendre dans votre âme et d'avoir confiance que Dieu vous aime et que vous êtes digne de toutes ces merveilleuses bénédictions.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005)
+### [**Lien vers les messages des années 2005**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

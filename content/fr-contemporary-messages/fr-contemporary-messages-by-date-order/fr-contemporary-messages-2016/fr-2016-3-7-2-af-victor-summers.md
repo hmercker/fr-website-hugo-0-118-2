@@ -22,3 +22,22 @@ C’est la clé qui ouvrira tant de portes et vous amènera aux endroits où Die
 Mes amis, poursuivez l’œuvre commencée par notre cher frère James Padgett, commencée par notre cher frère Jésus. Continuez l’œuvre. Que la chaîne soit ininterrompue et vos efforts puissants et pleins d’Amour et de Lumière, de Grâce et de joie, de sagesse et de puissance, la puissance de l’Amour.
 
 Cher ami, sois réconforté dans la certitude que Dieu t’aime, Dieu t’aime pleinement pour chaque seconde et chaque partie que tu es. Dieu t’aime, mon ami. Apporte cet Amour et laisse-le te réconforter et t’apporter la paix. Apportez cette joie, car la vie est joie, vous pouvez embrasser la joie et embrasser la vie. Bien-aimés, belles âmes, je suis Victor Summers et je me tiens sur le seuil du Ciel. Que Dieu vous bénisse, que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> Victor Summers s'est également exprimé dans les messages suivants : [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Victor Summers | [Message de Victor Summers](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-11-18-2-fab-victor-summers/) | 18 Novembre 2011
+Victor Summers | [Transition de Victor Summers](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-11-27-1-fab-victor-summers/) | 27 Novembre 2011
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

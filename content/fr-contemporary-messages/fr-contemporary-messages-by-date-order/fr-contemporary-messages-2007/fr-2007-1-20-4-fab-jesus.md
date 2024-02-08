@@ -21,4 +21,7 @@ M. Padgett est ici maintenant près de moi et il dit, qu’à l’époque, il y 
 
 Si les gens, comme vous le craignez, discréditent, dans leur ensemble, les messages de James Padgett à cause de cela, ce sera leur choix. S’il est entendu que la médiumnité est imparfaite, il sera généralement perçu par ceux qui sont désireux de percevoir et d’aimer la Vérité, que, cette erreur étant reconnue, ce qui a été accompli avec la collaboration de M. Padgett fut tout simplement remarquable.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

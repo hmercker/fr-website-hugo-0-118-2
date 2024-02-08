@@ -19,4 +19,6 @@ Une situation similaire s'est produite à mon époque. L'une des raisons pour le
 
 Puisque tant d'Américains ne peuvent pas s'adonner à la culture de consommation comme ils en avaient l'habitude, et puisque beaucoup d'Américains ont bon cœur et sont décents, ces circonstances défavorables agissent comme un stimulant pour ces bonnes personnes afin de renforcer leur âme. Les temps difficiles mettent les gens à l'épreuve, et beaucoup d'entre eux résistent à cette épreuve en faisant preuve de caractère, de vertu et de courage. Ce point de vue positif sur la réalité actuelle de votre pays est tout simplement la réalité.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -20,3 +20,7 @@ Faites toujours confiance aux connaissances de vos âmes bien-aimées, car c'est
 Nous continuons à voyager ensemble et à chercher les conseils et les bénédictions de Dieu. Puissiez-vous entendre les murmures de votre âme et les connaissances de votre cœur et les bénédictions de votre Père Céleste qui cherche à rassembler toutes les parties de vous, fusionnées dans l'amour afin que tout soit exprimé et éveillé et que vous puissiez être un puissant et beau canal d'amour dans le monde. Vous trouverez votre chemin, âmes bien-aimées, et vous exprimerez cette vérité de nombreuses manières merveilleuses.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Martin Luther et je me joins à vous dans votre cercle. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

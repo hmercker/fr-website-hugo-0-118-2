@@ -20,3 +20,7 @@ Souvent, les deux frères ont reçu la même vérité presque en même temps. Si
 Vous voyez donc qu’il y a toujours une sorte de collaboration du Royaume Céleste qui fait que la vérité des Lois de Dieu, de Son Univers et surtout de la transformation de l’âme est reçue d’une manière qui reflète l’unicité du récepteur tout en transmettant la vérité universelle.
 
 Ainsi, pour chacun d’entre vous, il est impératif de continuer sur le chemin qui résonne avec vous vers la vérité, afin que tout puisse être changé, que tout puisse être guéri, que tout puisse être béni dans l’amour éternel. Car c’est le souhait de Dieu et le souhait de nous tous ici que vous puissiez vous compléter les uns les autres. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

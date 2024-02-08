@@ -124,4 +124,6 @@ Ton frère en esprit, Judas.
 
 1. <large id="f1"> Les messages de James Padgett sont maintenant édités en ordre chronologique. Bien qu’il soit très enrichissant de lire tous les messages selon leur date de réception, il convient de remarquer que cette édition est imposante et comporte 700 pages de 8.25″ x 10.75″.[↩](#a1)
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)
+### [**Lien vers les messages des années 2002**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

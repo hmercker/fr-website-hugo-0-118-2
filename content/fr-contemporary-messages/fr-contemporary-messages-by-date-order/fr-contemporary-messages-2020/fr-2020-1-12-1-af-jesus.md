@@ -34,3 +34,7 @@ Vous devez donc vivre l’Amour. Soyez un exemple pour vos frères et sœurs. Ma
 Je suis votre frère et votre ami. Je marche avec vous. Je serai toujours avec vous. Que l’Amour de Dieu continue à se déverser dans vos âmes en réveillant tout, en apportant la Vérité à votre conscience bénie et à votre compréhension. Réveillez-vous dans l’Amour, mes amis. Réveillez-vous dans la Vérité. Soyez humbles et forts. Soyez clairs et dévoués à la Vérité de l’Amour.
 
 Que Dieu vous bénisse tous. Je suis avec vous. Je suis Jésus et je vous aime tous. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

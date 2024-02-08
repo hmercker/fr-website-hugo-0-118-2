@@ -38,3 +38,7 @@ Il y a beaucoup de choses à faire pour que chacun d’entre vous soit cet enfan
 Que Dieu vous bénisse alors que vous voyagez dans ce grand et merveilleux réveil, cette guérison et cette expression qui est vraiment celle de l’âme. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse. Je suis Flavius Joseph et je vais vous laisser avec cette petite conversation sur la rédemption. Merci d’avoir demandé, ma fille bien-aimée. J’espère que tu as reçu une réponse qui te fera avancer dans ton grand voyage vers Dieu. Que Dieu vous bénisse tous. Que Dieu vous bénisse.
 
 Je suis Flavius Josèphe. Je continue à vous servir avec la possibilité d’élucider vos questions et vos émerveillements de la vie concernant l’éveil de votre âme, la bénédiction de vos perceptions éveillées de la vie, le don de la vie, le don de la Création de Dieu et je sais qu’il y a beaucoup de choses que vous pouvez contempler et sur lesquelles vous vous interrogez. J’ai l’espoir de pouvoir vous aider dans ces interrogations. Je suis donc ici et vous êtes donc avec nous dans vos questions. Veuillez poursuivre, âmes bien-aimées.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

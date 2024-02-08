@@ -23,7 +23,13 @@ Car à mesure que vous grandissez dans cet Amour et que vos âmes s’éveillent
 
 Puissiez-vous continuer à marcher sur ce Chemin de l’Amour et découvrir les nombreux mystères que Dieu a créés. Car en grandissant dans l’Amour et en vous éveillant dans l’Amour, il n’y aura pas de mystères, mais de la compréhension, de la Vérité et de la joie.
 
-Que Dieu vous bénisse dans ce voyage, mes amis. Je suis Copernic et je vous remercie de m’avoir accordé ce temps de parole et je reviendrai vous parler des mystères du monde, de l’univers et de Dieu. Merci, mes amis, et que Dieu vous bénisse. Que Dieu vous bénisse.
+Que Dieu vous bénisse dans ce voyage, mes amis. Je suis Copernic<sup id="a2">[2](#f2)</sup> et je vous remercie de m’avoir accordé ce temps de parole et je reviendrai vous parler des mystères du monde, de l’univers et de Dieu. Merci, mes amis, et que Dieu vous bénisse. Que Dieu vous bénisse.
 <small>
 
 1. <large id=”f1”> Ce message est à rapprocher d'une communication faite par Galilée [le 21 Janvier 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-21-2-jep-galileo/).[↩](#a1)
+
+2. <large id="f2"> Copernic s'est également exprimé ultérieurement [le 2 Décembre 2019](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-2-2-af-copernicus/).[↩](#a2) 
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

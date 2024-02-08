@@ -30,4 +30,17 @@ Comment puis-je le savoir, me demandez-vous ? Parce que l'activité par ici a é
 
 1. <large id="f1"> **Cotton Mather** a été impliqué dans le procès des sorcières de Salem, et est à l'origine de l'idée que les rêves (preuves spectrales) pouvaient être utilisés comme preuves dans les procès de sorcellerie. Dix-neuf hommes et femmes ont été pendus, un homme a été écrasé par des pierres et quatre autres sont morts en prison en attendant leur procès entre Juin et Septembre 1692 dans le Massachusetts. Cotton Mather a communiqué un [précédent message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-5-20-1-fab-cotton-mather/).[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+2. <large id="2"> Cotton Mather s'est également exprimé par l'intermédiaire des messages suivants :[↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Cotton Mather | [Expériences d’un puritain colonial.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-5-20-1-fab-cotton-mather/) | 20 Mai 2006
+Cotton Mather | [Dieu regarde le cœur.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-5-21-2-fab-cotton-mather/) | 21 Mai 2006
+Cotton Mather | [La conscience dans le procès des sorcières de Salem](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-24-1-fab-cotton-mather/) | 24 Mars 2008
+Cotton Mather | [Réflexions sur la sorcellerie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-28-2-fab-cotton-mather/) | 28 Février 2009
+
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+

@@ -31,4 +31,6 @@ Vous êtes mes homologues spirituels sur la terre. Nous travaillons les uns à c
 
 Je suis Jean, l’apôtre de Jésus, votre ami et votre frère.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)
+### [**Lien vers les messages des années 2001**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

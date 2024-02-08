@@ -39,4 +39,7 @@ Sur la scène mondiale, quelques-uns ont choisi le premier, et un nombre bien pl
 
 Ce même principe s'applique à votre recherche d'emploi. Votre âme sait qu'un nouvel emploi vous attend, et pourtant, vous avez parfois ce sentiment d'insécurité. Peu importe. Il n'y a pas d'insécurité en Dieu. Il pourvoira à vos besoins, tout comme il sauvera l'humanité de l'esclavage de l'égoïsme et apportera le paradis sur terre, comme il l'a promis.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

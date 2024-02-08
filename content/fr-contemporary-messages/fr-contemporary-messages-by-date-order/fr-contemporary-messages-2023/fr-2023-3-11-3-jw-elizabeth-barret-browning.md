@@ -70,4 +70,8 @@ Dieu est grand, Dieu est bon.
 
 Elizabeth Barrett Browning, est née le 6 Mars 1806 à Coxhoe Hall, dans le comté de Durham. Elle est décédée le 29 Juin 1861 à Florence, est une poétesse, essayiste et pamphlétaire britannique. (Wikipédia)
 
-Elizabeth Barrett Browning s'était précédemment exprimé [le 31 Décember 2022](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-31-2-jw-elizabeth-barret-browning/).
+Elizabeth Barrett Browning s'était précédemment exprimée [le 31 Décember 2022](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-31-2-jw-elizabeth-barret-browning/).
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

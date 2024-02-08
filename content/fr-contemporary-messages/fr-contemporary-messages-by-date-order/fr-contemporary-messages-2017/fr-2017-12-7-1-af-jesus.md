@@ -34,3 +34,7 @@ Il y a beaucoup de travail à faire pour vous tous, mes âmes bien-aimées, beau
 Mon amour est avec vous mes bien-aimés frères et sœurs. Mes prières sont avec vous mes bien-aimés. Vous continuerez à être élevés. Vous continuerez à être guéris. Comme vous continuez à vous ouvrir au don de l'Amour du Père, beaucoup de choses vous seront révélées et beaucoup de cadeaux se déploieront à partir de vos efforts de prière, de foi et de confiance en Dieu. Tant de choses vous attendent, mes bien-aimés. Tant de choses vous attendent. Puissiez-vous continuer à faire confiance à ce qui se passe à l'intérieur de chacun d'entre vous et à ce qui vous arrive ensemble alors que vous cherchez à servir Dieu et à faire avancer ce don. Ainsi, il en sera. Ainsi, ce sera en accord avec votre foi, votre amour, votre lumière. Ainsi, il en sera ainsi.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre frère et je suis votre ami. Je suis Jésus. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés. Je continue à marcher avec vous, toujours. Toujours. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

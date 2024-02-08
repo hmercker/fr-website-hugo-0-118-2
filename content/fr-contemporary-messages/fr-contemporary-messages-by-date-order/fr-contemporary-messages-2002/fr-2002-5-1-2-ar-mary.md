@@ -37,4 +37,6 @@ Tout ce qui est faux tombera, mais jusqu’à ce que cela arrive, sois assurée 
 
 Je suis ta sœur dans le Christ, ta gardienne et ton amie, Marie, la mère de Jésus, et une vraie disciple de mon fils.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)
+### [**Lien vers les messages des années 2002**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -22,3 +22,7 @@ Mes amis, lorsque je vivais sur votre terre, je vivais dans le pays que vous app
 C’est une bénédiction d’être avec vous dans ce cercle de prière maintenant. Il y a beaucoup d’anges parmi vous. Vous pouvez inviter l’ange qui se tient à vos côtés, l’inviter dans votre vie, dans votre maison, pour vous aider. C’est un plaisir pour nous de servir Dieu de cette manière et d’être proches de vous. Mais, avant tout, de vos âmes aimantes, tendez la main à Dieu, demandez à Dieu de vous bénir de la Grâce de Son Essence. Ouvrez-vous à recevoir cet Amour qui viendra par la Grâce de l’Esprit Saint, avec son messager d’Amour. Vous êtes bénis par l’Essence d’Amour dans votre âme en ce moment même et j’espère que vous pouvez le ressentir. Ceci est disponible à tout moment. Il vous suffit de vous arrêter, de prendre un moment, de tendre la main et de recevoir.
 
 Mon amour est avec vous, je suis Seretta Kem et je vous remercie d’avoir écouté mes paroles et d’avoir ouvert vos âmes à la Grâce de l’Amour de Dieu. Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem. Bonne nuit.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

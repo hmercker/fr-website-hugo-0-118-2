@@ -31,4 +31,6 @@ Chacun d’entre vous est le « but ». Chaque âme est une expression unique et
 
 Nous vous aimons, jeunes frères, nous sommes toujours avec vous et nous nous signons, Jésus, Marie-Madeleine, Jean, Marie, Joseph, Paul, Luc, Pierre, André, Jean Marc, Daniel, Moïse, Sarah (arrière, arrière grand-mère) et beaucoup d’autres.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004)
+### [**Lien vers les messages des années 2004**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

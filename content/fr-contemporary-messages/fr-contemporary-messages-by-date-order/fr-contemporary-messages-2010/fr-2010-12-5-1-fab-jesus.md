@@ -29,4 +29,6 @@ Ma principale objection au point de vue de M. Harpur est qu'il ne comprend pas q
 
 Comme vous pouvez le constater, sa démarche est la sienne. Elle n'est pas la vôtre. Et ce n'est pas la mienne. Il existe certainement des parallèles avec l'Égypte ancienne. Mais ces choses du mythe et de la non-réalité ont obscurci la vérité de la transformation de l'âme, qui était ma réalité vivante lorsque j'étais un mortel. Mais en fait, nous vous avons conseillé de lire ce livre parce qu'il est sain pour vous d'être au courant des autres opinions contemporaines sur ma mission.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

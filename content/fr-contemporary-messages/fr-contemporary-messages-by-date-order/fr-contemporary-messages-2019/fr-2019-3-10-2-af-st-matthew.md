@@ -40,3 +40,7 @@ Vous verrez, mes bien-aimés. Vous verrez que le temps continue à vous faire av
 Âmes bénies et bien-aimées, puissiez-vous continuer à recevoir ces grands dons d’Amour. Puisse-t-il continuer à ouvrir les portails de votre âme, afin que la lumière puisse circuler et que la volonté de Dieu puisse se manifester dans vos vies. Âmes belles et bénies, vous vous tenez sur le seuil d’un jour nouveau, l’aube de la vérité de l’amour dans votre monde. Puissiez-vous vous tenir main dans la main dans ce grand service et ce grand événement du déploiement du plan de Dieu pour le salut de l’humanité.
 
 Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse dans vos voyages et sachez que vous n’êtes jamais seuls et qu’à chaque instant vient le potentiel de servir l’humanité dans l’amour. Que Dieu vous bénisse, mes bien-aimés. Je suis Matthieu et j’ai un grand amour pour vous, pour tous ceux qui sont prêts à marcher dans la lumière et la vérité et à servir dans la lumière et la vérité. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

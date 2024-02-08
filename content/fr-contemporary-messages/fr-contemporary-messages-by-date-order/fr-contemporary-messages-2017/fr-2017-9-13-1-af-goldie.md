@@ -30,3 +30,7 @@ Vous ne devez pas vous préoccuper de tous les détails de ma vie. Ce n'est pas 
 C'est si simple. Vous ne devez pas vous préoccuper de tous les détails de ceux qui vous aident. Ils vous donneront les informations dont vous avez besoin, mais ils ne vous accableront pas de trop de détails, ce n'est pas nécessaire. Sachez simplement que vous êtes aimés et que nous sommes proches. Nous continuerons à donner notre guidance, nos messages d'Amour, et à vous apporter notre amour. Car vous êtes très spéciaux dans nos cœurs. Nous sommes proches de vous, de vous tous. Il en sera toujours ainsi car nous participons tous à cette belle danse de la vie, à la joie de l'Amour, à la beauté de Dieu, à l'émerveillement de vos âmes. Nous faisons tous partie de cela, frères et sœurs tous, dans ce monde merveilleux.
 
 Que Dieu vous bénisse. Goldie vous aime. Goldie vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -30,3 +30,7 @@ Vous souhaitez parvenir à ce lieu d’unité dont je parle parce que c’est le
 Je vous remercie, mes amis. Je vais maintenant vous quitter. Je pense que j’en ai dit assez pour que vous puissiez les digérer pour aujourd’hui. Que Dieu vous bénisse tous dans vos efforts pour comprendre véritablement vos âmes et comprendre votre relation avec Dieu et tout ce que Dieu a créé dans son univers beau et parfait. Que Dieu vous bénisse, mes amis. Je suis Flavius Josèphe et je reviendrai. Que Dieu vous bénisse.
 
 **Note :** [Une question complémentaire a été posée ultérieurement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order\fr-contemporary-messages-2019/fr-2019-12-4-2-af-josephus/)
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

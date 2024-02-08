@@ -22,3 +22,7 @@ Grâce à ce pont puissant entre votre âme et la grande Âme de Dieu, toute la 
 Vous verrez mes amis, vous verrez comment le plan de Dieu fonctionnera dans chacune de vos vies et apportera des résultats merveilleux, impressionnants et beaux. Tout cela avec le pouvoir de l’Amour de Dieu, tout cela au fur et à mesure que vous reconnaissez et embrassez cette Vérité et que vous êtes fondamentalement changés à l’intérieur par cet Amour.
 
 Que Dieu vous bénisse. Alec est avec vous. Je ne vous ai jamais abandonnés. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

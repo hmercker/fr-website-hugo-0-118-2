@@ -108,4 +108,6 @@ Ton frère en esprit, Judas Iscariote.
 
 2. <large id="f2"> Il s’agit d’une critique sérieuse qui peut être adressée aux personnes responsables d’avoir publié une révélation, ce qu’est certainement le livre d’Urantia. Selon ma compréhension, la quatrième partie, relative à la vie et aux enseignements de Jésus, ne devait pas faire partie de la « révélation originale », elle fut ajoutée, plus tard, par les éditeurs, lorsqu’ils l’ont découverte. Cependant, on ne doit pas simplement ignorer cette section sur la base de ces observations. Elle contient des écrits merveilleux, qui, lorsqu’ils sont lus avec attention, son cœur va révélera la vérité qu’il contient. Et je pense que Judas révèle sa maturité spirituelle, et son niveau de réalisation, lorsqu’il continue de recommander que ce livre fasse partie du cheminement spirituel de chacun. En fait, si vous voulez vous faire une idée de ce qui se passe après la fin de ces messages, c’est la meilleure source.[↩](#a2)
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)
+### [**Lien vers les messages des années 2002**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

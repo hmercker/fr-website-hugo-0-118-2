@@ -33,4 +33,6 @@ Donc, oui, vous pouvez tout à fait dire que mon programme politique, auquel je 
 
 Lorsque j'ai dit plus haut que la carte politique sera redessinée, je voulais dire que certains idéaux qui ne sont actuellement que potentiels, deviendront réels.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

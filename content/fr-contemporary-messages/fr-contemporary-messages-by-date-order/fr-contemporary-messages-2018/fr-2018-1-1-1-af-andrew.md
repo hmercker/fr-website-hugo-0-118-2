@@ -19,4 +19,6 @@ Exprimez-vous dans cet Amour. Voyez le monde à travers cet Amour et soyez dans 
 
 Mes bien-aimés, les anges marchent avec vous, sans jamais vous quitter, accompagnant toujours leurs protégés sur le chemin de l’Amour et de la Lumière, de l’éveil et de la joie. Que Dieu vous bénisse, mes bien-aimés. Je suis André et je vous aime, chacun d’entre vous est si précieux et si beau aux yeux de Dieu, chaque âme est une lumière dans le monde. Vous êtes aimés. Vous êtes l’Amour et puisse cet Amour continuer à couler à travers vous et tout autour de vous et en vous, recréant et apportant une nouvelle Lumière à votre être. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés. Je vous aime.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018)
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -31,3 +31,8 @@ En comparaison, un diamant est terne car vous brillez avec une telle intensité 
 <small>
 
 1. <large id="f1"> Ne prenez pas le mot "lumière" trop littéralement, il exprime un concept d'énergie qui n'est probablement visible que pour l'esprit.[↩](#a1)
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

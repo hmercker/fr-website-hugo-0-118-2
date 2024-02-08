@@ -26,3 +26,7 @@ Mes bien-aimés, mes bien-aimés, puissiez-vous continuer à vous considérer co
 Bien-aimés, une plus grande beauté, une plus grande expression, un plus grand amour émerge et trouve son chemin dans le monde et nous vous entourons alors que vous naissez dans la Lumière et l’Amour. Nous sommes avec vous. Dieu pose sa main sur vous et vous ressentez la force, le confort et l’Amour qui en découlent. Ne reculez pas, mais soyez fidèles au désir de votre âme d’avancer. Soyez fidèles à ces potentiels et à ces possibilités qui continuent à se manifester dans votre vie. Ayez la foi que tout se déroulera en harmonie et que tout se déroulera dans l’amour. C’est ainsi que Dieu orchestre votre éveil, votre transformation et l’émergence de votre merveilleuse âme dans le monde.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Keea-Atta-Kem et vous savez que je vous aime. Je suis proche de vous, toujours, toujours, pour vous assister dans ce voyage où vous devenez ce beau papillon dans le monde. Je t’aime. Je t’aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

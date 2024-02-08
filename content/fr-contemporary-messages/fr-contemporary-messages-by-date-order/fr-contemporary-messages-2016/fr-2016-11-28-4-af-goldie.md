@@ -18,3 +18,7 @@ Que Dieu vous bénisse. Oh vous avez fait réfléchir le pasteur, mes amis. Dans
 Et j’étais là pour donner à cet homme doux un peu de rire, ce dont il a beaucoup besoin dans sa vie et vous devez rire avec lui, mes bien-aimés, rire les uns avec les autres car dans le rire et dans la joie, dans l’ouverture, dans votre étreinte les uns avec les autres, vous apportez une grande lumière, une douceur dans l’air, une beauté, une lueur à vous-mêmes, mes bien-aimés.
 
 Soyez doux avec les autres, soyez doux avec tous ceux que vous rencontrez et apportez la joie et le rire. C’est un tonique, une bénédiction dont beaucoup ont besoin dans ce monde si plein de stress, de pression et de tension. Détendez-vous dans la prière joyeuse, dans le rire, dans le chant et vous apporterez les bénédictions de l’Amour de Dieu au milieu de vous et la joie dans vos cœurs.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

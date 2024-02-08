@@ -15,4 +15,6 @@ Je suis, Nelson Rockefeller.
 
 Vous êtes en train de lire mes conférences « L’avenir du fédéralisme ». Ce ne sont que des foutaises. Je n’en pensais pas un mot. Je pensais seulement à ma propre famille. C’est tout.
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/)
+### [**Lien vers les messages des années 2011**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

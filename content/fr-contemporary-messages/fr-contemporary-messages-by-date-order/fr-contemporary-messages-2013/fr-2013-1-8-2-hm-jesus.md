@@ -23,4 +23,6 @@ Nous avons besoin de vous pour sentir notre présence permanente, nous vous aido
 
 Nous vous aimons et ressentons notre amour pour chacun, c’est Jésus, votre frère et guide sur le chemin droit et étroit vers notre Père. Au revoir !
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)
+### [**Lien vers les messages des années 2013**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

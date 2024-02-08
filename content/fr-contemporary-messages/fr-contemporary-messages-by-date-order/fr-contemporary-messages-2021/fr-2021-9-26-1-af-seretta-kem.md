@@ -28,3 +28,7 @@ Alors que vous continuez à vous ouvrir largement à cela, vous ferez l’expér
 Que Dieu vous bénisse dans ce voyage d’éveil, qu’il vous garde près de Lui, près de tout ce qui est de Lui, et qu’il permette à tout ce que Dieu désire de couler vers Ses enfants, afin que vous puissiez être ce conduit, cet instrument, cette âme bien-aimée que Dieu utilise. Car en cela, vous êtes puissamment bénis et vous recevez beaucoup.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Seretta Kem. Mon amour est avec vous. Mon amour est grand pour chacune de vous, belles et merveilleuses créations de Dieu. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

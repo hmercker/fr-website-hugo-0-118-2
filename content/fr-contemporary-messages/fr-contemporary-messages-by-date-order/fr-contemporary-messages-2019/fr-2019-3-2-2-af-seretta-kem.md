@@ -28,3 +28,7 @@ Ainsi, mes bien-aimées, belles âmes, faites preuve de sagesse lorsque vous pla
 Âmes bien-aimées, sachez que les anges de Dieu sont avec vous et que nous continuerons à vous guider sur vos chemins, si uniques, si alignés, à condition que vous soyez prêts à suivre la volonté de Dieu. Puissiez-vous entendre mes paroles, âmes bien-aimées, et savoir que je dis ces vérités pour votre bénéfice, pour votre guidance, pour le renforcement de votre lumière, et pour la beauté et l’émerveillement du travail qui vient et viendra de manière surprenante.
 
 Que Dieu vous bénisse, âmes bien-aimées, et vous garde dans Son Amour. Je suis Seretta Kem et je continue à travailler avec vous tous alors que vous parcourez votre chemin jour après jour. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées, et je vous aime.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

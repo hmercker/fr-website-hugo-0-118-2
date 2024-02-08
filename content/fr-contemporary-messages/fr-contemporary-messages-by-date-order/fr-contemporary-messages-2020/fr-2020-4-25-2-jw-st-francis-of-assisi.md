@@ -18,3 +18,7 @@ Comme c’était le désir profond de tant de personnes pour une Terre plus dura
 C’est le souhait que je vous adresse alors que je vous accompagne dans votre voyage et votre visite. Sachez que lorsque vous me demandez de l’aide, celle-ci est toujours disponible. Nous sommes là pour vous plus que vous ne le pensez. Que chacun dans ce beau cercle s’ouvre à l’Amour de Dieu et le reçoive en grande abondance. Je suis votre frère et l’ami de votre âme. Que Dieu vous bénisse.
 
 Je suis François. Allez en paix.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

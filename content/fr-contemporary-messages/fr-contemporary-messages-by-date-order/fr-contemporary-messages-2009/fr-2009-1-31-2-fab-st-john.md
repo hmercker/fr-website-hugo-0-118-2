@@ -17,4 +17,7 @@ Oui, certains d'entre nous, Juifs, connaissaient le grec, pour les besoins du co
 
 C'était un monde romain, et le grec faisait partie de la culture de l'époque. Nous avons essayé de nous isoler du mieux que nous pouvions afin de préserver la pureté de la foi Juive. Mais il y avait des Juifs qui étaient à l'aise avec cette façon de penser païenne.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

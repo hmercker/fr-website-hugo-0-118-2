@@ -15,4 +15,6 @@ C'est moi, Jésus.
 
 Nous n'avons pas une vision simpliste des problèmes du monde. Lorsque nous, et des esprits de même sensibilité, avons canalisé que la rédemption viendra, nous faisons référence à certains événements clés activés par nous, mais aussi au fait, et c'est un fait, que pour de nombreuses raisons impérieuses, l'humanité se prépare à un grand bond en avant. Nous allons donc faciliter ce qui est déjà une réalité dans le monde, prêt à être activé au moment approprié.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

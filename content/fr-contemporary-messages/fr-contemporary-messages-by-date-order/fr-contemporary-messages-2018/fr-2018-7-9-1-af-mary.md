@@ -28,3 +28,7 @@ Vous continuerez à toucher de nombreuses âmes, mes bien-aimés. Et maintenant 
 Puissiez-vous continuer sur ce chemin, âmes bien-aimées. Continuez à vous éveiller à la merveilleuse vérité de l’Amour et du Toucher de Dieu sur vous et nous vous accompagnerons dans ces voyages d’éveil et de service. Notre amour est avec vous, âmes bien-aimées. L’Amour de Dieu vous entoure et tout est baigné de lumière.
 
 Dieu vous bénisse, mes bien-aimés, je suis Marie et je vous aime profondément. Vous êtes mes enfants dont je prends soin et pour lesquels je prie et je cherche à vous apporter une plus grande vérité alors que vous grandissez dans l’amour. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés. Je suis avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

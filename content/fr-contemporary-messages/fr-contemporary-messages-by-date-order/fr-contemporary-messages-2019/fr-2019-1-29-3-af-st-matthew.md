@@ -26,3 +26,7 @@ A chaque instant où vous priez pour ce don de l’Amour du Père, vous vous eng
 Je vous remercie, mes bien-aimés, de vous rassembler, de garder la foi, de marcher sur ce chemin. Malgré les luttes et les obstructions, vous continuez à persister et à recevoir toutes les bénédictions que Dieu doit donner à chacun de vous. Que vos âmes uniques continuent à s’éveiller dans l’Amour et à trouver le chemin que Dieu vous a tracé pour que vous voyagiez, un chemin qui vous permettra de vous connecter à beaucoup d’autres afin qu’Il puisse éveiller ceux qui aspirent à de tels dons, qui aspirent dans leur âme au Toucher de Son Amour. Ainsi, vous, âmes bien-aimées, pourrez-vous continuer à grandir dans l’Amour, à vous fortifier dans l’Amour, et à démontrer cette Vérité puissante à l’humanité.
 
 Que Dieu vous bénisse. Que Dieu vous bénisse. Mon amour est avec vous. Je suis Matthieu et je marcherai avec vous, âmes bien-aimées jusqu’à la fin des temps, le voyage sans limite de l’éveil de l’Amour. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

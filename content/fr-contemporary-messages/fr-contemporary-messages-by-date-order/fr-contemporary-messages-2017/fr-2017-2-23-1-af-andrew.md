@@ -27,3 +27,8 @@ Continuez, mes bien-aimés, cherchez le Royaume et tout viendra à vous. Que Die
 <small>
 
 1. <large id="f1"> First United Spiritualist Church (Première Eglise Spirituelle Unie).[↩](#a1)
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

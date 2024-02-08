@@ -32,3 +32,7 @@ Je vous bénis, mes âmes bien-aimées. Il faut de la force pour marcher sur cet
 Que Dieu vous bénisse, mes âmes bien-aimées. Vous continuez à grandir dans l’Amour et vous continuerez à grandir dans la Lumière. Que Dieu vous bénisse.
 
 Je suis Augustin, votre enseignant, je suis Augustin et je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

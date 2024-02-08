@@ -66,3 +66,7 @@ Puissiez-vous trouver votre chemin au cours de ce voyage, âmes bien-aimées, tr
 Il est là, attendant chacun de vous, et il sera toujours là. En effet, vos âmes aspirent à cela. Puissiez-vous reconnaître ce désir et être vraiment en alignement avec lui, vous amenant à la présence de Dieu, ouvrant votre âme au flux de Son Amour, à travers l’instrumentalité de Son Esprit Saint vous éveillant à tout ce qui est de Dieu et de la création de Dieu, passant de la réalité de l’homme à la réalité de Dieu.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre frère et ami, Jésus, Maître du Royaume Céleste, et celui qui vous aime et prie pour ce monde et pour la guérison et l’éveil de ce beau monde que Dieu a créé afin que vous puissiez vraiment vous connaître et exprimer vos âmes individualisées uniques tout au long du voyage de la vie. Que votre voyage soit en effet éternel et vers une plus grande lumière. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse et vous garde dans la lumière. Nous sommes ici avec vous en permanence. Que Dieu vous bénisse. Mon amour est avec vous.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

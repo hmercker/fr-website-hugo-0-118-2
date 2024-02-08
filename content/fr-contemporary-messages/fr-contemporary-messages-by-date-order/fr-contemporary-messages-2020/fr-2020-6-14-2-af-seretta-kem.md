@@ -40,3 +40,7 @@ Alors que votre but se révèle, que vos âmes s’éveillent, que vous continue
 Comme il l’a été dit, vivre à une époque intéressante est une grande bénédiction. En effet, vous vivez une époque de grands changements, de bouleversements et pourtant de guérison, de changements de conscience, de changements d’attitude, de changements vers l’éveil de l’âme dans l’Amour. Quelle chance vous avez d’en faire partie et chacun d’entre vous a choisi d’en faire partie. Avant même de vous incarner dans ce monde, vous avez confié à Dieu le soin de vous amener à ce lieu de service et d’amour afin que vous puissiez servir Dieu et servir vos frères et sœurs.
 
 Tant de choses sont à venir, mes bien-aimés, tant de choses. Que Dieu vous bénisse sur votre chemin. Nous poursuivrons nos efforts. Notre amour est avec vous pour toujours, âmes bien-aimées. Que Dieu vous bénisse. Je suis Seretta Kem à votre service. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

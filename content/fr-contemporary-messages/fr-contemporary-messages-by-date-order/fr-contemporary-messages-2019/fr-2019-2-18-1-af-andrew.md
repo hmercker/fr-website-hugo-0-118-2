@@ -18,3 +18,7 @@ Que ce cadeau d’amour soit avec vous, mes bien-aimés. Puisse le Toucher de Di
 Dieu continuera à vous bénir puissamment, à vous éveiller profondément, à vous porter dans la lumière et à apporter la joie à votre âme qui éveillera la joie dans votre cœur, qui apportera la paix et la joie à votre esprit. C’est le pouvoir de l’Amour, le pouvoir du Toucher de Dieu sur tous ses enfants qui demandent à recevoir, qui ont la foi d’être ouverts, la force d’aller au-delà du lot quotidien vers quelque chose de beaucoup plus grand et profond et plus beau dans la vie.
 
 Que Dieu vous bénisse, âmes bien-aimées, et vous garde dans son amour. Je suis André et je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

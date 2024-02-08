@@ -22,3 +22,7 @@ Oui, il est important de dire la vérité et d’avoir les mots de la vérité d
 Que Dieu vous bénisse chaque jour, âmes bien-aimées. Que Son Amour se déverse dans votre âme. Que vos désirs soient intenses. Que l’ouverture en vous soit large et réceptive au toucher de Dieu et vous en viendrez à connaître une joie si profonde, un tel émerveillement dans vos prières et vos moments avec Dieu que cela sera le centre et le cœur de votre vie et donnera un sens à tout ce que vous faites.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Augustin et mon amour est avec vous. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées. Augustin vous aime et Dieu vous aime au-delà de toute mesure. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

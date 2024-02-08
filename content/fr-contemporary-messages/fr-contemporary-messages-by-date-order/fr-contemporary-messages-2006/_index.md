@@ -92,7 +92,6 @@ Franklin D Roosevelt | [La moralité du président Roosevelt](/fr-contemporary-m
 Jésus | [Guerre et paix et le plan de Dieu - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-26-2-fab-jesus/) | 26 Décembre 2006
 Joan d'Arc | [Et si je [Jeanne d’Arc] n’avait pas été exécutée ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-26-3-gmb-joan-darc/) | 26 Décembre 2006
 
-[Lien vers les messages de l’année 2007](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
-<br>
-<br>
-[Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-20075/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -27,7 +27,6 @@ Je n'ai pas de message officiel à ajouter pour le moment. Cependant, je voudrai
 
 Jusqu'à notre prochaine communication, donc, je souhaite vous remercier d'avoir reçu mes pensées d'aujourd'hui, et j'attends avec impatience de nombreuses autres occasions de partager davantage de telles pensées avec vous dans le service de vous amener tous au Royaume du Père. Je suis votre frère et ami éternel, Jésus.
 
-[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+### [**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -42,3 +42,7 @@ Une prière par jour, certainement dans la chambre noire. Au moins une prière �
 *[Commentaire : Merci beaucoup pour cette bénédiction et cette opportunité. Nous ferons de notre mieux pour nous préparer et peut-être que si certains membres du Cercle des Sept ont des questions, nous pouvons les préparer pour vous avant votre prochaine venue.]*
 
 Nous serions très heureux de faciliter et de soutenir cela de toutes les manières possibles, car nous savons que chacun d’entre vous a une profonde sincérité envers Dieu dans son âme, envers l’éveil de son âme et envers l’éveil de ce don en chacun. Nous vous remercions donc, nos sept âmes bien-aimées et dévouées, et nous nous réunirons à nouveau. Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem et mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

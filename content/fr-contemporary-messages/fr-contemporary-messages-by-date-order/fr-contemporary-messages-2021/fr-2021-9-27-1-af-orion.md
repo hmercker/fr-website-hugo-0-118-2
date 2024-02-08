@@ -32,3 +32,7 @@ Une nouvelle vie commence, mes amis, une vie pour laquelle vous avez prié, que 
 Nous sommes tous ici pour vous, car vous ouvrez cette porte du changement dans votre monde et à travers vous, beaucoup feront partie de ce grand plan pour le salut de l’humanité. Vous êtes les canaux de Dieu sur la Terre, les instruments de Dieu qui ont été développés parce que vos âmes se sont éveillées par l’Amour. C’est le début d’une grande transformation de votre monde. Puissiez-vous vous voir porter cette flamme de vérité, cette grande bénédiction et cette responsabilité qui viennent avec vos efforts pour servir Dieu et être en harmonie les uns avec les autres dans le monde.
 
 Que Dieu vous bénisse dans ce voyage, mes amis. Je suis Orion et je suis heureux pour vous, très heureux pour vous. Je suis heureux pour nous car nous forgeons une collaboration qui apportera une plus grande lumière à votre monde, ce qui à son tour apportera de plus grandes bénédictions à notre monde alors que nous continuons à servir Dieu à travers l’univers. Dieu vous bénisse, âmes bien-aimées, porteurs de lumière, en fait gardiens de cette grande lumière qui a été donnée pour aider à transformer le monde. Que Dieu vous bénisse et vous garde dans l’amour.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

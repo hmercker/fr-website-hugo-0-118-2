@@ -29,4 +29,6 @@ Je veux ajouter que la Volonté de Dieu est que nous devenions un avec Lui dans 
 
 Je vous aime, et je serai toujours avec vous, mes enfants. Je suis Marie, la mère de Jésus, et je suis Jean le Bien-Aimé, comme on m’appelle parfois.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004)
+### [**Lien vers les messages des années 20041**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

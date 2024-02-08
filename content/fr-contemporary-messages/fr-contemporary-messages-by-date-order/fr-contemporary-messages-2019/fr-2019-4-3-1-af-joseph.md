@@ -22,3 +22,7 @@ Tel est le don proclamé. C'est la bénédiction donnée. C'est la Source de Tou
 Mes amis bien-aimés, puissiez-vous continuer à rechercher cette bénédiction, vous éveiller à ses dons et connaître la merveille qu'est Dieu et Sa création. En cela, nous nous rapprocherons, car si vous priez avec ferveur, si vous cherchez sincèrement, si vous appelez Dieu du plus profond de votre âme, les anges doivent venir en réponse à votre appel. L'Esprit Saint touchera en effet vos âmes. Dieu vous donnera tout ce dont vous avez besoin pour être entiers, éveillés et bénis dans la lumière.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Joseph et mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

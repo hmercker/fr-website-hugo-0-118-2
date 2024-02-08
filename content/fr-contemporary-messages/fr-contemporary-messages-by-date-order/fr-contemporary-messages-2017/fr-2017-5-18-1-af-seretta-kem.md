@@ -41,3 +41,7 @@ Et je le répète, vous êtes aimés, peu importe les choix que vous faites, vou
 <small>
 
 1. <large id="f1"> Il s’agit d’une référence à un projet commencé mais non achevé il y a plusieurs années par Alec Gaunt.[↩](#a1)
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

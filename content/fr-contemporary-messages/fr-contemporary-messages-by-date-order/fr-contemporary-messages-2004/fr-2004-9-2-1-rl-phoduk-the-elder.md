@@ -31,4 +31,6 @@ Je suis Phoduk, et je dois partir maintenant.
 
 **Commentaire de Geoff Cutler :** Rebecca n'était pas une adepte de l'Amour Divin, et il semble qu'elle croit encore à la réincarnation.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004)
+### [**Lien vers les messages des années 2004**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

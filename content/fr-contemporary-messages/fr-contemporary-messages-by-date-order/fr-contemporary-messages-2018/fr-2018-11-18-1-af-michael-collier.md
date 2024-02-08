@@ -30,3 +30,7 @@ Bien-aimés, amis bien-aimés, je suis heureux, très heureux que vous soyez dis
 Nous continuons à travailler avec vous, frères bien-aimés. De nombreuses âmes ont été touchées aujourd’hui, mes amis, alors que vous marchiez dans les rues de cette ville animée. Oui, vous n’en êtes pas conscients, mais cela fait partie de l’humilité et de la fidélité, d’avancer, en faisant confiance à Dieu pour toucher les âmes. Il vous apportera des bénédictions qui profiteront à ceux qui sont en votre présence. C’est ainsi que Dieu travaille, un toucher doux, la bénédiction subtile, très subtile qui sème de nombreuses graines dans de nombreuses âmes alors vous devenez une partie des instruments de vérité et de changement de Dieu dans ce monde.
 
 Dieu vous bénisse, âmes bien-aimées, Dieu vous bénisse. Je suis Michael et je suis heureux d’avoir parlé et de faire partie de cet effort pour apporter la vérité à l’humanité. Que Dieu vous bénisse et vous garde toujours dans son amour. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

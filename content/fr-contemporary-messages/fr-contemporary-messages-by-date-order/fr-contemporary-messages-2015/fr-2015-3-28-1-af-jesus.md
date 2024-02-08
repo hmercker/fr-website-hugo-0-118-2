@@ -19,4 +19,6 @@ Chaque âme ici a reçu l’Amour de Dieu à l’intérieur, et chaque âme ici 
 
 Bénis sont ceux qui cherchent l’amour, bénis sont les artisans de la paix, bénis sont ceux qui désirent changer ce monde en quelque chose de meilleur et de plus pur et plus infusé d’amour et d’harmonie. On a besoin de vous, mes bien-aimés, le monde a besoin de vous pour être des exemples d’amour, des annonciateurs d’amour, des canaux d’amour. Marchez avec moi et je vais éclairer le chemin au-delà des confusions obscures de la condition humaine vers un lieu de clarté et de vraie foi et une compréhension de la Vérité. Je suis avec vous, je suis avec vous et je ne vous quitterai jamais, mes bien-aimés. Je suis votre frère, Jésus. Que Dieu vous bénisse. Que Dieu vous bénisse.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015)
+### [**Lien vers les messages des années 2015**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

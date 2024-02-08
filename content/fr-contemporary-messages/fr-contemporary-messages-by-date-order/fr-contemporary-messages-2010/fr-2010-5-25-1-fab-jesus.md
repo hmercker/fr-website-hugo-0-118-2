@@ -23,4 +23,6 @@ La capacité de résister au mal et à la tentation est à la portée de tous. S
 
 Cela signifie que le caractère que nous possédons est le résultat de ces choix, et que ce caractère défini détermine notre sort immédiat dans le monde des esprits après que la mort soit survenue.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

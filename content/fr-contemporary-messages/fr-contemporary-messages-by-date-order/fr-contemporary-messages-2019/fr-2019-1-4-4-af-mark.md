@@ -32,3 +32,7 @@ Il est bon que vous vous réunissiez, frères et sœurs bien-aimés, pour dire c
 Ayez une grande foi et Dieu déplacera les montagnes, dégagera les chemins et éliminera toutes les obstructions. Vous êtes sur le point d’entrer dans une grande aventure, en voyant se déployer la puissance de l’amour, ensemble et avec vos frères et sœurs qui vous rejoignent.
 
 Soyez bénis, mes frères et sœurs, belles âmes. Que la lumière de l’Amour de Dieu continue à se déverser sur vous. Puissiez-vous connaître la grande puissance de votre âme éveillée dans l’amour, la beauté et la gloire de votre relation avec votre Père Céleste, Créateur de tout, source de tout amour. Bénis soient les artisans de la paix. Bénis soient ceux qui s’aventurent dans le monde et portent la bannière de l’amour. Bénis soient ceux qui aiment Dieu par-dessus tout et qui apportent l’amour partout où ils vont. Vous serez bénis, mes bien-aimés. Vous serez bénis.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

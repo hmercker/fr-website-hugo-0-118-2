@@ -20,3 +20,7 @@ Les humains se demandent souvent combien de temps durera leur vie, combien de te
 La prière, dans un sens, c’est se tenir nu, l’âme mise à nue devant son Créateur, en disant simplement : « Cher Dieu, apporte Ton essence dans mon âme, afin que je puisse ressentir cette union avec Toi, afin que je puisse marcher sur ce pont vers l’éternité, afin que je puisse vraiment ressentir l’Amour Divin et le porter lors de ma marche sur terre et dans l’esprit ».
 
 Je remercie mon frère d’être ouvert à un message un peu long de ma part, car il aime la simplicité et j’essaie toujours de condenser tout ce dont je veux parler. Enfin, puis-je dire que l’ouverture à l’Amour de Dieu est la grande simplicité au-dessus de l’esprit, sans aucun doute, car lorsque vous vous tenez nu devant votre Créateur, vous recevrez la robe du ciel. Que Dieu vous bénisse avec un grand afflux de son Amour Divin. Je suis votre frère en Christ, Judas autrefois de Kerioth, maintenant habitant des Cieux Célestes. Allez en paix.  Allez en paix.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -18,3 +18,7 @@ Les pensées deviennent des choses et pendant que vous priez, si des pensées qu
 L’Univers est vaste mes amis et bien que vous ne puissiez pas percevoir son immensité avec votre esprit, votre âme peut être alignée dans la Grâce de Dieu. Le plus beau chant traverse le cosmos et pénètre chaque être en ce lieu où le pardon règne, où l’amour est la loi. Mes chers, laissez Dieu vous toucher et, même si ce n’est que pour un instant, laissez-vous aller. Je me retire pour être dans ce cercle glorieux de lumière, chacun étant béni dans l’Amour de Dieu.
 
 Je suis votre frère et votre ami éternel. Je suis Yogananda. Allez en paix.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

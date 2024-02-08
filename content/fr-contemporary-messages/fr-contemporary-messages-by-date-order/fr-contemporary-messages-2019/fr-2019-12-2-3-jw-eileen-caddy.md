@@ -22,3 +22,7 @@ Comme vous le savez tous dans ce Cercle, ce magnifique Cercle de Lumière, l’A
 Je demande à chacun, avec douceur, de se rappeler à soi-même et aux autres avec bienveillance et avec l’Amour de Dieu, tout en s’encourageant mutuellement, car beaucoup sont bénis, car ce cercle s’étend au-delà de ce que vous pouvez imaginer. Ceux qui viennent en esprit et qui sont attirés par la lumière, ils sont bénis. Nous vous remercions donc. Nous vous honorons. Nous prions avec vous.
 
 Que Dieu bénisse chacun d’entre vous avec un grand afflux et un grand remplissage de Son Amour. Je suis votre amie et sœur Eileen.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

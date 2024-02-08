@@ -22,3 +22,7 @@ Et cela, mes chers et beaux amis, fera de vous un instrument puissant sur la ter
 Ne suggérez pas que vous perdez l’esprit, mais plutôt que vous changez votre esprit et que vous vous rapprochez de celui de l’âme et de l’esprit ensemble. Et ce sera un jour glorieux lorsque vous trouverez votre chemin et que vous accomplirez cette tâche très importante de fusionner les deux et d’en faire véritablement votre conscience et l’expression de la lumière.
 
 Les anges, les esprits lumineux, vous aideront à le faire. C’est l’une de nos tâches importantes de vous aider à trouver votre chemin vers la conscience de l’âme et nous continuons à travailler dur pour le faire et nous vous aimons, mes amis bien-aimés, ma famille bien-aimée, mes enfants bien-aimés, nous vous aimons, nous vous aimons, nous vous aimons. Que Dieu vous bénisse. Je suis Barbara et je vous aime.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

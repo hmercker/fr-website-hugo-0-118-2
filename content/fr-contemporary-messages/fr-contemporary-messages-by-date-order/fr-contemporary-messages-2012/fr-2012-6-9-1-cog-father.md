@@ -25,4 +25,6 @@ Tu y es presque. Je suis avec toi. Mon amour illuminera ta vie et ensemble nous 
 
 Ton père.
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

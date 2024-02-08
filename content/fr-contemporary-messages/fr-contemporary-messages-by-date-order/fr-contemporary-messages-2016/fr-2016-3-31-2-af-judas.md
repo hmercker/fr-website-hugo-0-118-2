@@ -54,3 +54,7 @@ Continuez à vous laisser guider, à être ouvert, rempli d’amour envers tous 
 Et que votre sourire et l’étincelle dans vos yeux reflète la Vérité de l’Amour de Dieu qui réside dans votre âme. C’est de cette manière que vous parlerez de la Vérité quand vous embrasserez dans l’amour tous ceux que vous rencontrerez.
 
 Dieu vous bénisse, je suis heureux de parler par l’intermédiaire de mon ami. Dieu vous bénisse, je suis Judas et je vous aime.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

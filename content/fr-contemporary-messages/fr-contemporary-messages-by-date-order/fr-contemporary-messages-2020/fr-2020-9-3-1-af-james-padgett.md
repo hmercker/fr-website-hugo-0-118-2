@@ -11,7 +11,7 @@ weight:
 
 James Padgett - reçu par Al Fike le 3 Septembre 2020, Gibsons, Colombie-Britannique, Canada.
 
-Je suis James Padgett. Cet instrument a écrit quelque chose qui est une déclaration importante concernant ses dons et sa médiumnité. Lors de ma vie terrestre, comme vous le savez, j’ai été médium. À bien des égards, j’ai compromis mes dons en travaillant avec nos enseignants Célestes en acceptant de communiquer avec les esprits inférieurs, ceux qui étaient dans l’obscurité et ceux qui progressaient sur le chemin de la vie vers les sphères supérieures. Mes guides Célestes m’ont demandé de réduire cet effort et la communication avec eux, voire de tout arrêter. Mais j’ai persisté parce que je trouvais ces communications très divertissantes et engageantes, tout en continuant à explorer les domaines de la médiumnité et de l’écriture automatique.
+Je suis James Padgett<sup id="a1">[1](#f1)</sup>. Cet instrument a écrit quelque chose qui est une déclaration importante concernant ses dons et sa médiumnité. Lors de ma vie terrestre, comme vous le savez, j’ai été médium. À bien des égards, j’ai compromis mes dons en travaillant avec nos enseignants Célestes en acceptant de communiquer avec les esprits inférieurs, ceux qui étaient dans l’obscurité et ceux qui progressaient sur le chemin de la vie vers les sphères supérieures. Mes guides Célestes m’ont demandé de réduire cet effort et la communication avec eux, voire de tout arrêter. Mais j’ai persisté parce que je trouvais ces communications très divertissantes et engageantes, tout en continuant à explorer les domaines de la médiumnité et de l’écriture automatique.
 
 Cet instrument prend une toute autre direction, en insistant sur la communication Céleste. Je l’applaudis pour ses efforts et cette discipline. Qu’il continue à maintenir et à marcher dans la Lumière de l’Amour Divin, choisissant que son instrumentalité renforce la Vérité de l’Amour Divin et la communication des Vérités de l’Amour Divin. Ceci est important.
 
@@ -44,3 +44,10 @@ Maintenant, avec ces âmes sincères comme vous, vous faites avancer cette véri
 C’est ainsi que le plan de Dieu se réalise, d’une âme à l’autre jusqu’à ce que de nombreuses flammes soient allumées, jusqu’à ce que vous arriviez à cet endroit où il y a une grande lumière dans le monde. N’est-ce pas ce que vous désirez, ce que nous désirons, et certainement ce que Dieu désire, que le monde soit éclairé, que le monde connaisse la paix, que le monde connaisse l’amour, l’amour profond ? N’est-ce pas là notre objectif ? N’est-ce pas là notre travail ? Nous sommes tous engagés dans cette grande quête, cherchant la direction de Dieu, cherchant à être un canal d’amour, un canal de vérité dans votre monde et dans notre monde. Tant de choses dépendent de la sincérité et des efforts, de la cohérence et de la force, de la grande foi de ceux qui sont prêts à faire ce travail.
 
 Que Dieu vous bénisse dans ce travail, ce voyage et ces efforts. Je suis avec vous dans ces efforts car cela me fait un grand bien de voir que ce qui a commencé avec moi il y a tant d’années continue encore aujourd’hui. Je m’appelle James Padgett. Mon amour pour vous est grand. Nous nous consacrons tous à ce travail qui est l’amour de Dieu qui se manifeste dans le monde. Que Dieu vous bénisse. Que Dieu vous bénisse, mes chers.
+<small>
+
+1. <large id="f1"> L'ensemble des messages communiqués par James Padgett  est disponible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-12-fr-family-and-friends-of-james-padgett/)[↩](#a1) 
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

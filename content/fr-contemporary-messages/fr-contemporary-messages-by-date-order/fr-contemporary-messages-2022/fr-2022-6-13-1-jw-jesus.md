@@ -18,3 +18,7 @@ Alors, comment quelqu’un qui souhaite la justice sociale, qui souhaite que la 
 Que votre amour tombe sur le juste et l’injuste, le mal et le bien, que votre prière soit vraie, afin que Dieu vous change du mortel en ange Divin. Il est facile d’être troublé, il faut donc persévérer, et lorsque vous entrez en prière, appuyez-vous les uns sur les autres, bénissez vous, aidez vous les uns les autres. Car là où l’un est bloqué, un autre est ouvert, là où l’un est tombé, un autre s’est levé. Et dans la merveilleuse diversité et l’unicité de chaque être humain, il y a une unité dans l’Amour du Père, que nous sommes tous un. Restez dans vos cœurs afin que vos âmes soient bénies et que la justice trouve sa place.
 
 J’embrasse chacun, je bénis chacun, et je remercie celui-ci, mon frère réticent. Va en paix, reste dans l’Amour, je suis avec toi. Je suis ton frère et ton ami éternel, Maître des Cieux Célestes, Jésus.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

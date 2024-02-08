@@ -15,6 +15,10 @@ C’est moi, Karl Marx.
 
 Vous venez de terminer la biographie de ma vie *[par Francis Wheen]*.
 
-J’ai donné à la vie tout ce que je pouvais, sans rien retenir. Mais malgré cela, j’ai été mal équipé pour faire face à ce qui m’attendait ici.
+J’ai donné à la vie tout ce que je pouvais, sans rien retenir. Mais malgré cela, j’ai été mal équipé pour faire face à ce qui m’attendait ici.*
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+

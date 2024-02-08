@@ -33,3 +33,7 @@ Dieu peut délivrer à l’âme ouverte d’innombrables dons – des dons spiri
 Plongez profondément dans votre âme, mes bien-aimés. Vous y trouverez un trésor. Vous y trouverez de la lumière. Vous y trouverez la paix qui vous permettra de traverser ces temps. Dans votre âme, vous pourrez communiquer directement avec votre Créateur, et Il vous montrera un chemin que vous pouvez prendre et qui vous mènera à la joie et à Lui. Il est la Source de toute bonté, Celui qui peut vous apporter le vrai bonheur. Cherchez-Le !
 
 Je suis Yeshua et je vous aime.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -17,4 +17,6 @@ J'étais alors penché sur les tablettes pendant de longues heures. Je me consac
 
 Oh, mais lorsque je regarde le monde, je vois qu'un grand, grand nombre d'entre eux ont été perdus. Oh malheur. Oui, j'ai été archiviste moi aussi, et cela me plonge encore dans un état de panique de voir tant de documents perdus. Il n'en reste qu'une infime partie. Même la pierre peut devenir poussière. Donc vous voyez, vous devez passer votre temps à développer votre âme. Seul le développement de l'âme est éternel. Vous n'êtes pas parfait en tant que scribe, comme je l'étais presque, mais vous avez bien fait. Je reviendrai.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004)
+### [**Lien vers les messages des années 2004**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -26,4 +26,9 @@ Mes frères, beaucoup travaillent avec vous et beaucoup cherchent à travailler 
 Mes amis, votre frère James est avec vous. Que Dieu vous bénisse. C’est un cadeau de vous assister dans vos efforts et dans votre croissance de l’âme. Que Dieu vous bénisse. Que Dieu vous bénisse. Votre ami Jacques, n’est jamais loin.
 <small>
 
-1. <large id="f1"> Je (Geoff Cutler, webmastrer dES site New-Birth.net et Soul.Truth.Ca) considère James comme un ami très spécial et nous avons passé de nombreuses heures heureuses à parler de choses spirituelles et à prier ensemble. Malheureusement, comme il vivait à Queensland, je ne l’ai pas vu, lui et sa charmante épouse, aussi souvent que je l’aurais souhaité. Il n’était que récemment décédé à cette date.[↩](#a1)
+1. <large id="f1"> Je (Geoff Cutler, webmastrer des sites New-Birth.net et Soul.Truth.Ca) considère James comme un ami très spécial et nous avons passé de nombreuses heures heureuses à parler de choses spirituelles et à prier ensemble. Malheureusement, comme il vivait en Queensland, je ne l’ai pas vu, lui et sa charmante épouse, aussi souvent que je l’aurais souhaité. Il n’était que récemment décédé à cette date.[↩](#a1)
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

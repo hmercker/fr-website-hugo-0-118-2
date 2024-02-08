@@ -42,4 +42,6 @@ Très bien, mon cher frère – avec cela je conclus mon message. Passe une bell
 
 1. <large id="f1"> Dans cette [communication de Judas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-3-1-hr-judas/), il a été évoqué que la naissance de Jésus fut le résultat d’une relation sexuelle normale. Ce sujet cependant a été spécifiquement traité dans un [message adressé par Marie](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-4-15-1-jep-mary/), à travers James Padgett.[↩](#a1)
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)
+### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

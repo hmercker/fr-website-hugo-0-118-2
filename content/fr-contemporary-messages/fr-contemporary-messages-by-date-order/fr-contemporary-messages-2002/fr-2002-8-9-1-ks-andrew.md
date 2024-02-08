@@ -29,4 +29,6 @@ Je vous aime, tous et chacun. Sachez simplement que nous sommes ici avec vous et
 
 Je suis votre ami et frère dans l’Esprit de l’Amour de Dieu manifesté dans mon âme, et l’un de vos gardiens Célestes qui veille sur vous depuis longtemps – André, l’Apôtre de Jésus, qui est Maître des Cieux Célestes, et je suis un adepte de ses enseignements.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)
+### [**Lien vers les messages des années 2002**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

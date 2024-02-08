@@ -49,5 +49,6 @@ Je suis André, l’apôtre de Jésus et un véritable adepte de ses enseignemen
 
 <u>Note</u> : Un autre message a été donné, sur le même sujet, [le 24 Septembre 2000](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-9-24-1-ar-mary-john/), par un autre médium, à peu près au même moment, a une saveur assez différente. On est enclin à penser que les deux messages sont vrais à des moments différents, ou à considérer qu’au moins un des médiums a pu avoir un certain parti pris sur le sujet.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+### [**Lien vers les messages des années 2000**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/)
 
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

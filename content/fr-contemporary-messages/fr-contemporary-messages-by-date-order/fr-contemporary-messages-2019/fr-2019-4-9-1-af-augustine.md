@@ -30,3 +30,7 @@ Lorsque vous demandez quand viendront les changements ? Je réponds que les chan
 Que Dieu vous bénisse, âmes bien-aimées, et vous garde sur le chemin prévu. Que vos yeux s'ouvrent, que les écailles se détachent afin que la vérité et la réalité, le changement et les bénédictions viennent conformément au plan de Dieu pour vous, âmes bien-aimées. Et ainsi je continue à marcher avec vous, mes amis. Je continue à observer vos luttes, vos efforts, vos prières et vos triomphes. Soyez assurés que moi, ainsi que beaucoup d'autres, nous continuons à vous soutenir et à vous guider sur le chemin du changement profond, du changement puissant, du changement merveilleux qui vient avec cette sainte bénédiction de l'Amour.
 
 Que Dieu vous bénisse, mes bien-aimés, que Dieu vous bénisse. Votre enseignant Augustin vous aime tendrement. Je suis toujours avec vous, mes amis, âmes bien-aimées, enfants de Dieu. Je suis avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -20,3 +20,7 @@ Je suis votre frère et votre ami dans l’Amour de Dieu, et je le serai toujour
 Que Dieu vous bénisse.
 
 Je suis Yogananda.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

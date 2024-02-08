@@ -26,3 +26,7 @@ Sachez que vous êtes aimés, que les anges de Dieu vous entourent, que vous ren
 Cela arrive. Cela vient, mes bien-aimés. Soyez patients et aimables envers vous-mêmes et ayez la foi que tout ce qui vous est destiné, toutes les choses bonnes et merveilleuses, les bénédictions et les changements arrivent au bon moment, au temps de Dieu, en harmonie. Et bien que vous goûtiez à ce doux nectar d’Amour et que vous aspiriez à être dans cet endroit si beau et si réconfortant, vous devez savoir que toutes les choses dans l’univers de Dieu ont besoin de temps et des bons éléments pour se développer et émerger. Soyez patient, et sachez que vous êtes en effet, embrassé par Dieu et nourri dans Son Amour et vous émergerez, vous connaîtrez cette grande bénédiction de la liberté, de la rédemption.
 
 Dieu vous bénisse, je suis Jacques et je vous aime. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

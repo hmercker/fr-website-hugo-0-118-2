@@ -26,3 +26,7 @@ L’amour que vous avez l’un pour l’autre est si évident. Garder de l’esp
 Car il peut alors s’entendre, extérieurement, et non plus seulement dans son esprit. C’est une partie importante de la découverte d’une personne. Ainsi, lorsque vous vous trouvez l’un l’autre dans le besoin d’exprimer quelque chose qui se produit en vous, maintenez l’espace dans l’amour. Envoyez-lui de l’amour. Permettez à votre amour de s’écouler à travers lui et soyez un canal nourricier, témoin de sa libération.
 
 Je vous remercie pour votre vigilance et votre attention en ce moment même, car je sens que vous écoutez tous avec les oreilles de votre âme. Que Dieu bénisse chacun d’entre vous. Mon amour reste avec chacun de vous. Que vous soyez dans la joie sur le chemin de l’éveil de vos âmes. Que Dieu vous bénisse. Je suis Keea Atta Kem et je vous aime. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

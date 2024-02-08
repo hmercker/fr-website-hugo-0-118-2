@@ -20,3 +20,7 @@ C’est comme un diamant en vous, mes bien-aimés, que Dieu taille, révélant d
 Permettez à ce don d’amour d’éveiller la lumière à l’intérieur de vous, afin que ce soit la force, la vérité, la gloire et la joie qui viennent lorsque vous découvrez votre propre âme. Alors que Dieu continue à nourrir votre âme de Son Amour, des réveils et de nouveaux commencements, une conscience et une joie magnifiques, ainsi qu’une profonde sagesse viendront de cette manière. Mettez de côté ce qui relève du mental et plongez plus profondément en vous-mêmes et vous trouverez le trésor de la lumière.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Fleur de Lotus et je vous aime. Je vous assisterai dans ce voyage. Si vous me le permettez, je viendrai et vous aiderai à vous éveiller. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

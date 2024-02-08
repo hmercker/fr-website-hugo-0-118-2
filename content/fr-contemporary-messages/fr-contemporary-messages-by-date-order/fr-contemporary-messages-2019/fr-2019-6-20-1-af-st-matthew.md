@@ -26,3 +26,7 @@ Vous commencez donc votre voyage, âmes bien-aimées, et vous avez découvert de
 Chaque jour, il y a la possibilité de connaître un peu plus de Vérité. En vous comprenant vous-mêmes de manière plus profonde et en comprenant Dieu de telle manière, vous verrez votre vie dans ce monde et dans l'Univers avec des yeux différents ; différents, mais joyeux et pleins d'amour.
 
 Que Dieu vous bénisse dans votre voyage, âmes bien-aimées. Je m'appelle Matthieu et je suis heureux de pouvoir m'adresser à vous aujourd'hui. Que Dieu vous bénisse et que Son Amour continue à se déverser en vous, un flux constant, un voyage d'éveil qui ne se termine jamais. Que Dieu vous bénisse, mes bien-aimés. Mon amour est avec vous. Je suis Matthieu. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

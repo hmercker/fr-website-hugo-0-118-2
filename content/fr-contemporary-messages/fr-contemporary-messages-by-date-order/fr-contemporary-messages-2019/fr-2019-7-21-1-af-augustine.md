@@ -20,3 +20,7 @@ Lorsque vous commencez votre voyage de conscience, d’éveil, d’Amour ici dan
 Cette Lumière et cet Amour qui englobent tout, cette Vérité et cette joie, viennent avec cette simple Bénédiction, pour recevoir le Don de l’Amour de Dieu. Priez pour cela, âmes bien-aimées, chaque fois que vous le pouvez et de la manière qui convient à votre esprit et à vos inclinations. Mais ouvrez-vous à ce don et je vous le dis, beaucoup, beaucoup de bénédictions viendront.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre enseignant Augustin et je suis très heureux de venir aujourd’hui pour vous parler. Que Dieu vous bénisse profondément. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

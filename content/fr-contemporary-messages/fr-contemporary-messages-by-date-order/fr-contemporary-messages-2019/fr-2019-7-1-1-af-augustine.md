@@ -34,3 +34,7 @@ Le pouvoir de l’Amour de Dieu, mes amis bien-aimés, est en effet le grand com
 Que Dieu vous bénisse dans ce voyage, et sachez que nous sommes avec vous. Nous continuons à vous soutenir et à vous aimer. Que Dieu vous bénisse et que Son Amour continue à se déverser dans vos âmes et vous apporte tout ce dont je parle dans sa gloire et sa beauté, la paix et la joie, l’amour, l’amour inimaginé, l’amour expansif, l’amour qui guérit, l’amour qui donne la vision de Dieu.
 
 Dieu vous bénisse, mes bien-aimés, votre enseignant Augustin. Je suis toujours heureux d’être avec vous et de vous soutenir sur ce chemin d’éveil. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

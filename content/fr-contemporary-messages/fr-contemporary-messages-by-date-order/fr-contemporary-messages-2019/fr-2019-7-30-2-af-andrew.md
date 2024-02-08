@@ -34,3 +34,7 @@ Il n’y a rien qui puisse vous éloigner de Dieu, mes bien-aimés, lorsque vos 
 Que Dieu vous bénisse, mes chers amis. Je suis André et je suis heureux de vous parler aujourd’hui. Bien que vous soyez éloignés les uns des autres, dans vos âmes, vous êtes fermement liés les uns aux autres. Vous vous unissez étroitement dans ce grand Cercle de Lumière et vous apportez une grande Lumière à travers vous à ce monde. Sachez-le, mes bien-aimés. Poursuivez ces efforts, car nous avons grandement besoin de vous. Le monde a besoin d’efforts tels que ceux-ci, de plus grands efforts, de plus en plus de Cercles de Lumière, de plus en plus de chères âmes qui sont prêtes à atteindre la Lumière et à atteindre Dieu.
 
 Soyez bénis, mes frères et sœurs bien-aimés, sur votre chemin vers Dieu. Nous sommes avec vous. Dieu est avec vous. Vous êtes profondément bénis. Que Dieu vous bénisse, mes bien-aimés. Je suis André.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

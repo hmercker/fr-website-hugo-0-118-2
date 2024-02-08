@@ -20,3 +20,8 @@ Dans les moments où vous êtes submergée, soyez dans votre âme, soyez une enf
 Soyez donc assurée que la mission de votre âme, le cœur de la mission de votre âme, est fixée dans cette œuvre, car vous avez de l’amour, vous avez de la compassion et vous êtes éclairée. Vous comprenez les enseignements de l’Église, et vous comprenez le fonctionnement de l’Amour Divin et ces enseignements. Alors, mon enfant, vous êtes une élue, votre âme est lumineuse, remplie d’amour et de lumière. Honorez-vous, honorez la volonté de Dieu et tout ira bien. Nous sommes avec vous.
 
 Ce fut un plaisir de m’adresser à votre groupe et un plaisir de voir des enfants de la terre porter la vérité, de témoigner et de voir cela. Dieu vous bénisse, mes amis. Je suis le pape Jean-Paul. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

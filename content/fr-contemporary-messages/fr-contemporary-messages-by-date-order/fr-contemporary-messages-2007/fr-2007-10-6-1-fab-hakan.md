@@ -27,4 +27,7 @@ Oh, je n’oublierai jamais cette première rencontre ! Il était si contrit et,
 
 Il m’a dit qu’il ferait tout son possible pour m’aider, et il l’a fait. Son dévouement était sans égal et, comme vous l’avez deviné, j’ai fini par entrer dans une sphère de lumière, en grande partie grâce à son aide. À cette époque, ma curiosité à son égard et à l’égard de sa façon de penser était passée de l’admiration à un véritable amour. Et lorsqu’il m’a conduit à la Nouvelle Naissance, qui est maintenant la mienne, j’ai remercié Dieu pour celui qui a pris ma vie.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

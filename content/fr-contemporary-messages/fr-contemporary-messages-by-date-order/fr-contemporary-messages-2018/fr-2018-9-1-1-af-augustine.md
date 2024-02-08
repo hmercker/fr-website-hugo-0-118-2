@@ -26,3 +26,7 @@ Avec cela, toutes les facultés et les bénédictions, les dons et les connaissa
 Que vos âmes s’éveillent rapidement, âmes bien-aimées. Puissiez-vous en venir à vous connaître vraiment vous-mêmes et à connaître toute la merveille et la beauté qu’est votre âme. Tout cela est si profondément impressionnant dans la connaissance de Dieu, la puissance de Son Amour et de Sa Présence avec vous. De cette façon, vous naîtrez à nouveau, vous serez renouvelés intérieurement et tout ce que vous avez été sera transformé en ce que vous pouvez être et serez dans la merveille de l’Amour Divin.
 
 Que Dieu vous bénisse, mes bien-aimés. Je continue à observer vos périples, à voir l’éveil de vos âmes, à favoriser et à encourager cela et je continuerai en effet à être avec vous dans ce périple car vous êtes mes protégés et je vous aime tellement. Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant Augustin et je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

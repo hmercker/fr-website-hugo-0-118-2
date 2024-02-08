@@ -11,11 +11,11 @@ weight:
 
 Richard Rodgers - reçu par FAB le 13 Octobre 2009, Santa Cruz, Californie, USA.
 
-C'est moi, Richard Rodgers.
+C'est moi, Richard Rodgers.<sup id="a1">[1](#f1)</sup>
 
 Vous êtres arrivé à la fin de la lecture de ma biographie [par Meryle Secrest], et vos yeux sont maintenant ouverts sur ce que j'étais sur Terre. Oui, je suis mort athée et alcoolique, et il y avait beaucoup de choses dans mon âme qui n'étaient pas en harmonie. Mais vous avez aussi lu que dans ma vie intérieure, j'avais beaucoup de sensibilité et de richesse, et c'est également vrai. J'ai puisé dans cette source pour trouver les idées de ma musique. J'avais dit que ce n'était qu'un métier, mais j'ai mieux appris.
 
-Je lis très bien dans vos pensées, et vous vous débattez avec des doutes sur ce que j'ai [canalisé à travers vous il y a six ans](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-5-5-1-fab-richard-rodgers/).
+Je lis très bien dans vos pensées, et vous vous débattez avec des doutes sur ce que j'ai [canalisé à travers vous il y a six ans](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-5-5-1-fab-richard-rodgers/)et le [30 Juillet 2013]
 
 Vous pensez que le genre de progrès dont j'ai parlé aurait dû être impossible étant donné mon état mental et d'âme lorsque je suis entré dans ce monde des esprits. Laissez-moi donc vous raconter mon histoire, et lorsque j'aurai terminé, je vous garantis que vous vous sentirez mieux.
 
@@ -42,5 +42,15 @@ Après cette conversation, j'étais stupéfait. Je n'avais jamais pensé à moi 
 Eh bien, vous savez maintenant que ce n'était pas seulement de l'amour de ma part ; c'était aussi une carrière difficile, où nous devions produire pour survivre. Comme vous le savez, le show-business peut être très cruel, et je l'ai vu comme une affaire d'auto-préservation. Mais je l'ai aussi vu comme une libération et une expression de soi. Mélangé à d'autres choses, il y avait cette pépite d'or, le désir d'améliorer le monde en lui montrant que la bonté existe aussi bien que la cruauté et l'injustice. En fait, je voulais partager les deux, afin d'affirmer une vision positive de l'humanité. J'ai vu mon couronnement dans ma comédie musicale Carousel, où la grande cruauté et l'égoïsme rencontrent le grand amour.
 
 Vous avez lu que vers la fin, je me suis mis à crier : « Faites-la sortir ! ». C'est là que j'ai vu les esprits pour la première fois. Mon esprit avait été déstabilisé par les médicaments.
+<small>
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+1. <large id="f1"> Richard Rogers s'est également exprimé dans les messages suivants : [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Richard Rodgers | [Rodgers et Hammerstein ont honoré Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-5-5-1-fab-richard-rodgers/) | 5 Mai 2003
+Richard Rodgers | [Une autre vision de l’Amérique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-7-30-1-fab-richard-rodgers/) | 30 Juillet 2013
+
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

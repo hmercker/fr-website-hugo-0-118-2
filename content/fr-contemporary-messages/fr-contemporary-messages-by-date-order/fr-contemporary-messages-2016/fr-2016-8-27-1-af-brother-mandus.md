@@ -35,3 +35,15 @@ Je vous remercie de me permettre de parler et je parle parce que je ressens un g
 <small>
 
 1. <large id="f1"> Nous avons assisté à une conférence donnée par un ministre résident du WHC (World Healing Center in Balckpoool – England). Il n’a pas très bien accueilli nos efforts d’explication de notre point de vue et il s’est montré frustré que nous n’acceptions pas son point de vue.[↩](#a1)
+
+2. <large id="f2"> Frère Mandus Nyquist s'est également exprimé dans les messages suivants : [↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Frère Mandus Nyquist | [Vous allez remplir votre mandat de canal de l’Amour chez moi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-6-27-1-af-brother-mandus/) | 27 Juin 2016
+Frère Mandus Nyquist | [La porte de la grâce de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-10-1-jw-brother-mandus/) | 10 Octobre 2020
+Frère Mandus Nyquist | [Continuez à prier pour que la volonté de Dieu prévale à WHC – Ne perdez pas espoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-9-2-af-brother-mandus/) | 9 Mai 2022
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

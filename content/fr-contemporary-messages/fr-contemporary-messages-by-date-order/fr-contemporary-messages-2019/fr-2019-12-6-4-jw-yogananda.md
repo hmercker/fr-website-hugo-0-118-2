@@ -20,3 +20,7 @@ Quoi que vous fassiez, même si vous vous reposez, vous pouvez être centré, da
 Il s’agit donc vraiment d’une simple demande et cela vous profitera à tous, y compris à cet instrument. Et je souhaite m’adresser à vous aujourd’hui, mes amis, pour vous encourager à rester attentif à Dieu et de ne pas prêter attention aux circonstances, aux peuples, aux esprits inférieurs, aux vexations. Demandez la protection, demandez l’amour, cela créera une barrière d’amour et dissipera les ténèbres. C’est la pratique dont j’aimerais parler aujourd’hui. C’est le yoga divin et pour vous, qui êtes bénis par la connaissance de l’Amour de Dieu, votre âme perçoit ces paroles comme vraies et elles le sont véritablement.
 
 Si vous choisissez de commencer et de conserver cette attitude dans la vie, vous allez progresser exponentiellement dans l’Amour de Dieu et finalement être la demeure pour les différents anges du ciel Céleste. Nous sommes avec vous, nous vous aimons, tout mon amour pour vous. Je vous remercie. Que Dieu vous bénisse. Je suis votre frère et ami, Yogananda.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

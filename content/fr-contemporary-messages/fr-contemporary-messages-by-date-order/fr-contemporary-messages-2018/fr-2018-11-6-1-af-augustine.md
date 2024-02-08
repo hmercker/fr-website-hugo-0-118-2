@@ -36,3 +36,7 @@ Sachez que nous sommes avec vous pour vous aider, nous sommes avec vous pour vou
 Que Dieu vous bénisse, mes beaux amis, vous qui luttez tant dans ce monde qui est le vôtre, et pourtant, vous êtes comblés de tant de bénédictions. Jour après jour, instant après instant, Dieu continue de vous bénir mes bien-aimés. Il envoie ses anges pour être avec vous. Que vos choix soient toujours pour la lumière, que vos mots reflètent toujours l’amour, que vos pensées soient dans le flux de l’Amour de Dieu.
 
 Dieu vous bénit mes bien-aimés. Je suis votre enseignant Augustin et je vous aime, belles âmes qui continuez sur ce Chemin Divin. Que Dieu vous bénisse mes bien-aimés. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

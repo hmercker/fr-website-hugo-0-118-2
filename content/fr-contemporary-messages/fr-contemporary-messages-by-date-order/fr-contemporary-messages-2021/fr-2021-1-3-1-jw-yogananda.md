@@ -20,3 +20,7 @@ Chaque âme que vous rencontrez vous donne l’occasion de rayonner l’amour de
 Je vous demande d’aller dans le monde avec cette conscience, avec cet amour, avec cette bénédiction, sans discrimination ni jugement car tous sont égaux aux yeux de Dieu ; tous sont ses enfants, et il attend que chacun vienne à lui, les bras ouverts. Alors, bienvenue à tous.
 
 Que vous soyez bénis en ce jour et pour toujours, les belles âmes que vous êtes avec les dons que vous avez reçus, sans aucun doute. Avec tout mon amour et mes bénédictions, je suis votre frère dans l’amour de Dieu. Je suis Yogananda.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

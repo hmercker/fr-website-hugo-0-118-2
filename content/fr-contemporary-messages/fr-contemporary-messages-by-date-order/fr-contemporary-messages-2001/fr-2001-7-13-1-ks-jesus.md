@@ -31,4 +31,6 @@ Que Dieu vous bénisse et vous garde en sécurité. Je reviendrai vous écrire l
 
 Nous vous aimons au-delà de toute mesure, et nous prions avec vous lorsque vous nous y invitez. Votre frère en Christ, Jésus de la Bible et Maître des Cieux Célestes.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)
+### [**Lien vers les messages des années 2001**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

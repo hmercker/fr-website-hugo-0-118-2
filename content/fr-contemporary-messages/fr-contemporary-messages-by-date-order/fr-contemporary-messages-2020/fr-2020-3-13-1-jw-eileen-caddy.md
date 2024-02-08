@@ -16,3 +16,7 @@ C’est moi votre sœur Eileen, je suis si heureuse que vous ayez compris mes su
 Alors que vous peaufinez ce que vous souhaitez dire et proposer, sachez que je suis tout simplement ravie du travail que vous avez accompli. Vous m’honorez et vous serez une grande bénédiction pour ma chère Findhorn, que beaucoup viennent qui soient ouverts à l’Amour de Dieu, que beaucoup viennent afin que le portail de lumière de Findhorn soit lumineux et que ce que votre communauté et d’autres ont créé dans le monde entoure vraiment la terre de lumière, d’amour et de paix, que chaque âme s’éveille à ce don glorieux.
 
 Je vous remercie de tout mon cœur et je serai vraiment avec vous. Alors, continuez et permettez au flux d’amour de vous porter, et il le fera. Je vous aime, Dieu vous bénit. Je suis votre sœur et amie, Eileen. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -30,3 +30,7 @@ Nous continuons à nous tenir à vos côtés, à marcher avec vous, à utiliser 
 Il y a un grand potentiel, âmes bien-aimées. Tant de choses attendent que vous arriviez à cet endroit où toutes les barrières et les distractions, toutes les erreurs, tout ce qui n’est pas de l’amour, peuvent tomber et l’amour peut régner en maître dans votre être, dans votre esprit et dans votre âme. Que les deux parties de votre être et toutes les parties de votre être puissent être intégrées dans l’amour, éveillées dans l’amour et exprimées dans l’amour.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Matthieu et je suis avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

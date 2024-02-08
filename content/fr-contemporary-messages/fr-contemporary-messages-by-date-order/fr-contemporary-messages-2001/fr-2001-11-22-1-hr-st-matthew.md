@@ -68,4 +68,6 @@ Ton ami et frère, Matthieu.
 
 1. <large id="f1"> Le portrait de Mathieu est donné lors du message : « [la fuite en Égypte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-5-1-hr-judas/) » communiqué le 05 Octobre 2001.[↩](#a1)
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)
+### [**Lien vers les messages des années 2001**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

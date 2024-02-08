@@ -30,3 +30,7 @@ Il y a de nombreuses façons de servir Dieu, mes amis. Il y a beaucoup d’oppor
 Dans votre profond désir d’être avec Dieu, puissiez-vous aussi expérimenter les grandes flammes de la Pentecôte intérieure qui brûleront tout ce qui est résistant, craintif, ignorant et perdu dans les ténèbres. Vous serez reconquis dans l’Amour comme vous êtes profondément aimé par Dieu. Nous continuons à vous accompagner dans vos voyages dans ce grand et vaste monde de l’humanité. Puissiez-vous le savoir et vous réconforter en cela, que nous sommes avec vous et que Dieu est avec vous et que nous ne vous quitterons jamais.
 
 Que Dieu vous bénisse, mes beaux amis, je suis Pierre. Je viens à vous pour vous encourager, pour vous inspirer, pour que vous puissiez avancer dans le grand travail qui consiste à délivrer la Vérité de l’Amour à l’humanité pour l’éveiller à Dieu et à tout ce qui vient avec cet éveil. Dieu vous bénit, âmes bien-aimées, Dieu vous bénit tendrement. Mon amour est avec vous. Je suis Pierre. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

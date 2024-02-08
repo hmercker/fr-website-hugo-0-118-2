@@ -21,4 +21,6 @@ Vous confondez deux choses : notre incapacité et notre répugnance à violer le
 
 Alors pourquoi n’essayez-vous pas de les arrêter, demandez-vous ? Et si nous essayons de les arrêter, n’est-ce pas là la définition même de l’intervention ?
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

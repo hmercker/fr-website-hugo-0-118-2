@@ -43,5 +43,8 @@ Je vous aime, ma chère famille en Christ, et je prie pour la progression de vos
 
 Je suis Marie, la mère de Jésus et je suis une vraie disciple de mon fils, qui est notre Maître et frère aîné.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+
+### [**Lien vers les messages des années 2000**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

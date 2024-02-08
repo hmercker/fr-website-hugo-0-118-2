@@ -26,4 +26,6 @@ Vous avez interprété mon livre comme une parabole de la défaite du mal par Di
 
 1. <large id="f1"> **Abraham « Bram » Stoker** (8 Novembre 1847 - 20 Avril 1912) fut un écrivain Irlandais de romans et de nouvelles, qui est surtout connu aujourd'hui pour son roman d'horreur Dracula publié en 1897. De son vivant, il était plus connu pour être l'assistant personnel de l'acteur Sir Henry Irving et le directeur commercial du Lyceum Theatre de Londres, dont Irving était propriétaire. (Source : Wikipedia.)[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

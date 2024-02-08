@@ -29,4 +29,6 @@ Considérez cela lorsque vous répondez à vos besoins quotidiens : Lorsque vous
 
 Je suis votre bien-aimé comme vous êtes le mien, Jésus de la Bible.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005)
+### [**Lien vers les messages des années 2005**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

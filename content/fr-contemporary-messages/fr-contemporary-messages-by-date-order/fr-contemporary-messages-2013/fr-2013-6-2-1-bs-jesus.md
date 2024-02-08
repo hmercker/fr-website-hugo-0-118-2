@@ -17,4 +17,6 @@ N’ayez pas peur de suivre le chemin que Dieu vous invite à suivre. Il est le 
 
 C’est toujours à vous de choisir de quitter le troupeau, de vous écarter du chemin. Parfois, vous pouvez vous égarer au point de perdre de vue votre berger. Mais le Père Céleste ne vous perdra jamais de vue, vous, sa brebis égarée. Il vous appellera. Il vous donnera des signes pour vous indiquer le chemin du retour. Mais une fois encore, c’est à vous de choisir si vous voulez tenir compte de ces signes et répondre à son appel. Le chemin du retour sera aussi rocailleux que celui sur lequel vous vous êtes égarés. Mais votre désir de rentrer à la maison vous donnera la force de surmonter tous les obstacles sur le chemin, et vous serez béni et guidé.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)
+### [**Lien vers les messages des années 2013**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

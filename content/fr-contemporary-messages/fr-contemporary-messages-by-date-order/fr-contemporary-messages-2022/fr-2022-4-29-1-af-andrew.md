@@ -24,3 +24,7 @@ C'est le chemin de l'âme que vous recherchez et le chemin de l'âme que nous so
 Écoutez votre âme, mes amis bien-aimés, écoutez la beauté de votre âme, la sagesse de votre âme. Lorsque vous vous exprimez dans la vie, que cela soit fait avec amour, amour pour vous-même, amour pour tous, et amour pour Dieu. De cette façon, vous êtes sûrs de marcher dans la lumière et que ce voyage peut être en alignement avec la volonté de Dieu. Vous êtes bénis alors que l'Amour continue à couler dans vos âmes, Sa sagesse sera transmise à travers vos âmes. Vous en viendrez à connaître Dieu plus pleinement, avec plus de profondeur, d'ampleur et de joie. Vous êtes vraiment aimés, vraiment aimés.
 
 Mes amis bien-aimés, je suis André et je vous aime, chacun de vous, des âmes si précieuses, des enfants de Dieu. Nous vous observons alors que vous vous éveillez. Nous sommes témoins du miracle du toucher de Dieu sur votre âme et en cela nous sommes remplis de joie. Nous apprenons à connaître la beauté de la création de Dieu à travers vous, cette fleur unique qu'est votre âme. Que Dieu vous bénisse, mes bien-aimés, que Dieu vous bénisse de son Amour.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

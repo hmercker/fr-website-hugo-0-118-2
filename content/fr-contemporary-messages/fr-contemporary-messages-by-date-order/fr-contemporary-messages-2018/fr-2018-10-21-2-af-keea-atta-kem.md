@@ -25,3 +25,7 @@ Vous pouvez demander ma présence et je viendrai pour être avec vous dans vos p
 <small>
 
 1. <large id="f1"> Il s’agissait d’un cercle en ligne basé sur Zoom.[↩](#a1)
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

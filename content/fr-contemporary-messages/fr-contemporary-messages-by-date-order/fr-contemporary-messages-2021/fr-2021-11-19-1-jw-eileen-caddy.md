@@ -19,3 +19,7 @@ Je souhaite embrasser tout spécialement mes amis Susan et Michael <sup id=”a1
 <small>
 
 1. <large id=”f1”> Fait référence à Michael et Susan Lytton-Hitchens, amis personnels d’Eileen Caddy.[↩](#a1)
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

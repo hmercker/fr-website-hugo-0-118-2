@@ -19,4 +19,6 @@ Et lorsque j'étais suspendu à la croix, le corps torturé par la douleur, j'é
 
 C'est donc dans ce sens que j'ai béni ma situation tragique, et pas du tout dans le sens d'embrasser un type de mort qui n'était pas du tout en harmonie avec les intentions de Dieu pour ma vie.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

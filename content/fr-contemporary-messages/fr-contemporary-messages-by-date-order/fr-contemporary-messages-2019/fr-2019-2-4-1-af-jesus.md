@@ -32,3 +32,7 @@ Que Dieu vous bénisse, âmes bien-aimées, alors que vous continuez à voyager 
 Vous portez la clé, mes âmes bien-aimées. Dieu vous a donné un puissant antidote pour faire face aux ténèbres de ce monde. Puissiez-vous utiliser cette clé sagement et exprimer cette Vérité avec tout votre cœur et toute votre âme, votre désir et votre volonté. Que tout s’aligne et apporte par votre belle lumière, beaucoup de bénédictions et un grand Amour et une grande Vérité afin que votre lumière brille de toutes ses éclats dans ce monde obscurci.
 
 Je marche avec vous, âmes bien-aimées. Je marche avec vous et mon amour est avec vous. Vous êtes mes frères et sœurs et nous marchons ensemble en portant la Lumière dans votre monde. Alors que le grand courant de l’Amour de Dieu continue à se frayer un chemin à travers les ténèbres et à apporter réconfort et paix à beaucoup, je suis avec vous et je le serai toujours. Sachez que je vous aime, mes bien-aimés, que je vous aime tendrement. Je suis Jésus et je suis avec vous. Que Dieu vous bénisse. Que Dieu vous bénisse profondément.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

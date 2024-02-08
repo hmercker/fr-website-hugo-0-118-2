@@ -28,3 +28,7 @@ Ressentez-le maintenant, mes bien-aimés. Sentez l’Amour de Dieu qui vous atte
 Que ce cadeau soit le vôtre, âmes bien-aimées. En effet, il y a ceux ici qui le savent bien et certains d’entre vous sont curieux et s’interrogent et ressentent ce sentiment de paix et d’Amour. Vous goûtez quelques gouttes de ces Eaux Vives mais Dieu vous exhorte à boire profondément, car vous avez soif, mes bien-aimés, vous avez soif de cela et c’est ici pour vous, le grand rush de Son Amour, apaisant vos âmes et vous apportant ce que vous cherchez et désirez.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Matthieu et je vous aime tendrement, âmes précieuses qui cherchent la Vérité, la Guérison et l’Amour. Puissiez-vous trouver tout ce que vous cherchez au sein de l’étreinte de Dieu. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

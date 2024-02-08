@@ -34,3 +34,8 @@ Il en sera ainsi en fonction de votre désir et de vos efforts dans la prière, 
 Que Dieu vous bénisse dans vos voyages, âmes bien-aimées. Puissiez-vous en venir à savoir que Dieu a l'intention de vous accorder toutes les bonnes et belles bénédictions, ainsi qu'à cette Terre et à tous ceux qui l'habitent. Les créatures, les âmes bien-aimées, toute la nature dans toute sa gloire et sa polyvalence s'épanouiront dans ce nouveau monde, tout comme les âmes de l'humanité et tous ceux qui viennent, les enfants, les enfants des enfants, pendant de nombreux, nombreux siècles à venir, connaîtront un monde différent du vôtre. Ils feront l'expérience d'une vie épanouie dans l'amour, qui est joyeuse et belle. Ces choses arrivent et de grandes bénédictions vont couler sur vous tous.
 
 Je suis votre ami Matthieu. Je suis heureux de vous avoir parlé aujourd'hui. Que Dieu vous bénisse, âmes bien-aimées. Que ce jour soit un jour de profonde bénédiction. Chaque jour où vous vous réunissez sera en effet un jour de profondes bénédictions. Que Dieu vous bénisse, âmes bien-aimées. Je suis avec vous. Je suis Matthieu. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

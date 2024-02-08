@@ -28,3 +28,7 @@ Oui, mes chers, vous avez beaucoup de travail à faire. Beaucoup de choses à co
 Bien-aimés, nous sommes avec vous, chacun d’entre vous, alors que vous poursuivez ce voyage. Dieu est toujours avec vous. Puissiez-vous avoir le don et la bénédiction de le savoir profondément, de le savoir joyeusement, de le savoir avec foi, force et paix, que Dieu est toujours avec vous, mes bien-aimés. Sa main est sur vous, déversant ses bénédictions sur vous, mes bien-aimés. Nous continuons ce voyage. Nous continuons à vous guider dans vos voyages individuels. Nous continuons à regarder vos âmes s’éveiller avec le Souffle d’Amour de Dieu.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Matthieu. Mon amour est avec vous et vos efforts. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

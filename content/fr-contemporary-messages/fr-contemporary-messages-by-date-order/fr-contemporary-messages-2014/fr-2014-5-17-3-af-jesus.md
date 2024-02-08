@@ -20,4 +20,6 @@ Suivez-moi mes enfants, suivez-moi dans des pâturages plus verts où Dieu resta
 
 1. <large id="f1"> Cette phrase particulière est très significative et n’est pas souvent utilisée par Jésus. Sa signification est qu’elle ANNONCE à tous ceux qui se trouvent dans les Cieux qu’il est bien celui qu’il prétend être, et qu’il n’est pas un imposteur. C’est un bon test pour tout esprit qui prétend être Jésus, que de lui demander de faire cette déclaration. [↩](#a1)
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014)
+### [**Lien vers les messages des années 2014**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

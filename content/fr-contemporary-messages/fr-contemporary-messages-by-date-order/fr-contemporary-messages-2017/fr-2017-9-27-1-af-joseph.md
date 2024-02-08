@@ -16,3 +16,7 @@ Vous préparez une place pour beaucoup, mon fils (A). Vos efforts apporteront de
 Tant de choses arrivent, âmes bien-aimées, tant de choses. Vous serez prêtes. Vous serez préparées. Vous exprimerez votre force, votre foi, votre connaissance et votre amour. Les autres le reconnaîtront et ressentiront la puissance du toucher de Dieu dans vos âmes. Tels sont les Plans de Dieu pour apporter à Ses enfants le secours dont ils ont besoin, la Vérité qui les libérera, loin de leurs dilemmes et de leurs souffrances. Vous trouverez chaque jour des occasions de faire ce travail, de toucher les autres dans l'Amour et la Vérité, la guérison et la paix.
 
 Continuez à attirer l'Amour du Père dans vos âmes et sachez que c'est la clé. C'est la source de tous vos dons, la véritable force intérieure, la lumière. La merveille qu'est votre création est animée par le pouvoir de l'Amour. Marchez dans cette lumière. Marchez dans cette lumière. Mes chers enfants, vous êtes bénis. Vous êtes vraiment bénis. Je suis Joseph, le père de Jésus et je vous accompagne aussi dans vos voyages. Que Dieu vous bénisse. Que Dieu vous bénisse et vous garde avec Dieu toujours, toujours.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

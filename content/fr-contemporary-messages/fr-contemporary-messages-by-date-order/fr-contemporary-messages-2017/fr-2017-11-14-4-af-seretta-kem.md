@@ -40,3 +40,7 @@ Puissiez-vous continuer à vous ouvrir à l'émerveillement de la Création de D
 Ne vous sentez-vous pas vous élever dans la Lumière, sentant que vous êtes proches de Dieu, voire de la Lumière de la présence de Dieu ? Sa Paix qui dépasse toute compréhension, Son Amour si beau, sont avec vous en ce moment. Buvez profondément ces bénédictions, soyez avec Dieu et nous serons aussi avec vous dans vos prières, dans cette Lumière.
 
 Dieu vous bénisse, je suis Seretta Kem et j'ai un profond Amour pour chacun d'entre vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

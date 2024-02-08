@@ -25,7 +25,15 @@ Votre prière à Dieu ne nécessite pas qu’une autre personne vous initie ou f
 
 J’ai eu le privilège d’être choisi pour recevoir ces nombreux et magnifiques messages qui se trouvent dans ces volumes. Je suis ravi de venir ce soir pour partager avec vous cette façon simple mais profonde de développer votre relation avec votre Dieu. Ce n’est pas à une autre personne de vous dire qui est votre Dieu. C’est à Dieu et à vous de vous connaître au plus profond de votre cœur, au plus profond de votre âme, en marchant pas à pas avec Dieu toujours proche.
 
-Je vous remercie d’avoir entendu l’appel de votre âme et d’avoir rejoint ce cercle ce soir, d’avoir été en prière et d’avoir expérimenté ce que c’est que de recevoir l’essence de l’Amour Divin, l’amour du Créateur. Dieu vous bénisse, chères âmes, mon amour est avec vous, je suis James Padgett. Que Dieu vous bénisse.
+Je vous remercie d’avoir entendu l’appel de votre âme et d’avoir rejoint ce cercle ce soir, d’avoir été en prière et d’avoir expérimenté ce que c’est que de recevoir l’essence de l’Amour Divin, l’amour du Créateur. Dieu vous bénisse, chères âmes, mon amour est avec vous, je suis James Padgett.<sup id="a1">[1](#f1)</sup>
+
+Que Dieu vous bénisse.
 <small>
 
 1. <large id="f1"> Le livre dont il est question s'intitule [Le véritable Évangile révélé à nouveau par Jésus](/fr-james-padgett-messages/fr-according-publication-volume-tg/) et peut être obtenu en format pdf, epub, kindle et imprimé. Il y a quatre volumes dans la série.[↩](#a1)
+
+2. <large id="f2"> L'ensemble des messages communiqués par James Padgett  est disponible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-12-fr-family-and-friends-of-james-padgett/)[↩](#a2) 
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

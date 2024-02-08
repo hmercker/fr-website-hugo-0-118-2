@@ -21,4 +21,6 @@ Saisissez chaque jour, mes bien-aimés, comme une opportunité de découvrir la 
 
 C’est l’univers de l’amour et de la création de Dieu. Marchez avec Dieu, mes bien-aimés. Marchez avec nous, les anges, et les découvertes seront époustouflantes, merveilleuses, grandioses et belles. Que Dieu vous bénisse, mes bien-aimés, je suis André et je vous aime. Que Dieu vous bénisse.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015)
+### [**Lien vers les messages des années 2015**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

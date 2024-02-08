@@ -97,14 +97,14 @@ Il y a encore beaucoup de choses à dire et elles seront dites en temps voulu. N
 
 Fais une pause nécessaire. Part avec notre amour et nos bénédictions. Nous sommes toujours à tes côtés et te baignons dans notre amour.
 
-Ton frère qui t’aime,
+Ton frère qui t’aime,<sup id="a1">[1](#f1)</sup>
 
-Richard.
+@Richard.<sup id="a2">[2](#f2)</sup>
 
-**Note :** Ce message est protégé par un copyright.
+1. <large id="f1"> Ce message est inclus dans le livre « The Richard Messages » en tant qu’article numéro 44. Le livre peut être acheté sur [Lulu](https://www.lulu.com/shop/james-reid/the-richard-messages/paperback/product-21354445.html?page=1&pageSize=4) ou sur [Amazon](https://www.amazon.fr/Richard-Messages-English-James-Reid-ebook/dp/B00OZ8JZUY). Il est intéressant de noter que les conseils donnés ici sur la meilleure façon d’aborder la question des émotions troublantes sont tout à fait contraires à ceux d’un autre enseignant qui prétend que le flux d’Amour divin est inhibé par les émotions. Un autre message de Richard a été partagé [le 18 Mai 2014](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-18-1-jr-richard/)[↩](#a1)
 
-Ce message est inclus dans le livre « The Richard Messages » en tant qu’article numéro 44. Le livre peut être acheté sur [Lulu](https://www.lulu.com/shop/james-reid/the-richard-messages/paperback/product-21354445.html?page=1&pageSize=4) ou sur [Amazon](https://www.amazon.fr/Richard-Messages-English-James-Reid-ebook/dp/B00OZ8JZUY). Il est intéressant de noter que les conseils donnés ici sur la meilleure façon d’aborder la question des émotions troublantes sont tout à fait contraires à ceux d’un autre enseignant qui prétend que le flux d’Amour divin est inhibé par les émotions.
+2. <large id="f2"> Un autre message sur les émotions a été reçu [la veille](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-14-1-af-judas/), via un autre médium.[↩](#a2)
 
-Un autre message sur les émotions a été reçu [la veille](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-14-1-af-judas/), via un autre médium.
+### [**Lien vers les messages des années 2013**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

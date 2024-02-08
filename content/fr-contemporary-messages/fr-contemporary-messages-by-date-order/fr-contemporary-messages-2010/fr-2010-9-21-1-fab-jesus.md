@@ -21,4 +21,6 @@ Le fait que les nourrissons absorbent les négativités des ancêtres et des adu
 
 Le péché originel dit que le péché est venu dans le monde par le péché d’orgueil des premiers parents. Eh bien, oui, je vois ce que vous voulez dire. Ils ont établi un modèle. Mais l’humanité n’est pas condamnée au péché par cette première chute ; elle souffre plutôt de choix malheureux, imposés par les attitudes sociales et culturelles dominantes. Donc, si vous voulez donner une cause au péché, cette cause n’est pas le péché originel ; la cause est simplement l’ignorance.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

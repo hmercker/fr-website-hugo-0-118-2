@@ -24,3 +24,7 @@ Ce message est au-delà du cercle, pour tous. Oui, au niveau matériel, donnez c
 Enfin, je souhaite vous rappeler que même votre temps de prière n’est parfois qu’une répétition, à la même heure chaque jour, des mêmes mots. Et bien que cela puisse apporter le calme et la paix, qui sont de bonnes choses, je vous suggère la spontanéité, à tout moment, de remercier Dieu, d’être dans la gratitude. Cette prière fera entrer l’Amour dans votre âme en un grand flot, emportant tout le reste. Plongez profondément dans ces eaux.
 
 Mes chers frères et sœurs, vous êtes une bénédiction et je vous remercie encore une fois d’avoir pris mes paroles à cœur. Je suis votre frère et ami, pour toute l’éternité. Je suis Yogananda. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -28,3 +28,7 @@ Mes amis bien-aimés, vous avez été bénis encore et encore. Vous avez été �
 Que Dieu vous bénisse, mes amis, et vous garde dans la lumière et vous élève des ténèbres. Puissiez-vous vous ouvrir à l’afflux de Son Amour et découvrir toute la beauté et l’émerveillement de votre âme. Soyez en paix et découvrez l’Amour de Dieu comme l’ancre même de votre vie. Connaissez le pouvoir de votre libre arbitre et comment vous pouvez l’exercer pour votre propre bénéfice et votre élévation.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre enseignant, Augustin. Mon amour, mes soins et mes efforts en votre faveur continuent parce que je suis un ange Céleste, un serviteur de Dieu. Je viens vous servir, comme beaucoup d’autres, pendant que vous poursuivez ce voyage vers plus de lumière, de vérité et d’amour. Que Dieu vous bénisse, bien-aimés. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

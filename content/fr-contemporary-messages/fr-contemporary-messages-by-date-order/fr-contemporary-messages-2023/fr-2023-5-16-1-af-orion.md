@@ -26,3 +26,7 @@ Votre frère bien-aimé Jésus est l’exemple ultime de ces possibilités. Pour
 Que Son Amour continue de vous réveiller, mes frères et sœurs bien-aimés. Cette seule grande vérité est la plus grande vérité de tout l’univers, et croyez-moi, j’ai l’autorité de vous le dire. J’ai vu une grande partie de la création de Dieu. Je reconnais le pouvoir de Son Amour de transformer, de créer, de réaliser des choses merveilleuses, et vous avez accepté cette vérité, reconnu le pouvoir de cette bénédiction. Vous nous rapprochez ainsi que beaucoup d’autres, car la loi promulgue et garantit qu’il en soit ainsi.
 
 Continuez, mes amis bien-aimés, et soyez avec Dieu. Soyez ouvert, réceptif, reconnaissant Dieu, démontrant le pouvoir de la foi en vous, et tout s’ouvrira dans sa gloire, la fleur, le miracle, la lumière qui est votre âme. Que Dieu vous bénisse, mes amis bien-aimés, et vous garde dans l’harmonie et la lumière, dans l’amour et la joie. Que Dieu vous bénisse. Je suis Orion, votre ami, depuis toujours. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -39,7 +39,6 @@ J’aimerais pouvoir répondre à votre question quant à la possible existence 
 
 En résumé, j’espère avoir répondu de façon satisfaisante aux préoccupations de K____ et J____ quant à la constance de l’Amour effleurant du Père, que l’humanité en soit consciente ou non ou qu’elle ait été douée du privilège du partage de l’âme. Ce message étant plus long que d’habitude, je vous laisse maintenant avec mon amour et mes bénédictions, et avec l’assurance que, pour nos administrateurs et pour plusieurs de nos membres de l’église, aucun d’entre vous ne connaîtra jamais l’indisponibilité de l’Amour du Père. Car à ceux qui ont reçu, Il est donné. Je suis votre frère et ami, Jésus.
 
-[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+### [**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

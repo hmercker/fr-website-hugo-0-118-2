@@ -27,4 +27,6 @@ Mais pour que je puisse te le donner, tu dois sentir au plus profond de ton cœu
 
 Ton Père aimant.
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

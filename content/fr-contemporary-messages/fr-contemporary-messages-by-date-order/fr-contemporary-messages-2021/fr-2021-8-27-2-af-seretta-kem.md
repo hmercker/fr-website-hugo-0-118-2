@@ -32,3 +32,7 @@ Faites confiance au pouvoir de Son Amour pour guérir et transformer. Vous serez
 Puissiez-vous être grandement bénis dans vos âmes, mes bien-aimés. Permettez-vous d’être dans cette Grâce qui est la Présence de Dieu. Ouvrez-vous à l’afflux de Son Amour et connaissez la paix qui dépasse toute compréhension. Elle est là pour vous en cet instant, là pour vous à chaque instant. Nous sommes donc ensemble en prière. Que Dieu nous bénisse profondément dans nos âmes, qu’il nous élève afin que nos esprits soient en paix, que nos âmes soient dans le ravissement de la joie alors que nous communions avec Dieu.
 
 Que Dieu vous bénisse. Je suis Seretta Kem. Je suis souvent avec vous, âmes bien-aimées, souvent avec vous. Mon amour est avec vous. Que Dieu vous bénisse. Que Dieu vous bénisse dans son amour.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

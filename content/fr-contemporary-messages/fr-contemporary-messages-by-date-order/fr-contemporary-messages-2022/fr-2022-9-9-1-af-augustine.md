@@ -30,3 +30,7 @@ Puissiez-vous tous rechercher Dieu dans vos prières en ce moment, à chaque mom
 Soyez de bonne foi, âmes bien-aimées. Désirez servir Dieu. Désirez aimer vos frères et sœurs. En effet, ce que vous êtes censés avoir et être bénis, viendra facilement, et viendra dans le timing et l’harmonie qu’il est censé venir et se manifester. Bien-aimées âmes, vous êtes bien sur votre chemin. Beaucoup de choses ont déjà été bénies sur vous. De nombreuses ouvertures ont été créées. L’amour coule dans votre âme en ce moment même. En effet, vous continuez à avancer, et vous le ferez, dans la lumière, l’amour et la vérité de Dieu.
 
 Que Dieu vous bénisse, mes amis. Je suis votre enseignant, Augustin. Mon amour pour chacun de vous est grand. Je suis impatient de voir ce que Dieu a en réserve pour chaque âme, ce qui peut se manifester à travers chacun d’entre vous, ce qui peut couler facilement, intentionnellement et magnifiquement dans la lumière de l’Amour de Dieu. Que Dieu vous bénisse, mes bien-aimés. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

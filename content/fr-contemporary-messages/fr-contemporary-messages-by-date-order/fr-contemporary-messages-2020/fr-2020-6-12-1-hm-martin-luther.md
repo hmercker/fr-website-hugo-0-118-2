@@ -24,3 +24,7 @@ C’est pourquoi, levez-vous de votre sommeil et bougez. Tendez la main, embrass
 Je suis venue vous apporter une salutation matinale à vous tous, mes âmes bien-aimées, et vous faire comprendre que vous êtes gardés et protégés. La bénédiction de Dieu est sur vous, soyez-en sûrs. Continuez à faire vos travaux qui vous apportent de la joie, car c’est important pour l’esprit. Mais rappelez-vous toujours que l’œuvre de Dieu est la plus importante et priorisez votre journée en conséquence. […]
 
 Votre Martin Luther vous salue. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse et que je sois avec vous avec mon amour et mon soutien, ma sollicitude et ma protection. Je vous aime.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

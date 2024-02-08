@@ -39,4 +39,6 @@ Je vous aime, chacun et chacune des enfants de mon Père aimant dans les Cieux. 
 
 Je vais clore mon message pour aujourd’hui, et je vous remercie de m’avoir permis de canaliser mes pensées à travers vous. Je suis votre ami et votre frère dans l’Esprit de l’Amour de Dieu manifesté dans mon âme, Jésus le Christ.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)
+### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

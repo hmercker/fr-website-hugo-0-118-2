@@ -24,3 +24,7 @@ Dans les jours à venir, continuez comme vous l’avez fait. Restez assis avec v
 Je souhaite à chacun d’entre vous une bonne nuit, la bénédiction de Dieu sur vous. Puissiez-vous sentir Dieu près de vous en permanence, le connaître, son amour, ses soins, ses conseils, le laisser vous servir, invoquer votre Père céleste en toutes choses.
 
 Dieu vous bénisse, âmes bien-aimées, je suis Seretta Kem. Je vous aime et bonne nuit.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

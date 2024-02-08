@@ -36,3 +36,7 @@ Ces choses sont uniques à chaque individu, mais ce qui est important, c'est de 
 Oui, mes bien-aimés, vous commencez à vous réveiller, embrassez cela avec chaque once de votre être. Désirez cela de chaque partie de votre être. Connaissez-le de chaque aspect de votre être. Cherchez à ce qu'il puisse s'intégrer et se formuler dans cette belle créature qui aspire à émerger de vous, mes bien-aimés. Elle attend votre choix et votre désir de devenir pleinement vivante dans la Lumière et dans l'Amour. Puissiez-vous trouver votre chemin, mes âmes bien-aimées. Vous avez été guidés, soulevés, portés, cajolés, encouragés et guidés à nouveau. Dieu a fait tout ce qui était possible pour vous amener à cet endroit. C'est votre choix. La porte s'ouvre. Vous avez tourné la clé pour la déverrouiller en priant pour l'Amour du Père. Maintenant vous devez avancer et vous savez que vous devez avancer avec une décision consciente et claire de le faire.
 
 Bénédictions à vous mes amis bien-aimés, nous attendons avec impatience. Nous poursuivons avec impatience nos efforts pour vous aider dans la véritable naissance de vos âmes. Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem et je vous aime tendrement. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

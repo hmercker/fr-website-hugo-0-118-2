@@ -11,7 +11,7 @@ weight:
 
 Ludwig van Beethoven - reçu par FAB le 27 Janvier 2003, Santa Cruz, Californie, USA.
 
-C’est moi, Beethoven.
+C’est moi, Beethoven.<sup id="a1">[1](#f1)</sup>
 
 Je viens ce soir pour transmettre un message concernant l’expérience musicale dans les Cieux Célestes. Comme je l’ai mentionné à la fin de mon [message précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-13-1-fab-ludwig-van-beethoven/), il y a certains esprits Célestes qui sont assez consumés par la musique, et j’en fais partie. Ces esprits participent à la musique d’une manière différente. C’est-à-dire qu’elle semble avoir plus de sens, même si pour tous les Esprits Célestes la musique est profondément satisfaisante. Je ne porte aucun jugement de valeur – il n’y a pas de « meilleur », puisque tous sont égaux. Mais on remarque que l’effet de la musique est en quelque sorte plus profond, plus complet avec ces esprits particuliers.
 
@@ -28,5 +28,10 @@ Bien que vous soyez parfaitement conscients des limites de ma capacité à trans
 Permettez-moi de conclure ici. Passez une soirée paisible et épanouissante.
 
 Amitiés, Beethoven.
+<small>
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)
+1. <large id=”f1”> Beethoven avait prédemment communiqué [le 03 Janvier 2003](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-3-1-fab-ludwig-van-beethoven/) et [le 10 Janvier 2003](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-10-1-fab-ludwig-van-beethoven/)[↩](#a1).
+
+### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

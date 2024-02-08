@@ -17,4 +17,6 @@ Je lis ma biographie en même temps que vous. En revivant ma vie sur Terre, je p
 
 Lorsque je suis venu à la lumière, j'ai été soutenu par ces choses dans mon âme que Dieu a approuvées. Ces choses sont très faciles à saisir parce qu'elles sont simples.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

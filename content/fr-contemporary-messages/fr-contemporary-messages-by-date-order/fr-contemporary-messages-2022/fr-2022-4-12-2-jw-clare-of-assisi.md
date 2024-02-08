@@ -18,3 +18,7 @@ Si vous repensez aux choses de votre vie qui ont été difficiles, peut-être à
 Je suis votre sœur en Christ, votre guide et votre amie pour toujours, et je vous aime.
 
 Je suis Claire.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

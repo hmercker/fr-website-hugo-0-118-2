@@ -27,3 +27,7 @@ Que Dieu vous bénisse, âmes bien-aimées. Je suis proche comme beaucoup d’en
 <small>
 
 1. <large id=”f1”> 1e peuple nubien vit aujourd’hui dans ce qui est le nord du Soudan et le sud de l’Égypte. Il s’agissait d’une ancienne civilisation africaine issue des premiers habitants de la vallée du Nil. Les rois nubiens ont régné sur l’Égypte en tant que pharaons pendant près de 100 ans.[↩](#a1)
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -20,3 +20,7 @@ C’est cette force, cette perception et cette beauté d’âme qui vous aideron
 Vous n’êtes pas seuls, aucun d’entre vous, peu importe avec quoi vous luttez, âmes bien-aimées. Non, vous n’êtes pas seuls. Mais en effet, le monde défie chacun d’entre vous d’une manière ou d’une autre, mais vous n’êtes pas seuls. Le pouvoir de Son Amour est le pouvoir de la guérison et de la grâce, de la paix et de la vérité. Il est pour vous tous. C’est une grande bénédiction de Dieu qui vous porte dans la Lumière. Puissiez-vous continuer à recevoir ce cadeau et savoir que vous êtes vraiment aimés, vraiment aimés et jamais seuls.
 
 Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse. Je suis André. Je suis avec vous. Mon amour est avec vous et une grande attention se déverse sur chacun d’entre vous, élevant et soutenant, guérissant et apportant la paix. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

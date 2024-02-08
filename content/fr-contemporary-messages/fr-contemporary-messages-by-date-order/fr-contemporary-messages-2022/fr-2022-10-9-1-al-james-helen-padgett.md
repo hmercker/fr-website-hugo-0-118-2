@@ -11,7 +11,7 @@ weight:
 
 James et Hélène Padgett - reçu par Al Fike le 9 Octobre 2022, Menifee, CA, USA.
 
-Que l’Amour de Dieu soit votre pilier, mes amis bien-aimés. Je suis James Padgett. Que la vérité du sujet provienne de la Bible, des œuvres qui sont passées par moi, ou des œuvres qui sont passées par cet instrument, ou d’autres sources, pourvu qu’elle dirige l’individu vers la vérité, la source importe-t-elle ? Ainsi, nous devons tous être humbles dans nos perspectives concernant les opinions des autres et la façon dont ils peuvent aborder leur propre vie spirituelle.
+Que l’Amour de Dieu soit votre pilier, mes amis bien-aimés. Je suis **James Padgett.**<sup id="a1">[1](#f1)</sup> Que la vérité du sujet provienne de la Bible, des œuvres qui sont passées par moi, ou des œuvres qui sont passées par cet instrument, ou d’autres sources, pourvu qu’elle dirige l’individu vers la vérité, la source importe-t-elle ? Ainsi, nous devons tous être humbles dans nos perspectives concernant les opinions des autres et la façon dont ils peuvent aborder leur propre vie spirituelle.
 
 Il existe de nombreuses approches. Des approches, en effet, dans de nombreuses possibilités d’expériences et de reconnaissances conscientes qui amènent l’individu vers Dieu. Ainsi, dans votre monde très diversifié, essayer d’établir une norme pour cristalliser le mot, pour ainsi dire, est une tâche très difficile en effet, et une tâche à laquelle vous pouvez consacrer de nombreuses heures d’effort et de recherche et mettre sous presse de nombreux mots, qui signifient à votre esprit, les phrases et les enseignements appropriés vers la vérité. Et pourtant, si ces mots ne pénètrent pas la conscience d’autrui, à quoi servent-ils ?
 
@@ -57,8 +57,15 @@ Fille bien-aimée, crois vraiment en toi et connais-toi toi-même, et ne t’off
 
 Je vous remercie, âmes bien-aimées, et sachez que je suis proche. Votre ami, James. Je suis là, et je serai là, tous les jours de votre vie. Amis bien-aimés, que Dieu vous bénisse et vous garde dans Son Amour. Mon amour est avec vous, mes bien-aimés.
 
-**Je suis Hélène.** Je viens te rassurer, chère fille, que tout va bien et que tout ira bien sur le chemin que Dieu a béni, a éclairé pour toi, et te soutient. Aie foi en cela, chère fille. Aie foi en tout ce qui est bon et lumineux dans ta vie. Aie foi en tout ce qui est en toi, qui est bon et de lumière, et sois en paix. Sois en paix, ma fille bien-aimée. Sache que tu es aimée. Sache que Dieu a créé une belle âme unique qui est la tienne, et combien il te chérit, ma fille bien-aimée, combien tu es vraiment aimée.
+**Je suis Hélène.**<sup id="a1">[1](#f1)</sup> Je viens te rassurer, chère fille, que tout va bien et que tout ira bien sur le chemin que Dieu a béni, a éclairé pour toi, et te soutient. Aie foi en cela, chère fille. Aie foi en tout ce qui est bon et lumineux dans ta vie. Aie foi en tout ce qui est en toi, qui est bon et de lumière, et sois en paix. Sois en paix, ma fille bien-aimée. Sache que tu es aimée. Sache que Dieu a créé une belle âme unique qui est la tienne, et combien il te chérit, ma fille bien-aimée, combien tu es vraiment aimée.
 
 Et lorsque les conditions de cette Terre vous pèsent, allez vers Dieu et demandez Ses bénédictions, Son élévation et Son Amour.  Et en vérité, Il répondra à vos prières et vous amènera à Lui.  Il vous embrassera et vous apportera la paix. Il vous remplira d’Amour. Et ainsi, la bonté augmentera, la lumière augmentera à mesure que vous avancerez dans chaque jour en cherchant les bénédictions de Dieu, en vous asseyant dans la prière et en arrivant à connaître Dieu, vraiment connaître Dieu, et savoir combien vous êtes aimés, et savoir combien vous êtes beaux, et comment vos dons peuvent briller dans toute leur gloire, toute la merveille de votre âme en alignement avec Dieu.
 
 Je vous aime, âmes bien-aimées, je vous aime. Oh, nous sommes si semblables à bien des égards. Mes luttes sur votre Terre étaient les mêmes, et donc je comprends. Je sais. Je connais les peurs, les blessures et la douleur. Je connais toutes ces choses, et je suis vraiment venu pour vous assister et vous soutenir dans la lumière, l’amour et la grâce de Dieu.  Je suis proche. Je suis Hélène, et je vous aime. Et je vous aime tous, belles âmes, à la recherche de Dieu. Je vous aime tous. Dieu vous bénit.
+<small>
+
+1. <large id="f1"> L'ensemble des messages communiqués par James et Hélène Padgett est disponible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-12-fr-family-and-friends-of-james-padgett/)[↩](#a1) 
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

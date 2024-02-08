@@ -19,12 +19,15 @@ C’est par un processus graduel que ses descendants en sont venus à être cons
 
 J’ai mentionné la foi profonde et vibrante de Joseph parce qu’il avait une influence puissante sur son peuple en Égypte, surtout si l’on considère le fait qu’il était le deuxième homme le plus puissant du pays. C’est donc de cette manière que les Hébreux ont acquis une foi solide en Dieu. Cela a soutenu certains d’entre eux, qui ont été capables de discerner, au-delà des horreurs de l’esclavage, le seul vrai Dieu. Ils avaient considéré leur Joseph comme un héros et un chef spirituel, et son influence était puissante même après sa mort.
 
-Moïse s'est également exprimé lors des messages suivants :
-
-1. <u>De 2002 à 2010</u> :
+<u>Note</u> : Moïse s'est également exprimé lors des messages suivants :
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
+ | <p align="center">**De 1969 à 2010**</p> |
+Moïse | [Aucun d'entre nous n'est une île](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-33-1969-11-3-anonymous-moses/) | 3 Novembre 1969
+Moïse | [Symboles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-70-1969-anonymous-moses/) |   1969
+Moïse | [Nos enseignements sont simples](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-73-1969-anonymous-moses/) |   1969
+Moïse | [Vivre selon des vérités simples](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-171-1969-anonymous-moses/) |   1969
 Moïse | [Le peuple élu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-7-1-ar-moses/) | 7 Avril 2002
 Moïse | [Moïse partage ses expériences](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-12-30-1-fab-moses/) | 30 Décembre 2002
 Moïse | [Moïse dans le désert](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-8-1-fab-moses/) | 8 Janvier 2003
@@ -48,11 +51,7 @@ Moïse | [Préparation de Moïse à l’approche Hébraïque de Dieu – 2](/fr-
 Moïse | [La mort de Moïse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-5-8-1-fab-moses/) | 8 Mai 2010
 Moïse | [La relation de Moïse avec les femmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-10-20-1-fab-moses/) | 20 Octobre 2010
 Moïse | [Les conseils de Moïse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-11-21-1-fab-moses/) | 21 Novembre 2010
-
-2. <u>Après 2010</u> :
-
-**Auteur** | **Titre du message** | **Date du message**  
----|---|---
+ | <p align="center">**Après 2010**</p> |
 Moïse | [Leçon sur la fausseté de l’expiation indirecte et la nature incertaine de la vérité personnelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-12-2-af-moses/) | 12 Avril 2016
 Moïse | [Les adeptes de l’Amour Divin doivent s’unir au nom de l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-28-2-af-moses/) | 28 Novembre 2016
 Moïse | [Cherchez la source de tout amour, vérité et lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-24-3-af-moses/) | 24 Février 2018
@@ -67,4 +66,10 @@ Jésus & Moïse & Elie | [Bénédictions de lumière pour le monde](/fr-contempo
 Moïse | [Vient nous soutenir et éclairer notre chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-31-2-af-moses/) | 31 Mai 2022
 Moïse | [Surmonter les exigences du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-2-1-af-moses/) | 2 Avril 2023
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+

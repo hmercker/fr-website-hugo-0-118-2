@@ -30,4 +30,6 @@ Votre Père.
 
 1. <large id="f1"> Ce message s'adresse à nous tous. C'est bien au-delà de la coïncidence que, littéralement, chaque médium que je connais personnellement, et cela inclut beaucoup plus que les adeptes de l'« Amour Divin », a reçu à peu près le même message - cette année.[↩](#a1)
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -76,3 +76,7 @@ Je vous remercie de votre temps et de votre patience, de votre dévouement à la
 Oui, il y a d’autres vérités qui peuvent venir, mais à moins que vous ne soyez devenus assez forts dans votre âme pour absorber d’autres vérités, alors nous devons attendre ce temps. Comme je l’ai dit, Dieu vous nourrira de vérité à travers votre âme. C’est la vérité la plus puissante que vous puissiez recevoir et elle est l’expression du grand Amour de Dieu pour vous. Mon espoir est que les mots que j’ai prononcés puissent enflammer une relation plus profonde entre vous et Dieu, de sorte que vous puissiez recevoir ces vérités de cette manière inexprimée mais complète que Dieu a pour atteindre votre âme et la nourrir.
 
 Que Dieu vous bénisse. Je vous remercie tous. Mon amour est avec vous. Alors que vous lisez ces mots que j’ai prononcés, sachez qu’un ange sera avec vous pour vous aider à comprendre et que Dieu a un grand plan pour réveiller l’humanité. Cette petite partie est un aspect de ce plan. Que Dieu vous bénisse, âmes bien-aimées. Je suis Jésus, Maître des Cieux Célestes, et je suis avec vous sur votre chemin vers la vérité, la lumière et l’amour. Que Dieu vous bénisse et vous garde dans la lumière. Mon amour est avec vous.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

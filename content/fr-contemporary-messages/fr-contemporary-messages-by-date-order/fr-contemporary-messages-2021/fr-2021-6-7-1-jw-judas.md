@@ -24,3 +24,7 @@ Ce film était révolutionnaire, tout comme ce film d’animation plus récent i
 Et pourtant, puisque les humains n’ont pratiquement aucune conception de la vie dans l’esprit, ces films sont précieux et donnent au public le sentiment d’être sans corps humain mais toujours vivant et avec un sentiment de progression dans l’amour. Je dirai ceci : si les scénaristes, le directeur et les réalisateurs du film *« What Dreams May Come »* étaient conscients de l’Amour Divin, il y aurait une suite de la progression vers les Cieux Célestes et il en serait de même pour ce film « Soul ». Mais ces personnes très bien intentionnées et aimantes qui ont présenté ces films n’ont tout simplement aucune connaissance des royaumes supérieurs et de la transformation de l’humain au Divin.
 
 Mon souhait, et celui de beaucoup d’entre nous, est que ceux d’entre vous qui sont créatifs, concrétisent cette vision par le biais de films et d’autres médias, comme vous le faites pour les chansons ou la poésie. Que la vérité soit vue. Je pense avoir abordé ce sujet dans une certaine mesure, mais si vous avez d’autres questions, je serais heureux d’y répondre avec l’aide de mon frère ici présent. En attendant, allez dans l’amour et la grâce de Dieu. Priez ! Que Dieu vous bénisse. Je suis Judas.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

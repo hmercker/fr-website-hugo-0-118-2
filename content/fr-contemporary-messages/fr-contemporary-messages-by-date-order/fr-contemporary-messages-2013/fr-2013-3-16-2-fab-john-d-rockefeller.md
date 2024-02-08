@@ -26,4 +26,6 @@ John D Rockefeller | [John D. Rockefeller se décrit lui-même](/fr-contemporary
 John D Rockefeller | [John D. Rockefeller se décrit lui-même - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-13-1-fab-john-d-rockefeller/) | 13 Mars 2013
 Frederick T. Gates | [Un collègue de John D. Rockefeller SR. confirme son channeling](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-16-1-fab-frederick-t-gates/) | 16 Mars 2013
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)
+### [**Lien vers les messages des années 2013**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

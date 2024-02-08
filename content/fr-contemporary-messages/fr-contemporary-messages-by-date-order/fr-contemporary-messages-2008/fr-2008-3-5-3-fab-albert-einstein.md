@@ -26,4 +26,6 @@ Vu sous cet angle, ce qui semblait sans espoir devient un processus compréhensi
 
 1. <large id="f1"> **Albert Einstein** (14 Mars 1879 - 18 Avril 1955) était un physicien théorique d'origine allemande. Il est surtout connu pour sa théorie de la relativité et plus particulièrement pour l'équivalence masse-énergie, E = mc2. Einstein a reçu le prix Nobel de physique en 1921 "pour ses services à la physique théorique, et en particulier pour sa découverte de la loi de l'effet photoélectrique". Les travaux d'Albert Einstein comprennent plus de cinquante articles scientifiques et des livres non scientifiques. Einstein est vénéré par la communauté des physiciens et, en 1999, le magazine Time l'a nommé "Personnalité du siècle". Dans la culture populaire, le nom "Einstein" est devenu synonyme de génie. (Source : Wikipedia)[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

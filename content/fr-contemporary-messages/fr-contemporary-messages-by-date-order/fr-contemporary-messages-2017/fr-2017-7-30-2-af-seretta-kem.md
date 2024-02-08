@@ -24,3 +24,7 @@ Vous vous êtes réunis dans votre cercle de Lumière dans la joie et la céléb
 Poursuivez vos efforts, mes bien-aimés ; continuez à rechercher ce qui est le plus élevé, à marcher dans la Lumière, à ne pas vous compromettre dans l'obscurité, à être fidèles aux désirs de votre âme et à la volonté de Dieu. Nous continuerons à marcher avec vous alors que vous parcourez la terre et apportez les eaux qui apporteront une nouvelle vie aux terres, aux nombreuses âmes qui ont tellement soif de Vérité.
 
 Un grand travail vous attend, mes bien-aimés, un grand travail qui transformera cette terre. Tous ceux qui sont prêts à marcher au nom de l'Amour et de la Vérité, de la paix et de l'harmonie, marcheront dans ces terres en claironnant l'arrivée de l'Amour. Âmes bénies, vous êtes si nécessaires. Dieu vous prépare. Dieu vous élève. Dieu murmure dans vos âmes ce que vous avez besoin de savoir. Dieu est toujours avec vous. Dieu vous bénit. Je suis Seretta Kem. Je suis avec vous alors que vous continuez à vous préparer pour votre travail et vos voyages. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

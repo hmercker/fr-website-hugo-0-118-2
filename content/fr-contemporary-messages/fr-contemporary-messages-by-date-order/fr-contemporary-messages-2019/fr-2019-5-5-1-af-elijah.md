@@ -29,8 +29,13 @@ Dieu a besoin de Ses instruments, âmes bien-aimées. Vous êtes bien consciente
 
 Chacun d'entre vous est attiré. Chacun de vous ressent un but, un appel, un désir de réveiller vos âmes. Je vous exhorte donc à écouter cet appel intérieur en vous, car Dieu l'a placé dans vos âmes, mes bien-aimés. Dieu vous a créés avec de nombreux potentiels et possibilités d'expression. Vos âmes sont mûres pour l'expression, pour être un canal d'amour, pur et beau. Réveillez-vous à cela, mes bien-aimés. Utilisez toutes les opportunités qui vous sont offertes pour apporter l'amour et la vérité de manière simple, de manière bénie et guidée, de manière à déclarer que vous avez été touchés par Dieu et que la source de tout est la source de la guérison de l'humanité. Marchez dans ce monde, âmes bien-aimées, avec la tête haute, vos cœurs pleins d'amour, vos esprits résolus à dire la vérité. En embrassant vos frères et sœurs, soyez un canal d'amour, un canal de guérison, de confort, de paix. De cette façon, vous contribuez au changement qui doit être. De cette façon, vous êtes ouverts à la volonté de Dieu.
 
-Bénédictions à vous, mes bien-aimés. Je suis Elie. Bénédictions de l'amour. Dieu vous bénit.
+Bénédictions à vous, mes bien-aimés. Je suis Elie<sup id="a2">[2](#f2)</sup>. Bénédictions de l'amour. Dieu vous bénit.
 <small>
 
 1. <large id=”f1”> Isaïe et Élie sont deux esprits très différents. On ne sait pas s'il s'agit d'une simple erreur d'identification par le médium, ou si deux esprits différents étaient impliqués.[↩](#a1)
 
+2. <large id="f1"> Les différents messages communiqués  par Élie sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-fr-religious-figures/)[↩](#a1)
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

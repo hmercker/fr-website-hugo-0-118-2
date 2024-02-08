@@ -21,4 +21,7 @@ Ne croyez donc pas tout ce que vous lisez, et ayez confiance en votre canalisati
 
 Nous avons fait de notre mieux pour prendre nos distances avec le monde païen grec/romain, car nous avions le sentiment qu'à bien des égards, il violait nos croyances et nos traditions.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

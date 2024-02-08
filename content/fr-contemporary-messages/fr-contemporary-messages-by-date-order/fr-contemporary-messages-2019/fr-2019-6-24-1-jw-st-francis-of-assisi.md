@@ -16,3 +16,7 @@ Comme je l'ai promis, je viendrai ici chaque fois que vous viendrez pour être e
 Lorsque d'autres viendront avec vous, nous guiderons vos mots, nous guiderons vos prières. Nous vous demandons seulement d'ouvrir votre cœur, d'ouvrir votre âme et l'Amour coulera. Nous souhaitons établir ce sanctuaire dans la Lumière et l'Amour. Comme nous l'avons dit, c'est un lieu de guérison. Cependant, cela ne dépend pas de rituels, mais purement et simplement de l'intention de ceux qui viennent pour être guéris et de ceux qui prient pour une telle guérison. Dieu fait le reste et nous assistons toujours. Nous vous encourageons donc à vous rappeler que nous serons là avec vous chaque fois que vous franchirez cette porte. Il y a beaucoup de travail à faire ici, mais déjà ce lieu est établi dans l'Amour et la Lumière de Dieu.
 
 Je suis avec vous, mon amour est avec vous, l'Amour de Dieu est avec nous tous. Je suis François.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

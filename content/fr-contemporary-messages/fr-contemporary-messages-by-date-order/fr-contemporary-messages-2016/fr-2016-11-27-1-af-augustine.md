@@ -30,3 +30,7 @@ Oui, mes bien-aimés, nous allons continuer ce voyage. Nous vous emmènerons dan
 Bien-aimés, continuez dans ces grands efforts, exprimez toujours votre amour, faites-le de nombreuses façons différentes, ne jugez pas, ne résistez pas, enveloppez, embrassez, acceptez et aimez. C'est ainsi que Dieu peut vous utiliser, mes bien-aimés, et il en sera ainsi lorsque vous continuerez sur ce chemin.
 
 Dieu vous bénisse Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

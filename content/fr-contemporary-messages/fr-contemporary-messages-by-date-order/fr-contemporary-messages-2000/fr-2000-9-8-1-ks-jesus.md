@@ -45,5 +45,6 @@ C’est une erreur lamentable qu’ils commettent car cela ne fait que perpétue
 
 Je suis votre ami et votre frère en esprit, Jésus de la Bible, et Maître des Cieux Célestes – l’esprit le plus élevé dans les Cieux, avec de nombreux disciples qui sont proches de ma sphère, et qui sont des Christs et suffisamment sages pour être représentatifs de mes enseignements.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+### [**Lien vers les messages des années 2000**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/)
 
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

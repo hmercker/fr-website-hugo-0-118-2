@@ -32,5 +32,16 @@ J’ai fait de mon mieux pour mener une vie juste. Mais je ne fus certainement p
 Mais tout cela est du passé, et j’ai trouvé mon bonheur auprès d’un Dieu qui m’a accordé [la nouvelle naissance de l’âme](/9-fr-topical-subjects/9-3-fr-the-process-of-transformation-of-the-soul/), avec le bonheur correspondant.
 
 Sincèrement, Noé.
+<small>
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)
+1. <large id="f1"> Noé s'est également exprimé dans les messages suivants :  [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+--|---|---
+Noé | [L'histoire du déluge](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-10-1-fab-noah/) | 10 Février 2009
+Noé | [Stop à l'obscurité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-17-1-af-noah/) | 17 Novembre 2017
+Noé | [A propos du déluge](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-29-1-jw-noah/) | 29 Décembre 2020
+
+### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

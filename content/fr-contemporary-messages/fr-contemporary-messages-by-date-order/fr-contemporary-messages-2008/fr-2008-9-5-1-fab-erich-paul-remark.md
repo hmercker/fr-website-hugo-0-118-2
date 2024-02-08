@@ -20,4 +20,7 @@ J'avais un grand sentiment que le sentiment anti-guerre qui était si intense ap
 
 1. <large id="f1"> **Erich Paul Remark** est né dans une famille ouvrière de la ville allemande d'Osnabrück, fils de Peter Franz Remark (né le 14 juin 1867 à Kaiserswerth) et d'Anna Maria Remark, née Stallknecht (née le 21 novembre 1871 à Katernberg). Tout le calme sur le front occidental (Im Westen nichts Neues) a été écrit en quelques mois en 1927, mais Remarque n'a pas été immédiatement en mesure de trouver un éditeur. Le roman, publié en 1929, décrit la cruauté absolue de la guerre du point de vue d'un soldat de vingt ans. Un certain nombre d'œuvres similaires ont suivi ; dans un langage simple et émotif, elles décrivaient la guerre et les années d'après-guerre. (Source : Wikipedia)[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

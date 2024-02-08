@@ -21,3 +21,7 @@ Encore une fois, je vous remercie pour tout ce que vous faites. Vous ne regrette
 1. <large id=”f1”> Joseph s'est adressé, peu après sa transition dans le monde des esprits, [le 04 Octobre 2021](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-4-1-jw-joseph-babinsky/).
 
 2. <large id=”f1”> Joseph était un auteur et éditeur prolifique de livres liés à l’Amour Divin. Ceux-ci sont toujours disponibles sur [Amazon](https://www.amazon.com/s?k=Joseph+Babinsky&page=2&crid=2NQNOWV7VB63R&qid=1697000098&sprefix=joseph+babinsky%2Caps%2C191&ref=sr_pg_1) ou sur [Lulu](https://www.lulu.com/search?adult_audience_rating=00&page=2&pageSize=10&sortBy=RELEVANCE&q=Joseph+Babinsky).[↩](#a1)
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -25,4 +25,6 @@ Je sais que la pierre d'achoppement pour vous est que le système est tellement 
 
 Le problème est donc que vous devez renoncer à vous fier à votre cerveau mortel limité et faire confiance aux perceptions de votre âme, qui sait déjà que cette voie sera poursuivie avec succès, et que la paix et l'harmonie viendront sur la terre, comme Dieu l'a promis dans des cultures et des traditions de foi, en plus du Judéo-Christianisme.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

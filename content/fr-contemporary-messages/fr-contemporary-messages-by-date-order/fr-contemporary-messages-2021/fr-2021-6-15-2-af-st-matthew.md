@@ -28,3 +28,7 @@ Il y a tant de choses qui peuvent arriver lorsque la domination de l’esprit es
 Puissiez-vous continuer à être persistants et cohérents dans vos prières et de cette façon, tout se déroulera au bon moment de Dieu, dans la grâce et l’harmonie, et il y aura la paix pour chacun d’entre vous, une paix profonde et durable qui dépassera toutes vos luttes, tragédies, expériences douloureuses dans la vie, et apportera la joie à sa place.
 
 Que Dieu vous bénisse, âmes bien-aimées, je suis Matthieu. Je prie avec vous maintenant alors que nous prions Dieu de continuer à transformer nos âmes et à nous éveiller à la Vérité. Que Dieu vous bénisse, âmes bien-aimées, mon amour est avec vous tous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

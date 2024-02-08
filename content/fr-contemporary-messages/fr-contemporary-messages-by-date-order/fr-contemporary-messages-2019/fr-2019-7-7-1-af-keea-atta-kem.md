@@ -34,3 +34,7 @@ Marchez dans la lumière, mes amis bien-aimés. Soyez la Lumière. Exprimez la L
 Bien-aimés, vous êtes l’Amour en vous. Reconnaissez-le. Exprimez-le. Soyez l’amour que votre âme désire être et que Dieu souhaite que tous soient. De cette façon, vous enseignez la leçon la plus puissante. De cette façon, vous exprimez la Vérité la plus puissante. C’est ainsi que vous êtes vraiment un enfant de Dieu.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Keea Atta Kem et je vous aime, belles âmes, belles âmes qui luttent dans un monde humain. Que Dieu vous bénisse, vous soutienne et vous aime, alors que vous avancez. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

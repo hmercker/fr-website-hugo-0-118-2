@@ -49,5 +49,7 @@ Lorsque je vivais sur terre, je n’étais pas sûr de pouvoir vaincre le mal qu
 
 Je suis David de l’Ancien Testament, ton guide et ton ami sur le chemin de la vérité.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+### [**Lien vers les messages des années 2000**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

@@ -34,3 +34,7 @@ Mais je vous le dis, âmes bien-aimées, Dieu vous guidera sur la façon de rép
 L’invitation que Dieu vous a faite de servir de cette manière est autant une invitation à votre propre croissance personnelle et à l’éveil de votre âme qu’une invitation à bénir les autres. Dans la grande sagesse et la grâce de Dieu, tous sont bénis. Tous reçoivent de grandes bénédictions lorsque vous continuez à accomplir Sa volonté et à servir dans l’amour. Vous vous éveillez et êtes renforcés, vous entrez plus pleinement dans la Lumière et vous vous rapprochez de la source de tout Amour.
 
 Ainsi vous êtes bénis, âmes bien-aimées, ainsi vous êtes bénis et vous êtes accompagnés par de nombreux anges qui vous assistent dans ce voyage. Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant Augustin et je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

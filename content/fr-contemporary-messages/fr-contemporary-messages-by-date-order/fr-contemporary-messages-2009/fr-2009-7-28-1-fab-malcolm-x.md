@@ -21,4 +21,6 @@ Et c’est, bien sûr, vrai. Mais cela ne se serait jamais passé ainsi si je n�
 
 Oui, vous avez bien reçu mes pensées.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

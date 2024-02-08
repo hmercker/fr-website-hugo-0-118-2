@@ -22,3 +22,7 @@ Vous aspirez tous à cela, mes bien-aimés. Vous le cherchez tous et je vous gui
 Que Dieu vous bénisse. Je serai avec vous pendant ce court voyage ensemble. Je serai avec vous alors que vous parvenez à réconcilier la vérité en vous-mêmes et à connaître la grande puissance, la gloire et l’émerveillement qu’est l’Amour de Dieu pour vous, âmes bien-aimées.
 
 Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

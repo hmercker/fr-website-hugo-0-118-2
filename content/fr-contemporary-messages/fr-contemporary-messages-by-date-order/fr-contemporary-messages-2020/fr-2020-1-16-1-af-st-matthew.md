@@ -38,3 +38,7 @@ Soyez priants, âmes bien-aimées. Soyez forts dans la prière. Ayez foi en la p
 J’espère avoir été clair et que vous ne vous laisserez pas envahir par un grand découragement vis à vis de vos perceptions des conditions de ce monde, en pensant que la prière ne peut pas changer ces conditions. Je vous le dis, mes amis, ayez la foi et choisissez le pouvoir de la prière.
 
 Que Dieu vous bénisse, mes chers amis. Je suis Matthieu. Que l’amour soit avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

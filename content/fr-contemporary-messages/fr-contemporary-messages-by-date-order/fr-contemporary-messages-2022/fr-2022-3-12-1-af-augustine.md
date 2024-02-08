@@ -30,3 +30,7 @@ Cela ne vient pas du jour au lendemain mais cela vient progressivement à mesure
 Que Dieu vous bénisse dans votre voyage d’éveil, dans votre voyage vers Dieu. Puissiez-vous apprendre à connaître votre vrai moi et l’exprimer dans tous les aspects de votre vie. Que l’amour brille dans toute sa gloire et sa beauté, chacun de vous, une précieuse âme de Dieu, créée dans un but, créée pour être les lumières brillantes de Dieu dans l’Univers.
 
 Que Dieu vous bénisse, mes amis, belles âmes, vraiment belles âmes. Que Dieu vous bénisse en amour. Je suis votre enseignant, Augustin et je marche avec vous comme beaucoup d’anges marchent avec vous sur ce chemin. Mon amour est avec vous bien-aimés. Je chéris chacun de vous et continue de faire ma part pour vous guider. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

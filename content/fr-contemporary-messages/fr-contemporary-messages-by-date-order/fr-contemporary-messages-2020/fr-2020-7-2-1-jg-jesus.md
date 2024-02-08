@@ -40,3 +40,7 @@ Ne jamais reporter la responsabilité de la perspicacité sur un autre. Oui, ell
 Je terminerai par une parole de sagesse adressée à tous : Levez les yeux. Votre Père Céleste vous voit. Il vous aime d’un amour que vous ne pouvez pas imaginer. Il pourvoira à vos besoins en ces temps. Il vous guidera fermement sur votre chemin. Demandez-lui et permettez-lui de faire pour vous ces réalités que vous ne pouvez pas faire vous-même. Tout sera donné à ceux qui cherchent l’amour et la vérité de Dieu.
 
 Je suis Yeshua, votre frère et maître, celui qui aime et qui vous guidera.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

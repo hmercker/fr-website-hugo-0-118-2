@@ -32,3 +32,7 @@ Il peut être répondu non seulement par toi seule, mais par d’autres si tu es
  Je vous exhorte à écouter. Je vous exhorte à poursuivre vos efforts. Je vous exhorte à grandir dans votre foi, à grandir dans l’amour de Dieu et dans toutes ces choses qui vous renforcent et vous donnent de la lumière, de l’habileté et de la capacité à servir. Ces choses viennent lorsque Dieu vous bénit. Ainsi, lorsque vous priez et que vous vous ouvrez à Ses bénédictions, tout ce qui est nécessaire sera fourni et s’ouvrira à vous. Bien-aimés enfants de Dieu, puissiez-vous continuer à rechercher Son Amour à chaque respiration. Ainsi, nous travaillerons ensemble pour l’amélioration de l’humanité, pour l’éveil de l’humanité, et pour la vérité qui doit venir au monde.
 
 Je suis ton maître, Augustin. Mon amour est avec toi. Sache que je suis souvent avec toi, comme beaucoup dans le Royaume Céleste. Nous travaillons ensemble, n’est-ce pas, de bien des façons, par de nombreux moyens, par de nombreux individus ? Nous travaillons ensemble pour le plus grand bien. Que Dieu vous bénisse, mes bien-aimés. Mon amour est avec vous.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

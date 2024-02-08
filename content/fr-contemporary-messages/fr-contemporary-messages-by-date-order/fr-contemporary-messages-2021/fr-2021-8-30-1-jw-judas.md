@@ -18,3 +18,7 @@ Mais c’est vraiment le cas pour nous tous. Nos âmes se tiennent nues devant l
 Alors, s’il vous plaît, rappelez-vous toujours que chaque âme est digne d’être bénie, d’être dans l’amour de Dieu, de progresser. Lorsque vous entendez les mots *« Dieu aime tous ses enfants »* , cela signifie vous, vous, vous et tous.
 
 Enfin, je dis que si vous vous trouvez dans un état d’obscurité, de honte, de regret ou de doute, rappelez-vous que Dieu vous aime et que nous tous ici présents viendrons à votre appel, comme je l’ai fait aujourd’hui. Ayez la foi, prenez courage. Que l’amour de Dieu vous touche profondément, vous guérisse et vous transforme. Au nom de tous ici, nous vous aimons. Que Dieu vous bénisse toujours. Je suis votre frère dans le Christ, votre ami éternel. Je suis Judas. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

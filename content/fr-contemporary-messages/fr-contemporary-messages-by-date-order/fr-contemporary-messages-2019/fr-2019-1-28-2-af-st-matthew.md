@@ -32,3 +32,7 @@ Certains d’entre vous se plaignent que ces choses ne sont pas venues comme vou
 Vous avez deux choix, l’un dans lequel vous allez volontairement et délibérément à l’intérieur et rechercher ces chambres obscures remplies de peur, d’inquiétude ou vous pouvez continuer vos prières et avec le temps la guérison sera en effet accordée facilement, mais cela peut prendre plusieurs années. Car de même que le don goutte à goutte de l’Amour du Père s’accumule en vous, de même sa puissance s’intensifie, s’éveille et guérit. Vous devez donc choisir. Néanmoins, cette guérison aura lieu, que ce soit bientôt ou à une date ultérieure. Cela doit arriver et cela arrivera. C’est votre choix.
 
 Et ainsi, j’attends vos questions, bien-aimées âmes bien-aimées.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

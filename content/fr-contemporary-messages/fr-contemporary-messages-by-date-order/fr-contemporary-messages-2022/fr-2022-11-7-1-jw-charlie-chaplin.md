@@ -16,3 +16,7 @@ Mes chers amis C’est moi votre frère Charles ou comme vous me connaissez, Cha
 Vous avez ce bel amour dans vos âmes, vous vous réveillez avec lui le matin alors que vous essayez de rester en harmonie. Alors, soyez attentifs à votre connexion dans la prière, dans le chant, dans la danse et dans la paix qui permet l’infusion de l’Amour du Créateur qui vous élève et élève à son tour le monde. Même Atlas ne pourrait pas faire ce que l’Amour de Dieu peut faire. Alors, souriez et partagez votre cœur et même s’il est brisé, laissez-le s’ouvrir pour que Dieu puisse le remplir de la belle grâce et des bénédictions de son amour pour vous.
 
 Je vous remercie pour ce temps et pour m’avoir permis de passer. Je suis votre frère sur le chemin de l’Amour Divin et je serai toujours là pour vous si vous appelez. Mon amour à chacun d’entre vous. Que Dieu vous bénisse. Je suis Charlie, Charlie Chaplin.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -19,7 +19,7 @@ Je ne veux pas analyser avec toi le contenu intégral du [message de David](/fr-
 
 Je ne veux pas m’immiscer dans la plaie récemment ouverte par la guerre actuelle. Donc, je ne citerai pas les noms des personnes concernées. Mais nous pouvons choisir un des nombreux exemples dans l’histoire lorsque les guerres éclatèrent, et lorsque les guerres ont commencé à « éliminer » les individus qui constituaient un danger mortel pour la sécurité des autres nations, ou même de leur propre peuple, ce qui fut également très fréquent.
 
-Bien sûr, on se demande comment il est possible que ces dictateurs, qui parfois étaient et sont de vrais monstres de perversion, aient pu arriver au pouvoir ? Et la réponse est qu’ils ont été assez intelligents pour profiter de la situation très particulière dans laquelle vivait leur peuple : conditions de misère, de faim, d’orgueil blessé, de radicalisation politique.
+Bien sûr, on se demande comment il est possible que ces dictateurs, qui parfois étaient, et sont, de vrais monstres de perversion, aient pu arriver au pouvoir ? Et la réponse est qu’ils ont été assez intelligents pour profiter de la situation très particulière dans laquelle vivait leur peuple : conditions de misère, de faim, d’orgueil blessé, de radicalisation politique.
 
 Puis, si nous allons encore plus loin dans le passé, on peut se demander : Pourquoi ces gens se sont-ils retrouvés dans de telles situations qui furent un bouillon de culture pour la formation des extrémistes ? Et nous voyons qu’à la base du développement se trouve une autre situation ou un événement qui a conduit presque inévitablement à cet état de la nation, qui constitue la cause, mais qui ne fut pas le déclencheur de la guerre. Nous devons toujours distinguer soigneusement entre la cause qui conduit à une augmentation dangereuse de la pression interne, et l’élément déclencheur qui peut même être souvent un événement de très peu d’importance, mais qui, tout à coup, en raison d’un contexte précis, en fonction d’une situation de forte tension, permet l’ouverture de la soupape d’échappement. Et malheureusement, dans bien des cas, le nom de cette valve est guerre.
 
@@ -27,7 +27,7 @@ Afin d’illustrer ce type de raisonnement, nous pouvons analyser la vie d’Hit
 
 En outre, lorsqu’on voyait déjà poindre, en Allemagne, une dictature sans merci, et que l’Allemagne était sur le point d’étendre son territoire, en occupant l’Autriche et la Tchécoslovaquie, il fut  difficile d’entendre une voix de protestation. Et, malheureusement, ce qui suivit fut la conséquence de la passivité et de l’indifférence, voire de l’indolence, du monde entier.
 
-Nous pourrions même aller encore plus loin en arrière et analyser les causes de la première guerre mondiale. Ce n’est pas l’assassinat du successeur du trône autrichien qui a provoqué cette guerre. Ce fut l’élément déclencheur. Les causes, ou les racines, pour employer un terme différent, remontent beaucoup plus loin en arrière et sont beaucoup plus profondes. Mais je ne vais pas abuser de ton temps et je m’abstiendrai d’analyser cette rubrique.
+Nous pourrions même aller encore plus loin en arrière et analyser les causes de la première guerre mondiale. Ce n’est pas l’assassinat du successeur du trône Autrichien qui a provoqué cette guerre. Ce fut l’élément déclencheur. Les causes, ou les racines, pour employer un terme différent, remontent beaucoup plus loin en arrière et sont beaucoup plus profondes. Mais je ne vais pas abuser de ton temps et je m’abstiendrai d’analyser cette rubrique.
 
 Ce que je tiens à préciser, c’est que, lorsque tu recherches les véritables racines des causes qui ont conduit à la première guerre mondiale, tu devras remonter beaucoup plus loin dans le passé, jusqu’à ce que tu arrives finalement à l’âge de Pierre, et même plus loin, à l’acte de désobéissance de nos premiers parents, qui, peu après, fut suivi d’un homicide, comme la Bible nous le décrit dans son symbolisme illustratif.
 
@@ -41,4 +41,6 @@ Judas.
 
 © Geoff Cutler 2013
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)
+### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

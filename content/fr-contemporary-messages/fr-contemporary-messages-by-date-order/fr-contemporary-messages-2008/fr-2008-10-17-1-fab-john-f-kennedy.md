@@ -13,7 +13,7 @@ John F Kennedy - reçu par FAB le 17 Octobre 2008, Santa Cruz, Californie, USA.
 
 Je suis ici, John Kennedy Jr.
 
-Je voudrais ajouter à ma précédente canalisation. Il y a plus que je souhaite dire. Vous avez raison ; j'ai, bien sûr, souffert parce que j'ai aussi causé ma propre mort. Je l'ai formulé de la façon dont je l'ai fait dans le message précédent parce que c'était déjà assez grave que je meure, mais ma propre femme et sa sœur sont mortes aussi.
+Je voudrais ajouter [à ma précédente canalisation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-16-1-fab-john-f-kennedy/). Il y a plus que je souhaite dire. Vous avez raison ; j'ai, bien sûr, souffert parce que j'ai aussi causé ma propre mort. Je l'ai formulé de la façon dont je l'ai fait dans le message précédent parce que c'était déjà assez grave que je meure, mais ma propre femme et sa sœur sont mortes aussi.
 
 Mes souffrances ont été insupportables parce que j'avais été averti par beaucoup, y compris par ma propre mère, qui s'est exprimée très clairement, des dangers que je courais à cause de mon incompétence en tant que pilote. Pourquoi n'ai-je pas écouté ces avertissements ? Mais j'étais têtu, et il est trop tard pour y remédier. Alors quand je suis arrivé ici, j'étais une épave. Il n'y avait pas d'espoir du tout. Vous pouvez à peine imaginer à quel point tout cela était insupportable. Et même maintenant, j'ai du mal à me le pardonner.
 
@@ -29,4 +29,6 @@ Oui, j'ai dit "c'est une vie formidable", car c'est ainsi que je la voyais en ta
 
 La bonne nouvelle est que j'ai maintenant l'espoir d'être heureux, même si je suis toujours bloqué par des circonstances qui ne peuvent être inversées. Mais je ne suis plus totalement désespéré.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

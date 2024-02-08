@@ -24,3 +24,7 @@ Puissiez-vous continuer à vous éveiller, frères et sœurs bien-aimés, à cet
 Dieu vous bénit, âmes bien-aimées, et vous garde sur Son chemin d’amour. Je suis votre enseignant Augustin et je marche avec vous comme beaucoup d’entre nous qui ont un vif intérêt et un grand amour pour ces mortels qui souhaitent dépasser ce lieu de médiocrité vers un lieu de lumière et de vérité.
 
 Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -38,4 +38,6 @@ Je suis votre ami, Beethoven.<sup id=”a1”>[1](#f1)</sup>
 
 1. <large id=”f1”> Beethoven a ultérieurement communiqué [le 10 Janvier 2003](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-10-1-fab-ludwig-van-beethoven/), [le 13 Janvier 2003](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-13-1-fab-ludwig-van-beethoven/) et [le 27 Janvier 2003](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-27-2-fab-ludwig-van-beethoven/).[↩](#a1)
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)
+### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

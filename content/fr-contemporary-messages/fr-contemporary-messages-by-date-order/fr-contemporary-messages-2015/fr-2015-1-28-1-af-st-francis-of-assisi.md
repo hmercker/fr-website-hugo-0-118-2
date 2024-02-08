@@ -27,4 +27,6 @@ Se rapprocher de Dieu de cette manière, c’est combler le désir le plus profo
 
 Âmes bien-aimées, je vous remercie pour cette opportunité de parler. Je vous remercie de rechercher l’Amour de Dieu, car en recherchant cette grande bénédiction, non seulement vous vous changez vous-mêmes par les actions de cet Amour, mais vous apportez une Lumière spéciale dans ce monde qui encourage d’autres âmes à chercher. Elle sonne la cloche et la cloche sonne et les âmes ont une lueur d’éveil et répondent. Et il en va ainsi dans ce monde. Il y a de grandes opportunités d’être un canal de l’Amour de Dieu, d’apporter cet Amour dans vos vies et pour tous ceux que vous rencontrez. Il vient, il coule, il lave sur beaucoup. Âmes bien-aimées, portez votre Amour, portez votre foi et soyez avec Dieu et permettez à Dieu d’apporter Son Amour à travers votre âme, dans votre âme et dans vos vies. Merci, mes bien-aimés, je suis François et je vous aime, je vous aime tendrement, que Dieu vous bénisse.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015)
+### [**Lien vers les messages des années 2015**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

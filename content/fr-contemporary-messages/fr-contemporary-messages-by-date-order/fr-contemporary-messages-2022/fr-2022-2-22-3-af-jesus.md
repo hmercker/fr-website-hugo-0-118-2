@@ -18,3 +18,8 @@ Je viens vous bénir, âmes bien-aimées, je suis Jésus. Je viens pour vous él
 Âmes bien-aimées, je sais que ce monde vous impose un grand fardeau. Je sais que les défis sont nombreux. Je sais que souvent vous vous sentez à la dérive dans la mer de la condition humaine. Mais je vous le dis, continuez vos prières, mes bien-aimés, continuez vos prières et soyez en alignement avec Dieu. C’est la seule façon pour que vos désirs, vos efforts et vos entreprises se réalisent, non pas par la planification et l’exécution de considérations réfléchies, mais par votre foi, vos prières et vos conseils.
 
 Marchez fidèlement dans la lumière de l’Amour de Dieu et tout se mettra en place, tout sera en harmonie, âmes bien-aimées. Vous êtes vraiment bénies et serez bénies ; guidées et serez guidées ; aimées et serez aimées. Âmes bien-aimées, je suis avec vous, votre frère et ami, je suis avec vous. Que Dieu vous bénisse, âmes bien-aimées.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

@@ -20,3 +20,7 @@ Vous êtes bénies, âmes bien-aimées, vraiment bénies et votre lumière brill
 Vous vous rapprochez du but de votre âme, mes bien-aimés, vous vous rapprochez de la réalisation de votre vrai moi, de l’éveil de vos âmes. Vous vous approchez, mes bien-aimés, et la joie et l’amour du Père brillent sur vous et Il vous bénit puissamment. Continuez à marcher dans la Lumière, à être humble et à être clair dans vos intentions et vos désirs de servir et vous connaîtrez le Plan de Dieu dans votre vie. Il sera mis en œuvre comme il est prévu. Soyez en paix, mes bien-aimés. Marchez dans la foi, connaissez les véritables désirs de vos âmes et laissez partir tout ce qui n’est pas en accord avec l’Amour.
 
 Je suis avec vous et je vous aime. Que Dieu vous bénisse, mes bien-aimés. Vous êtes chers à mon cœur, précieux, précieux dans ce monde. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

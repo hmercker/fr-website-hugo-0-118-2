@@ -18,3 +18,7 @@ J'ai déjà dit que lorsque les choses sont de l'esprit, elles sont sur une cert
 Mon souhait pour vous tous est que vous continuiez à vous ouvrir, à être dans la Présence du Père, à être guéris là où vous êtes blessés, à pardonner là où vous ne l'avez pas fait. Cela vous aidera à être dans vos âmes. Puissiez-vous tous être bénis éternellement dans le merveilleux Amour du Créateur, afin que vos âmes soient transformées. Je me joins à vous en cela.
 
 Je suis votre frère et ami Yogananda et je vous aime. Merci.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -20,3 +20,7 @@ Quelles que soient vos circonstances, quelle que soit la vie que vous avez vécu
 Mes amis, nous sommes avec vous. Nous poursuivons notre travail d’aide à l’éveil de l’humanité, et nous sommes avec vos amis anges, les esprits brillants, tous ceux qui ont le grand désir d’être un canal d’amour dans le monde, d’être un agent de lumière, d’être vraiment en harmonie avec la Volonté et le plan de Dieu. Tant de choses peuvent venir de ceux qui sont en harmonie avec Dieu, et vous pouvez en effet être ces canaux de lumière, d’amour, de paix et de guérison dans le monde. Dieu vous utilisera. Dieu vous utilise dans chaque souffle si vous êtes disposés, si vous êtes en alignement, si vous cherchez la lumière et cherchez à être un canal de lumière et d’amour.
 
 Dieu vous bénisse, je suis Orion, et je suis avec vous, dans ce grand voyage d’amour, ce grand réveil de l’humanité, cet apport de vérité et de conscience de tout ce qui est de Dieu au monde. Nous travaillons ensemble. Nous sommes Ses instruments. Nous sommes ensemble et nous le serons toujours sur ce chemin d’amour pour l’éternité. Nous sommes un sur ce chemin, vraiment un. Que Dieu vous bénisse. Je suis Orion. Je suis avec vous, âmes bien-aimées.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

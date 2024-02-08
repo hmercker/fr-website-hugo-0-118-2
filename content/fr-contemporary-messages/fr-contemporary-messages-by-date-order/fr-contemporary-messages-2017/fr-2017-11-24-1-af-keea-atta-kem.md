@@ -36,3 +36,7 @@ Vous êtes mises au défi, mes chères âmes, et pourtant vous semblez relever l
 Vous avez fait de grands progrès au cours de ces semaines et vous continuerez, vous continuerez âmes bien-aimées. Vous vous frayez un chemin vers une plus grande Lumière et vous laissez tomber ce qui n'est pas lumineux. Vous êtes bénis, vous êtes tellement bénis mes bien-aimés, continuez à aspirer au toucher de Dieu, continuez à permettre à cette Lumière d'avoir cet effet sur vous. Et tout ce qui vous pèse doit tomber, cela doit, cela tombe en ce moment même alors que vous continuez à prier.
 
 Dieu vous bénisse mes bien-aimés, la Lumière qui vous entoure est magnifique. Les énergies que vous portez dans votre être sont magnifiques dans leur complexité et leur beauté. Nous utiliserons tous vos dons, mes âmes bien-aimées, afin que vous puissiez porter cette Vérité dans le monde et le faire avec clarté et force, humilité et grâce. Que Dieu vous bénisse, mes amis. Je suis Keea-Atta Kem et je continue à travailler avec vous alors que vous grandissez dans l'Amour, alors que vous continuez à vous épanouir dans la Lumière. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

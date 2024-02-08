@@ -92,4 +92,6 @@ Tes amis Célestes, dans le Christ uni au Père.
 
 *« Nous pouvons vivre ici comme si c'était au Ciel. C'est simplement cela vivre. C'est simplement ce que nous sommes. Nous sommes simples. Des âmes de la Grande Âme. Et cette simplicité même est la condition de l'âme. Évidemment, cette simplicité est si merveilleuse qu'elle n'engendre l'amour que par sa condition. Il ne pourrait en être autrement, car Dieu est Amour. Donner ce que nous recevons, c'est simplement dire ce que nous recevons, donner des messages, comme le font les anges, et être prêt à tendre une main secourable au moment précis à celui qui en a besoin. Ils seront toujours avec nous. Parce que, évidemment, par leur état d'âme, en fait, ce sont eux qui aident à travers nous, tout comme Dieu nous aide à travers eux. Cela signifie que, finalement, c'est Dieu qui accomplit son Acte d'Amour à travers eux ou à travers nous. »]*
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)
+### [**Lien vers les messages des années 2002**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

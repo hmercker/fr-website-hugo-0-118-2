@@ -30,6 +30,6 @@ John D Rockefeller | [John D. Rockefeller se décrit lui-même](/fr-contemporary
 John D Rockefeller | [John D. Rockefeller se décrit lui-même - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-13-1-fab-john-d-rockefeller/) | 13 Mars 2013
 John D Rockefeller | [Le regard de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-16-2-fab-john-d-rockefeller/) | 16 Mars 2013
 
+### [**Lien vers les messages des années 2013**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/)
 
-
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

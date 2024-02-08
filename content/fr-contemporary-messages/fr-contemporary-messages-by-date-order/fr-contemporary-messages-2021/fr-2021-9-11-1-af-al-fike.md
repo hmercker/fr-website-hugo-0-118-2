@@ -30,3 +30,7 @@ Al : Exactement. Je pense que cette amitié va perdurer. Pas *« on te connaiss
 *[Judy : Je peux te visualiser dans cette situation.]*
 
 Al : C’était une belle façon de…. il s’est passé quelques choses. Je ne me souviens pas de tous les détails. Ils n’étaient pas si dramatiques. C’était une belle façon de terminer la prière, juste cette vision. J’espère vraiment que c’est réel. Donc, pour être tout à fait honnête, pour le premier jour avec VD, je me sens vraiment excité et enthousiaste. Avant, je me disais « c’est bien ». Nous verrons comment ça se passe.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

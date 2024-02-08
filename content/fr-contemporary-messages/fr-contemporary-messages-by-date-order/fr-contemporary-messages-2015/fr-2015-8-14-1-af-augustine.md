@@ -33,4 +33,6 @@ Soyez les champions. Suivez le chemin. Que votre foi grandisse avec force et dé
 
 C’est une telle utilité pour tant de gens. Continuez à dire vos prières pour augmenter votre amour, pour améliorer vos actions et vos pensées afin qu’elles deviennent plus spirituelles, plus en accord avec votre âme, plus en accord avec Dieu, et nous serons toujours avec vous, toujours, toujours. Que Dieu vous bénisse, âmes bien-aimées et précieuses. Votre maître Augustin est avec vous et je vous aime, âmes bien-aimées. Que Dieu vous bénisse.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015)
+### [**Lien vers les messages des années 2015**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -20,3 +20,7 @@ Vous connaissez la formule. Vous connaissez la vérité. Vous connaissez le chem
 Il y a un grand potentiel et une grande possibilité que l’amour puisse en effet ramener tout dans l’harmonie et la paix. Priez pour vos proches, vos âmes sœurs sur ce monde, priez pour que les conditions qui menacent d’apporter une plus grande obscurité, soient dissipées et que la puissance du toucher de Dieu puisse tout guérir, transformer tout de l’obscurité à la lumière. C’est le pouvoir de transformation. Cela vient avec la puissance et le dévouement de vos prières, de vos actions et de vos pensées afin que tous soient en harmonie avec la Volonté de Dieu. Laissez Sa volonté se manifester et en cela, tout ce que vous désirez manifester sera et entrera en harmonie avec Sa volonté.
 
 Que Dieu vous bénisse et nous bénisse tous dans ce grand voyage d’amour, de transformation et de lumière. Je suis Seretta Kem. Je continue à voyager avec vous sur ce chemin, pour ne jamais partir, ne jamais m’égarer mais toujours un pas en avant sur le chemin direct vers l’expiation avec Dieu. Que Dieu vous bénisse, bien-aimés. Mon amour est avec vous tous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

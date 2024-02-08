@@ -20,3 +20,7 @@ Je voudrais ajouter pour ce groupe de commencer votre journée dans cette ouvert
 Je voudrais dire au nom de tous ceux qui sont ici que nous sommes très heureux que vous vous soyez réunis pour cette étude, pour recevoir des conseils, pour partager vos pensées, vos sentiments, votre croissance, vos difficultés les uns avec les autres, en toute confiance, en sachant que vous êtes en sécurité et en priant ensemble pour le grand cadeau de l’Amour de Dieu.
 
 Vous avez tout notre amour et notre soutien. N’oubliez pas cela et chaque fois que vous vous adresserez à Dieu, nous vous aiderons à faire ce qu’Il vous demande en votre nom. Mon amour, mes bénédictions, ma gratitude et mon étreinte dans la grâce de Dieu à chacun d’entre vous. Je suis Eileen.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

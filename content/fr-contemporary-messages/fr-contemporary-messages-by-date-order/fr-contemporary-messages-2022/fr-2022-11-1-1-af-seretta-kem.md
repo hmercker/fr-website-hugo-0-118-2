@@ -30,3 +30,7 @@ Nous ne le pouvons pas. C’est seulement dans votre relation entre vous et Dieu
 Ceci, qui peut être et sera vu, n’est que le prélude à ce qui est à venir. Pensez-y, âmes bien-aimées, la joie, la profondeur et la signification de ces expériences que Dieu a pour chacun de vous n’est que le début d’un merveilleux voyage. Dans ce voyage, Dieu vous utilisera pour être son instrument dans le monde. Vous aurez la force, la puissance, la sagesse, les perceptions, l’amour pour atteindre vos frères et sœurs dans le monde et les inspirer à suivre la route que Dieu a tracée devant tous ses enfants. Pour qu’ils puissent eux aussi connaître la liberté, l’émerveillement, la joie que vous connaissez et que vous avez appris à connaître.
 
 Que Dieu vous bénisse tous sur cette route. Puissions-nous tous voyager ensemble dans l’harmonie, la paix et la joie alors que nous marchons sur la route de la vérité et buvons le nectar de l’âme de Dieu pour nous éveiller, nous transformer et nous apporter tout ce dont nous avons besoin pour marcher dans la lumière et l’harmonie avec ses lois d’amour. Que Dieu vous bénisse, mes amis. Je suis Seretta Kem et mon amour est avec vous alors que nous marchons ensemble. Que Dieu vous bénisse et vous garde dans son amour.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

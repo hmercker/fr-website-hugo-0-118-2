@@ -37,3 +37,7 @@ Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem et je vous aime ten
 <small>
 
 1. <large id="f1"> [Ce message a été reçu par Maureen Cardoso le 13 Juin 2018](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-13-1-mc-seretta-kem/).[↩](#a1)
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -32,4 +32,7 @@ Donc, en conclusion, non seulement il est possible, mais c’est un fait, qu’u
 
 1. <large id="f1"> L'ensemble des messages communiqués par Franklin Delano Roosevelt est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a1)
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+
+### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

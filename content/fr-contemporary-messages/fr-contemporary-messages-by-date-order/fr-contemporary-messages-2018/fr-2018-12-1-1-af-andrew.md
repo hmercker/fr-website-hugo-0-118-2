@@ -34,3 +34,7 @@ N’ayez pas l’impression que le chemin à parcourir est trop difficile ou ins
 Nous continuons donc à vous servir mes frères bien-aimés et tous ceux qui ont l’intention d’éveiller leur âme. Oui, le temps est court, mais il n’est pas impossible pour vous de parvenir à ce lieu de véritable éveil. Si, dans les temps à venir, votre éveil n’est pas complet, je ne suggère pas que Dieu vous abandonne ou n’utilise pas ce que vous avez à donner pour aider les autres dans la Vérité. Nous vous encourageons simplement à viser le plus haut, à exprimer votre grande âme dans toute sa beauté et sa lumière, à utiliser tous les dons et la sagesse de votre âme pour aider les autres à voir et à connaître la grande Vérité et l’Amour de Dieu.
 
 Continuez à prier mes frères. Continuez votre voyage d’éveil. Faites-en votre centre d’intérêt. Faites-en votre joyeux dévouement à Dieu. Que Dieu vous bénisse, mes bien-aimés. Que Son Amour continue à éveiller chaque partie de vous et vous garde dans Sa Lumière et Son Amour. Que Dieu vous bénisse. Je suis André. Je vous aime. Mes frères bien-aimés, je vous aime.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

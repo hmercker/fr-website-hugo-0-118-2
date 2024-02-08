@@ -24,3 +24,7 @@ Et vos esprits, qui ont été si bien formés et éduqués, doivent arriver à u
 Dieu a envoyé ses anges pour être avec vous dans ce but précis, pour vous aider, pour vous inspirer, pour être avec vous dans leur lumière et leur amour pour vous. Tout vient de ce simple désir d’Amour et vous le saurez vraiment au cours de votre vie si vous choisissez de marcher sur le Chemin Divin et de relâcher la domination de votre mental pour accepter la grande et puissante sagesse de votre âme. C’est un grand défi dans ce monde, si lourd de pensées, mais il s’accompagne de grandes récompenses et d’une véritable capacité à enseigner aux autres, à les conduire vers ce lieu d’harmonie et d’amour dont le monde a grand besoin. Il y a tellement de déséquilibre dans ce monde. L’amour est nécessaire. L’amour va guérir. L’amour apportera l’équilibre.
 
 Continuez, âmes bien-aimées, à rechercher la vérité, à gagner toujours plus de cette grande bénédiction de l’Amour et vous trouverez votre chemin vers ce lieu de Lumière et de joie, de sagesse et d’harmonie. Que Dieu vous bénisse. Je suis Simon et je vous aime. Je vous remercie de m’avoir donné l’occasion de m’exprimer aujourd’hui. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

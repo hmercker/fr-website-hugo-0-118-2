@@ -48,7 +48,8 @@ Ainsi, les prières d'aide sont nécessaires pour que nous puissions intervenir 
 
 1. <large id="f1"> Cette question du voyage nocturne vers les sphères spirituelles a été merveilleusement exposée et détaillée dans deux livres de Robert James Lees : [La vie Elyséenne](/7-fr-life-after-death/7-5-2-fr-extract-from-the-life-elysian/) et [A travers les  Brumes](/7-fr-life-after-death/7-5-1-fr-extract-from-through-the-mists/). Le sujet de l'état de sommeil est traité [par le lien ci-contre](/7-fr-life-after-death/7-5-fr-what-happens-when-we-sleep/).[↩](#a1)
 
-[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+### [**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

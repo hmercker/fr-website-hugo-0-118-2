@@ -18,3 +18,7 @@ Réveillez-vous mes bien-aimés, et connaissez la paix qui dépasse toute compr�
 Venez avec moi mes enfants, et nous connaîtrons Dieu ensemble et toute la gloire qui est Sa Lumière et Son Amour, tout l’émerveillement qui est Sa Création, toute la joie qui fait partie d’une vie vécue en relation avec son Créateur. Réveillez-vous, mes bien-aimés, réveillez-vous à votre véritable nature et soyez puissamment bénis. Sa Présence est avec nous. Son Esprit Saint nous touche. Nous sommes dans ce lieu tant désiré par beaucoup et pourtant souvent inaccessible car le mental inhibe l’âme. Mettez de côté les choses de votre esprit, mes bien-aimés, et soyez avec votre âme en ces moments, dans cette pureté, afin que tout ce qui est pour vous soit donné en grande abondance.
 
 Que Dieu vous bénisse. Je suis votre frère, je marche avec vous. Je suis Jésus. Nous prions ensemble dans Sa Grâce, mes bien-aimés. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -30,3 +30,7 @@ C’est à vous de choisir, comme toujours. C’est à vous de marcher avec un v
 Mes amis bien-aimés, vous êtes tous capables de tant de choses. Pourtant, vous vous limitez souvent à cause de la peur, des préjugés et de choses qui ne sont pas vraiment de vous mais qui vous ont été imposées. Soyez fidèles à vous-même et ne laissez pas ces choses vous dominer et vous guider. Il est temps de vous en libérer et d’être à l’intérieur de votre âme d’une manière si profonde que tout se reflétera dans votre vie, que tout viendra à vous en harmonie avec la volonté de Dieu. Tout se déroule selon le plan de Dieu.
 
 Que Dieu vous bénisse, mes amis, et vous garde dans la lumière. Puisse Son Amour continuer à couler en vous dans une mesure toujours croissante, un flux qui est incessant, un flux qui est puissant. Que Dieu vous bénisse. Je suis Orion. Mon amour est avec vous. Que Dieu vous bénisse, âmes bien-aimées, que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -17,4 +17,6 @@ Oui, nous voyons toute la destruction en cours, mais nous ne pouvons pas l'arrê
 
 L'optimisme que Dieu vous a donné ne vaut pas seulement pour vous, mais pour le monde entier. Ils ne pourront aller que jusqu'à un certain point et pas plus loin.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

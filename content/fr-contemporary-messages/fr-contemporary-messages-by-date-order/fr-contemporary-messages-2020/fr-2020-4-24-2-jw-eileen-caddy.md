@@ -20,3 +20,7 @@ Comme je l’ai déjà dit, la prière est le pont entre le Ciel et la Terre. Do
 Avec tout mon amour, je vous encourage donc à suivre votre cœur et à prendre conscience du désir de votre âme. Permettez à cette grande transformation, à ce grand don, d’être à vous car il est donné gratuitement à chacun pour ce qu’il demande.
 
 Je suis votre sœur et votre amie et je vous aime tous. Que Dieu vous bénisse ! Je suis Eileen.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -20,3 +20,7 @@ Il s’agit d’un chemin simple, mais profond, et nous vous encourageons à ajo
 Bien-aimés, vous êtes grandement surveillés et de nombreux anges entourent ceux qui prient pour l’Amour Divin. C’est l’un des grands cadeaux que Dieu accorde à ses enfants de la terre. Ceux qui prient pour cet Amour ont des Anges Célestes près d’eux. Nous désirons vous servir et être proches de vous, alors continuez à tendre la main. Tendez la main de vos âmes. Tendez la main depuis la tendresse de votre cœur, en permettant au magnifique Créateur, le dispensateur de toutes les actions et de tous les dons bons et parfaits, de vous bénir puissamment.
 
 Que Dieu bénisse chacun d’entre vous. Je suis votre enseignant, Augustin, et je vous remercie de m’avoir permis de parler ce soir. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

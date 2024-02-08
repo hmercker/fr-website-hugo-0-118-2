@@ -26,4 +26,6 @@ Vous pouvez donc comprendre que pour certains esprits, tels que Shakespeare, il 
 
 Lorsque votre heure sera venue, vous aurez accompli tout ce que Dieu a ordonné en termes de prise en charge des messages des esprits, et ceux-ci vous exprimeront leur gratitude lorsque vous les rencontrerez dans le monde des esprits.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

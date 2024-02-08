@@ -23,4 +23,6 @@ Mais dans leur détresse, beaucoup se tournent vers ces qualités de courage et 
 
 Il y a donc une similitude avec ma propre époque, lorsqu'il y avait un empire dominant, et un chaos et une insécurité générale dans ma société. C'est dans cette réalité psychologique que j'ai pu prêcher les bonnes nouvelles de l'Amour Divin à mes compatriotes juifs. Cela rendait les gens réceptifs à un message qui n'était pas spécifiquement mondain.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

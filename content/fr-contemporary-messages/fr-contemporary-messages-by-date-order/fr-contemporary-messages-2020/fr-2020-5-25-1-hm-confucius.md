@@ -11,7 +11,7 @@ weight:
 
 Confucius - reçu par Helge Mercker le 25 Mai 2020, Swakopmund, Namibie.
 
-Mon petit oiseau, ma fille, je suis ici avec toi. Je suis Confucius.
+Mon petit oiseau, ma fille, je suis ici avec toi. Je suis Confucius<sup id="a1">[1](#f1)</sup>.
 
 Je partage mon amour avec toi et t’apporte guérison et réconfort alors que tu es engagée dans une profonde réflexion sur de nombreuses choses, sur ce que notre bien-aimée Seretta Kem a dit, et sur Matthieu et d’autres.
 
@@ -28,3 +28,10 @@ Mon enfant, la guérison est en train de se produire. Chaque jour, tu t’efforc
 Fais naître le fort désir, l’appel, la demande active à Dieu de vous aider dans ce processus d’éveil, dans ce déploiement transformateur de vous-même. Sois doux et bienveillante, aimante et gracieuse envers toi-même, et le chemin de la transition vers l’Amour éternel t’apportera une grande harmonie, la paix et la joie.
 
 Que Dieu te bénisse, mon cher enfant. Confucius est avec toi, t’apportant guérison et réconfort, sagesse et amour. Que Dieu te bénisse et repose en paix, car nous sommes proches. Bonne nuit, cher enfant. Que Dieu te bénisse.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués  par Confucius sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a1)
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

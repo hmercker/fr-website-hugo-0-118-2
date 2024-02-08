@@ -50,3 +50,7 @@ Bien que nous ne puissions pas, et que personne ne puisse, garantir la réalisat
 Ainsi, mes âmes bien-aimées, je terminerai ma dissertation en espérant que vous avez été encouragés et assurés que tout ce qui est dans le flux et la volonté de Dieu sera réalisé au temps de Dieu, à la manière de Dieu. Pour vous, bien-aimés, pour écouter et marcher avec la connaissance et la vérité et le sens de l’harmonie qui vient avec chaque goutte de guidance, chaque désir de servir, chaque effort pour être dans l’amour, le flux de l’Amour de Dieu.
 
 Que Dieu vous bénisse profondément, âmes bien-aimées. Je suis votre enseignant, Augustin, et je vous aime. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -30,3 +30,7 @@ Que Dieu vous bénisse dans ce voyage, mes bien-aimés. Je suis votre frère et 
 Que Dieu vous bénisse, mes bien-aimés. Je viens à vous une fois de plus, dans la prière et les mots d’encouragement et d’amour. Sachez que je marche avec vous, que des centaines d’anges marchent avec chacun d’entre vous sur ce chemin d’amour.
 
 Dieu vous bénit, je suis avec vous, Dieu vous bénit, âmes bien-aimées.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

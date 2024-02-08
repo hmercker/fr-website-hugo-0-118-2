@@ -19,4 +19,6 @@ Oui, détends-toi et ressens notre joie de voir tes efforts pour apporter l’am
 
 Je suis Judas et je suis heureux de t’écrire, notre lien doit être renforcé, travaille à cela. Nous t’aimons.
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

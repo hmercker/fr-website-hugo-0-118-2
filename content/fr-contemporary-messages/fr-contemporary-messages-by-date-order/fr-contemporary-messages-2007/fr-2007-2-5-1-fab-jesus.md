@@ -23,4 +23,6 @@ Cependant, je dois affirmer avec force, et avec l'autorité que Dieu m'a donnée
 
 Je poursuivrai mon dialogue avec les mortels, et je continuerai également à influencer le plan terrestre d'une manière qui s'harmonise avec la Volonté de Dieu.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

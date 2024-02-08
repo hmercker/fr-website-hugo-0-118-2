@@ -18,3 +18,7 @@ Jésus veut que vous soyez un rayon de soleil, une belle âme pour Dieu. Soyez c
 Nous vous aimons, nous vous soignons et nous vous embrassons afin de marcher dans ce beau flux.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Keea et je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -74,3 +74,7 @@ S’il y a suffisamment d’individus dans votre monde qui sont prêts à releve
 Que Dieu vous bénisse dans ce voyage, âmes bien-aimées, ce beau voyage de découverte de la puissance de l’amour. Nous, dans le Royaume Céleste, nous ferons tout notre possible pour vous aider dans ce voyage, afin que vos âmes s’ouvrent à Dieu, et que Dieu vous apporte tous les merveilleux cadeaux et bénédictions pour renforcer l’amour en vous et tout ce que cela implique.
 
 Que Dieu vous bénisse, âmes bien-aimées. Puissiez-vous continuer à être dans la lumière et à savoir combien vous êtes aimés et combien d’amour il y a en vous. Je suis votre frère et votre ami. Je suis Jésus. Mon amour est avec vous. Que Dieu vous bénisse. Que Dieu vous bénisse tous et chacun.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

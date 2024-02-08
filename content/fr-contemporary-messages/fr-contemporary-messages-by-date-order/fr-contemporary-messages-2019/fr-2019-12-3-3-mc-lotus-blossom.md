@@ -9,7 +9,7 @@ weight:
 ---
 ### La foi est un instrument pour que la guérison se produise
 
-Lotus Blossom - reçu par Maureen Cardoso le 3 Décembre 2019, Waianae, Oahu, Hawaii, USA.
+Fleur de Lotus - reçu par Maureen Cardoso le 3 Décembre 2019, Waianae, Oahu, Hawaii, USA.
 
 C’est moi, Fleur de Lotus. Beaucoup d’entre vous dans ce cercle ont le don de la guérison. J’assiste et travaille avec chacun d’entre vous pour ouvrir le flux d’énergies, d’énergies de guérison que Dieu souhaite voir passer à travers vous pour aider à la guérison des autres. Certains d’entre vous ont suivi une formation formelle dans les modalités de guérison et d’autres non. Il n’est pas nécessaire pour ceux qui n’ont pas suivi de formation formelle de le faire, car lorsque vous êtes un instrument de Dieu, votre présence fait naître les énergies à travers vous. Vous pouvez toucher quelqu’un d’autre d’une manière très simple sans l’intention de guérir et Dieu utilisera cette occasion pour faire circuler ces énergies à travers vous.
 

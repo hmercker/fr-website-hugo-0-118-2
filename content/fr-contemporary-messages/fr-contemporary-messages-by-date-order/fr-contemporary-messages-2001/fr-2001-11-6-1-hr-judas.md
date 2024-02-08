@@ -68,3 +68,8 @@ Avec cela, je te dis au revoir. Ce fut encore un long message. Mais il était ur
 Je suis ton frère dans l’esprit et votre serviteur, Judas de Kerioth.
 
 © Geoff Cutler 2013
+
+### [**Lien vers les messages des années 2001**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

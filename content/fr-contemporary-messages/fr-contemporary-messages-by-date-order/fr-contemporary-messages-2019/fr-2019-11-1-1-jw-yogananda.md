@@ -22,3 +22,8 @@ Mes amis, vous avez été élevés, vous vous êtes débarrassés d'une grande p
 Pour ajouter à ce que j'ai dit plus tôt, mon frère réticent a senti qu'il devait prendre du recul, je souhaite ajouter que l'attirance pour le conflit, la rencontre sexuelle, la négativité, est l'énergie de tant de personnes vivant dans la neutralité ou le désespoir tranquille. Ils voient donc ces options dans le monde, ils en ressentent l'énergie et cela finit, comme je l'ai dit, par causer du chagrin et peut-être même plus de désespoir. Vous, mes amis, avez trouvé l'énergie subtile, glorieuse et magnifique de l'Amour et de la Lumière de Dieu. C'est là que réside la différence.
 
 Je vous aime. Je suis Yogananda. Je vous remercie. Que votre Lumière et votre Amour, qui sont en Dieu, bénissent tout le monde. Je suis votre frère et ami dans les Cieux Célestes. Que Dieu vous bénisse. Je t'aime. Je suis Yogananda. Merci.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

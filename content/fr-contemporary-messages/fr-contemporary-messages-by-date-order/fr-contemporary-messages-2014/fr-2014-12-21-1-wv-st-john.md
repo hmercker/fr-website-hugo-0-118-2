@@ -64,9 +64,8 @@ Je suis heureux que nous ayons eu l’occasion de partager nos connaissances de 
 
 2. <large id="f2"> Comme indiqué ci-dessus, je soupçonne que Jean se réfère aux mortels qui deviennent des anges, parce qu’il sait certainement que l’Univers du Père comporte des types d'êtres innombrables et que la totalité d’entre eux ne sont pas bienveillants, bien qu’ils aient été créés dans ce but, ce but peut être assez bas dans l’ordre des choses. Certains d’entre eux sont créés sans connaissances et sont obligés d’apprendre  comme nous le faisons. Et cela signifie qu’ils feront des erreurs. Et qu’ils ne deviendront pas des résidents des royaumes Célestes avant une très longue période d’éducation.(Geoff Cutler)<sup id="a3">[3](#f3)</sup>[↩](#a2)
 
-3. <large id="f3"> Geoff Cutler est le fondateur du site Web [New-Birth.net](https://new-birth.net/) et du site web [Soul.truth.ca](https://soultruth.ca/)[↩](#a1)
+3. <large id="f3"> Geoff Cutler est le fondateur du site Web [New-Birth.net](https://new-birth.net/) et du site web [Soul.truth.ca](https://soultruth.ca/)[↩](#a3)
 
+### [**Lien vers les messages des années 2014**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/)
 
-
-
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014)
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

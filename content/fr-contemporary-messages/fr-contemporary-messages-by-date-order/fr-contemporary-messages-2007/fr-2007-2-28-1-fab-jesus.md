@@ -75,4 +75,6 @@ Je reconnais que les commentaires de Judas peuvent sembler inexacts et même fau
 1. <large id="f1"> Le médium qui a canalisé ce message était d’origine Juive.[↩](#a1)
 
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -32,3 +32,7 @@ Dieu vous aidera, amis bien-aimés, à recevoir ce don ouvertement et à reconna
 Plus l’âme grandit, plus ces capacités grandissent, plus ces dons grandissent, plus la lumière grandit et s’exprime dans toutes ses merveilles. Âmes bien-aimées, continuez votre chemin vers la lumière et la lumière viendra sous toutes ses formes et dans toutes ses merveilles. La lumière viendra et sera avec vous, vous entourera et vous ouvrira à beaucoup de choses. Que Dieu vous bénisse, mes amis, et vous garde dans son amour, car c’est la clé de tout, comme vous le savez, et elle vous est donnée avec chaque prière, chaque fois que vous la demandez à Dieu. Avec elle viennent toutes les autres bénédictions. La corne d’abondance du toucher de Dieu pour Ses enfants s’ouvre à travers la prière que vous recevez dans une prière humble et simple, qui est sérieuse et qui veut embrasser tout ce que Dieu donne, tout ce que Dieu est.
 
 Que Dieu vous bénisse, mes amis, dans ce merveilleux voyage. Mon amour est avec vous. Je suis souvent avec vous, et moi aussi je vous apporte les lumières de l’arc-en-ciel pour vous soutenir et vous donner de l’appui. Que Dieu vous bénisse. Mon amour est toujours avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

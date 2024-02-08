@@ -48,3 +48,7 @@ Vous vous éveillez à peine à cette réalité, à cette vérité. Mais avec ce
 Belles âmes, Dieu vous rassemble dans ce périple. Le semblable attire le semblable, l’âme attire l’âme, l’amour attire l’amour. De bien des façons, Dieu vous donne beaucoup de choses et vous êtes un don les uns pour les autres. Vous êtes profondément bénis, âmes bien-aimées, et vous vous rapprochez toujours plus de votre but. Tout dans votre vie, chaque expérience, chaque pensée, chaque interaction, chaque élément recherche l’harmonie, l’unification et l’Amour. Permettez qu’il en soit ainsi. Accueillez tout dans l’Amour. Accueillez-vous dans l’Amour. Acceptez tout ce qui est donné dans votre vie comme une bénédiction de Dieu qui vous aime. Cherchez toujours l’harmonie. Grandissez dans l’Amour et grandissez dans le dessein.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre enseignant, Augustin. Mon amour est toujours avec vous. Vous savez que c’est moi qui vous regarde continuellement, mes protégés, mes chers protégés, mes merveilleux protégés. Vous cherchez la Vérité. Je suis là et je le serai toujours. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -32,3 +32,7 @@ Priez pour ces âmes. Priez pour vous-mêmes. Priez les uns pour les autres et s
 Je prie pour que vous, chaque belle âme ici présente, trouviez le vrai sens de vos âmes, les vrais dons de vos âmes, les vraies facultés de vos âmes, afin que l’Amour de Dieu puisse activer tout ce qui est en vous. De cette façon, vous connaîtrez votre but. Vous en viendrez à savoir comment Dieu peut vous utiliser en cette grande période de transformation et de bénédictions du monde.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Keea Atta Kem et je prie pour vous tous. Mon amour est avec vous, précieuses âmes. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

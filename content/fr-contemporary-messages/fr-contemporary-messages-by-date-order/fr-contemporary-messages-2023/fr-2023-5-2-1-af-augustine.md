@@ -30,3 +30,7 @@ Oui, la vie est un grand labyrinthe, souvent déroutant et difficile à parcouri
 C’est simple, chers étudiants. Ne vous inquiétez pas. Je ne dis pas cela pour vous mettre la pression, pour vous imposer des attentes, mais plutôt pour vous suggérer que Dieu, en effet, a beaucoup de choses qu’Il souhaite que vous fassiez. Si vous le faites volontiers avec amour et dévouement, vous recevrez de nombreuses bénédictions, car vous serez utilisés pour bénir les autres.
 
 Mes chers et magnifiques étudiants de la lumière, de l’amour et de la vérité, continuez à chercher votre voie et à vous aligner sur la volonté de Dieu, et vous verrez que ce que je dis est vrai et que ce qui se manifestera est réel. Ce qui viendra en termes de service et d’opportunités sera grandiose. Alors, soyez bénies, âmes bien-aimées, dans la grâce de Dieu, dans la Volonté de Dieu, dans l’Amour de Dieu. Je suis votre professeur Augustin et je vous aime. Je suis toujours là pour vous aider, vous guider et vous élever. Que Dien vous bénisse. Que Dien vous bénisse.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

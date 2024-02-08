@@ -22,3 +22,8 @@ En effet, elle évoluera, certaines choses seront laissées derrière et d’aut
 Vous regardez maintenant en arrière et voyez les progrès que vous avez faits, mais dans les années à venir, vous verrez des progrès bien plus grands, bien plus accomplis, beaucoup, beaucoup d’âmes touchées et la vérité exprimée brillant à travers les beaux efforts et les entreprises de vos âmes désireuses de servir Dieu et d’être en alignement avec la Volonté de Dieu. Que Dieu vous bénisse ainsi, mes amis, que vous vous éveilliez dans Son Amour, recevant ce cadeau encore et encore jusqu’à ce que vous soyez vraiment éveillés et vraiment en alignement, en plein alignement avec votre Père Céleste. Que Dieu vous bénisse, mes chers et beaux amis. Nous continuerons à travailler ensemble et à être vraiment sur ce chemin qui est de la lumière, qui sert à rassembler les porteurs de lumière, à s’éveiller ensemble, à se soutenir mutuellement dans l’amour, à soutenir la lumière et la vérité, et l’Amour de Dieu disponible pour tous.
 
 Dieu vous bénisse, mes amis, je suis Professeur Salyards et je marche avec vous, mes vrais et beaux amis sur la terre, comme le font beaucoup, beaucoup que vous ne connaissez pas encore mais que vous allez connaître – les anges du ciel qui se sont consacrés à ces grands efforts. Bénédictions et amour pour vous tous, mes amis. Dieu vous bénisse, Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

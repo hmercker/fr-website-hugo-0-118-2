@@ -26,3 +26,7 @@ Je souhaite donner mon amour à mes filles qui m'ont tant donné. Quelles belles
 Que Dieu vous bénisse. Que Dieu vous bénisse, mes amis. Je suis Percy. Oui, c'est moi. Je vous aime tous. Merci. Merci de chercher à être dans la Lumière. Le monde a besoin de tellement plus de belles personnes comme vous. Continuez à prier pour Son Amour, mes bien-aimés. Priez pour Son Amour. Tout ira bien. Je continuerai à être avec vous alors que vous grandissez dans l'Amour et cherchez à servir Dieu dans ce monde. Je sais que je serai avec vous pour vous aider, pour prier pour vous, pour vous apporter l'Amour et la Lumière. Dorothy et Darlene le savent, je ne vous quitterai jamais. Mon amour est toujours avec vous et je serai proche. Et avec tout le reste de la famille, je serai proche.
 
 Que Dieu vous bénisse. Je vous aime. Je vous aime tous. Vous êtes tous merveilleux. Vous êtes tous merveilleux. Que Dieu vous bénisse dans Son Amour. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

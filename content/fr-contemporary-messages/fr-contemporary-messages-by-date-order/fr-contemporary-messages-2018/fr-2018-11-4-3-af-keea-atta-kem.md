@@ -16,3 +16,7 @@ Je suis Keea Atta Kem et je suis une habitante du Royaume Céleste, un ange qui 
 Un grand océan d’Amour attend chacun qui souhaite s’y baigner, être rafraîchi par ces eaux vives, oint, nettoyé, élevé, afin que vienne la paix qui dépasse toute compréhension, que tous les soucis et les inquiétudes de votre vie se dissolvent dans l’Amour et que vous soyez emportés dans cette grande lumière et cette paix et cette joie. Bien-aimés, Dieu vous aime tous et chacun au-delà de votre capacité de comprendre. Venez connaître cet Amour. Venez savoir combien vous êtes aimés et combien votre âme est belle. C’est gratuit pour toute âme qui le demande, quelle que soit sa condition et sa place dans votre monde. Il est donné gratuitement à toute âme qui souhaite recevoir ce cadeau. Que Dieu vous bénisse puissamment dans ce flux, dans cette bénédiction d’Amour.
 
 Que Dieu vous bénisse. Je suis Keea Atta Kem et j’ai résidé en Égypte il y a plusieurs milliers d’années. J’étais la fille de Ramsès II, une de ses nombreuses filles. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés. Merci.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

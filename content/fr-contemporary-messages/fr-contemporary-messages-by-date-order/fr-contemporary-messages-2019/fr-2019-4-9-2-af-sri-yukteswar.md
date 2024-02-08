@@ -11,7 +11,7 @@ weight:
 
 Sri Yukteswar - reçu par Al Fike le 9 Avril 2019, Gibsons, Colombie-Britannique, Canada.
 
-Que l'amour de Dieu trouve une place profonde dans votre cœur. Je suis Sri Yukteswar. Je suis venu pour être avec vous en tant que groupe d'âmes diverses sur des chemins individuels qui sont dédiés à la croissance de votre âme, à l'éveil de ces parties profondes en vous. Je souhaite vous dire que dans les Royaumes des Cieux Célestes, de nombreuses races et individus se rassemblent en harmonie, mais quelle que fut leur expérience sur Terre, quelles que furent leurs croyances au cours de leur voyage sur cette Terre qui est la vôtre, il y a une réconciliation de la vérité dans l'âme de chaque bel individu qui passe les portes du Ciel Céleste. Nous sommes unis dans notre message à ceux de votre monde, que le pouvoir de la grande source d'Amour, Dieu le Créateur, est le chemin qui mènera à l'illumination de l'âme.
+Que l'amour de Dieu trouve une place profonde dans votre cœur. Je suis Sri Yukteswar<sup id="a1">[1](#f1)</sup>. Je suis venu pour être avec vous en tant que groupe d'âmes diverses sur des chemins individuels qui sont dédiés à la croissance de votre âme, à l'éveil de ces parties profondes en vous. Je souhaite vous dire que dans les Royaumes des Cieux Célestes, de nombreuses races et individus se rassemblent en harmonie, mais quelle que fut leur expérience sur Terre, quelles que furent leurs croyances au cours de leur voyage sur cette Terre qui est la vôtre, il y a une réconciliation de la vérité dans l'âme de chaque bel individu qui passe les portes du Ciel Céleste. Nous sommes unis dans notre message à ceux de votre monde, que le pouvoir de la grande source d'Amour, Dieu le Créateur, est le chemin qui mènera à l'illumination de l'âme.
 
 Beaucoup cherchent l'illumination de l'esprit et ne reconnaissent pas pleinement l'aspect plus profond de leur être, celui de l'âme. Au lieu de cela, ils permettent à la domination de l'esprit de les porter à travers diverses perspectives et points de vue de la vie et sont tout à fait satisfaits de découvrir la puissance et la gloire de leurs propres voies et moyens naturels d'existence. C'est ce que vous appelez l'amour naturel, cette partie de vous qui se purifie par des actions justes dans la pensée et l'être. Cela vous mènera en effet vers un lieu de lumière, vers un lieu qui répond aux ambitions de l'esprit et, dans une certaine mesure, de l'âme.
 
@@ -28,3 +28,19 @@ Vous êtes sur la bonne voie, mes amis. Nous, dans le Royaume Céleste, qui vivo
 Toutes les ressources que nous pouvons donner à ces âmes courageuses telles que vous, seront disponibles, vous soutiendront, vous élèveront et vous porteront en avant. Nous sommes avec vous et nous sommes nombreux, très nombreux ; certains dont vous avez entendu parler et d'autres non. Puissiez-vous continuer sur ce chemin d'éveil, de joie, de recherche du Dieu de toute vie et de tout amour, d'être à l'intérieur de votre âme et d'intégrer tout ce que vous êtes censés être et de vous éveiller à tous les potentiels qui sont à l'intérieur de chaque âme, chaque belle, unique, complexe et éblouissante âme.
 
 Que Dieu vous bénisse profondément mes amis. Sri Yukteswar est avec vous dans vos efforts. Dieu vous bénisse, Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> Sri Yukteswar s'est également exprimé dans les messages suivants : [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Sri Yukteswar | [Le gourou Hindou Sri Yukteswar parle de l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-30-2-fab-sri-yarisupta/) | 30 Janvier 2014
+Sri Yukteswar | [La loi de la création et Sathya Sai Baba](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-2-4-1-wv-sri-yarisupta/) | 4 Février 2014
+Sri Yukteswar | [Réponses aux questions sur la guérison par l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-26-3-af-sri-yarisupta/) | 26 Janvier 2019
+Sri Yarisupta | [Qu’y a-t-il dans un nom ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-27-4-af-sri-yarisupta/) | 27 Janvier 2019
+Sri Yukteswar | [Sri Yukteswar honors Yogananda](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-18-1-jw-sri-yukteswar/) | 18 Septembre 2020
+Sri Yukteswar | [L'instrumentalité de Lorraine se manifeste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-15-2-af-sri-yuktesar/) | 15 Octobre 2022
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -33,4 +33,6 @@ La vie est belle parce que vous y êtes, enfants bénis, phares pour toute l’h
 
 Je vous aime, mes frères et sœurs. Je suis votre frère et mon amour ne se lassera jamais de vous embrasser comme ma propre famille – Jean.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)
+### [**Lien vers les messages des années 2001**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

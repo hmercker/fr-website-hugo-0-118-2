@@ -24,3 +24,7 @@ Mes bien-aimés, avec humilité et patience, avec un désir d’atteindre le plu
 Il y a beaucoup à venir pour chacun d’entre vous, mes bien-aimés, beaucoup de réveils, beaucoup d’expériences, beaucoup de bénédictions et un grand Amour. Continuez à prier et à être ouvert à ce que Dieu a à vous donner et en cela, tout se déroulera dans l’harmonie et le timing parfaits de Dieu. Chacun de vous a un ange qui le guide et le protège. En effet, vous êtes assurés de marcher dans la Lumière aussi longtemps que vous continuez à marcher dans la Vérité. De nombreuses bénédictions viendront en cela.
 
 Dieu vous bénisse, âmes bien-aimées. Je suis André et mon amour est avec vous. De nombreux anges prient pour votre éveil et votre croissance continus dans l’Amour et il en sera ainsi, comme Dieu le désire pour chacun d’entre vous de connaître ce grand cadeau dans toute sa beauté, ses complexités et ses bénédictions. Que Dieu vous bénisse. Je suis André. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

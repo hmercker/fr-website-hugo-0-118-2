@@ -25,5 +25,6 @@ Il y a en effet un plan Divin qui se déroule, mais il est accompagné de résis
 
 Ne doutez donc pas de votre don de canalisation, et ne doutez pas que nous sommes juste à côté de vous pour vous guider et vous protéger.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
 
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

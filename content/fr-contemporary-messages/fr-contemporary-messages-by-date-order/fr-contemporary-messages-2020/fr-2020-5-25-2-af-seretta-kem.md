@@ -28,3 +28,7 @@ Il n’est pas nécessaire de juger l’un au-dessus de l’autre, l’un infér
 Soyez humbles, âmes bien-aimées. Soyez patientes les unes envers les autres. Soyez fidèles à vous-mêmes. Soyez fidèles à l’édit d’Amour que Dieu vous a encouragés à exprimer dans tout ce que vous faites. C’est tout ce qui est nécessaire, âmes bien-aimées. Vous êtes dirigés et guidés, nourris et renforcés et testés chaque jour. Il y a encore beaucoup à apprendre, beaucoup à grandir et à développer dans le grand voyage de l’éveil de votre âme vers l’union avec Dieu. Il en sera ainsi, âmes bien-aimées, il en sera toujours ainsi.
 
 Que Dieu vous bénisse dans ce voyage. Je suis Seretta Kem. Mon amour est avec vous, vraiment avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -40,4 +40,6 @@ Ce message simple fait partie d'une série. Ils seront liés, pour faciliter la 
 
 1. <large id="f1"> En d’autres termes : Il n’a pas de forme et n’est pas limité ou contraint par l’univers physique ; Son Amour n’a pas de forme et n’est pas limité non plus. PJR.[↩](#a1)
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)
+### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

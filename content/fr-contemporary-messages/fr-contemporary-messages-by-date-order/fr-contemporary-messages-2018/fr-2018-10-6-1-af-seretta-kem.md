@@ -40,3 +40,7 @@ Nous attendons l’émergence de ce beau papillon qu’est votre âme. Continuez
 Nous continuons à être avec vous dans cette naissance de votre âme. Ce processus a une importance bien plus grande que le développement d’un seul don. Dans ce processus, vient le déploiement de nombreux dons. Les couleurs de l’arc-en-ciel sur les ailes sont indicatives de la multiplicité des dons que vous aurez et exprimerez dans ce monde. Puissiez-vous continuer, âmes bien-aimées, dans votre grand effort pour marcher dans la Lumière et la Vérité de l’Amour de Dieu, pour être Ses serviteurs, Ses enfants, afin que votre amour et Son Amour puissent apporter une plus grande lumière à ce monde.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem et j’ai un grand amour pour vous tous. Je suis avec vous. Je suis témoin de la naissance de votre âme. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

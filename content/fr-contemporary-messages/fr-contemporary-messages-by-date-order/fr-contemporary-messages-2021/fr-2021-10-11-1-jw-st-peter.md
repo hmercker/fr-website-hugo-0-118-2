@@ -20,3 +20,7 @@ Gardez les feux allumés dans votre cœur, la lumière dans votre âme. Si vous 
 Je sais de quoi je parle. Je ne souhaite pas dévaloriser le travail de celui-ci ou d’un autre, mais seulement vous rappeler que vous êtes dignes. Vous êtes tout autant un enfant de Dieu qu’un autre. Approfondissez cette prière. Ouvrez votre cœur pour que l’Esprit Saint de Dieu ouvre votre âme et la remplisse d’Amour, d’Amour éternel.
 
 Je me joins à vous dans cette prière et à tous ceux qui sont ici. Je suis votre humble serviteur, votre frère dans le Christ. Je suis Simon Pierre. Allez en paix.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

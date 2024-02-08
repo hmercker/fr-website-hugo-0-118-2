@@ -22,3 +22,7 @@ Dans de nombreuses circonstances, cela ne vous attirera pas l’admiration, souv
 Restez forts, mes bien-aimés. Soyez toujours dans la Lumière. Portez la bannière de la Vérité. Ne permettez pas à ceux qui veulent contrecarrer vos efforts d’entendre de votre part acceptation et acquiescement. Vous pouvez simplement dire la Vérité et aller de l’avant en poursuivant votre travail dans ce monde. La puissance de l’Amour de Dieu est souvent un défi et peut défier les ténèbres. Reconnaissez cela en vous, non pas que la colère s’élève, non, mes bien-aimés, mais un sens de la Vérité, un sens que vous êtes dans la Vérité et que cette Vérité peut être exprimée de nombreuses manières différentes mais fera toujours partie de votre visage, de votre Lumière. Vous serez testés, âmes bien-aimées. Vous devez être fortes. Ne cédez pas à l’erreur. Ayez la foi que Dieu vous guidera à travers, dans la Lumière.
 
 Je suis Luc. Que Dieu vous bénisse abondamment de Son Amour, vous renforce dans Son Amour, vous apporte une plus grande Vérité dans Son Amour et Sa sagesse et Son humilité et Sa grâce. Que Dieu vous bénisse. Que Dieu vous bénisse toujours. Mon amour est avec vous.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

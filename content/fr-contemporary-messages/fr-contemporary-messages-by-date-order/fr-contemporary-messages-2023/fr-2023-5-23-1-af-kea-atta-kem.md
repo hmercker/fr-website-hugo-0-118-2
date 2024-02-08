@@ -24,3 +24,7 @@ Laissez votre lumière briller. Ressentez la joie de votre âme qui reconnaît l
 Vous êtes Ses enfants, comme nous tous, une grande famille qui s’exalte dans l’Amour de Dieu. Nous sommes Ses enfants, et en cela nous connaissons une grande joie, une grande élévation, une grande vérité, de grandes connaissances de l’âme. Le voyage vous mènera dans de nombreux lieux et découvrira de nombreuses vérités. Cela vous amènera à cet endroit où l’âme se réjouit et prédomine en vous. C’est si proche, bien-aimés, si proche à votre portée. Recherchez la bénédiction de l’Amour de Dieu et vous vous rapprocherez toujours plus de l’éveil de l’âme à l’exultation de l’amour et de l’unité avec Dieu. La lumière est sur vous et ainsi les bénédictions se déversent. Buvez profondément ces eaux vives. Ouvrez-vous grand et soyez avec votre Créateur qui vous aime tant.
 
 Je vous aime tellement, mes bien-aimés. Je m’appelle Keea-Atta-Kem et je vous aime tellement. Que Dieu vous bénisse et vous garde dans Son Amour. Que Dieu vous bénisse et vous réveille dans la lumière, la vérité et tout ce qui vient de Dieu. Je vous aime et je suis proche. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -17,4 +17,8 @@ Ce chemin que vous avez choisi n’exige pas que vous renonciez à toutes vos ch
 
 C’est ce que nous faisions à l’époque où j’étais sur Terre, et nous semblions tout à fait ridicules aux yeux de beaucoup. Je pense que nous amusions beaucoup les gens, en nous promenant dans nos vêtements simples, en louant Dieu et en chantant, en mangeant simplement, en priant et en priant. Mais vous savez, à ce jour, le monde reconnaît ce cadeau que nous avons reçu et laissé. Je suis donc ici avec vous pour partager cela.
 
-Je vous embrasse tous, je vous soutiens tous, comme nous le faisons tous, et je vous laisse avec mon amour et mon souhait que les bénédictions de Dieu soient les vôtres. Je vous aime, je vous soutiens tous, comme nous le faisons tous, et je vous laisse avec mon amour et mon souhait que les bénédictions de Dieu soient les vôtres. Je suis votre frère et votre, Francis.
+Je vous embrasse tous, je vous soutiens tous, comme nous le faisons tous, et je vous laisse avec mon amour et mon souhait que les bénédictions de Dieu soient les vôtres. Je vous aime, je vous soutiens tous, comme nous le faisons tous, et je vous laisse avec mon amour et mon souhait que les bénédictions de Dieu soient les vôtres. Je suis votre frère et votre, François.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

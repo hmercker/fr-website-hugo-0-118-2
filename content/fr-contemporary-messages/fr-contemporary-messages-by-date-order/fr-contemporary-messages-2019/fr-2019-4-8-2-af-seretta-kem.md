@@ -28,3 +28,7 @@ Oui, beaucoup est donné lorsque vous êtes prêts, âmes bien-aimées. Vous res
 Ayez foi, mes amis bien-aimés, dans les possibilités qui existent dans votre âme et dans ce que Dieu peut utiliser dans le grand paysage de votre âme exprimée dans l'amour. Vous verrez. Cela vient étape par étape. Vous êtes bénis.
 
 Dieu vous bénit. Je suis Seretta Kem et mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

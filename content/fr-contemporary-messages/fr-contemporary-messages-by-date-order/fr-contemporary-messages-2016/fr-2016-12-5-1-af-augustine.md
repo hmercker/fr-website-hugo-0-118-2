@@ -46,3 +46,7 @@ Pouvez-vous le faire, mes bien-aimés, êtes-vous prêts, êtes-vous ouverts à 
 Car si vous marchez dans le monde en tant qu’âme transformée et belle, les manifestations de l’amour, de la guérison et des bénédictions de Dieu seront vraiment puissantes à travers vous et tout autour de vous. Nous prions donc pour vous, mes bien-aimés, beaucoup, beaucoup d’anges vous regardent et veillent sur vous et vous assistent de toutes les manières possibles. Et il y a d’autres personnes dans le monde qui sont également observées, portées et assistées et vous vous joindrez tous ensemble un jour dans un grand mouvement qui réclame la guérison de ce monde.
 
 Cela commence, vous commencez, la transformation commence. Soyez dans ce monde mais pas de ce monde, mes bien-aimés. Soyez les beaux canaux d’amour de Dieu. Dieu vous bénisse, votre professeur Augustin vous aime et je suis avec vous, pour ne jamais vous quitter, toujours pour aimer. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

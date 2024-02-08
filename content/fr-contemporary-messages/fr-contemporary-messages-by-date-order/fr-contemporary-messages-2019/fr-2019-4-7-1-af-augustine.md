@@ -30,3 +30,7 @@ Ne soyez pas craintifs, enfants bien-aimés. Soyez joyeux. Soyez joyeux et antic
 Âmes bien-aimées, nous sommes avec vous et nous sommes heureux de ceux qui sont prêts à exprimer leurs dons dans toute leur beauté, tout leur potentiel. Je vous promets qu'à mesure que vous vous éveillerez, chères âmes, ces dons deviendront évidents et grandiront, se développeront et apporteront une grande lumière à votre monde.
 
 Que Dieu vous bénisse, chères âmes. Je suis votre enseignant Augustin et je continue à marcher avec vous tous sur ce merveilleux voyage de la vie. Mon amour est avec vous. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

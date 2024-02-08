@@ -46,3 +46,7 @@ Cela ne peut-il pas profiter à tout ce que vous aimez, à tout ce qui est dans 
 Vous trouverez tous votre chemin, âmes bien-aimées. Vous verrez tous votre chemin à travers le grand labyrinthe des possibilités, des conditions et de l’agitation qu’est votre monde. Vous trouverez votre chemin. Dieu vous bénira puissamment au cours de votre voyage. Puissiez-vous être bénis au plus profond de vos âmes, en éveillant une telle force et une telle profondeur de perception et une telle capacité d’amour et de compassion pour vos frères et sœurs qu’en avançant, vous apportez avec vous une telle lumière, une telle beauté d’âme, une telle expression de l’Amour de Dieu pour l’humanité, que, où que vous soyez et où que vous alliez, vous toucherez les âmes. Vous serez Ses instruments et Ses canaux d’amour.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -15,4 +15,6 @@ C’est moi, Jésus.
 
 Nous allons gagner. Nous l’avons déterminé. Rien de la vie mortelle, aussi puissant et organisé soit-il, ne pourra résister à la pleine puissance du Royaume Céleste.
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

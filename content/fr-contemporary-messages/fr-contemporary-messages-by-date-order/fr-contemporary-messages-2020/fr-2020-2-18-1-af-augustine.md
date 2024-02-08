@@ -20,3 +20,8 @@ Ainsi, ces grands canaux d’Amour sont construits par vos prières, nos efforts
 Ainsi, vous continuez à vous rapprocher de tout ce qui se trouve dans l’univers de Dieu et de la Volonté de Dieu. Vous trouverez donc votre chemin. Vous connaîtrez votre chemin, vous comprendrez et vous sentirez profondément que vous faites partie du grand plan de Dieu et du grand amour de Dieu pour vous tous. Beaucoup de choses vont se présenter dans les temps à venir. Beaucoup de bénédictions pour vous tous, mais aussi beaucoup de défis. Car votre monde continue à être en désaccord et à avoir besoin d’une grande guérison. Ainsi, Dieu a un plan qui fera avancer l’humanité dans la Lumière, pour amener l’humanité à reconnaître sa vraie nature, son vrai but sur ce monde, tout ce qui est en harmonie avec les Lois de la Création de Dieu, dont vous faites tous partie.
 
 Que Dieu vous bénisse sur ce chemin, âmes précieuses ; âmes précieuses en effet. Vous êtes profondément aimées. Que Dieu vous bénisse. Je suis votre enseignant Augustin et je continue à vous aider dans vos voyages et parfois à vous enseigner et à vous encourager dans votre quête de Vérité et d’Amour. Que Dieu vous bénisse. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

@@ -36,3 +36,7 @@ Je réalise que c’est beaucoup demander à ceux d’entre vous qui sont très 
 Puissiez-vous continuer à grandir dans Son Amour, à vous éveiller dans Son Amour, et à voir la voie de Son Amour dans vos vies, afin qu’il puisse être appliqué et exprimé en toute harmonie et bonté et Lumière.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Matthieu et mon amour pour vous est grand. Puissiez-vous continuer à trouver une grande paix et une grande joie dans vos vies. Dans le flux de l’Amour de Dieu, tout est possible et tout sera donné. Que Dieu vous bénisse. Dieu vous bénisse, âmes bien-aimées. Je suis avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

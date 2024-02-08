@@ -40,3 +40,7 @@ Ne voulez-vous pas être libres ? J’ai enseigné cela lorsque j’étais sur T
 Je vous remercie, mes amis, de m’avoir écouté et j’en ajouterai d’autres à l’avenir, car j’aime beaucoup parler avec vous. J’ai un profond désir de pouvoir parler à de nombreuses personnes grâce à ce don de la Voix Directe. C’est notre désir, et cela pourrait se réaliser à l’avenir. Je vous encourage donc dans vos efforts pour la lumière, vos efforts pour être la lumière.
 
 Que Dieu vous bénisse dans ce voyage et que je continue à vous suivre dans ce voyage. Que Dieu vous bénisse, mes amis. Que Dieu vous bénisse profondément. Que Dieu vous bénisse pleinement. Que Dieu vous bénisse afin que vos âmes puissent se développer, se développer dans l’amour. Je vous remercie et mon amour continue d’être avec vous mes amis. Je suis Yogananda. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

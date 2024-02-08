@@ -22,3 +22,15 @@ Votre voyage reflète l’éveil de votre âme et tout ce que cela implique. Et 
 Puissiez-vous en venir à exprimer les qualités uniques qui sont en vous, puissiez-vous en venir à expérimenter des expressions uniques de la vie alors que vous cheminez vers Dieu. Vous êtes précieux pour Dieu, vous êtes précieux pour chacun d’entre nous qui sommes résidents du Royaume Céleste. Et nous continuons à venir à vous, à vous assister et à vous guider et je viens aujourd’hui parce que cet instrument a eu une conversation avec l’une de mes charges aujourd’hui et je souhaite qu’elle sache que je suis proche et que je l’aiderai à comprendre ces choses qui ont été discutées et ces qualités qui rendent ce chemin unique, puissant et beau et je souhaite aussi vous encourager tous et je souhaite que vous sachiez que je viens vers beaucoup d’entre vous dans les moments où cela est possible, pour vous soutenir, vous influencer, vous guider et vous enseigner. Nous, dans le Royaume Céleste, avons beaucoup de choses à faire sur votre plan terrestre afin d’aider à vous élever et à vous ouvrir à trop de vérité. Merci de m’avoir écouté aujourd’hui. J’espère que ce que j’ai dit vous a inspiré et rassuré sur le fait que votre caractère unique est le chemin de la lumière et je vous encourage à apprécier ce caractère unique et ces différences qui mènent à une destination différente.
 
 Ils mènent à une plus grande lumière et à l’amour, et vous êtes donc bénis, mes amis, de connaître ensemble ce chemin merveilleux, et vous n’êtes donc pas seuls, ni sur la terre, ni dans les plans spirituels. Vous ne serez jamais seuls et vous saurez que la main de Dieu est sur vous, vous guidant vers une plus grande lumière, la vérité, la joie, le bonheur, l’amour. Toutes les choses merveilleuses et bonnes de la vie peuvent être à vous sur ce chemin. Rien n’est sacrifié dans le monde mais est gagné sur ce merveilleux voyage vers la lumière. Que Dieu vous bénisse, mes amis, je suis Lao Tseu. Je suis heureux d’être avec vous aujourd’hui. Je vous remercie, je vous aime. Je prie avec vous, je suis avec vous dans cette lumière. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> Lao Tseu s'est également exprimé dans les messages suivants :  [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+--|---|---
+Lao Tseu | [À la pointe du changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-15-2-af-lao-tzu/) | 15 Novembre 2017
+Lao Tseu | [Le grand potentiel de l'âme doit être découvert par tous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-13-5-af-lao-tzu/) | 13 Mars 2020
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

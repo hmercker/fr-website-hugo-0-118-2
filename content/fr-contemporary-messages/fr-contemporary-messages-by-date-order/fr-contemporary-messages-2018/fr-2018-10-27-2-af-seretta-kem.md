@@ -46,3 +46,8 @@ Nous nous rassemblons autour de vous, mes bien-aimés, et nous continuerons notr
 Âmes bien-aimées, je vous remercie pour vos efforts. Je vous aime parce que je suis comme un père avec ses enfants. Je vous aime parce que je suis comme un professeur avec ses élèves. Je vous aime parce que je suis une âme sœur dans ce voyage. Je vous aime parce que Dieu est infusé dans tout ce dont nous sommes et parce que nous avons eu cette profonde bénédiction de travailler ensemble dans ce grand voyage utile. Je vous aime parce que je vous aime.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre ami, Seretta Kem. Je continuerai à marcher avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

@@ -22,3 +22,8 @@ Lorsque vient au monde de l’esprit, nous le baignons dans la lumière et plus 
 Lorsque vous sentez cette lumière et cet amour dans vos âmes et que vous vous ouvrez à elle, et que notre Créateur aimant bénit chacun d’entre vous afin que vous puissiez envoyer cette lumière, vous pouvez la transmettre à qui vous voulez et l’envoyer collectivement dans le monde où il y a beaucoup de ténèbres. Mais je tiens à vous dire qu’il y a beaucoup de lumière dans le monde. Des milliards de personnes prient, méditent, chantent, aspirent au changement, aspirent à l’harmonie et à la paix, à la pérennité. Votre lumière les rejoint et, collectivement, vous soulevez la planète et la vibration que je vous dis, mes chers amis, peut guérir la planète entière et apportera en fait le changement que vous désirez tant, que nous désirons tant. C’est également la raison pour laquelle vous êtes attirés par la musique – une vibration qui se ressent facilement et une belle musique qui soulève chaque âme, touche chaque cœur et relie les désirs au Créateur. Alors, priez, chantez et envoyez l’amour. Nous sommes avec vous dans cette entreprise, dans cette bénédiction, dans la guérison et dans la belle transformation de chaque âme ici dans l’Amour de Dieu. Je vous remercie d’avoir pris mon message. Que cette guidance bénisse chacun et que l’Amour de Dieu soit avec vous tous.
 
 Je suis votre frère et ami dans le Christ, Judas de Kerioth. Que Dieu vous bénisse !
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

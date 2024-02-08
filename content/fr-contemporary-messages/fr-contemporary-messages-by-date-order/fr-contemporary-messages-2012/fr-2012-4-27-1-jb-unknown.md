@@ -72,4 +72,6 @@ La voix de nombreux esprits qui écoutent la voix du Père.
 
 **Note du Webmaster du site « New-Birth.Net » :** Il s’agit sans aucun doute d’un résultat direct des conversations sur quelques forums remettant en question la série actuelle de messages de l’Enfant de Dieu. Tout simplement parce que la convention au sein du mouvement de l’Amour Divin a soutenu que le Père ne peut pas parler directement à Ses enfants.(Geoff Cutler)
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

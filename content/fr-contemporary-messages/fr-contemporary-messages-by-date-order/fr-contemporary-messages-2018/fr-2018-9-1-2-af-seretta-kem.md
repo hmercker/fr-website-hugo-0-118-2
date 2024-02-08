@@ -29,4 +29,8 @@ Vous avez une grande lumière dans vos âmes, mes bien-aimés, et cette lumière
 
 Puissiez-vous continuer à permettre à Dieu d’enflammer l’éveil de votre âme. Puissiez-vous aspirer à cela. Puissiez-vous prier avec ferveur et avoir confiance dans le contact profond et la sainte communion qui découlent de votre relation avec Dieu. En cela, tout est possible. En cela vient l’accomplissement de votre but. C’est en cela que s’accomplit l’éveil de l’humanité. Vous devez enseigner ces vérités, être un exemple et permettre à la volonté de Dieu de se manifester pleinement dans votre vie. Alors tous vos rêves, tout ce qui bouillonne dans vos âmes, ces désirs profonds deviendront une réalité et le monde commencera à changer pour le mieux et vous en ferez partie, avec une satisfaction, et une joie, profondes de l’âme.
 
-Que Dieu vous bénisse profondément, frères et sœurs bien-aimés, de Son grand et saint Amour, afin que vous puissiez effectivement trouver votre chemin le long de ce sentier vers l’harmonisation, vers la lumière, vers la guérison de votre monde et la guérison de votre âme intérieure. Je suis Seretta Kem et je marche avec vous sur ce sentier de découverte. Que Dieu vous bénisse. Je t’aime. Que Dieu vous bénisse.
+Que Dieu vous bénisse profondément, frères et sœurs bien-aimés, de Son grand et saint Amour, afin que vous puissiez effectivement trouver votre chemin le long de ce sentier vers l’harmonisation, vers la lumière, vers la guérison de votre monde et la guérison de votre âme intérieure. Je suis Seretta Kem et je marche avec vous sur ce sentier de découverte. Que Dieu vous bénisse. Je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

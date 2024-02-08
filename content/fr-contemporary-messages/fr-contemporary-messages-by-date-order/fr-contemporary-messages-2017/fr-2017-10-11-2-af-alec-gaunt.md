@@ -19,3 +19,7 @@ Rendez Percy fier. Montrez-lui que tous les efforts qu'il a faits continuent à 
 <small>
 
 1. <large id="f1"> Dans [le message précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-11-1-af-jesus-augustine-phyllis/), communiqué le même jour, Jésus, Augustin et la femme de Percy, Phyllis, ont également salué Percy.[↩](#a1)
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

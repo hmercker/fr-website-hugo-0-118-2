@@ -152,7 +152,6 @@ Jésus | [Guerre et paix et le plan de Dieu Partie 6](/fr-contemporary-messages/
 Jésus | [Guerre et paix et le plan de Dieu Partie 7](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-12-14-2-fab-jesus/) | 14 Décembre 2008
 Thomas Jefferson | [Thomas Jefferson et son pays](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-12-30-1-fab-thomas-jefferson/) | 30 Décembre 2008
 
-[Lien vers les messages de l’année 2009](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
-<br>
-<br>
-[Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

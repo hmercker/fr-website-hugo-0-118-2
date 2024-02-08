@@ -18,3 +18,7 @@ Nombreux sont ceux qui, désireux de progresser spirituellement, s’adonnent à
 Je vous demande de ne jamais penser que nous sommes loin, car nous répondons à vos intentions et lorsque vous envoyez une prière à notre Créateur aimant, Dieu répond à votre âme par le biais de son Esprit-Saint. Nous répondons à vos besoins, aux demandes de votre âme sur le plan matériel, et nous encourageons toujours, nous cherchons toujours à inspirer. C’est ce que vous faites lorsque vous partagez vos histoires avec un monde qui a tant besoin de lumière.
 
 Alors, prenez courage mes chers amis. Espérons que tous s’éveillent dans l’Amour de Dieu. Permettez à cet amour d’imprégner votre être en y ouvrant vos cœurs et vos âmes afin que Dieu puisse vous bénir dans un amour sans fin. Je suis votre sœur dans le Christ et votre amie éternelle, et je vous remercie. Je suis Care. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

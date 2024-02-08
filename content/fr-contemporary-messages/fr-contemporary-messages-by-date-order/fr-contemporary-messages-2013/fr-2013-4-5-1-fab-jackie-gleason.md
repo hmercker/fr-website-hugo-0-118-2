@@ -17,4 +17,7 @@ Je faisais référence au fait que je n’ai jamais perdu de vue le pauvre garç
 
 C’est pourquoi Ralph Kramden était si populaire. Donc vous voyez, vous avez parfaitement saisi mon sens. Vous vous êtes déjà heurté à ce problème, les limites du langage des mortels.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)
+### [**Lien vers les messages des années 2013**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

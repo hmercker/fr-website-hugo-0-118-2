@@ -44,3 +44,7 @@ Pourtant, tout finit par s’arranger, et vous devez donc persister à permettre
 Mes amis bien-aimés, nous continuerons à prier, à parler, à désirer et à être avec Dieu, car c’est ainsi que le monde peut changer et être guéri et élevé, en utilisant de nombreux dons, pas seulement le don de médiumnité mais aussi le don de guérison et de perspicacité et perception, le flux d’amour, de compassion et de joie, l’étreinte de vos frères et sœurs dans cette lumière, en parant de la vérité, en démontrant les lois. L’individu peut servir Dieu et servir l’humanité de nombreuses manières. Puissiez-vous connaître et trouver les nombreux dons en chacun de vous. Chacun porte de nombreux dons et peut les exprimer au fur et à mesure qu’ils se déploient dans le grand Amour transformateur de Dieu.
 
 Que Dieu vous bénisse, je suis Seretta Kem. Je vous remercie d’avoir écouté ce que j’ai dit. J’aime chacun de vous. J’aime l’humanité et je souhaite servir l’humanité de la manière et de la capacité que Dieu juge être la voie et le flux de sa volonté pour moi. Alors c’est pour vous mes amis, donc c’est pour vous. Que Dieu vous bénisse, mon amour est avec vous.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

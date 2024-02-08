@@ -24,3 +24,7 @@ Dieu vous donne tout, âmes bien-aimées. L’abondance de Son Amour est infinie
 Que vos yeux s’ouvrent et que vos âmes chantent les louanges de Dieu. Que votre capacité d’aimer s’éveille afin qu’elle reflète l’Amour inconditionnel de Dieu. Je prie pour ces bénédictions pour vous, bien-aimés. Je prie pour que Son toucher pénètre profondément dans votre âme, enflammant tout ce qui est à l’intérieur, apportant toutes les promesses que Dieu a faites à chacun de vous à la réalité, une manifestation d’amour, complète et accomplie.
 
 Que Dieu vous bénisse, mes âmes bien-aimées. Que la paix qui surpasse toute compréhension soit vôtre. Que le réveil vienne vite sur les talons de l’amour. Sachez que je vous aime, je suis votre frère et ami Jésus, et je vous aime. Vous me connaîtrez et ceux qui me connaissent, me connaîtront plus en profondeur et sentiront et sauront. Que Dieu vous bénisse, bien-aimés. Que Dieu vous bénisse avec Son Amour.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

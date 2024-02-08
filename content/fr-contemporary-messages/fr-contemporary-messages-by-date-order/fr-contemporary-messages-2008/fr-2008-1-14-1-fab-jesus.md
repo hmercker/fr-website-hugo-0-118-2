@@ -19,4 +19,6 @@ J'ai également toujours su que lorsque les gens agissent de façon désordonné
 
 La combinaison de plusieurs facteurs, dont l'état instable du monde contemporain, la sagesse accumulée au cours des siècles et les progrès croissants de l'humanité, fait que le monde entier connaît un glorieux mouvement de libération que rien ne peut arrêter. Vous avez donc de quoi vous réjouir.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -30,4 +30,6 @@ Alors que j’étais laissé à moi-même, j’ai vu, dans la vérité et la ré
 
 1. <large id="f1"> **Le Pape Bienheureux Urbain II** (ca. 1035 – 29 juillet 1099), né à Otho de Lagery (alternativement : Otto, Odon ou Eudes), il fut pape du 12 mars 1088 jusqu’à sa mort. Il est surtout connu pour avoir commencé la première croisade (1095-99) et mis en place la moderne Curie Romaine, à la manière d’une cour royale, pour l’aider à diriger l’église. (Source : Wikipédia)[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -36,3 +36,7 @@ Avec vous, nous travaillons également et contribuons à influencer beaucoup d'a
 Dieu vous bénisse mes amis, je suis Seretta Kem. Je viens vous encourager, car vous êtes de telles lumières, vous portez une telle vérité. Puissiez-vous l'exprimer chaque jour et apporter la vérité sur ce plan terrestre. Nous sommes avec vous en cela, toujours. Dieu est avec vous dans vos efforts et il bénira toujours ces efforts. La lumière abonde autour de vous, âmes bien-aimées. Soyez les instruments de Dieu, soyez les canaux d'amour de Dieu, et vos vies seront remplies à ras bord d'opportunités et d'un profond sentiment de l'âme dans la joie, la gratitude et l'expansion.
 
 Mon amour est avec vous mes amis. Je suis Seretta Kem, toujours à votre service. Je vous offre mes bénédictions, mes bénédictions profondes, mes bénédictions pures, mes bénédictions puissantes, pour éveiller votre âme. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

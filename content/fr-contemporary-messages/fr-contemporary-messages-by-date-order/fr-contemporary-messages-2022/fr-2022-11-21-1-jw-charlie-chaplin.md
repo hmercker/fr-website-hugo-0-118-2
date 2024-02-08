@@ -20,3 +20,7 @@ Vous, mes amis, qui avez demandé ce don de l’Amour de Dieu, qui aspirez à ê
 Et bien que lorsque j’étais sur Terre, je souhaitais apporter aux gens l’amour humain, la perspicacité humaine, ce qui est une bonne chose, maintenant que je voyage vers les royaumes Célestes dans l’Amour Divin, je souhaite partager ces connaissances, afin qu’elles puissent vous bénir et vous profiter, et que vous puissiez être une bénédiction pour tous.
 
 N’oubliez pas de sourire même si votre cœur est brisé. Souvenez-vous de l’Amour de Dieu à tout moment. Dissipez les ténèbres, permettez aux anges de travailler avec vous, et soyez une lumière pour le monde. Je vous remercie beaucoup de m’avoir accordé ces mots. J’espère qu’ils vous permettront de mieux comprendre votre vie quotidienne. Que Dieu vous bénisse. Je vous remercie. Je suis votre frère dans l’Amour de Dieu, Charles. Charlie Chaplin.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

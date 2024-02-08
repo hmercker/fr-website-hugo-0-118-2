@@ -17,9 +17,10 @@ Ressens de l’intérieur ce dont tu es fait, ce à quoi tu es destinée ou ce q
 
 En effet, j’observe avec joie ton engagement et ton courage à faire un pas de plus vers la réalisation de ton rêve de devenir toujours plus proche et une avec notre Père. Les réalités d’un rêveur sont les rêves qui se réalisent. C’est dans la réalisation d’un rêve que se trouvent le témoignage et la preuve de la foi. Vois la foi comme la réalité rêvée.
 
-
 Oui, tu vas bien, continue à écrire, tu seras dynamisée. C’est avec joie que je t’écris maintenant, car je sens que tu te rapproches de nous, et je suis très heureux de ton désir de te rapprocher de nous, car nous t’aimons profondément et voulons t’aider à suivre le chemin que Dieu a prévu pour toi, pour être un vrai témoin de son amour. Ressens Son amour adorable pour toi. Tu es digne de Son amour et de Son attention, tu es digne du plus brillant ciel d’amour. Tu es digne d’amour, ma douce et chère sœur, enfant bien-aimé de Dieu, nous sommes tous dignes d’amour. Il est libre, tu n’as pas à souffrir pour lui, tu n’as pas à l’acheter ou à être quelqu’un d’autre. Prie davantage pour être ouverte à recevoir cet amour, comme tu aimes être aimée, car l’amour te fait aimer davantage.
 
 Ma chère, je suis heureux d’avoir pu écrire un peu plus longtemps aujourd’hui et je reviendrai bientôt. En effet, c’est ton ami angélique, Judas.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)
+### [**Lien vers les messages des années 2013**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

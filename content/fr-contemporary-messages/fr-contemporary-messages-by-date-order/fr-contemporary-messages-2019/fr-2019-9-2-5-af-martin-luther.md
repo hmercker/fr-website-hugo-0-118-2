@@ -31,3 +31,7 @@ Que Dieu vous bénisse, mes amis bien-aimés. Je suis Martin Luther et j’ai é
 <small>
 
 1. <large id=”f1”> La visite à l’orphelinat de Drimiopsis, Namibie.[↩](#a1)
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

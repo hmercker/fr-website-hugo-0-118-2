@@ -21,4 +21,6 @@ Rappelez-vous que j'ai dit que ces choses étaient dans l'air à mon époque. Je
 
 Le monde doit voir ma pensée et celle des rabbins talmudiques côte à côte, afin qu'il soit clairement établi que nous étions contemporains au sens propre du terme.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

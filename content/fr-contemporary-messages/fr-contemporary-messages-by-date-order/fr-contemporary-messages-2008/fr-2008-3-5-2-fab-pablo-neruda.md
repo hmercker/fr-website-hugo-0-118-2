@@ -32,5 +32,6 @@ Pablo Neruda | [Communistes](/fr-contemporary-messages/fr-contemporary-messages-
 Pablo Neruda | [La tristesse d’un poète](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-7-1-fab-pablo-neruda/) | 7 Mars 2008
 Pablo Neruda | [Communistes – 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-5-2-fab-pablo-neruda/) | 5 Mai 2013
 
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

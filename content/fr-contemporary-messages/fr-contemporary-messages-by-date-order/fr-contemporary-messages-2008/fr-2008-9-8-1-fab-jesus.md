@@ -23,4 +23,6 @@ Mais si cela est vrai, néanmoins, la forme spécifique qu’elle a prise, et co
 
 Mais le lieu, le Ciel Céleste, a toujours été là, en attente d’être occupé.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

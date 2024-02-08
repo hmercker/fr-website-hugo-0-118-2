@@ -20,3 +20,7 @@ Nous vous demanderons à d’autres moments de participer à ces prières, dans 
 Tant de choses vous attendent, âmes bien-aimées. La poursuite de la Vérité ne s’arrête jamais comme le grand réveil de votre âme qui est rachetée dans l’Amour et transformée. Je désire vous remercier tous pour vos efforts, votre temps, pour avoir fait en sorte que nous nous retrouvions ensemble, pour partager dans la prière et l’amour, pour nous soutenir mutuellement alors que la grâce de Dieu continue à circuler et vous rapprocher.
 
 Alors Je dis : *« Que Dieu vous bénisse, âmes bien-aimées, et vous garde dans Son Amour et vivifie vos âmes dans l’Amour, élevant, embrassant, guérissant et enseignant. Que Dieu vous bénisse. »* C’est Matthieu et je continue d’être proche. Les anges sont avec vous et vous accompagneront dans vos pérégrinations. Ceux qui sont ici dans la chair, ceux qui sont connectés à ce Cercle de Lumière, ceux qui sont désireux et ont un profond désir de Vérité seront touchés par Dieu et s’approcheront. Vous vous rapprocherez tous, en cercles sur Cercles de Lumière, de Vérité et d’Amour. Que Dieu vous bénisse. Que Dieu vous bénisse, mes âmes bien-aimées. Mon amour est toujours avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

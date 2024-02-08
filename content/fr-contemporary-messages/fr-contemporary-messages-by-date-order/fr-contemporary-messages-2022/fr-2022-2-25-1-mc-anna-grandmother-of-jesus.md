@@ -26,3 +26,8 @@ Laissez-vous et laissez à Dieu la liberté de créer uniquement à travers vous
 Mon amour est avec vous. Je suis heureuse de ce rôle profond où nous pouvons apporter les enseignements de l’Amour et les répandre sur la Terre de la manière créative que Dieu désire à travers vous. Pour certains, c’est par l’écriture, pour d’autres, c’est à travers un pinceau, pour d’autres encore, c’est à travers une caméra. Les moyens sont innombrables. Ce qui est proche de votre nature est la forme la plus facile pour Dieu de se déplacer à travers vous parce que c’est inné et fait partie intégrante de vous. Laissez l’amour servir votre vie de manière profonde.
 
 Que Dieu vous bénisse, je suis Anna. C’est une bénédiction pour moi de recevoir ce rôle du Maître Jésus et de vous toucher de manière pratique dans votre vie. C’est un honneur pour moi. Que Dieu bénisse les enfants de la Divinité.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

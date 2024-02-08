@@ -20,3 +20,7 @@ Je dis ceci à mon petit-fils. Non seulement tu dois suivre ton cœur, mais tu d
 Toutes vos âmes sont humbles et souhaitent servir chacun à sa manière et selon ses moyens. Par exemple, pour quelqu’un qui a peu de biens matériels, donner ne serait-ce qu’une petite chose peut être un grand acte de bonté. N’oubliez pas que chacun doit être servi selon ses moyens et n’ayez pas peur de demander ce dont vous avez besoin. Rappelez-vous que c’est ainsi que vous êtes arrivés à cette station. Cette station de prières exaucées, cette station d’immobilité, juste pour être, dans l’attente de l’Amour de Dieu. Il suffit d’arrêter le monde pour un moment et de permettre à Dieu de vous élever. N’est-ce pas là votre plus grand souhait ? Tout le reste n’est que cerise sur le gâteau.
 
 Avec tout mon amour et mes bénédictions, et dans l’Amour de Dieu. Je vous souhaite tous les bons et parfaits cadeaux, mes chers amis. Je t’aime. Je suis votre attention. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

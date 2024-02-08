@@ -43,5 +43,8 @@ Que Dieu vous bénisse pour avoir cherché à faire la volonté de Dieu dans vos
 
 Merci d’avoir accepté de recevoir un message de ma part. Il a été assez facile de t’écrire aujourd’hui. Je vais vous dire au revoir et me signer, un haut esprit Céleste.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+
+### [**Lien vers les messages des années 2000**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

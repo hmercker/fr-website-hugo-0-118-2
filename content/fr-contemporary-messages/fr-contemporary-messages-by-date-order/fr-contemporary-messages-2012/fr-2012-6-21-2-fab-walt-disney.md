@@ -38,4 +38,6 @@ Walt Disney | [Walt Disney, l’histoire et l’espoir](/fr-contemporary-message
 Walt Disney | [Inharmonie et Boomerang](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-6-10-1-fab-walt-disney/) | 10 Juin 2012
 Walt Disney | [La mentalité de guerre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-2-21-2-fab-walt-disney/) | 21 Février 2013
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

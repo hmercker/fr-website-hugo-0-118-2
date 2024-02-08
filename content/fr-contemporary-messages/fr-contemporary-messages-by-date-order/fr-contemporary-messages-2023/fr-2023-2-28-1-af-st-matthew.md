@@ -26,3 +26,7 @@ Mes amis bien-aimés, vous nous rejoindrez un jour dans les cieux Célestes et v
 Vous ne serez pas vaincus par l’obscurité et la douleur de ceux qui ne voient pas comme vous et ne cherchent pas comme vous. Votre voyage est merveilleux. Comme votre choix est extraordinaire. Comme elle est belle votre âme qui a la sagesse et la connaissance de ce voyage extraordinaire et qui a fait le choix de l’emprunter sur un chemin de lumière et d’amour. Puissiez-vous être bénies, âmes bien-aimées. Puissiez-vous être vraiment bénies et connaître la profondeur et la largeur d’une âme revendiquée par Dieu, éveillée par Dieu et vraiment aimée par Dieu.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Matthieu et mon amour est avec vous tous. Vous êtes proches de tous les anges, de tout ce que Dieu est et a à donner. Que vos yeux s’ouvrent, que vos dons se développent et vous amènent à ce lieu de véritable conscience et d’éveil, où l’âme est vivifiée, transformée par l’Amour. Que Dieu vous bénisse, mes bien-aimés, que Dieu vous bénisse tous au cours de ce voyage. Je vous aime, comme beaucoup. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

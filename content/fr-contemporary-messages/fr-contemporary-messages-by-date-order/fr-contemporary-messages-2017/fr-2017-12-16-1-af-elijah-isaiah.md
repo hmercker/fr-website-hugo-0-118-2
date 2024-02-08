@@ -26,3 +26,10 @@ Acceptez vos destins, âmes bien-aimées. Ayez la foi et la confiance en ce que 
 Beaucoup de choses se préparent, comme vous le savez bien, et les opportunités augmenteront de jour en jour, car ces grands changements apportent également de merveilleuses opportunités et expressions de votre don. Les énergies que Dieu apporte à ce monde rendront l'expression de ces dons puissante et claire. Vous marchez dans la volonté de Dieu maintenant mes amis, c'est votre vie, ce sera en harmonie avec Sa volonté. Vous êtes bénis et vous connaîtrez une grande Lumière. Vous aurez la puissance de l'Amour de Dieu en vous et tout sera exprimé en accord avec Sa Volonté et le rythme de Son Temps et la gloire de Sa Création. Tout sera donné et tout se manifestera dans le cadre de Son plan.
 
 Vous portez ce don, âmes bien-aimées, n'en doutez pas, vous êtes bénies. Je suis Isaïe et je vous bénis mes bien-aimés dans la sainte lumière de Dieu. Son Saint-Esprit descend sur vous. Et vous êtes bénis. Dieu vous bénit.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués  par Élie et Isaïe sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-fr-religious-figures/)[↩](#a1)
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

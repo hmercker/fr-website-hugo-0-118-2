@@ -18,3 +18,7 @@ Tant de personnes dans ce monde dérivent et n’ont pas d’ancrage, lequel leu
 Cherchez Dieu, mes bien-aimés. Apprenez à connaître Son toucher et vous connaîtrez cette liberté profonde et joyeuse, cette expansion et cette connaissance qui viennent d’une âme vivifiée et éveillée par le toucher divin de l’amour.
 
 Que Dieu vous bénisse, mes bien-aimés. Votre enseignant Augustin est toujours avec vous et vous aime tendrement. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

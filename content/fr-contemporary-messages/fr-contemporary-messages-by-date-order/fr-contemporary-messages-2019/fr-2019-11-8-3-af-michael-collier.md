@@ -34,3 +34,7 @@ Le décor a été planté, les acteurs, tous très capables, de belles âmes. La
 Dieu vous bénisse mes amis, je suis Michael et je suis heureux que nous soyons tous réunis une fois de plus avec quelques nouveaux visages, que je connais bien, comme vous pouvez le supposer. Nous sommes tous ensemble dans ce projet. Nous allons forger un chemin de Lumière à travers cette condition qui comporte de nombreux obstacles mais, comme je l’ai dit, sous les obstructions du mental se trouve une âme qui désire la Vérité. Avec de la patience, nous trouverons tous notre chemin vers l’unité, la confiance, la joie, l’élévation et la bénédiction de l’Amour dans nos âmes.
 
 Que Dieu vous bénisse dans ce voyage. Que Dieu vous bénisse et que mon amour soit avec vous. Je serai là pour chaque moment. Je ne le manquerais pour rien au monde, comme vous le diriez. Que Dieu vous bénisse, mes amis. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

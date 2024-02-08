@@ -24,3 +24,7 @@ Vous, mes âmes bien-aimées, vous essayez de marcher dans le monde mais de ne p
 Mes bien-aimés, je vous adresse cette invitation. Dieu pose sa main sur vous et demande : *« Acceptez-vous mon Amour ? Acceptez-vous de recevoir ce cadeau que je donne et que je continuerai à donner en abondance jusqu’à ce que vos âmes me connaissent vraiment ? Même alors, je continuerai à vous bénir, âmes bien-aimées »*. Voilà à quel point Dieu vous aime, mes bien-aimés. C’est la voie de l’harmonisation, de l’éveil de vos âmes, pour comprendre vraiment pourquoi vous avez été créés, et pour connaître le voyage que Dieu souhaite que vous fassiez, pour être en harmonie, pour connaître vraiment le pouvoir de l’Amour.
 
 Dieu vous bénisse, âmes bien-aimées, je suis Jean, Jean le Bien-Aimé. Mon amour et mes prières sont avec vous alors que vous continuez à créer ce cercle de Lumière ensemble, comme le sont de nombreux anges et de nombreux esprits qui se joignent à vous en ces temps de recherche, de prière et de création de Lumière ensemble. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

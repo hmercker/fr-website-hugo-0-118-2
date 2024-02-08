@@ -26,3 +26,7 @@ Dieu vous aidera à atteindre cet endroit. Nous vous accompagnerons jusqu’à c
 De cette façon, vous devenez véritablement un enfant de Dieu et vous, au fil du temps, vous grandissez dans cet amour et devenez un enfant de Dieu racheté, qualifié pour dire la vérité qui sera donnée en mots simples et en actions aimantes, dans l’expression de votre lumière et de votre présence où que vous soyez. Tant de choses vous sont données, âmes bien-aimées, alors que Dieu continue à vous nourrir sur ce chemin vers la vérité et vers l’éveil de votre âme. Puissiez-vous également faire de grands efforts sur cette route et avec cette intention concertée et focalisée dans votre vie, afin que la vérité s’épanouisse en vous avec une telle beauté, une telle profondeur et une telle ampleur que vous ne puissiez que vivre, parler et être la vérité de la création de Dieu, une partie des propres enfants de Dieu en alignement dans l’amour et la lumière.
 
 Que Dieu vous bénisse dans ce voyage, âmes bien-aimées. Je suis Jean et moi aussi, je prie avec vous et je cherche à vous aider dans votre voyage vers la vérité et votre voyage vers l’union avec Dieu. Que Dieu vous bénisse, âmes bien-aimées, que Dieu vous bénisse dans son amour. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

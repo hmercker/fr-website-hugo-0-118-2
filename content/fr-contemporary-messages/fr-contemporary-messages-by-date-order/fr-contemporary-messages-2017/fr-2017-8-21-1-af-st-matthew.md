@@ -24,3 +24,7 @@ Puissiez-vous continuer à être ouverts et réceptifs à cette Bénédiction de
 Puissiez-vous continuer à partager cela, cette sainte communion. Puisse ce précieux groupe continuer à apporter la Lumière de l'Amour de Dieu en son sein et être un canal d'Amour pour ce monde et reconnaître le pouvoir du Toucher de Dieu comme il influence et infiltre chaque partie de votre être et de votre vie. Car il continue à faire les changements et à apporter cette joie profonde, cet émerveillement, alors que vos yeux s'ouvrent, que votre âme s'éveille à la Vérité de Dieu, la Vérité et la Puissance de Son Amour.
 
 Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse dans cette grande et merveilleuse expérience d'éveil de l'âme dans l'Amour. Je vous aime, mes bien-aimés. Je suis Matthieu. Je vous aime. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -18,3 +18,7 @@ C’est notre désir, bien-aimés, c’est notre pensée et nos intentions, de v
 Restez dédiés à Dieu, à votre relation avec sa grande Âme qui vous nourrit et vous éveille mes amis. Nous continuons à servir ensemble, à grandir ensemble, à prier ensemble, et bien que mon protégé bien-aimé ne soit pas là en chair et en os, il sera là avec vous dans son esprit et la chaîne ne sera pas brisée. Le cercle continuera à être rempli avec chacun d’entre vous présent et le travail continuera alors que nous fournissons ensemble nos efforts et nos prières. Ainsi, les bénédictions se déverseront sur vous tous et vous amèneront à une plus grande lumière, un plus grand éveil, une profondeur de savoir, de voir, d’entendre, d’être dans le flux et l’alignement avec l’Amour du Père.
 
 Nous continuons mes amis, nous continuons. Que Dieu vous bénisse, je suis Thomas. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -24,3 +24,7 @@ Il y a beaucoup de raisons de se réjouir, âmes bien-aimées, tant de bénédic
 Que vos aspirations continuent à s’exprimer et que vous puissiez les ressentir profondément car c’est l’âme qui aspire à Dieu. C’est l’âme qui aspire à la paix, à l’harmonie et à l’amour. Écoutez les battements de votre âme lorsqu’elle tend la main vers Dieu, le Créateur de tous, pour obtenir la bénédiction et la guérison qui viennent avec Son Amour. Il est toujours là pour vous, âmes bien-aimées. Puissiez-vous toujours être réceptives à Son afflux, permettant à Sa magnifique irradiation de lumière d’embrasser votre âme et votre esprit, afin que vous puissiez vraiment être en harmonie avec Dieu et proches de votre Créateur.
 
 Que Dieu vous bénisse, mes bien-aimés, je suis Matthieu. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

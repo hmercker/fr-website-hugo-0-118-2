@@ -18,3 +18,8 @@ Mais lorsque les choses semblent insurmontables, Dieu intervient et il y a toujo
 Vous êtes tous les bénéficiaires du grand amour de notre Père Céleste. Lorsque vous rendez service dans Son amour, vous offrez le plus grand cadeau qu’un humain puisse faire à un autre. Je souhaite le reconnaître dans ce cercle de lumière afin que vous sachiez que vous êtes profondément appréciés de toutes les manières, visibles et invisibles. Que vos cœurs soient pleins afin que Dieu puisse remplir vos âmes. Je vous dis que les récompenses pour votre service sont encore à venir dans la gloire, mais aujourd’hui nous vous reconnaissons et vous embrassons. Comme nous sommes tous reconnaissants pour l’Amour de Dieu, nous sommes également reconnaissants pour votre service. Vous avez apporté une merveilleuse bénédiction à ceux que vous servez.
 
 Donc, avec tout mon amour et la gratitude de ceux ici présents qui veillent sur vous. Que Dieu vous bénisse, vous protège, vous transforme dans son amour. Je suis votre frère et ami François. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

@@ -28,7 +28,8 @@ Le grand avantage que vous avez à connaître les bénédictions de l’Amour de
 Il y a beaucoup de gens dans le monde qui vivent à des niveaux de conscience inférieurs. Peut-être ont-ils le sentiment que c’est tout ce qu’il y a, mais pour la plupart, ils n’ont pas cherché à trouver quelque chose de mieux. Ils n’ont pas envisagé qu’il existe un Dieu qui les aime et qui subviendra à leurs besoins lorsqu’ils demanderont Son amour et Son aide.
 
 Vous remarquez, en lisant les histoires spirituelles que vous aimez lire, que lorsque les gens crient désespérément vers Dieu pour qu’il les aide, ils mettent en action des lois spirituelles (que l’on appelle des « miracles ») et des choses étonnantes se produisent qui les sauvent des catastrophes.
-Ces enfants qui sont malheureux et qui luttent dans la vie se maintiennent sous la couverture de la dépression en raison de leur manque d’amour de soi et/ou de leur manque de détermination à apporter des changements positifs.
+
+Ces enfants qui sont malheureux et qui luttent dans leur vie se maintiennent sous la couverture de la dépression en raison de leur manque d’amour de soi et/ou de leur manque de détermination à apporter des changements positifs.
 
 Vous avez la chance de savoir comment vous élever à des niveaux de conscience plus élevés. Vous avez la responsabilité de devenir des exemples de l’illumination spirituelle qui peut venir à toute personne qui cherche sincèrement à réaliser son potentiel donné par Dieu. Il vous suffit d’ouvrir vos cœurs et vos âmes pour vouloir connaître la vérité. Sachez qu’elle vous libérera et qu’elle le fera !
 
@@ -42,4 +43,6 @@ Que Dieu vous bénisse et vous garde dans Son amour.
 
 Je suis votre ami et frère dans le Christ Amour, André, l’Apôtre de Jésus, un ange Céleste et un adepte de ses enseignements.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)
+### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

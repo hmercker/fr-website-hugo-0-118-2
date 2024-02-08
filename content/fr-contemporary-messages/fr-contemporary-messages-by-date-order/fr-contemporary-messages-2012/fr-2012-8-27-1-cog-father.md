@@ -28,4 +28,6 @@ Commençons, ton Père.
 
 1. <large id="f1"> Bien que ce message soit noté comme étant personnel, le même message a été délivré à tous ceux qui ont participé à la retraite de l'Amour Divin  qui s'est tenue à Vancouver en Juillet 2012. Le message était que le moment est venu. C'était Le temps d'aller de l'avant et de tendre la main au monde. [↩](#a1)
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -20,3 +20,7 @@ Donc, mes âmes bien-aimées, continuez à être ouvertes et réceptives à tout
 Le grand désir de Dieu est que vous vous éveilliez à la Lumière, à l’Amour, que vous connaissiez la paix et la joie, que vous connaissiez la Vérité et la Lumière. Dieu vous y portera, âmes bien-aimées. Chacun de vous est dans la poigne ferme de Dieu qui vous élève, vous soutient, et vous porte dans la Lumière. Que Dieu vous bénisse dans ce voyage, le voyage que nous faisons tous, en nous tenant la main, en nous soutenant mutuellement sur cette route et en arrivant à ce lieu de Lumière par nos prières, nos désirs et nos efforts pour être dans la Lumière.
 
 Que Dieu vous bénisse. Je suis votre enseignant Augustin et je marche avec vous. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

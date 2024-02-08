@@ -26,3 +26,7 @@ Alors que vous vous efforcez d’être utilisés comme instruments de Dieu, ains
 Vous êtes appelés à travailler ensemble, à vous regrouper en Cercles de Lumière harmonieux, à soutenir ces Portails dans le monde et à apporter de la force à ce Réseau de Lumière qui continue de se construire et d’atteindre de nombreuses personnes. C’est un grand travail, c’est un vaste travail qui requiert votre attention, vos prières, vos désirs d’âme d’être proches de Dieu, d’être dans le flux de Sa Volonté, de Son Amour, afin que tout puisse se déployer dans des expressions belles et harmonieuses à travers les enfants de Dieu sur ce monde.
 
 Que Dieu vous bénisse, âmes bien-aimées, et que Dieu vous garde toujours dans Sa Lumière, dans Sa protection et Sa Grâce afin que l’Amour puisse continuer à couler dans vos âmes avec une telle abondance que vous soyez emportés dans l’émerveillement, les hauteurs élevées de l’Amour. Que Dieu vous bénisse, mes bien-aimés. Votre maître Augustin vous aime tant. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

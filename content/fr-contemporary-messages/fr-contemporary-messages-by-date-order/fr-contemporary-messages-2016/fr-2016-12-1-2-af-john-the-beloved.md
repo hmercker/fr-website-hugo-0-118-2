@@ -18,3 +18,7 @@ Dieu va lever vos fardeaux, vous libérer de votre douleur et vous amener dans l
 Âmes bien-aimées, vous êtes les Enfants de Dieu avec votre innocence et votre lumière, la vérité et la sagesse, l’amour, l’Amour Divin. Réveillez-vous mes enfants, réveillez-vous, laissez Son Amour vous toucher profondément, chaque recoin et chaque crevasse et chaque partie de vous sera guérie par cet Amour.
 
 Je suis Jean le Bien-Aimé.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

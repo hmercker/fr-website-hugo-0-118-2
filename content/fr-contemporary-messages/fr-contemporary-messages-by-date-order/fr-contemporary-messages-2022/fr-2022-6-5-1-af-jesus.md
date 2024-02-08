@@ -22,3 +22,7 @@ Vous êtes des conduits de lumière. Vous invoquez beaucoup de choses sur la Ter
 Ce don est offert gratuitement. Puissiez-vous accepter ce cadeau et l’attirer dans votre cœur et votre conscience afin que vous puissiez grandir et vous étendre dans l’amour, le Grand Amour de Dieu, qui vous transformera, qui apportera de nombreuses bénédictions à vous et à travers vous, âmes bien-aimées. Je suis Jésus. Je viens prier avec vous. Car combien de personnes dans le monde connaissent vraiment cette prière ? Combien dans le monde recherchent le plus grand des cadeaux avec toute pureté et clarté dans la lumière ? Vous êtes vraiment mes frères et sœurs dans le monde. Vous êtes vraiment bénis, mes bien-aimés.
 
 Je suis Jésus, et je prie avec vous, bien-aimés, en ce jour qui commémore le moment du grand afflux de l’Amour de Dieu dans les âmes des apôtres. Il en est ainsi, et il en sera ainsi pour tous ceux qui souhaitent que ce don soit, mes bien-aimés. Ouvrez-vous largement à ce don, et il vous sera donné. Que Dieu vous bénisse et vous garde dans Son Amour. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -33,4 +33,6 @@ Cette situation malheureuse s’est produite chez vous dans les années 1960 –
 
 **Note :** Le médium est Juif et fait confiance aux messages de James Padgett. Beaucoup de parents de sa mère sont morts dans l’holocauste nazi.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)
+### [**Lien vers les messages des années 2002**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

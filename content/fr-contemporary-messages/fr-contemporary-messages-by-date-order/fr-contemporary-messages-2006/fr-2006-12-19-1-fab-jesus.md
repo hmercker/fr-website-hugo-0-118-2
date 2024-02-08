@@ -37,5 +37,8 @@ La tendance à considérer la souffrance d'un individu comme rédemptrice est tr
 
 Mais tout cela fait partie de l'histoire, et l'humanité est maintenant prête à embrasser la vérité - que Je suis venu, non pas pour mourir sur la croix, mais pour enseigner au monde la vérité de la Nouvelle Naissance.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
 

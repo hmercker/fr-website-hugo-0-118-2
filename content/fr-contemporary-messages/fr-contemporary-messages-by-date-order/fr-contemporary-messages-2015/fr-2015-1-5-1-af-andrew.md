@@ -23,4 +23,6 @@ Ne résistez pas aux changements qui s’opèrent en vous, mes bien-aimés, mais
 
 Beaucoup de choses vous attendent, mes bien-aimés. Le temps est court et le travail est grand. Préparez-vous, acceptez votre Père céleste de toutes les manières profondément et purement dans votre être. Acceptez dans l’amour votre Créateur. Des changements se produisent, mes bien-aimés, à la fois en vous et autour de vous. Marchez joyeusement sur votre chemin et Dieu vous conduira dans la lumière et vous accomplirez effectivement votre but. Beaucoup vous attend, beaucoup vous attend et vous êtes vraiment aimés. Que Dieu vous bénisse, mes bien-aimés. André est avec vous. Oui, je suis avec vous et je vous aime. Que Dieu vous bénisse.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015)
+### [**Lien vers les messages des années 2015**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

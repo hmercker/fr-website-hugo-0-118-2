@@ -36,3 +36,7 @@ Je pourrais dire que cette compréhension, de votre progression et votre express
 Puissiez-vous connaître une paix profonde, amis bien-aimés. Puissiez-vous connaître de profonds réveils et révélations de votre âme et trouver la vraie joie qui vient avec la vie exprimée en harmonie avec les lois de Dieu, Sa Volonté et Son Amour. Tant de choses, tant de choses, mes bien-aimés. Comment puis-je vous parler de toutes ces choses ? Je ne peux parler que de ces vérités simples car c’est ce que vous êtes capables de comprendre en ce moment. Au fur et à mesure que vous grandissez, que cet instrument grandit, que l’amour continue à vous remplir, alors peut-être y aura-t-il l’opportunité d’exprimer plus, de parler de plus de choses dont vous êtes curieux. Mais jusqu’à ce moment-là, nous parlerons en généralités et nous apporterons les vérités qui comptent le plus pour vous.
 
 Que Dieu vous bénisse. Je suis Seretta Kem. Mon amour est toujours avec vous, mes bien-aimés. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

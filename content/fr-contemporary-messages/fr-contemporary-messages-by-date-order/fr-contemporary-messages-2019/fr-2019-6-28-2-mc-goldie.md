@@ -18,3 +18,7 @@ Ainsi, lorsque vous voyez à travers les yeux de l'amour et de la joie, le monde
 Soyez donc dans une grande joie, mes bien-aimés. Oui, nous continuons à marcher avec vous en apportant notre influence d'amour, de joie, nos idées à chacun d'entre vous. Vous êtes profondément bénis. Goldie vous aime et vous envoie sur vos chemins avec une grande lumière de joie, de paix et de bonheur sur votre chemin.
 
 Que Dieu vous bénisse tous les deux. Mon amour est avec vous. Je suis Goldie.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

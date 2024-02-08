@@ -34,3 +34,7 @@ Maintenant, c’est à vous de faire confiance, de permettre, d’aspirer à ces
 Je sais que chacun d’entre vous et tous ceux qui écoutent ce message ont un profond désir de venir à cet endroit de nouvelle réalité, de nouvelle vérité, de vérité de l’âme, de vérité qui vient avec l’Amour. Et vous exprimerez cela de manière puissante et belle dans vos vies, et cela touchera beaucoup de monde. Que Dieu vous bénisse, mes âmes bien-aimées, mes étudiants bien-aimés. Que Dieu vous bénisse. Je suis votre enseignant, Augustin. Puissiez-vous continuer à vous réveiller de vos sommeils et de vos illusions et venir à un endroit de profonde conscience de l’âme réconciliant tout ce que vous avez porté dans l’erreur, permettant à cela d’être transformé en vérité afin que vous puissiez reconnaître et connaître la vérité comme jamais auparavant.
 
 Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées. Je continue d’être avec vous alors que vous grandissez dans l’Amour. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

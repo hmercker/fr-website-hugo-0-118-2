@@ -21,4 +21,6 @@ Je voulais leur donner le crédit d'avoir souvent été proches de comprendre ce
 
 Votre canalisation, donc, était exacte. Il s'agissait d'un hommage gracieux à mes coreligionnaires.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

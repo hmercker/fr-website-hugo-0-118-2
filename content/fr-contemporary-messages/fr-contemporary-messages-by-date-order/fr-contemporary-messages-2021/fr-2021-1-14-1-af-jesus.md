@@ -76,3 +76,7 @@ C’est une porte ouverte, mes bien-aimées, une invitation à tous, car le mome
 Soyez bénis dans vos efforts, chers amis. Puissiez-vous continuer à grandir dans l’amour et la lumière. C’est votre grande contribution à l’humanité chaque fois que vous cherchez la vérité et que vous recevez les bénédictions de Dieu. En mettant en œuvre ces changements en vous et en appliquant la vérité que vous connaissez, vous contribuez au monde et apportez la lumière au monde. Chaque âme est nécessaire dans ce grand effort pour changer le monde de l’obscurité à la lumière.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis avec vous dans cet effort. Beaucoup de millions, de millions et de millions d’esprits et d’anges sont avec vous dans cet effort. Que le changement et la guérison commencent avec la seule lumière qui est allumée dans votre âme. Que Dieu vous bénisse. Je suis votre frère et ami, Jésus. Je viens une fois de plus pour parler à votre monde, vous implorant de chercher la lumière et la vérité et d’exprimer l’amour. Que Dieu vous bénisse. Je suis avec vous.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

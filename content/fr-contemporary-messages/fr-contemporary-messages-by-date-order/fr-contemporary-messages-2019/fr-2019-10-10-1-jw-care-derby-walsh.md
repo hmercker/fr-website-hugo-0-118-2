@@ -20,3 +20,7 @@ J’ai traversé beaucoup de choses dans mon temps terrestre qui pourraient êtr
 Oui, j’ai vu mon propre passage. J’en ai parlé. Cela a permis aux membres de ma famille et à mon mari aimant d’accepter plus facilement mon décès. Cet amour continue et j’embrasse tout le monde. Je ne porte aucun jugement sur vos choix, mais je vous suggère seulement, quoi que vous choisissiez, quoi que vous fassiez, de le faire avec amour de tout votre cœur et, je l’espère, dans l’Amour de Dieu si vous le choisissez ainsi, et vous ne serez jamais déçus. Tout sera béni. Allez en paix.
 
 Je vous donne mon amour et ma bénédiction dans tout ce que vous faites. Je suis Care.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

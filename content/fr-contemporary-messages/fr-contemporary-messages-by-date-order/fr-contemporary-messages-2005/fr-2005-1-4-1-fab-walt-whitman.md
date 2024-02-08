@@ -31,4 +31,6 @@ Avec amour, Walt Whitman.
 
 **Walter Whitman**, plus connu sous le nom de Walt Whitman, (Né le 31 Mai 1819 à West Hills, New York (Long Island) et mort le 26 Mars 1892 à Camden (New Jersey)), est un poète, romancier, journaliste, éditeur américain. Son recueil de poèmes Feuilles d'herbe (Leaves of Grass) est considéré comme son chef-d'œuvre. 
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005)
+### [**Lien vers les messages des années 2005**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

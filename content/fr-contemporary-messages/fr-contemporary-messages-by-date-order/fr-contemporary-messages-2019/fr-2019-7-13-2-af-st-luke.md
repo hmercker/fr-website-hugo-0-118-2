@@ -48,3 +48,7 @@ L’état de votre âme, la lumière de votre âme influence et affecte toutes l
 Âmes bien-aimées, vous en saurez plus au fur et à mesure que le temps passe. Vous comprendrez davantage à mesure que l’Amour s’accumule dans vos âmes. Vous en viendrez à connaître Dieu avec une telle profondeur, une telle sagesse et une telle joie alors que cet Amour continue à intégrer tout ce que vous êtes en un tout qui est l’âme éveillée.
 
 Que Dieu vous bénisse dans ce voyage, âmes bien-aimées. Que Dieu vous bénisse. Je suis Luc. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

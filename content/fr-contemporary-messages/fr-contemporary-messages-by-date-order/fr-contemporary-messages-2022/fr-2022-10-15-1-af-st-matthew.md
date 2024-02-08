@@ -20,3 +20,7 @@ Chère fille, tu as prié pour cela et cela se manifeste en effet. Nous avons at
 Nous vous remercions d’être venus et nous prions avec vous. Les conditions se renforceront au fur et à mesure que vous prierez et nous vous invitons donc à prier ensemble aussi souvent que possible. Bien que vous soyez peu nombreux, la puissance de vos prières est grande. Ainsi, Dieu utilisera vos instruments, votre être même pour aider à mettre en mouvement ce qui est prévu et ce que Dieu souhaite apporter à cet endroit sur terre où les énergies se rencontrent et où les bénédictions arrivent facilement.
 
 Que Dieu vous bénisse, âmes bien-aimées, que Dieu vous bénisse profondément, pleinement, puissamment dans Son Amour. Je suis Matthieu et je viens prier avec vous, âmes bien-aimées du plan terrestre.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -26,3 +26,8 @@ Chaque âme parviendra à la réalisation de ce qu’elle est. Alors que l’Amo
 Vous n’avez aucune idée des trésors qui sont en vous. Continuez à rechercher l’Amour de Dieu et à vous éveiller à cette bénédiction qui éveille tout en vous et vous verrez par vous-mêmes l’émerveillement et la beauté de ce que Dieu a créé. Dans ce joyeux réveil, vous en viendrez à reconnaître la puissance et la beauté de votre propre création et à reconnaître combien Dieu vous aime et combien Dieu aime chaque âme.
 
 Que Dieu vous bénisse dans ce voyage. Que les étincelles, les éclairs de perspicacité et de lumière arrivent à votre conscience et soient reconnus comme un cadeau de Dieu. Que Dieu vous bénisse. Je suis Bartholomé et je suis heureux de vous avoir parlé aujourd’hui. Je vous souhaite une journée remplie de lumière. Que toutes les bonnes bénédictions viennent à vous, chère fille, en ce jour et pour vous tous, un jour de joie, un jour de grâce, un jour de perspicacité, un jour de reconnaissance de votre vrai moi. Que Dieu vous bénisse. Que Dieu vous bénisse tous. Merci.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

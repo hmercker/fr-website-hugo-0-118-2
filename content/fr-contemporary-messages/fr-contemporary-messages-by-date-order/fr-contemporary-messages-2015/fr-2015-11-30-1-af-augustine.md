@@ -27,4 +27,6 @@ Et vous ne connaîtrez pas la peur, vous n’aurez pas peur d’être qui vous �
 
 Que Dieu vous bénisse, mes bien-aimés. Votre enseignant Augustin a un grand, profond et durable amour pour chacun d’entre vous. Chaque belle âme de ce cercle. Je vous aime, je veille sur vous et je vous guide et vous êtes le cadeau de Dieu pour moi, d’avoir cette opportunité d’être l’une de vos lumières de guidage. C’est ma bénédiction et je m’en réjouis, âmes bien-aimées. Je m’en réjouis et je vous aime. Que Dieu vous bénisse.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015)
+### [**Lien vers les messages des années 2015**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -19,4 +19,6 @@ Oh mes enfants, la vérité est simple, l’amour est simple. Vous l’avez en v
 
 C’est votre Père, avec une vérité aimante et un amour vrai, qui vous aime, Père.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)
+### [**Lien vers les messages des années 2013**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -21,3 +21,7 @@ Que Dieu te bénisse, âme bien-aimée, et te garde dans Sa tendre attention, t'
 <small>
 
 1 <large id=”f1”> Barb fait référence à Barbara Davis.[↩](#a1)
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

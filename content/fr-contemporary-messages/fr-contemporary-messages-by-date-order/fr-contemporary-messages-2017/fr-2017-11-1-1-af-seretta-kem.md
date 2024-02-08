@@ -22,3 +22,7 @@ Mais comme je l'ai dit, vous faites de grands progrès à bien des égards. Vous
 Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse dans ces efforts. Que cette joie continue à grandir en vous, ce sentiment profond de proximité avec Dieu et la conscience de cette paix qui dépasse toute compréhension. Ne permettez pas à votre esprit d'interférer avec ce que votre âme sait déjà et exprime dans le monde. Taisez-vous lorsque vous voyez que vous vous exprimez d'une manière qui n'est pas en harmonie avec l'amour, taisez-vous, mes bien-aimés. Soyez simples dans vos interactions, aimants et gracieux, tolérants et continuez à vous reconnaître mutuellement de manière aimante. Il est si important que vous exprimiez ce que vous voyez, la beauté qui est en vous, car vous avez un pouvoir en cela, le pouvoir de guérir et de réconforter, d'élever et d'encourager chacun de vous à se voir dans cette lumière, cette belle lumière d'amour.
 
 Que Son Toucher continue à opérer les changements à l'intérieur de vous, à vous porter vers le Ciel, à trouver la vraie joie qui vient avec la connaissance de Dieu. Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem. Je vous aime.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

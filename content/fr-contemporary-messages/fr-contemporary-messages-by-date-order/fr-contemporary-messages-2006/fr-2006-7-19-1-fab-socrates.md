@@ -38,5 +38,7 @@ Amour, Socrate.<sup id="a1">[1](#f1)</sup>
 
 2. <large id="f1"> Socrate a délivré antérieurement [un message](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-8-1-jep-socrates/) par l’intermédiaire de James Padgett.[↩](#a2)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

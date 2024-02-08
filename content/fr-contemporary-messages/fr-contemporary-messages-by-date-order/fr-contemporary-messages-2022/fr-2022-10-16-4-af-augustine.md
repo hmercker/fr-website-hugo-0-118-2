@@ -16,3 +16,7 @@ Augustin - reçu par Al Fike le 16 Octobre 2022, Sechelt, Dallas, OR, USA.
 Que Dieu vous bénisse, âmes bien-aimées, et vous garde dans Sa Lumière et Son Amour. Votre professeur,
 
 Votre ami Augustin vous accompagne dans vos efforts. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

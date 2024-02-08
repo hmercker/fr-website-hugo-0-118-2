@@ -26,3 +26,8 @@ Lorsque cela sera accompli, et cela sera accompli, car Dieu a un plan pour le sa
 Continuez dans vos efforts, âmes bien-aimées, à marcher avec Dieu, à être avec Dieu et à vous laisser transformer par l'Amour de Dieu. De cette façon, vous serez des exemples brillants et vous connaîtrez la grande Vérité. Vous serez forts et beaux dans le flux de votre vie qui sera éclairé par Dieu et béni et dirigé par le Créateur. Vous cherchez ce qu'il y a de plus élevé, âmes bien-aimées. Ne cherchez rien de moins que ce qui est le plus élevé et trouvez l'épanouissement dans votre âme. Découvrez tout ce qui est en vous.
 
 Que Dieu vous bénisse dans ce voyage, qu'il vous garde près du sein de Dieu. Vous serez montré, escorté, protégé, guidé dans ce voyage. Que Dieu vous bénisse. Je suis Matthieu. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

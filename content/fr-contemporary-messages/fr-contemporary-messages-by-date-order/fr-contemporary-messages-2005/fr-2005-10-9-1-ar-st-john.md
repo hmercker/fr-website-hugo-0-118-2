@@ -25,5 +25,6 @@ Vous comprenez donc un peu mieux pourquoi il peut être plus difficile pour vous
 
 Je suis votre frère et ami dans l'amour du Christ, Jean.
 
+### [**Lien vers les messages des années 2005**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005)
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

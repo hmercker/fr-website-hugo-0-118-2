@@ -18,3 +18,7 @@ Quelle que soit la manière dont votre cœur envoie cette demande, que ce soit a
 En ces temps troublés, il est donné à chacun d’entre vous un grand afflux de ce don afin que vous puissiez le porter dans le monde et bénir chacun. Lorsque vous êtes confrontés à quelque chose qui n’est pas de l’amour ; la négativité, les vexations, allez dans votre cœur. Faites cette connexion dans votre âme, et demandez à Dieu de bénir cette âme, ces personnes, cet endroit. Où que vous soyez, bénissez-les tous, car vous portez ce don dans vos cœurs et vos âmes. Vous êtes la bénédiction dont ce monde a besoin dans l’amour de Dieu.
 
 Je suis avec vous. Tout mon amour et mes bénédictions dans la grâce de Dieu où nous sommes Un. Je suis Eileen. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

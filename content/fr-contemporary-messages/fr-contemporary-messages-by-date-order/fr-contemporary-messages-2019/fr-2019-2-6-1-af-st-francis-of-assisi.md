@@ -18,3 +18,7 @@ La prière est puissante, ma fille bien-aimée. La prière peut changer les cond
 Que Dieu vous bénisse tous, âmes bien-aimées, qui habitez votre monde, cette Terre qui a un si grand besoin d’amour. Puissiez-vous continuer à chercher, à être un canal de vérité et d’amour dans le monde. De cette façon. Dieu vous utilisera de nombreuses façons et vous offrira de nombreuses occasions de servir dans l’amour. Ouvrez les barrières, mes bien-aimés, tout ce qui n’est pas de l’amour. Car cela ne servira à rien dans votre monde de porter ces rancœurs et d’ajouter à l’obscurité de ce monde. Soyez en paix et apportez l’amour partout où vous le pouvez, de toutes les manières possibles et Dieu ouvrira les portes pour que beaucoup de choses soient possibles conformément à Sa volonté et à Son plan pour le salut de l’humanité. Chacun de vous peut jouer un rôle en tant que pièce de ce grand puzzle, de cette grande image du monde à venir qui sera si différent de ce qu’il est aujourd’hui.
 
 Dieu vous bénisse, âmes bien-aimées, je suis François et mon amour est avec vous. Je me joins à vous dans la prière. Je me joins à vous dans l’amour. Je me joins à vous dans la paix. Que Dieu vous bénisse. Dieu vous bénisse, âmes bien-aimées.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

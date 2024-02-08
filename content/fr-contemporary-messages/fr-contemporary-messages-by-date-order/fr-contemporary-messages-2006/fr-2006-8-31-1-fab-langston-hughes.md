@@ -22,4 +22,6 @@ Tenez bon et gardez espoir, car le vent du changement vient balayer l'ancien et 
 
 1. <large id="f1"> **Langston Hughes** (1er Février 1902 - 22 Mai 1967) était un poète, romancier, dramaturge, nouvelliste et chroniqueur américain. Il est surtout connu pour son travail durant la Renaissance de Harlem. (Source : Wikipedia)[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

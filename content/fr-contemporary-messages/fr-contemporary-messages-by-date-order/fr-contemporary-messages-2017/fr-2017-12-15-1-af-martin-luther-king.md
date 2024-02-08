@@ -16,3 +16,7 @@ Mon amour est pour vous tous. Mon cœur se gonfle en vous voyant tous vous avanc
 Votre vie est maintenant dédiée à Dieu mes amis. Voyez chaque jour comme un cadeau, resplendissant de possibilités qui sont dans la volonté de Dieu et tout s'accomplira. Tout s'accomplira dans la Lumière et l'harmonie. Vous avancerez sans regarder derrière vous, sans regarder d'un côté ou de l'autre, mais en regardant droit devant vous, les yeux fixés sur la Lumière de Dieu et vos désirs en harmonie avec Sa volonté. Oh, c'est beau, c'est magnifique et cela apportera de nombreux cadeaux à ce monde et aidera de nombreuses âmes. Si vous pouviez seulement voir ce que nous voyons et savoir ce que nous savons, votre cœur serait plein, mes bien-aimés, plein de joie, d'anticipation et de connaissance de la merveilleuse gloire de Dieu et de Son Amour. Cela vient à vous comme vos yeux s'ouvrent, vos âmes se développent, cela vient.
 
 Bénédictions à vous mes amis, Amour à vous mes bien-aimés. Que Dieu continue à vous bénir avec une telle abondance que vous êtes submergés par la joie, la Lumière, le rire et la Vérité. Que Dieu vous bénisse. Je vous aime tous, je vous aime tous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

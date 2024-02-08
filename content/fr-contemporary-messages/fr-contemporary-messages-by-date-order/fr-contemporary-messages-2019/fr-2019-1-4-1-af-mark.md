@@ -44,3 +44,7 @@ Soyez ces phares de lumière, âmes bien-aimées. Choisissez toujours la lumièr
 Âmes bien-aimées, je vous remercie de vos efforts pour être dans la lumière et pour vaincre les ténèbres, pour servir Dieu de ces manières simples mais profondes, et pour être toujours une lumière partout où vous allez, qui que vous rencontriez.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Marc et je vous aime tous, de si belles âmes, des lumières dans le ciel de Dieu, des fleurs dans Son jardin. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

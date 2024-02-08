@@ -25,3 +25,7 @@ Nous honorons chacun de vous, âmes précieuses de la création de Dieu, et ceux
 <small>
 
 1. <large id=”f1”> FUSC : First United Spiritualist Church (Première Eglise Spiritualiste Unifiée).[↩](#a1)
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

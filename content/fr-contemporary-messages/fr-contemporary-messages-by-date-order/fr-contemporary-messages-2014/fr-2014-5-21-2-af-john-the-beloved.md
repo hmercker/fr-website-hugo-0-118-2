@@ -27,4 +27,6 @@ Mettez de côté vos différences, vos peurs, vos préjugés, vos jugements et s
 
 Que Dieu vous bénisse. Je suis Jean le Bien-Aimé et je vous aime. Que Dieu vous bénisse et que Son grand amour vous porte vers de grandes hauteurs, vers la voie la plus élevée, le plus grand service et le plus joyeux déploiement de votre amour. Que Dieu vous bénisse et que je vous aime.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014)
+### [**Lien vers les messages des années 2014**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-20143/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

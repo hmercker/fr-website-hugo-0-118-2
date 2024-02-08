@@ -34,3 +34,7 @@ Les individus qui désirent être des travailleurs de la lumière ne peuvent plu
 C’est la rupture de la condition humaine. C’est libérer le désir de votre âme dans son expression d’amour dans toute la vie. Ce portail permet à un plus grand amour de jaillir de vous. Alors que son fonctionnement magnifique affectera tout ce qui est autour de vous, le plus important, c’est qu’il a un effet sur celui qui porte le portail. Votre vie se transforme en une grande expression d’amour. C’est le cadeau que Dieu fait à l’humanité à travers ces portails. De belles âmes sur la Terre qui sont une expression de l’amour, marchant dans la lumière et se réalisant pleinement en tant qu’amour. Le travail exquis de l’Essence du Créateur se déversant à travers vous, la force de l’amour s’écoulant de vous ; la transformation de votre être en amour, en amour total.
 
 Je suis Seretta Kem. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -19,4 +19,9 @@ Bénédictions pour vous, bénédictions pour nous tous qui marchons dans ce jar
 
 Dieu vous bénisse, Dieu vous bénisse.
 
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
 Saint François.

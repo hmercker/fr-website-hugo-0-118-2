@@ -26,3 +26,7 @@ C’est un chemin difficile à parcourir, mes amis bien-aimés. Cela demande bea
 Puissiez-vous voir clairement le chemin à parcourir. Le chemin de l’amour s’ouvre devant vous. Les portes s’ouvrent facilement. Vous êtes guidés par des anges et de nombreux esprits brillants de toutes sortes. Cherchez vos réponses auprès d’eux et vous connaîtrez la paix. Car la transformation de ce monde n’est pas de votre ressort, c’est l’œuvre de Dieu. Vous avez peut-être un rôle à jouer, mais vous n’êtes pas responsable des résultats. C’est Dieu qui veillera à ce que le monde parvienne à l’harmonie et à la paix.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Luc et je vous aime, belles âmes si sérieuses, si dévouées, si désireuses de paix dans le monde. Dieu se réjouit de vos efforts et de vos désirs et envoie ses anges pour vous accompagner et vous soutenir. Que vos âmes s’ouvrent au grand afflux de Son Amour. Puissiez-vous vraiment être en alignement avec tout ce qui est de cette plus haute vérité. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

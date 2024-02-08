@@ -25,4 +25,6 @@ Vous avez la pensée, mais les événements de l'enfance ne continuent-ils pas �
 
 J'affirme donc qu'il existe des pensées qui sont profondes et cachées, mais qu'il est toujours possible d'y accéder avec l'attention nécessaire. Et elles ne constituent pas une partie distincte de l'esprit.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

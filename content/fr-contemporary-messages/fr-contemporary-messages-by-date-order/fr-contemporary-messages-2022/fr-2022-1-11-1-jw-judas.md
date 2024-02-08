@@ -22,3 +22,7 @@ Alors que vous continuez à explorer, nous continuerons à vous guider, à vous 
 Mes chers amis, allez en paix et détendez-vous dans le flux de la Grâce au-delà de ce monde afin que vous soyez toujours bénis, toujours guéris.
 
 Avec tout mon amour et les bénédictions de tous ici. Je vous souhaite la paix. Je suis Judas. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

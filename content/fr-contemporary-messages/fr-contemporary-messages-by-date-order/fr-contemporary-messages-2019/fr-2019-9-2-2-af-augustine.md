@@ -24,3 +24,7 @@ Nous vous remercions, âmes bien-aimées, et sachez que nous sommes toujours ave
 Que Dieu vous bénisse alors que vous avancez et Dieu vous gardera sûrement dans Sa Lumière et Sa protection et Son Amour. Merci, âmes bien-aimées. Merci pour vos efforts. Merci d’avoir tendu la main. Merci d’être et d’essayer d’être un enfant de l’Amour et de la Lumière. Vous êtes bénis. Vous serez bénis. Beaucoup vient à chacun de vous et beaucoup se manifestera à travers chacun de vous.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant Augustin et mon engagement envers vos efforts et les efforts de ceux qui luttent pour la Lumière dans ce monde continue. Je serai là, aidant, soutenant, guidant, comme le feront beaucoup de mes compagnons anges, pour ce grand travail de guérison de ce monde et pour apporter l’harmonie, la paix et l’amour. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

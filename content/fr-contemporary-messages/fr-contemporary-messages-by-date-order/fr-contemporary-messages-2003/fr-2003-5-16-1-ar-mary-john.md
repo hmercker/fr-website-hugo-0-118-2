@@ -32,11 +32,13 @@ A quoi cette réalité spirituelle pourrait-elle ressembler et à quoi pourrait-
 C’est un bon début, ma chère sœur, et nous poursuivrons ce dialogue avec vous à un autre moment. Nous vous aimons et vous remercions de nous avoir donné l’occasion de vous écrire. Continuez dans vos prières pour l’Amour Divin et ayez confiance que vous progressez bien dans le développement de votre âme et de votre foi.
 Nous sommes Marie et Jean.
 
-**Note de AR :** Plus tard j’ai pensé à un exemple d’application de mon esprit divin pour résoudre un désaccord potentiel avec un être cher : Un bon ami promet de passer une soirée avec moi mais change d’avis à la dernière minute. Je me réjouissais vraiment de cette soirée parce que nous passons un merveilleux moment ensemble, et il me fait me sentir bien dans ma peau. Mon mental matériel (et mes sens) ne font que reconnaître que je suis seule, me fait me sentir abandonnée et me met en colère contre lui. Mon esprit divin (les perceptions de l’âme) me permet de regarder au-delà du moment dans ce qui est « réel » : Je suis toujours aimée de lui, comme je suis toujours aimée de Dieu. Je peux comprendre qu’il n’a pas cessé de m’aimer même s’il n’est pas physiquement avec moi, et mon amour va vers lui sans interruption.
+**Note de Amada Reza :** Plus tard j’ai pensé à un exemple d’application de mon esprit divin pour résoudre un désaccord potentiel avec un être cher : Un bon ami promet de passer une soirée avec moi mais change d’avis à la dernière minute. Je me réjouissais vraiment de cette soirée parce que nous passons un merveilleux moment ensemble, et il me fait me sentir bien dans ma peau. Mon mental matériel (et mes sens) ne font que reconnaître que je suis seule, me fait me sentir abandonnée et me met en colère contre lui. Mon esprit divin (les perceptions de l’âme) me permet de regarder au-delà du moment dans ce qui est « réel » : Je suis toujours aimée de lui, comme je suis toujours aimée de Dieu. Je peux comprendre qu’il n’a pas cessé de m’aimer même s’il n’est pas physiquement avec moi, et mon amour va vers lui sans interruption.
 
 Ce message se poursuit dans ce message commuinqué [le 8 Juin 2003](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-6-8-1-ar-st-john/).
 <small>
 
 1. <large id="f1"> Je soupçonne que c’est en fait ce qu’il appelait ailleurs sur ce site – l’esprit de l’âme. (Geoff Cutler)[↩](#a1)
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)
+### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

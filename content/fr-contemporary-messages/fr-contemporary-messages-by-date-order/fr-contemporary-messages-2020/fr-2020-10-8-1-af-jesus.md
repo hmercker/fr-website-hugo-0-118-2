@@ -54,3 +54,7 @@ Ces réalités peuvent se produire à condition que l’humanité choisisse de p
 Mettez de côté vos doutes, chers et beaux enfants du monde, et marchez dans la Lumière du Toucher de Dieu sur vous. Connaissez la liberté et la joie de l’Amour de Dieu pour vous. Sachez que vous êtes vraiment une création bénie de Dieu et qu’il en sera ainsi bien au-delà de cette époque terrestre. Vous continuerez à grandir dans l’amour et la lumière en progressant à travers les différentes sphères spirituelles et, si vous prenez la décision de recevoir les qualités rédemptrices de l’Amour Divin, vous entrerez dans le Royaume Céleste des Cieux. C’est à vous de choisir. Toute l’humanité a le choix. Puissiez-vous considérer la puissance qui est votre choix dans le monde.
 
 Que Dieu vous bénisse. Je suis votre frère, votre ami, votre enseignant. Je suis Jésus. Mon amour pour vous est grand, pour toute l’humanité. J’ai un grand amour pour tous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

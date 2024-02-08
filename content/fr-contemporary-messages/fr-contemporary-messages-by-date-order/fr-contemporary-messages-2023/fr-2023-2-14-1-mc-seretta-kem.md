@@ -26,3 +26,7 @@ En effet, la Voix Directe n’est qu’une manifestation des nombreuses bénédi
 Beaucoup vous attend, mes amis, tellement beaucoup. C’est à vous de découvrir combien riches sont les bénédictions de Dieu, combien beau est Son Toucher sur vous, et combien puissant est l’alignement de vos anges amis et d’autres qui sont prêts à investir beaucoup de temps et d’efforts en votre nom dans ce qui peut être donné et ce qui sera donné, pourvu que les conditions soient bonnes et que les bénédictions viennent abondamment comme résultat de vos prières sincères. Priez du fond du cœur, mes chers et beaux amis. Priez sincèrement. Soyez en alignement avec Dieu. Recherchez toujours Ses bénédictions et le reste se déroulera dans le timing et la manifestation exquise et la puissance de Son Amour qui agit à travers vous et en vous.
 
 Que Dieu vous bénisse, chers amis. Je suis Seretta Kem. Je suis heureuse de vous parler aujourd’hui et de vous encourager sur ce chemin, ce désir de servir d’une manière si intéressante et merveilleuse. Que Dieu vous bénisse, chers étudiants, beaux enfants de Dieu. Vous êtes bénis et vous serez bénis. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

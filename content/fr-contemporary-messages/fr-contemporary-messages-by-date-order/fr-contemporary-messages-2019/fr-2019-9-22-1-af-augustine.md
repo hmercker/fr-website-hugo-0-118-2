@@ -30,3 +30,7 @@ Vous n’avez aucun moyen de connaître les véritables capacités de votre âme
 Âmes bien-aimées, vous êtes vraiment dans la Lumière. Vous continuez à servir. Dans ce service, il y a la joie et il y a aussi l’équilibre. Dieu ne vous taxe pas excessivement. Il vous donne la possibilité de vous reposer, de récupérer votre énergie, d’être en harmonie avec votre corps, votre esprit et votre être. Vous allez continuer à grandir et à vous éveiller à ces choses que je vous ai exprimées aujourd’hui. Ces dons nobles auxquels vous aspirez tant viendront au fur et à mesure que vous grandirez dans l’Amour du Père. Il n’y a rien que vous puissiez faire d’autre que d’être en alignement, d’autre que de désirer servir, d’être les instruments et les canaux de Dieu dans ce monde. Avec cela, tout le reste se mettra en place et s’ouvrira si progressivement, et en effet, en avançant et en se réalisant avec le temps.
 
 Que Dieu vous bénisse, âmes bien-aimées. Votre maître Augustin vous aime tant, il continue à marcher avec vous. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

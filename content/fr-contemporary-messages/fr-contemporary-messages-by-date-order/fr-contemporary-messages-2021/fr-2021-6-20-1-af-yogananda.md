@@ -20,3 +20,7 @@ Vos prières, mes amis, ont aidé à réveiller beaucoup d’autres âmes car au
 C’est un cadeau magnifique, un voyage merveilleux vers une plus grande harmonie avec tout ce qui est Dieu, tout ce qui est Divin. Tout ce que Dieu a créé dans l’univers est un cadeau, un cadeau donné à chaque âme qui l’accepte et se pose dans cette grande et magnifique lumière et vérité. Dans vos âmes ouvertes à l’amour, puissiez-vous vraiment arriver à connaître votre magnificence, votre potentiel, votre grâce et votre âme merveilleuse que Dieu vous a donnée afin d’éveiller tout ce qui est et peut être dans un individu, sa magnificence n’est jamais complètement réalisée, car c’est un voyage éternel.
 
 Que Dieu vous bénisse, chères et belles âmes, dans ce voyage de lumière et d’amour. Je suis heureux d’être avec vous aujourd’hui et je continue à prier pour que chacun d’entre vous soit un serviteur de Dieu, pour aider ceux qui sont sur le plan terrestre et ceux qui sont dans les royaumes spirituels, à trouver leur chemin comme nous avons trouvé le nôtre dans la grande et merveilleuse connaissance, l’expérience et la réception de ce magnifique cadeau de Dieu. Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse profondément. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

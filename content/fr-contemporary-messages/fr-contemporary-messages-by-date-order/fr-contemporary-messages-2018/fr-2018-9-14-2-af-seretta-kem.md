@@ -29,3 +29,7 @@ Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem et je suis avec vou
 <small>
 
 1. <large id="f1"> L' A.R.E.I est l'Institut de recherche et d'éducation sur la vie après la mort.[↩](#a1)
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

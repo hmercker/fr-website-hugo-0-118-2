@@ -36,3 +36,7 @@ Il y a des moments où vous pouvez faiblir. Il y a des moments où vous sentez q
 Je vous promets ceci, mes frères et sœurs bien-aimés, que vous vous embarquerez dans ce voyage qui augmentera en rythme, en ampleur et en profondeur. Au fur et à mesure que votre âme s’éveille, vous trouverez votre chemin au-delà de ces défis vers un lieu de grande harmonie, un lieu où l’âme règne en maître dans votre conscience, un lieu où vous et Dieu pouvez communiquer facilement, où vous pouvez ressentir les bénédictions, les effusions de Sa grande Âme dirigées vers vous. Que vous puissiez absorber ces bénédictions sans inhibition, qu’il n’y ait aucune réticence, aucun doute, aucune diversion, mais un chemin clair et régulier vers plus de lumière, de vérité et d’amour.
 
 Que Dieu vous bénisse, mes amis bien-aimés. Je suis Orion. Je continue à vous conseiller, à vous encourager, à vous aimer. Je suis votre véritable ami et le serai toujours. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

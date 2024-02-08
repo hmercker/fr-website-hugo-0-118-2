@@ -17,3 +17,7 @@ Ami bien-aimé, sache que je vais bien, que je réside maintenant dans le Royaum
 <small>
 
 1. <large id="f1"> Jocelyne Harleston a joué un rôle déterminant dans la réhabilitation et le rétablissement de la Foundation Church of the New Birth (Fondation de l’Eglise de la Nouvelle Naissance) après la débâcle causée par la précédente direction de Victor Summers. Plus de détails peuvent être trouvés [sur cette page](/fr-james-padgett-messages/fr-churches-based-on-james-padgetts-messages/).[↩](#a1)
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

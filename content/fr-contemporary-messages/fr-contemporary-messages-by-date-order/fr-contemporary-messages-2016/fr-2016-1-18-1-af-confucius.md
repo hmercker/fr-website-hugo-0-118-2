@@ -11,7 +11,7 @@ weight:
 
 Confucius - reçu par Al Fike le 18 Janvier 2016, Hawaii, USA.
 
-Que Dieu vous bénisse, mes enfants, je suis Confucius.
+Que Dieu vous bénisse, mes enfants, je suis Confucius.<sup id="a1">[1](#f1)</sup>
 
 Âmes précieuses, Dieu vous a rassemblés pour prier pour Son Amour, pour être dans Sa grâce ensemble, pour faire l’expérience de Sa communion, pour marcher dans cette Lumière, pour apprendre les uns des autres, et pour être aimants et généreux les uns envers les autres. Soyez les Lumières, mes bien-aimés. Soyez les Lumières et marchez dans la Lumière.
 
@@ -26,3 +26,11 @@ Nourrissez ce Don, mes bien-aimés, par vos prières pour recevoir l’Amour du 
 Bien-aimés, chacun d’entre vous désire cela et chacun d’entre vous lutte avec ce désir qui vient de son âme et chacun d’entre vous est perplexe à sa façon sur la façon dont cela peut être dans sa vie. Et je vous dis, mes bien-aimés, qu’à mesure que votre âme s’élèvera dans votre conscience, ces dilemmes disparaîtront. Votre résistance sera brûlée par le pouvoir de votre foi et de votre Amour, et vous devez permettre à cela d’être dans votre être. En effet, vous avez tous votre propre chemin à suivre et vous déterminez lorsque cela se produira dans vos vies, car vous avez reçu le don du libre arbitre. Cependant, mes bien-aimés, c’est votre destin. Vous parviendrez à connaître la volonté de Dieu, à être le canal de lumière clair et vibrant de Dieu dans le monde, et vous marcherez dans une telle grâce, une telle paix et une telle joie que vous regarderez en arrière et vous demanderez pourquoi il a fallu si longtemps pour arriver à ce lieu de grande joie et de paix. Pourquoi ai-je résisté si longtemps ? Mais vous êtes humains, nous le savons. Vous avez de nombreux soucis et de nombreuses distractions et Dieu ne vous aime pas moins parce que vous vivez votre vie comme vous l’avez choisi, mais il désire que vous viviez votre vie dans le cadre de Sa vie, de Son être et de Sa volonté.
 
 Je vous supplie donc, mes bien-aimés, de considérer qu’il y a une autre voie, et que vous travaillez à ce flux pur et magnifique de votre vie dans la volonté de Dieu. Cela vient pour chacun d’entre vous, mes bien-aimés. Choisissez cette voie, choisissez de travailler vers ce but pour permettre à tous les obstacles qui vous retiennent de tomber et vous pourrez connaître ce grand et merveilleux Amour sous toutes ses formes. Son impact sur votre vie sera complet et changera tout et amènera tout en alignement et en harmonie avec Dieu. Âmes bien-aimées, vous êtes bénies et vous êtes belles et vous marcherez sur ce monde dans la Lumière, mes bien-aimées. Confucius vous aime tendrement, âmes bien-aimées. Je suis souvent avec vous, mes bien-aimés, mes bien-aimés. Je vous bénis.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués  par Confucius sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a1)
+
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

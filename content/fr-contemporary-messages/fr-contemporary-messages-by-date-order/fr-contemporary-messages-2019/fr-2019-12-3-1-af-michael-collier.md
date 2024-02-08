@@ -34,3 +34,8 @@ Que Dieu bénisse chacune de vous, âmes précieuses, car vous êtes précieuses
 Que Dieu vous bénisse. Je suis Michael Collier et je travaille avec vous tous alors que vous continuez à chercher à servir Dieu.
 
 Que Dieu vous bénisse. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

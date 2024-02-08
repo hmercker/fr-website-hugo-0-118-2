@@ -21,3 +21,7 @@ Jusqu’à ce que nous nous rencontrions à nouveau, que vous soyez tous bénis 
 <small>
 
 1. <large id="f1"> Référence au livre de messages de Judas publié sous le nom de "Judas de Kerioth" [examiné ici avec des liens sur les endroits où il peut être obtenu](/fr-judas-of-kerioth-messages/fr-the-book-of-judas/).[↩](#a1)
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

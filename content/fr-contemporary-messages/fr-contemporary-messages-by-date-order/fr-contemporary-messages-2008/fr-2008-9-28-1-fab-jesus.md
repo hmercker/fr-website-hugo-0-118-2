@@ -22,4 +22,6 @@ Les enfants peuvent faire le mal. C'est un fait, que beaucoup peuvent attester. 
 
 L'obéissance à une demande parentale est une chose, mais le choix moral en est une autre, et les enfants en font l'expérience autant que les adultes.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

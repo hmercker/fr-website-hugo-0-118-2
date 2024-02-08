@@ -16,4 +16,6 @@ Je suis Nelson Rockefeller. Il n’y a aucun moyen pour ma famille de gagner cet
 
 1. <large id="f1"> **Nelson Aldrich Rockefeller** (8 Juillet 1908 – 26 Janvier 1979) fut un homme d’affaires, philanthrope, fonctionnaire et homme politique américain. Il a été le 41e vice-président des États-Unis (1974-1977), sous la présidence de Gerald Ford, et le 49e gouverneur de New York (1959-1973). Il a également occupé divers postes au sein des administrations des présidents Franklin Roosevelt, Harry Truman et Dwight Eisenhower. Membre de la riche famille Rockefeller, il était également un grand collectionneur d’art. (Source : Wikipedia)[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)
+### [**Lien vers les messages des années 2013**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

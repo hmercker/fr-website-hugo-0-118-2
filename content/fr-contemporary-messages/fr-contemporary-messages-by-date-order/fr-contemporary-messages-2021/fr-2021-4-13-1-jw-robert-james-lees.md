@@ -23,9 +23,26 @@ Je vous remercie tous du fond du cœur et avec tout mon amour et mon affection, 
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-rjlees.jpg)
 
-Robert James Lees
+Robert James Lees.<sup id="a3">[3](#f3)</sup>
 <small>
 
 1. <large id=”f1”> Claire d’Assise a déclaré que R.J. Lees était très reconnaissant au groupe d’avoir lu son matériel et qu’il viendrait à une date ultérieure pour parler.[↩](#a1)
 
-2. <large id=”f2”> Robert James Lees a écrit trois livres étonnants, à savoir [Through the Mists](https://new-birth.net/other-stuff/books-we-love/books-on-life-after-death/#mists) (A travers les Brumes), [The Life Elysian](https://new-birth.net/other-stuff/books-we-love/books-on-life-after-death/#elysian) (la vie Elyséenne) et [The Gate of Heaven](https://new-birth.net/other-stuff/books-we-love/books-on-life-after-death/#gate) (la Porte du Ciel).[↩](#a2)
+2. <large id=”f2”> Robert James Lees a écrit trois livres étonnants, à savoir [Through the Mists (A travers les brumes)](https://new-birth.net/other-stuff/books-we-love/books-on-life-after-death/#mists), [The Life Elysian (la vie Elyséenne)](https://new-birth.net/other-stuff/books-we-love/books-on-life-after-death/#elysian)  et [The Gate of Heaven (la Porte du Ciel)](https://new-birth.net/other-stuff/books-we-love/books-on-life-after-death/#gate). Des extraits de ces trois livres sont consultables par l'intermédiaire [de ce lien](/13-fr-publications-and-downloads/13-4-fr-extracts-from-spiritual-books/).[↩](#a2)
+
+3. <large id="f3"> Robert James Lees s'est également exprimé lors des messages suivants [↩](#a3)
+
+**Auteur** | **Titre du message** | **Date du message**  
+--|---|---
+Robert James Lees | [L’auteur de « A travers les brumes » est très reconnaissant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-13-1-jw-robert-james-lees/) | 13 Avril 2021
+Robert James Lees | [Veuillez mettre à jour mon livre dont le texte est périmé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-25-1-jw-robert-james-lees/) | 25 Mai 2021
+Robert James Lees | [Je vous guiderai](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-18-2-jw-robert-james-lees/) | 18 Juin 2021
+Robert James Lees | [Et si un ange venait dans votre maison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-9-1-jw-robert-james-lees/) | 9 Juillet 2021
+Robert James Lees | [Mes livres sont vraiment approuvés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-5-1-jw-robert-james-lees/) | 5 Août 2021
+Robert James Lees | [Le monde bénéficierait de ce que j'ai reçu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-19-2-jw-robert-james-lees/) | 19 Octobre 2021
+Robert James Lees | [Une chose à la fois](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-10-1-jw-robert-james-lees/) | 10 Novembre 2021
+Robert James Lees | [Tous sont dignes de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-11-2-jw-robert-james-lees/) | 11 Novembre 2021
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

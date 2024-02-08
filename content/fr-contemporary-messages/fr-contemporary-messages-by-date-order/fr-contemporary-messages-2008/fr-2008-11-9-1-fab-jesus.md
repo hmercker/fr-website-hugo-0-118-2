@@ -25,4 +25,6 @@ Vous reconnaissez pleinement que le communisme n'a pas fonctionné parce que le 
 
 Eh bien, une issue sera trouvée. Vous avez vous-même réussi à vous extraire du débat chargé et finalement autodestructeur entre capitalisme et communisme. Vous avez senti qu'un tout nouveau système est nécessaire, un système dans lequel il y aura de l'amour, de l'équité et de la justice. Et c'est exactement ce que nous préparons. Il utilisera des éléments du système actuel mais évitera les excès d'avidité et d'égoïsme qui le gangrènent actuellement.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

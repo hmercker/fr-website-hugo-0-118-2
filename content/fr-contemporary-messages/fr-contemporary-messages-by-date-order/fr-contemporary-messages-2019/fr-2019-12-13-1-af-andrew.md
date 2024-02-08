@@ -25,3 +25,7 @@ Que Dieu vous bénisse, âmes bien-aimées. André est avec vous. Je suis avec v
 <small>
 
 1. large id=”f1”> Ceci fait référence à un petit-fils, Jacob Albert Fike.[↩](#a1)
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

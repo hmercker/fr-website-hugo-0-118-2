@@ -29,4 +29,6 @@ Dieu vous tend la main, mes enfants. Dieu vous tend la main et vous dit : « Ven
 
 Dieu vous bénisse, votre enseignant Augustin vous aime profondément, belles âmes qui aspirent à la vérité, belles âmes qui trouveront la vérité, et qui trouveront la vérité à travers l’Amour. Que Dieu vous bénisse.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014)
+### [**Lien vers les messages des années 2014**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

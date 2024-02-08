@@ -84,3 +84,8 @@ Vous avez adhéré à la volonté et au plan de Dieu, à Ses bénédictions et �
 Que Dieu vous bénisse dans ce voyage, âmes bien-aimées. Je vous remercie de m’avoir écouté une fois de plus. Je viens dans l’amour et l’appréciation de toutes les âmes sur cette Terre car cette Terre porte un grand trésor de dons, de capacités, d’âmes merveilleuses, merveilleuses que Dieu a créées. Mon espoir est que ces capacités et ces potentiels seront réalisés un jour et que l’harmonie viendra, la joie viendra, le monde viendra et sera vibrant de vie, de beauté et de lumière.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Jésus. Mon amour est avec vous tous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

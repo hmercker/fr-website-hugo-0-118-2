@@ -26,3 +26,7 @@ Puissiez-vous continuer à grandir dans cette Lumière, à sentir en vous la pui
 Dieu vous bénisse mes amis, je suis Matthieu et je vous aime et je connais chacun d'entre vous, je vois vos lumières, je connais vos désirs, je connais votre but et je marche avec vous, comme beaucoup qui continuent à apporter leur amour et leur soutien, leur force et leurs dons à ajouter aux vôtres afin que vous puissiez faire ce travail dans le monde. Que Dieu vous bénisse, âmes bien-aimées, et je vous aime.
 
 Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

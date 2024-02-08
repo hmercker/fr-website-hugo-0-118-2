@@ -18,3 +18,7 @@ Il est inutile de s’inquiéter du nombre, mais seulement de l’engagement et 
 Dieu a un plan. Tout ce que vous avez à faire est d’écouter et de marcher jour après jour avec le désir d’être un canal d’Amour, de faire Sa Volonté, d’être Son Enfant dans la Lumière, de prier pour Son Amour, de marcher dans les pas du Maître. Restez simple. Je continuerai à être avec vous. Priez pour mon aide et je serai là. Vous me connaîtrez avec le temps et nous serons de bons amies sur ce chemin d’Amour. Que Dieu vous bénisse.
 
 Je m’appelle Laila. J’ai vécu dans ce que vous appelez Israël et j’ai suivi le Maître Jésus lorsqu’il marchait sur la terre. Que Dieu vous bénisse. Il m’a demandé d’être votre protectrice, de vous aider dans votre travail. C’est mon privilège, mon honneur et ma joie de le faire. Que Dieu vous bénisse, que Dieu vous bénisse, âme bien-aimée.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

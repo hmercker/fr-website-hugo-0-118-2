@@ -38,3 +38,7 @@ Je suis à tes côtés et je marche avec toi. Et beaucoup d'autres aussi. Alors 
 Mon amour, je suis avec toi. Je te guide. Je t'aime et je veux partager tant de choses avec toi. Beaucoup de choses nous attendent - toi et moi, et tous ceux qui s'engagent dans le projet de Voix Directe. Mais ce n'est pas tout - nous sommes engagés dans une tâche bien plus grande, bien plus grande - il est difficile de s'en rendre compte à ce stade - et ce n'est pas grave. Continuez simplement à avancer. Des petits pas. Très bien.
 
 Maintenant, passe une bonne journée, profite et sois dans le flux de l'Amour de Dieu. Tends la main, souris, embrasse. Je t'aime. Je suis Martin Luther.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

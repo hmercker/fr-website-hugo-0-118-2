@@ -21,4 +21,6 @@ Vous avez eu des éclairs de lucidité qui indiquent que des ruines du présent 
 
 Gardez à l'esprit que, quelles que soient les situations horribles et accablantes, rien, rien ne peut supprimer l'esprit humain. En fait, en période de dislocation et de violence, la volonté d'endurer et de vaincre devient plus forte, de sorte que lorsque le système sera finalement arrêté, il y aura une explosion de joie sur toute la planète, et le travail de reconstruction commencera alors pour de bon. Tout cela se produira dans le timing parfait du Créateur. Et lorsque cela se produira, le monde entier le saura et s'en réjouira.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

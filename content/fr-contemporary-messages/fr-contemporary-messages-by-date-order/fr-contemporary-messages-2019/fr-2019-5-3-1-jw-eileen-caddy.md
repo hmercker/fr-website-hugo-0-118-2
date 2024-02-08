@@ -24,3 +24,7 @@ Il y a beaucoup de personnes dans votre communauté qui aiment voyager et qui ai
 Certains, comme mon cher instrument le sait bien, comme la petite église de François à Assise et les jardins du Yogi à Encinitas, ont continué à être respectés comme centres spirituels de prière et de méditation par ceux qui y vivent et les âmes qui les visitent. Il ne nous appartient pas de juger de la puissance spirituelle d’un lieu, mais plutôt d’être en harmonie avec ce qui s’y trouve et de prier pour que l’amour et la lumière de Dieu y pénètrent en grande mesure. Je souhaite que les anciens soient conscients des grandes ressources qui se trouvent en leur sein, tant spirituellement que matériellement, et j’encourage ceux qui souhaitent partager l’Amour de Dieu à inclure de tels endroits dans leurs voyages, tant que cela est encore possible dans votre monde.
 
 Je suis reconnaissant à mon cher frère d’avoir bien reçu ce que j’avais à dire et je vous envoie tout mon amour et ma gratitude. Que Dieu vous bénisse tous ! Je suis Eileen Caddy.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

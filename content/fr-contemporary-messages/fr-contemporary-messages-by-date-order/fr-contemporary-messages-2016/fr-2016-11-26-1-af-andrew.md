@@ -24,3 +24,7 @@ Ne jugez pas par le nombre de personnes qui sont attirées dans vos cercles. Non
 Marchez dans la grâce de Son Amour où que vous alliez ce jour. Les anges vous accompagneront et le flux de l’Amour de Dieu sera fort et influent partout où vous irez ce jour.
 
 Dieu vous bénisse, c’est André et je vous aime et je serai avec vous et un ange sera avec chacun de vous à chaque instant de cette journée, à chaque instant des jours à venir et puisse l’amour couler en abondance, le rire, la facilité de marcher dans ce monde en sachant que vous marchez dans le flux de l’Amour de Dieu. Que vous soyez en paix, âmes bien-aimées, et sachez que Son Amour brûle en vous. Dieu vous bénisse. Votre frère André vous aime.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

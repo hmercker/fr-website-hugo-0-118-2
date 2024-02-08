@@ -38,3 +38,7 @@ Je vous exhorte à rechercher davantage l’éveil de vos âmes, à parler à Di
 Mon amour est avec vous, âmes bien-aimées. Je vous conduis en avant. Des armées d’anges vous invitent à aller plus loin dans la lumière et la croissance de votre âme et prient pour que chacun d’entre vous reçoive ce cadeau. Les portes s’ouvrent pour vous, mes bien-aimés. La lumière se déverse pour le bénéfice de votre âme. Puissiez-vous arriver à le savoir vraiment, à comprendre avec les yeux profonds et le mental de votre âme, vous emmenant au-delà de ce monde dans lequel vous vivez dans de merveilleux voyages de vérité alors que vous vous dirigez vers Dieu dans une communion d’amour éveillé. Réveillez-vous, mes bien-aimés, réveillez-vous pour le grand voyage de l’âme. Vous y trouverez la joie, les réponses que vous cherchez, tout ce qui est lumière et bonté est à vous dans un seul souffle de supplication de Dieu pour son amour.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis avec vous. Vous le savez. Je ne vous quitterai jamais. Vous êtes bénis dans la lumière. Portez ceci partout où vous allez et beaucoup ressentiront une touche de réconfort de votre part. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés. Je suis votre frère et votre ami. Je suis Jésus. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

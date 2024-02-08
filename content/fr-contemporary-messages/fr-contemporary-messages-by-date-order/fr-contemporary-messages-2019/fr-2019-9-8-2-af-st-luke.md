@@ -20,3 +20,7 @@ Oui, il y a beaucoup d’obscurité. Oui, ce n’est pas un voyage facile. Mais 
 Rappelez-vous que le plus haut de tous est l’amour et que le plus haut de tous les amours est l’Amour de Dieu. Recherchez cette bénédiction. Cherchez ceci comme la pierre angulaire de toute poursuite de la spiritualité et de la vérité et vous ne pouvez pas vous tromper, âmes bien-aimées, vous trouverez votre chemin en effet et trouverez cette voie qui vous est destinée, destinée à vous, pour arriver à ce lieu d’union avec Dieu et d’union avec la Vérité. Cela viendra. Vous n’êtes pas perdu. Vous n’êtes pas seuls et vous êtes profondément aimés. Sachez cela, âmes bien-aimées, sachez cela et faites-en votre vérité. De cette façon, tout ce que vous désirez, tout ce qui est destiné à être donné, tout ce qui vient, viendra effectivement à vous. Vous le reconnaîtrez, l’admettrez et l’absorberez dans votre âme, de sorte que vous puissiez effectivement suivre le chemin de la vérité et suivre le chemin qui vous est destiné, âmes bien-aimées. Continuez à vous unir dans l’amour, à marcher dans l’amour et la vérité et tout vous sera donné en abondance, dans la joie, dans l’amour.
 
 Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse. Je suis Luc.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

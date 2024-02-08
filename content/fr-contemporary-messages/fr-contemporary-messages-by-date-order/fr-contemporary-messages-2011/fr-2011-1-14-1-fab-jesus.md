@@ -19,4 +19,6 @@ Depuis des années maintenant, au cours de vos canalisations (chanellings), Nous
 
 Nous avons l’intention de manifester notre pouvoir, ce qui suscitera l’intérêt et le respect. Nous travaillons également à faire échouer l’agenda de ceux qui perpétuent la cruauté et la guerre. Je sais que vous ne voyez pas comment cela peut être accompli, mais cela le sera.
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/)
+### [**Lien vers les messages des années 2011**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

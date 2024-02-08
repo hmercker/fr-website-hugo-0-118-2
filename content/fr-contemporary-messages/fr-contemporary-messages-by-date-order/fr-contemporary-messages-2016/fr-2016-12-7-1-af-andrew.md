@@ -38,3 +38,7 @@ Et vous, mes bien-aimés, vous devez être audacieux, déclarer la vérité, app
 Vous serez guidés vers de nombreuses âmes ; de nombreuses âmes seront guidées vers vous. Continuez à prier avec elles et à leur apprendre à prier, à leur enseigner l’amour du Père, à leur enseigner ces vérités simples et ces graines que vous semez prendront racine dans beaucoup, beaucoup d’âmes.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis André et je vous aime.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

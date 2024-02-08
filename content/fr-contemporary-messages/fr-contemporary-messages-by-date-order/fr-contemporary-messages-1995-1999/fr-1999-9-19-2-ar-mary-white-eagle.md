@@ -25,7 +25,7 @@ Ressentez cet Amour dans vos vies, mes chers enfants, et appelez-le par la foi, 
 
 Voyez vos vies comme un miracle et vous reconnaîtrez dans vos vies des événements que vous n’auriez jamais cru possibles auparavant. Reconnaissez les petits événements qui sont discrètement parlés par l’Esprit et qui ont besoin d’être vus avec des yeux sensibles, sachant que Dieu a parlé et qu’il bouge votre main. Laissez le soleil de votre propre amour transformé briller aussi fort que n’importe quel soleil terrestre devant vous et beaucoup en seront témoins. Alors sachez dans votre cœur et votre esprit que ce pouvoir de Dieu est le vôtre, car vous êtes Sa créature, vous êtes Ses enfants qui héritent de ce Don d’Amour et il en sera ainsi – la vérité façonnera et changera chacun de vos mouvements et les éléments, physiques et spirituels, s’inclineront devant vous au service de la Loi d’Amour.
 
-**Aigle Blanc parle maintenant :**
+**Aigle Blanc parle maintenant<sup id="a1">[1](#f1)</sup> :**
 
 Je suis avec toi maintenant, ma chère sœur en Christ, et je suis ton frère, Aigle Blanc. Je tiens à t’assurer que tu es entre nos mains en ce moment et que nous mesurons le temps dont tu as besoin pour que ta santé bénéficie de ce jeûne. Je t’aime, ma chère sœur, et je te suis reconnaissant pour ton amour.
 
@@ -33,9 +33,24 @@ Nous ne sommes ici que pour aider et servir. Les gens doivent comprendre la Bien
 
 Vous êtes bénis et nous ne vous laisserons jamais sans. S’il vous plaît, ayez plus de foi en cet amour, apportez-le dans vos affaires quotidiennes et sachez que rien n’est si petit ou apparemment insignifiant que l’amour ne puisse en faire un cadeau pour votre vie et la vie de ceux que vous aimez et servez.
 
-Je suis ton frère, Aigle Blanc, Comme je suis ta sœur, Marie, la mère de Jésus, et nous vous souhaitons une journée harmonieuse et pleine d’amour, mes chers.
+Je suis ton frère, Aigle Blanc, Comme je suis ta sœur, Marie, la mère de Jésus, et nous vous souhaitons une journée harmonieuse et pleine d’amour, mes chers.<sup id="a2">[2](#f2)</sup>
+<small>
 
-[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+1. <large id="f1"> Aigle Blanc est un Indien puissant et a souvent utilisé ses grands pouvoirs de guérison pour restaurer la santé de M. James E. Padgett. Il écrivait souvent car il avait dans son âme un Amour Divin considérable qui faisait de lui un esprit lumineux et beau. Vous pouvez consulter un des messages qu'il a communiqué à travers James Padgett [le 15 Février 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-2-15-1-jep-white-eagle/)[↩](#a1)
+
+2. <large id="f2"> Aigle Blanc  s'est également exprimé dans les messages suivants :[↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+--|---|---
+Aigle Blanc | [Les animaux et l’amour naturel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-9-4-1-ar-white-eagle/) | 4 Septembre 1999
+Marie & White Eagle | [Le soleil bondissant de Fatima](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-9-19-2-ar-mary-white-eagle/) | 19 Septembre 1999
+Aigle Blanc | [La guérison par l’intermédiaire des guérisseurs spirituels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-3-1-ar-white-eagle/) | 3 Novembre 1999
+Aigle Blanc | [L’autre vision.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-2-11-1-ar-white-eagle/) | 11 Février 2001
+Aigle Blanc | [Aigle Blanc vient offrir la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-29-2-jw-white-eagle/) | 29 Mars 2020
+Aigle Blanc | [Nous sommes tous des peuples indigènes en tant qu'enfants de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-19-2-jw-white-eagle/) | 19 Avril 2020
+
+
+### [**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

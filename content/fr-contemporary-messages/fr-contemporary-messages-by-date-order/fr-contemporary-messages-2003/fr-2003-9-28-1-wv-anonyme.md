@@ -37,4 +37,6 @@ Je t’aime mon ami et je vois que tu apprécies ce dont nous avons discuté.
 
 Avec mon amour et quel que soit le nom que tu veux me donner,...
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)
+### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

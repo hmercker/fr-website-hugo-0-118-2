@@ -36,3 +36,7 @@ Cherchez les bénédictions de Dieu. Mettez de côté vos soucis et vos préoccu
 Puissiez-vous continuer à prier ensemble, faire ces efforts dans vos routines, dans vos interactions, dans vos prières quotidiennes. Et comme de vieilles peaux, elles vont se détacher de vous, ces conditions, elles vont être éliminées. Vous vous développerez et grandirez et vous vous sentirez rafraîchis dans cette nouvelle façon d'être.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem. Je vous aime et je prie pour votre guérison, comme le font de nombreux anges. Que vous puissiez être élevés vers un lieu de joie, libérés de toute condition qui n'est pas de l'Amour. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

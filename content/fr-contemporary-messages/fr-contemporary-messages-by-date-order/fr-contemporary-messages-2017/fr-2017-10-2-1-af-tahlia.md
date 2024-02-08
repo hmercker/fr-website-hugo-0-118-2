@@ -9,7 +9,7 @@ weight:
 ---
 ### Orientations sur les préparations pour perfusion intraveineuse
 
-Tahlia - reçu par Al Fike le 2 Octobre 2017, Gibsons, Colombie-Britannique, Canada
+Tahlia<sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 2 Octobre 2017, Gibsons, Colombie-Britannique, Canada
 
 Dieu vous bénisse frères et sœurs, je suis Tahlia. Je veux que vous sachiez que je vous aiderai dans vos efforts en Voix Directe car j'ai des dons qui aideront à soutenir les énergies nécessaires à cet effort. Il est important que vous reconnaissiez qu'il existe de nombreuses ressources énergétiques disponibles pour chacun d'entre vous. En vous déplaçant dans le monde, vous pouvez être un canal de plusieurs de ces bénédictions, car il y a une multitude de bénédictions disponibles pour chaque âme qui désire être un canal de guérison, de confort et d'amour pour les autres.
 
@@ -32,3 +32,17 @@ Oui, mes bien-aimés, vous le désirez et cela se produit en ce moment même. A 
 Ainsi, alors que vous grandissez dans cette Lumière, nous, en esprit, en tant qu'anges Célestes, sommes capables d'avoir un meilleur rapport avec vous, de vous aider et de travailler à travers vous. Nous devenons plus proches parce que la Lumière dans votre âme rend ce rapport possible. Nous sommes vos véritables amis. Nous cherchons à vous apporter l'harmonie pour vous aider dans n'importe quelle lutte que vous pouvez avoir. Comme vous continuez à désirer le changement, nous travaillons avec vous pour effectuer le changement en vous. Dieu fournit ses anges pour votre bénéfice. De nombreuses bénédictions en découlent, comme vous le savez bien. Je suis heureux d'être l'un de ces anges qui vous assisteront et travailleront avec vous dans cette grande entreprise pour le salut de l'humanité.
 
 Âmes bien-aimées, je vous aime. Je suis Tahlia. Je fus une prêtresse inca. J'ai eu de puissants dons de guérison et de clairvoyance. Je continuerai à venir et à aider dans ce travail que vous faites. Je vous aime. Vous êtes beaux, chacun d'entre vous. Vous êtes beaux. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> Tahlia s'est également exprimé dans les messages suivants :  [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Tahlia | [Semer les graines de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-1-1-af-tahlia/) | 1 Décembre 2016
+Tahlia | [Connaître Dieu dans son grand fleuve d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-17-2-af-tahlia/) | 17 Mars 2018
+Tahlia | [Ce qui n'est pas en harmonie avec la création de Dieu s'écroulera](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-3-10-1-af-tahlia/) | 10 Mars 2019
+
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

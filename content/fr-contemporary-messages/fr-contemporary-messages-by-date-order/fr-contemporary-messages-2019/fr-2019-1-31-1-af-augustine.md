@@ -28,3 +28,7 @@ Pour vous, âmes bien-aimées, alors que vous continuez à enseigner la manière
 Dieu vous utilisera, mes amis bien-aimés, de bien des façons. Dieu ouvrira beaucoup de portes pour que vous puissiez effectivement exprimer la Vérité de l’Amour de Dieu par votre présence, par votre amour pour eux, et peut-être par votre témoignage d’Amour partagé avec eux. Oui, de nombreuses opportunités existent. Beaucoup sont réceptifs à cette Vérité bien qu’ils puissent avoir des barrières mentales et des malentendus sur le chemin, l’âme aspire encore à Dieu et l’âme, à un certain point, atteindra sa marque et forgera cette connexion qui permettra l’afflux d’Amour dans son âme et apportera la transformation, que l’âme aspire à, dans cet échange avec Dieu.
 
 Que Dieu vous bénisse, âmes bien-aimées. Continuez à éveiller votre âme, imprégnez votre âme de Son Amour qui fait de vous un puissant phare de la Vérité. Votre enseignant Augustin continue de vous aider dans ce périple. Que Dieu vous bénisse, âmes bien-aimées.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

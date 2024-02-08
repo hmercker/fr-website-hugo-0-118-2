@@ -126,7 +126,7 @@ Augustin | [L'expression de l'amour par le service est importante](/fr-contempor
 Faith | [Qu'est-ce que la foi ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-23-1-af-faith/) | 23 Septembre 2017
 Seretta Kem | [Les préparatifs de l'esprit se poursuivent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-24-1-af-seretta-kem/) | 24 Septembre 2017
 Jésus | [C'est un chemin béni](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-24-2-af-jesus/) | 24 Septembre 2017
-Lotus Blossom | [Le salut du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-24-3-af-lotus-blossom/) | 24 Septembre 2017
+Fleur de Lotus | [Le salut du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-24-3-af-lotus-blossom/) | 24 Septembre 2017
 Augustin | [Les dons de la connaissance de la vérité de l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-25-1-af-augustine/) | 25 Septembre 2017
 Jésus | [Tout est fait dans l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-25-2-af-jesus/) | 25 Septembre 2017
 St Matthieu | [L’éveil de l’âme donne lieu à l’harmonisation de l’esprit matériel et de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-25-3-af-st-matthew/) | 25 Septembre 2017
@@ -136,7 +136,7 @@ Joseph | [Vous préparez une place pour un grand nombre](/fr-contemporary-messag
 Marie | [Dieu se sert de vous comme d'un canal](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-27-2-af-mary/) | 27 Septembre 2017
 Samuel | [Les dons et le but de chaque âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-27-3-af-samuel/) | 27 Septembre 2017
 Judas | [Ce ne sont pas les mots qui comptent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-28-1-af-judas/) | 28 Septembre 2017
-White Cloud | [L'amour réveillera votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-28-2-af-white-cloud/) | 28 Septembre 2017
+Nuage Blanc| [L'amour réveillera votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-28-2-af-white-cloud/) | 28 Septembre 2017
 Augustin | [Quelques discussions sur la médiumnité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-30-1-af-augustine/) | 30 Septembre 2017
 Josué | [Réduire les différences avec amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-30-2-af-joshua/) | 30 Septembre 2017
 Seretta Kem | [Orientations sur les préparations pour perfusion intraveineuse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-1-1-af-seretta-kem/) | 1 Octobre 2017
@@ -202,7 +202,7 @@ Augustin | [Levez les yeux vers Dieu](/fr-contemporary-messages/fr-contemporary-
 Augustin | [Croissance de l'âme et médiumnité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-9-1-af-augustine/) | 9 Novembre 2017
 Confucius | [Bénédiction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-9-2-af-confucius/) | 9 Novembre 2017
 Martin Luther | [Harmonie de l'esprit et de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-11-1-af-martin-luther/) | 11 Novembre 2017
-White Cloud | [Dites la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-11-2-af-white-cloud/) | 11 Novembre 2017
+Nuage Blanc | [Dites la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-11-2-af-white-cloud/) | 11 Novembre 2017
 Marie | [Les porteurs d'eau de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-11-3-af-mary/) | 11 Novembre 2017
 St Matthieu | [Dieu est amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-12-1-af-st-matthew/) | 12 Novembre 2017
 Seretta Kem & Jésus | [Parler de collaboration à propos de la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-12-2-af-seretta-kem-jesus/) | 12 Novembre 2017
@@ -292,7 +292,7 @@ Seretta Kem | [Connaître le battement de vos cœurs](/fr-contemporary-messages/
 Keea Atta Kem | [Dieu dépose un grand ruban de lumière devant vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-15-5-af-keea-atta-kem/) | 15 Décembre 2017
 Augustin | [Bénédictions à tous ceux qui ont apporté leur aide à cette entreprise](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-15-6-af-augustine/) | 15 Décembre 2017
 St Matthieu | [La volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-15-7-af-st-matthew/) | 15 Décembre 2017
-Lotus Blossom | [La voix directe se manifestera pour chacun d'entre vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-15-8-af-lotus-blossom/) | 15 Décembre 2017
+LFleur de Lotus | [La voix directe se manifestera pour chacun d'entre vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-15-8-af-lotus-blossom/) | 15 Décembre 2017
 Martha | [Un nouveau départ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-15-9-af-martha/) | 15 Décembre 2017
 Élies & Ésaïe | [Les âmes que vous attirerez pour travailler ensemble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-16-1-af-elijah-isaiah/) | 16 Décembre 2017
 Jésus | [Message de clôture pour le groupe Voix Directes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-17-1-af-jesus/) | 17 Décembre 2017
@@ -303,7 +303,6 @@ Seretta Kem | [Lutter contre le mal](/fr-contemporary-messages/fr-contemporary-m
 Goldie | [Dansez sur la musique de l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-31-1-af-goldie/) | 31 Décembre 2017
 Samuel | [Message pour la Nouvelle Année](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-31-2-af-samuel/) | 31 Décembre 2017
 
-[Lien vers les messages de l’année 2018](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
-<br>
-<br>
-[Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

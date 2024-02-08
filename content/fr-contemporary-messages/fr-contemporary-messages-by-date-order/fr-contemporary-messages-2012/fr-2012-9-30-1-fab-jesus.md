@@ -15,4 +15,6 @@ C’est moi, Jésus.
 
 Toutes les puissances de l’enfer ne peuvent pas résister au Royaume Céleste. Les esprits des ténèbres, qui sont le véritable pouvoir derrière leurs victimes mortelles, le savent tous. Cela ne les arrête pas car c’est leur nature d’encourager le mal. Mais ils voient notre armée se masser, et ils désespèrent.
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -28,3 +28,8 @@ Oui, comme vous le savez bien, c’est très simple. C’est votre geste d’amo
 Mes amis, votre travail est donc grand et sans fin. Son expression actuelle est simple et puissante et facilement exécutée, alors ne compliquez pas les choses, mes amis bien-aimés, et ne vous inquiétez pas des exigences de résultats, des possibilités ou des problèmes qui peuvent en découler, car oui, la condition humaine continuera à se manifester avec ceux avec qui vous êtes. Cela exige un certain détachement qui est surmonté par l’amour et vous, mes chers amis, mes âmes bien-aimées, avez toutes les capacités, la lumière et la force pour le faire avec grâce et beauté. Dieu utilise chacun de ses magnifiques canaux d’amour de bien des façons, de bien des façons.
 
 Que Dieu vous bénisse mes amis et vous garde toujours dans son amour. Je suis proche. Beaucoup sont proches qui marchent avec vous dans la lumière. Le Maître marche avec vous mes amis. Beaucoup marchent avec vous. Que Dieu vous bénisse. Je suis Michael. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

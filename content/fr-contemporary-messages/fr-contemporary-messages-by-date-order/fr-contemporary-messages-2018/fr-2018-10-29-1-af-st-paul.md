@@ -28,3 +28,7 @@ Alors que vous êtes assis ici dans ce cercle et que vous priez pour ce don d’
 Vous êtes invités, mes bien-aimés, à parcourir ce Chemin Divin vers Dieu, une invitation qui vous a été faite à maintes reprises. Beaucoup d’entre vous ressentent le beau toucher de l’Amour de Dieu dans leur âme. Vous sentez l’atmosphère autour de vous chargée de cet Amour, chargée de paix, chargée de guérison. Toutes ces réalités viennent avec ce don d’Amour, toutes ces choses sont à votre disposition sans restriction et toutes peuvent venir en grande abondance, en grande abondance et profondément ressenties dans l’âme. Cherchez ce cadeau, mes chers amis, nous vous en supplions. Je vous dis que chaque moment passé à désirer cette bénédiction vous apportera des récompenses insondables, alors que vos âmes s’ouvriront et émergeront dans cette lumière et cet éveil de l’Amour de Dieu en vous.
 
 Que Dieu vous bénisse, mes bien-aimés, je suis Paul et je suis heureux de vous parler ce soir. Que vos voyages vers Dieu soient rapides et pleins de merveilles et de grande joie. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés, mon amour est avec vous, que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

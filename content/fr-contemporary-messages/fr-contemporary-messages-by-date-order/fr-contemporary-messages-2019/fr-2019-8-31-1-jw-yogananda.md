@@ -20,3 +20,7 @@ Bien sûr, vous pouvez avoir votre propre version de ceci. Il n’y a même pas 
 Cet effort que vous faites ici a des ramifications dans le monde entier, dans le treillis de Lumière, dans la bulle d’Amour. Alors quand ces pensées arrivent, si vous ne pouvez pas les disperser, parlez à Dieu. Élevez vos pensées vers Dieu afin que vos pensées soient transformées en un lieu spirituel plus élevé où alors l’âme prend le dessus sur le mental et vous êtes avec nous ici dans la Grâce et l’Amour de Dieu. Permettez aux doutes qui persistent de se disperser dans l’amour. Où que vous soyez dans votre voyage, sachez que l’Amour est le plus élevé, et l’Amour de Dieu est certainement le summum. Ce n’est pas seulement votre privilège, mais si vous le souhaitez, votre destin si vous le choisissez.
 
 Nous sommes avec vous. Beaucoup d’entre nous sont ici aujourd’hui, avec chacun d’entre vous, alors que Dieu apporte l’Amour dans chaque âme. Vous avez notre guidance et notre amour. Nous sommes reconnaissants d’être avec vous et nous vous aimons tellement. Mon amour et mes bénédictions à tous. Que notre très gracieux Créateur bénisse ce lieu et chaque âme et guérisse chaque blessure, chaque mal dans l’Amour. Je vous aime et je suis votre ami, Yogananda.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

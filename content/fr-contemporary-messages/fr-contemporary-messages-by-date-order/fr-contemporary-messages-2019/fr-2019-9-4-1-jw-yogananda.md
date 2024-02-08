@@ -16,3 +16,7 @@ Je suis ici votre frère et ami dans l’amour de Dieu, Yogananda. Je souhaite f
 Cela est utile même dans vos activités quotidiennes dans le monde, pour permettre à cette guidance de l’âme de vous diriger dans vos relations avec les autres, dans les questions de santé, dans la créativité et l’écriture ou la musique. Car le mental errera où il voudra, mais l’âme aspirera toujours à ce qui est Lumière et Amour. Alors, élevez-vous. Permettez-vous d’être dans le monde et non dans le monde et soyez au-dessus de la mêlée.
 
 Si je ne sentais pas que ce travail que vous faites, que nous faisons tous, est important, je ne viendrais pas vous parler, pas plus que tous les Esprits Célestes qui vous rendent visite. Je ne veux en aucun cas vous reprocher d’être humain, mais seulement vous encourager et vous inspirer. Que la Lumière de Dieu, que l’Amour de Dieu, que la Grâce de Dieu, que la Paix de Dieu soient avec vous tous et vous bénissent. Mon amour à tous. Je suis Yogananda.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

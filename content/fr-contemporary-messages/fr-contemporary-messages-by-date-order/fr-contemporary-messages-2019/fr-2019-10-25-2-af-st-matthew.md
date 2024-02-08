@@ -20,3 +20,7 @@ Sachez que nous continuerons à orchestrer ces moments où nous sommes avec vous
 Tant de choses vous attendent, frères et sœurs bien-aimés. Tant de choses peuvent venir de vos efforts communs et de votre désir de servir et d’être dans le grand courant de la Volonté de Dieu. Ainsi, vous trouverez votre chemin sur cette voie qui ouvrira des portes, des portes surprenantes, des opportunités, imprévues et inconnues pour le moment. Pourtant, beaucoup de choses peuvent venir avec la simple foi et le désir dans votre âme d’être proche de Dieu et de recevoir Son Essence. Tant de choses vont venir et se manifester, apportant des changements, des opportunités, de plus grandes bénédictions, des guérisons, une grande paix et une grande joie.
 
 Que Dieu vous bénisse de toutes ces façons, âmes bien-aimées. Je suis votre frère Matthieu et je suis proche de vous tous. Sachez que je suis proche de vous tous. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

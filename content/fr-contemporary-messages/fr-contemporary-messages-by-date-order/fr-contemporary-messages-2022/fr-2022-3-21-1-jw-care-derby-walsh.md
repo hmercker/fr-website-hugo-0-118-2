@@ -18,3 +18,7 @@ Lorsque vous marchez dans ce monde et que, à tout moment, vous devenez conscien
 Soyez en paix et envoyez votre paix à tous, votre amour à ceux qui en ont tant besoin, votre lumière dans les ténèbres, votre chant dans la cacophonie et le vacarme. Puissiez-vous élever ce monde comme Dieu vous a élevé.
 
 Avec tout mon amour, je me retire pour vous rejoindre dans l’Amour de Dieu dans le sanctuaire et la sainteté de ce cercle. Je suis Care, ta sœur dans le Christ.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

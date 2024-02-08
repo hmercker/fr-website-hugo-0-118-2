@@ -31,7 +31,8 @@ Je souhaite que tu acceptes ce cadeau, non pas avec réserve mais avec la joie q
 
 Je te remercie pour cette opportunité et je suis ton frère et ami, Joseph, un vrai disciple de Jésus, Maître des Cieux Célestes et notre frère et fils de Dieu bien-aimé.
 
-[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+### [**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

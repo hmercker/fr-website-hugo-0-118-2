@@ -41,3 +41,7 @@ Que Dieu vous bénisse, mes amis. Je suis Seretta Kem et je vous aime. Que Dieu 
 <small>
 
 1. <large id="f1"> Cette croyance est malheureusement assez répandue et pratiquée par des gens à qui l'on a enseigné qu'ils doivent personnellement libérer chaque « émotion » négative ou erreur afin de commencer ce processus de réception de l'Amour Divin. Comme nous le verrons dans ce message, c'est tout simplement faux. Mais ce qui est vrai, c'est que l'identification et la libération peuvent accélérer la guérison. Et que ceux qui choisissent de s'accrocher aux erreurs ralentiront leur progression.[↩](#a1)
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

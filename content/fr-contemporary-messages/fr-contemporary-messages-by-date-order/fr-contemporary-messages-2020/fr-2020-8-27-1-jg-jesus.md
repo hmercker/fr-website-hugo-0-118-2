@@ -35,3 +35,7 @@ Je suis Yeshua. Je continuerai bientôt ce message.
 <small>
 
 1. <large id=”f1”> Le message précéedent est disponible [ici](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-18-3-jg-jesus/).[↩](#a1)
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

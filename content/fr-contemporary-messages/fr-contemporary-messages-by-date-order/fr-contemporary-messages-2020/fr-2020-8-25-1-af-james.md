@@ -43,3 +43,7 @@ Que Dieu vous bénisse, mes bien-aimés. Je suis James. Mon amour est avec vous.
 <small>
 
 1. <large id=”f1”> Il convient de rappeler que Jacques était un des frères de Jésus.[↩](#a1)
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

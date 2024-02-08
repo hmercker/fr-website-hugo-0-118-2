@@ -18,3 +18,7 @@ En tant qu’artiste, j’encourage ceux d’entre vous qui ont le don de l’é
 Alors la joie, le bonheur, l’émerveillement, la gloire de l’amour que vous avez, apportez là au monde, ce monde qui est dans les ténèbres et vous savez que vous n’êtes pas seul, vous êtes nombreux dans le monde. Ils peuvent parler des langues différentes, ils peuvent avoir une culture différente, mais ils peuvent chercher et prier pour se relier à Dieu et à Son Amour, ne pas se décourager, mais propager cette lumière que vous êtes si chanceux d’avoir. Cette vérité que je ne connaissais pas sur terre et dont je sais maintenant que vous êtes bénis. Je suis honoré d’être parmi vous en ce jour, croyez-le ou non. Donc, si c’est votre désir de faire briller la lumière dans l’obscurité, vous avez beaucoup de soutien.
 
 Souvenez-vous que je sais que vous êtes aimé plus que vous ne le savez, mais pas plus que vous ne pouvez le ressentir. Merci de m’avoir permis de venir. Je vous soutiendrai au mieux de mes possibilités et vous savez que vous avez la compagnie des anges Célestes qui transforment les âmes. Comment pouvez-vous le manquer. Allez et ayez confiance. Profitez de tout mon amour. Je suis Charles.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

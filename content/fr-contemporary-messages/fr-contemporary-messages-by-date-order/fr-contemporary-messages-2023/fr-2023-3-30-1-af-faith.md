@@ -16,3 +16,7 @@ Je viens aussi. Je viens vous soutenir. Je viens être avec vous dans la prière
 Que Dieu vous bénisse bien-aimés.
 
 Faith vous aime.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

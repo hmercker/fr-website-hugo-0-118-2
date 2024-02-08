@@ -44,3 +44,7 @@ Alors, mes bien-aimés, marchez dans la Lumière. Maintenez vos pratiques de pri
 Vous trouverez votre chemin. Oui, ce ne sera peut-être pas le chemin le plus droit, mais vous avancerez, vous progresserez dans la Lumière et vous grandirez dans l’Amour. Cela doit être dû à la puissance de l’Amour dans vos âmes, qui vous pousse en avant. Le toucher de Dieu est sur vous, mes bien-aimés, vous encourageant à aller de l’avant. Vous continuez à le désirer et à être sur ce chemin vers l’unification avec Dieu.
 
 Que Dieu vous bénisse. Je suis Matthieu et je vous aime. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

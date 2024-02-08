@@ -30,3 +30,8 @@ Bien-aimés, profitez de votre voyage éternel vers Dieu. Arrêtez-vous un insta
 J’espère que j’ai touché vos cœurs et vos âmes avec mes paroles bien-aimées, car j’aime venir parler, partager, enseigner et encourager mes frères et sœurs sur ce plan terrestre car moi aussi, j’ai vécu sur terre. Alors, je comprends vos luttes et je ressens une grande joie d’être douée pour venir vous parler et vous aider à comprendre un peu ce grand don de l’Amour de Dieu, le plus grand don disponible pour l’humanité dans tout l’univers. Buvez profondément de ces eaux, mes bien-aimés et cherchez souvent. Soyez dans les bras de votre Créateur bien-aimé qui vous nourrira et vous comblera, âme, corps et esprit.
 
 Que Dieu vous bénisse, je suis Fleur de Lotus et je vous aime, que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

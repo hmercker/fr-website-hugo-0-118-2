@@ -36,3 +36,7 @@ Ne gaspillez pas votre temps, mais faites des efforts dans la prière et la réf
 Sachez que toutes les ressources, toutes les capacités, le pouvoir et la beauté de la touche de guérison de Dieu sont avec vous. Un grand effort est fait et vous devez répondre à cet effort vous-mêmes sur le chemin que vous avez choisi et sur lequel vous marchez. C'est à vous d'être dans la lumière, de marcher dans la vérité, de vous libérer de tout ce qui n'est pas de ce beau cadeau de la vie que Dieu vous a donné dans les voies de la lumière.
 
 Que Dieu vous bénisse, âmes bien-aimées. Votre enseignant, Augustin, continue à vous assister dans votre éducation, à vous aider lorsque vous luttez dans la vie. Sachez que je suis toujours avec vous et que je continuerai avec vous ce grand voyage vers Dieu. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse. Augustin vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

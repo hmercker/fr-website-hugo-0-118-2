@@ -25,4 +25,6 @@ Merci mes amis d’être de tels phares. Il ne fait aucun doute qu’il y aura d
 
 Merci de m’avoir laissé vous parler aujourd’hui. Au revoir pour le moment.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014)
+### [**Lien vers les messages des années 2014**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

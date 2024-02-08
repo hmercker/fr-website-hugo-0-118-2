@@ -18,3 +18,7 @@ Suivez votre cœur et s’il est troublé, permettez à ce trouble de s’éleve
 Il y en a beaucoup ici qui sont assez sérieux. Les événements du monde sont si dramatiques ; les changements se produisent. Je vous le dis, mes chers. Soyez sérieux au sujet de votre bonheur. Chantez un bruit joyeux à Dieu. Marchez dans la lumière de l’amour. Apportez le cadeau de votre amour et de vos rires, car même un sourire change l’atmosphère.
 
 Et enfin, je dis, restez dans la joie. Permettez à votre âme de s’ouvrir à tout moment. Permettez à votre cœur de chanter et de danser car tout est vraiment bien dans l’amour de Dieu. Avec tout mon amour et mes bénédictions, et les salutations de nous tous ici dans les cieux Célestes, je vais me joindre à vous dans cette belle prière. Je suis votre sœur dans l’Amour de Dieu. Je suis Care. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

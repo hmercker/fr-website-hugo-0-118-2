@@ -18,3 +18,7 @@ Lorsque vous rentrerez chez vous, si vous ressentez le besoin de vous retirer da
 Merci pour les moments que vous avez pris dans vos vies, pour écouter votre guidance et pour être dans ce lieu. Sachez qu'il y a beaucoup plus qui s'est passé que ce que vous pouvez voir avec vos yeux. Vous avez franchi la porte, plantant des graines, embrassant des âmes et faisant la volonté de Dieu. Ne portez pas de jugement si vous sentez que vous n'avez pas établi de liens solides en ce moment. Laissez les choses se dérouler et observez, observez comment l'orchestration se jouera.
 
 Que Dieu bénisse chacun d'entre vous, mon amour est avec vous. Je suis Fleur de Lotus, que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

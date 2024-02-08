@@ -26,3 +26,7 @@ Ne repoussez pas ceux qui cherchent à être connectés à vous de cette manièr
 La Vérité vient de cette façon, âmes bien-aimées. La Vérité vient avec un toucher, un regard d'amour, une étreinte, un signe de tête, un contact. De bien des façons, Dieu vous utilise et vous sentez le flux de Son Amour à travers vous. Que cela continue et s'intensifie. Puissiez-vous être ouverts et remplis d'un tel sentiment d'amour pour chaque âme de ce monde, que ce soit la conscience prédominante de votre être, que vous puissiez ressentir de l'amour pour chaque enfant de ce monde. C'est vraiment être un canal pour l'Amour de Dieu, un canal qui est clair, large et beau.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Jean et mon amour est avec vous. Nous sommes liés dans ce grand voyage vers l'union avec Dieu. Que Dieu vous bénisse et vous garde toujours. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

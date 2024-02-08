@@ -26,3 +26,7 @@ En effet, le travail continue. Chacun de vous sera appelé à sa manière à fai
 Que ses bénédictions d’Amour continuent de se déverser dans votre âme et de vous envelopper de Lumière. Que sa grâce élimine toutes les barrières et difficultés de votre vie. Avec cette grâce, guérison de vos corps et de votre esprit, guérison de votre âme et de votre esprit, éveil de tout ce qui est vous et de tout ce que Dieu a créé et signifie pour vous d’être et de s’exprimer dans toute sa beauté, tout son émerveillement. Vous êtes aimés, âmes bien-aimées. L’humanité toute entière est aimée.
 
 Puissiez-vous connaître et ressentir cet amour, être élevé par cet amour. Que toute la sagesse et la vérité qui accompagnent l’afflux de cet amour dans vos âmes vous éveillent, chacune de vos parties, et vous apportent une grande harmonie, âmes bien-aimées. Que Dieu vous bénisse dans votre voyage vers l’union avec le Créateur. Vous êtes aimé et vous êtes béni. Que Dieu vous bénisse. Je m’appelle André et je vous aime. Que Dieu vous bénisse, âmes bien-aimées.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

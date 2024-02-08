@@ -21,4 +21,6 @@ Vous avez à l’esprit la sagesse de votre défunt père, selon laquelle *« po
 
 Cependant, ce processus ne se déroulera pas grâce à l’humeur excitée du prédicateur, mais comme je l’ai dit.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

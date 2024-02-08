@@ -17,7 +17,23 @@ Cette âme charmante, humble et désireuse de servir, s’est ouverte au milieu 
 
 Que tous ceux qui lisent ce beau livre ne le digèrent pas seulement avec leur mental, mais qu’ils gardent le message dans leur cœur et permettent à leurs âmes de recevoir le cadeau qui leur est destiné : l’Amour de Dieu, Sa guidance et Sa guérison. Avec tout mon amour, mes bénédictions et ma gratitude, je suis votre frère et ami dans l’Amour de Dieu.
 
-Je suis Kahlil Gibran. Que Dieu vous bénisse.
+Je suis Kahlil Gibran.<sup id="a2">[2](#f2)</sup> Que Dieu vous bénisse.
 <small>
 
 1. <large id=”f1”> La version originale de ce livre [peut être consulté ici](https://new-birth.net/other-stuff/books-we-love/books-other/#love_creation/) ou [sur son site internet](https://fortheloveofhisowncreation.ca/). La version française [peut-être lue ici](https://lanouvellenaissance.files.wordpress.com/2021/11/pour-lamour-de-sa-propre-creation.pdf).[↩](#a1)
+
+2. <large id="f2"> Kahlil Gibran s'est également exprimée dans les messages suivants :  [↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+--|---|---
+Kahlil Gibran | [Poésie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-3-19-1-ar-kahlil-gibran/) | 19 Mars 1999
+Kahlil Gibran | [Le cœur spirituel reçoit sa vie de la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-27-3-jw-kahlil-gibran/) | 27 Avril 2020
+Kahlil Gibran | [Chaque fois que vous touchez une autre âme, c’est le cadeau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-3-1-jw-kahlil-gibran/) | 3 Mai 2020
+Kahlil Gibran | [Mise à l'honneur du livre «Pour l'amour de sa création»](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-30-1-jw-kahlil-gibran/) | 30 Août 2020
+Kahlil Gibran | [Continuer à avancer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-19-1-jw-kahlil-gibran/) | 19 Octobre 2020
+Kahlil Gibran | [Que votre amour soit un baume de guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-29-1-jw-kahlil-gibran/) | 29 Janvier 2021
+Kahlil Gibran | [Le désir de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-21-3-jw-kahlil-gibran/) | 21 Mai 2022
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

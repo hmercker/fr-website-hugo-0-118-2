@@ -24,4 +24,6 @@ Au moment où je l’ai rencontrée en tant qu’esprit, elle était déjà sort
 
 1. <large id="f1"> **Billy Wilder** (22 Juin 1906 – 27 Mars 2002) était un réalisateur américain d’origine Austro-Hongrois, scénariste, producteur, artiste et journaliste dont la carrière s’est déroulée sur une période de 50 années et plus de 60 films. Il est considéré comme un des plus brillants et versatile réalisateur de l’âge d’or d’Hollywood. Wilder est une des cinq personnes à avoir reçu l’Academy Awards en tant que producteur, réalisateur et metteur en scène for le film (L’appartement). (Source Wikipedia) [↩](#a1)
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

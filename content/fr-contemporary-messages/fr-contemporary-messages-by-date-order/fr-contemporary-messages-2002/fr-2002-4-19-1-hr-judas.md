@@ -98,4 +98,6 @@ Ton frère en esprit, Judas.
 
 1. <large id="f1"> Ce commentaire est aussi valable pour les passages de la bible se référant à l’enfer et à sa durée.[↩](#a1)
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)
+### [**Lien vers les messages des années 2002**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

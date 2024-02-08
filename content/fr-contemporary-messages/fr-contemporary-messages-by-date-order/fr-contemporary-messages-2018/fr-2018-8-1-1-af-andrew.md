@@ -18,4 +18,9 @@ J’étais Juif. Un autre peut avoir été un hindou, un musulman ou un ancien c
 Soyez joyeux dans votre expression unique, âmes bien-aimées. Soyez fidèles à vous-mêmes et à Dieu. De cette façon, tout ce qui vient dans votre arène d’expérience ajoutera quelque chose à votre propre connaissance ou sera sans conséquence et tombera. Mais tout sera accueilli avec amour et acceptation, en respectant les différences de l’humanité et en renforçant les similitudes des qualités de l’âme. Car sous tous les oripeaux se cache la simple vérité, un grand désir de vérité, un grand désir de Dieu. Toute âme qui aspire à cette voie trouvera son chemin, quelle que soit la route qu’elle emprunte, quelle que soit la perspective et l’interprétation qui lui viennent à l’esprit. Ce sont leurs âmes qui les amèneront à la vérité en temps voulu, à Dieu en temps voulu. Telle est la beauté du jardin de Dieu, les nombreuses fleurs qu’Il y a plantées, les belles âmes qui émergent, fleurissent et fructifient dans la Vérité et la voie de l’Amour de Dieu, de ses soins et de sa sollicitude jusqu’à l’accomplissement.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre frère André et je te bénis, ma fille bien-aimée, à l’occasion de ton anniversaire. Je t’honore comme la lumière que tu es, qui brille dans le monde.
+
 Que Dieu vous bénisse, mes chéris, que Dieu vous bénisse tous. Je vous aime.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

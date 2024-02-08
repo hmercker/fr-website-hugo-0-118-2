@@ -30,3 +30,7 @@ C'est votre message à l'humanité, mes amis. C'est ce que nous cherchons tous �
 Ainsi, nous atteignons un autre niveau d'apprentissage et d'action dans le monde, alors que vos dons et la force de l'Amour au sein de votre âme commencent à se manifester de ces manières et que vous découvrez de nouvelles choses, de nouveaux potentiels et de nouvelles possibilités qui peuvent venir à travers vous, exprimés par vous. Nous, dans le Royaume Céleste, sommes très excités par cela, de voir vos âmes briller dans l'Amour, vos esprits remplis d'anticipation et de joie. Votre désir est d'accomplir cet objectif et ce but, et vous vous êtes alignés de si belles manières que nous pouvons travailler plus facilement, que vous êtes très réceptifs et que le travail va couler et apporter de merveilleux résultats.
 
 Je vous bénis donc, mes amis, mes âmes bien-aimées, mes étudiants. Je serai avec vous alors que vous continuez dans vos prières et vos efforts ici. Oui, beaucoup sera accompli, beaucoup de bénédictions seront déversées sur vous et l'Amour sera partout. Je suis votre enseignant Augustin. Je vous aime, âmes bénies. Je vous aime tendrement. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

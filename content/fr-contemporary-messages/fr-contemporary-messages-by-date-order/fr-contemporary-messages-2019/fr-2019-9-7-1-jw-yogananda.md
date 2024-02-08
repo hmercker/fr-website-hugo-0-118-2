@@ -20,3 +20,7 @@ Cette Lumière qui entre, qui guérit les afflictions, qui dissout les blessures
 L’Amour de Dieu n’attend que votre ouverture, la transformation de votre âme de la simple image à la Substance et l’Essence même du Créateur, pour ne faire qu’un, pour ressentir cette Lumière et cet Amour. Je vous encourage et vous invite à ce voyage, que vous soyez nouveau ou que vous voyagiez ici depuis longtemps. Nous sommes ensemble, tant d’anges célestes sont ici avec vous en ce moment, dans ce portail de lumière, dans le treillis de l’amour. Dieu vous embrasse, chaque cœur, chaque âme. Soyons tous dans la Lumière et l’Amour du Créateur.
 
 Mon amour et mes bénédictions à tous. Que l’Amour du Créateur nous transforme et bénisse chacun d’entre nous dans ce voyage. Merci de me laisser être ici avec vous, c’est un honneur et un privilège pour moi. Et celui qui reçoit le message, je le remercie également. Que Dieu vous bénisse. Je vous aime. Je suis Yogananda.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

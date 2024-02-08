@@ -18,3 +18,7 @@ Lorsque vous résidez en Sainte Communion avec Dieu, tout est possible. Ayez l�
 Réjouissez-vous dans vos frères et sœurs, dans cette Sainte communion, dans cette communauté bénie, qui s’étend loin dans le monde entier et qui est connectée sur le pont de l’Amour de Dieu vers le royaume Céleste. Prenez courage. Reposez-vous dans l’Amour de Dieu.
 
 Je me retire maintenant et je remercie mon frère d’avoir pris ce message. Et je prie pour une bénédiction pour chacun d’entre vous dans le Saint Amour de Dieu. Je suis Yogananda.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

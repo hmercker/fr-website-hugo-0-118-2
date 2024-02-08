@@ -20,3 +20,7 @@ Lorsque vous êtes en état de grâce, dans l’Amour de Dieu, élevé au-dessus
 Vous savez qu’on dit que si vous souriez, votre corps réagit, il crée des produits chimiques, il guérit, il bénit. Si vous parcourez ce monde sans peur, avec seulement de l’amour, tout changera, tout se mettra en place. Ainsi, malgré toutes les difficultés d’être en paix dans un monde turbulent, et aussi parmi des esprits parfois contrariés qui influencent les autres, lorsque vous restez dans l’Amour de Dieu, rien de tout cela n’a de poids, car vous êtes toujours élevé dans l’Amour Divin, et non seulement cela, mais vous élevez les autres. Cela, mon bien-aimé le sait bien, et il a humblement accepté de m’aider dans mon voyage comme je l’aide maintenant dans le sien et nous tous ici dans le royaume Céleste vous aidons tous. Sachez-le sans aucun doute. Soyez-en conscient de jour comme de nuit. Demandez et vous recevrez. Frappez et la porte s’ouvrira.
 
 Avec tout mon amour et mes bénédictions de la part de nous tous ici pour vous tous, je prendrai du recul et je vous remercie pour ce temps. Cela a été mon plaisir. Que Dieu vous bénisse avec un grand afflux de Son amour. Je suis Care.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

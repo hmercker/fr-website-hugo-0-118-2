@@ -24,3 +24,7 @@ Il en sera ainsi, âmes bien-aimées, alors que vous marchez dans la Lumière, l
 Père, bénis ces âmes qui continuent à cheminer vers Toi. Balaie tout ce qui se trouve sur leur chemin et les éloigne de Toi. Embrasse-les pleinement alors qu'elles continuent à chercher l'expiation.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre enseignant Augustin. J'ai parcouru de nombreux kilomètres avec beaucoup d'entre vous, mes bien-aimés, et je continuerai à voyager avec vous tous alors que vous recherchez la Vérité et l'union avec Dieu. Que Dieu vous bénisse. Dieu vous bénisse, mes bien-aimés et je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

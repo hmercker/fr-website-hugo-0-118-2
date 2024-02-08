@@ -25,4 +25,6 @@ Et je veux dire, avec toute l'emphase, la vigueur et la passion dont j'ai fait p
 
 Quel merveilleux plan de salut ! En effet, bien que ce soit strictement la Grâce de Dieu qui accorde l'Amour, il est toujours complètement laissé au libre arbitre des esprits, qui déterminent leur progrès par le degré de leur prière pour ce merveilleux Amour. Je suis bien conscient que cela contredit le Christianisme orthodoxe. Qu'il en soit ainsi.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

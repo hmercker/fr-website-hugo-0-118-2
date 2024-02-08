@@ -22,3 +22,7 @@ Comme mon bien-aimé le sait, j’ai passé de nombreuses heures par jour en pri
 Alors restez dans la Lumière, mes amis et mes bien-aimés. Laissez vos soucis s’en aller. Permettez à Dieu de diriger vos vies afin que vous puissiez être dans le flux. Ne vous souciez pas des problèmes de ce monde. Permettez-vous simplement d’être une bénédiction pour tous. Aimez tout le monde. Cela apportera le changement que vous souhaitez tant, non seulement en vous-même mais dans ce monde.
 
 Que Dieu vous bénisse tous. Mon amour à vous tous. Et à mon bien-aimé, merci. Que Dieu vous bénisse tous. Je vous aime. Je suis Care.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

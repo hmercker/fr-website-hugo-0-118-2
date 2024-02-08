@@ -22,3 +22,7 @@ Je demande que vous puissiez connaître les bénédictions de Dieu et les dons q
 Je souhaite sincèrement que vous vous entraidiez sur ce chemin et que vous recherchiez l’aide de ceux qui sont plus avancés et qui peuvent vous aider dans la lumière. Le monde offre de nombreuses occasions de rechercher la vérité. C’est à vous de les trouver, en utilisant la loi de l’attraction pour les attirer à vous, et par vos propres efforts pour accélérer les bénédictions qui peuvent venir. Vous trouverez tous votre chemin parce que vous êtes tous des chercheurs de vérité, et donc vous trouverez votre chemin.
 
 Je vous remercie de m’avoir écouté. Je suis maintenant un habitant du Royaume Céleste où l’Amour de Dieu brille dans chaque âme avec une telle magnificence et une telle lumière qu’il m’est difficile de décrire la ressemblance de toute âme qui s’y trouve. Que Dieu vous bénisse mes amis, et que vous puissiez trouver la paix intérieure et le grand Amour de Dieu. Bénédictions à vous tous et que l’Amour atteigne pleinement vos cœurs. Que Dieu vous bénisse. Je suis Yogananda. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

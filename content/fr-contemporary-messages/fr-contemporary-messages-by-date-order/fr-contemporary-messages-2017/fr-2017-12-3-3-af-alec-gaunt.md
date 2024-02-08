@@ -18,3 +18,7 @@ Je suis maintenant un habitant du Royaume céleste. J'ai trouvé la Vérité de 
 Si c'est aux Cieux Célestes que vous aspirez, alors priez Dieu pour recevoir la bénédiction de Son Amour Divin et elle vous sera donnée en fonction de vos efforts et de vos prières. Si vous aspirez à aller dans un bel endroit dans ce monde de l'esprit, soyez une âme bonne et morale. Nous savons tous ce qui est juste. Nous savons tous que nos actions doivent être pour le bien de tous. Utilisez ce sens en vous qui sait ce que vous devez faire pour apporter l'harmonie à votre vie et à ce monde.
 
 Que Dieu vous bénisse, mes amis, et que vous puissiez connaître votre véritable cœur, cet endroit en vous qui aspire à la Lumière. Dieu vous bénira et mettra Sa Main sur vous et les esprits et les anges de la Lumière viendront près de vous, vous assistant dans votre croissance spirituelle dans ce monde. Que toutes les bénédictions que Dieu a à vous donner viennent à vous, mes amis. Je vous bénis aussi. Que Dieu vous bénisse, âmes bien-aimées. Je suis Alec. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

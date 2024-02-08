@@ -20,4 +20,6 @@ Mais vous devez savoir que mon existence spirituelle a été très malheureuse. 
 
 1. <large id="f1"> **Janis Lyn Joplin** (19 Janvier 1943 - 4 Octobre 1970) était une chanteuse américaine, auteur-compositeur et arrangeur de musique, de Port Arthur, Texas. Elle s'est fait connaître à la fin des années 1960 en tant que chanteuse principale de Big Brother and the Holding Company, puis en tant qu'artiste solo. En 2004, le magazine Rolling Stone a classé Joplin au 46e rang de sa liste des 100 plus grands artistes de tous les temps, et en 2008, elle fut hissée au 28e rang de la liste des 100 plus grands chanteurs de tous les temps. Elle est décédée à l'âge de 27 ans. La cause officielle du décès est une overdose d'héroïne, probablement combinée aux effets de l'alcool. (Source : Wikipedia)[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

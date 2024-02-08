@@ -37,5 +37,8 @@ Ainsi, la petite quantité de la Grâce de l’Amour de Dieu qui se « faufile �
 
 J’écrirai à nouveau sur ce sujet si cela n’a pas satisfait les questions. Je vous aime, tous et chacun, et je vous suis reconnaissant pour ce privilège que vous me donnez d’écrire. Je suis un haut ange céleste et je suis un de vos gardiens célestes, Joseph, le père de Jésus et un adepte de ses enseignements.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+
+### [**Lien vers les messages des années 2000**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

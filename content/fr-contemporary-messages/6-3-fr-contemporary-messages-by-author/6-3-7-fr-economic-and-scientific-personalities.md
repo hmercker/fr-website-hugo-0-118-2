@@ -25,6 +25,12 @@ Albert Einstein | [Vos efforts sont nécessaires pour apporter le changement](/f
 Albert Schweitzer | [Je suis avec vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-16-8-af-albert-schweitzer/) | 16 Novembre 2017
 Allen Dulles | [La mort à l’américaine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-2-19-1-fab-allen-dulles/) | 19 Février 2013
 Allen Dulles | [La mort à l’américaine-2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-2-21-1-fab-allen-dulles/) | 21 Février 2013
+Andrew Carnegie | [Souffrances d’un industriel américain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-3-1-fab-andrew-carnegie/) | 3 Mars 2008
+Andrew Carnegie | [La souffrance d'un industriel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-14-1-fab-andrew-carnegie/) | 14 Avril 2008
+Andrew Carnegie | [La loi morale est exacte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-16-2-fab-andrew-carnegie/) | 16 Avril 2008
+Andrew Carnegie | [La loi morale et le fait de gagner de l’argent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-3-7-1-fab-andrew-carnegie/) | 7 Mars 2009
+Andrew Carnegie | [Le matérialisme d'un industriel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-9-14-1-fab-andrew-carnegie/) | 14 Septembre 2009
+Antony Sutton | [Dieu et l’économie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-4-6-1-fab-antony-sutton/) | 6 Avril 2012
 Archimède | [La dynamique des cercles de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-24-1-af-archimedes/) | 24 Janvier 2021
 Bertrand Russell | [La simplicité de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-24-2-af-bertrand-russell/) | 24 Novembre 2017
 Copernic | [Vous avez toute l’éternité pour apprendre les merveilles de la création de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-9-3-af-copernicus/) | 9 Septembre 2019
@@ -44,6 +50,8 @@ Nelson Rockefeller | [Pas de solution pour les Rockefeller](/fr-contemporary-mes
 Nicolas Tesla | [Nous sommes nombreux à travailler à l'unisson](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-3-4-af-nikola-tesla/) | 3 Novembre 2017
 Nicolas Tesla | [Discours sur l’esprit et le pouvoir de l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-15-2-af-nikola-tesla/) | 15 Mai 2022
 Paul Warburg | [La souffrance d’un financier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-3-19-2-fab-paul-warburg/) | 19 Mars 2012
+Thomas Alva Edison | [Matière et invention dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-11-1-fab-thomas-alva-edison/) | 11 Janvier 2008
+Thomas Alva Edison | [La bonté de Dieu et de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-11-2-fab-thomas-alva-edison/) | 11 Janvier 2008
 Thomas Edison | [Les scientifiques du monde de l'Esprit souhaitent contribuer aux efforts de la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-3-3-af-thomas-edison/) | 3 Novembre 2017
 Thomas J. Watson | [Thomas J. Watson et les nazis](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-5-24-2-fab-thomas-j-watson/) | 24 Mai 2011
 Walter Teagle | [Commerce avec les Nazis](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-5-1-fab-walter-teagle/) | 5 Décembre 2014

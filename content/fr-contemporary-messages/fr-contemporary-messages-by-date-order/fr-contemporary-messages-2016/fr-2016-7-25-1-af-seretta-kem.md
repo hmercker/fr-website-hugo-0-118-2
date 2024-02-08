@@ -30,3 +30,8 @@ Continuez, biens aimés âmes, car tant que vous priez, vous êtes aussi touché
 Et quand vous priez vous êtes en mesure d’être utilisé de façon puissante pour apporter réconfort et guérison à beaucoup, beaucoup d’âmes.
 
 Un acte tellement simple, une réponse si une puissante venant de Dieu et plus votre prière est intense et sincère, plus elle touchera plus d’âmes….
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

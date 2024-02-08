@@ -30,4 +30,6 @@ Orion : « Merci Chef Bzutu. Me voici Orion. C’est en vertu de votre statut de
 
 2. <large id="f2"> Ce sujet  a été particulièrement développé dans un autre texte accessible [par ce lien](/9-fr-topical-subjects/9-6-fr-evolution-or-creation/).[↩](#a2)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

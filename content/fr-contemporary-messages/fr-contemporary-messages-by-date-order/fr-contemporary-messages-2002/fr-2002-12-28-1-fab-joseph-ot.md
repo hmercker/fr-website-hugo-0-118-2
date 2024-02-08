@@ -31,4 +31,6 @@ Il a appris sur la voie de l’Amour Divin et il semble être très intéressé 
 
 Comme il s’est toujours considéré comme un élément de l’ensemble de l’humanité avant d’être Français, il s’est félicité de la possibilité d’être un esprit. En fait, avant que la loi de compensation ait commencé à travailler, il était très heureux de l’absolue démocratie du monde spirituel. Il a d’abord pensé qu’il serait libre de s’adonner à ses plaisirs et loisirs. Ensuite, la loi a commencé à travailler, et il n’y avait aucun soulagement. Mais comme je l’ai dit, ses fausses croyances le quittent peu à peu. Il attribue cela à l’Amour Divin, qu’il n’a trouvé que relativement récemment. Nous sommes tout à fait certains que sa progression s’accélérera.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)
+### [**Lien vers les messages des années 2002**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

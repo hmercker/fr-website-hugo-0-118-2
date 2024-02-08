@@ -18,3 +18,7 @@ Si vous devez être sérieux, et beaucoup d’entre vous le sont, soyez sérieux
 Nous vous demandons à chacun d’entre vous d’être conscient de ce qui se trouve dans votre cœur et des pensées que vous entretenez et de permettre à vos âmes de prendre le pas sur les désirs de l’Amour de Dieu afin que vos cœurs soient dans la joie et que vous puissiez marcher sur cette terre non pas sans compassion et empathie pour la souffrance des affamés, des sans-abri, des marginaux, mais en fait avec une grande compassion et l’amour de Dieu dans vos âmes afin d’apporter la joie même là.
 
 Que Dieu bénisse chacun d’entre vous avec un grand afflux de son amour. Je suis votre frère en Christ, Luc. Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

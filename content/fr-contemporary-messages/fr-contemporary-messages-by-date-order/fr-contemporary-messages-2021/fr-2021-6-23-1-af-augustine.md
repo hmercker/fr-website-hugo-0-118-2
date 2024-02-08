@@ -38,3 +38,7 @@ Que Dieu vous bénisse dans ce voyage, belles âmes lumineuses que vous êtes, e
 Que Dieu vous bénisse. Je suis votre enseignant Augustin et je suis venu pour vous élever et vous encourager, âmes bien-aimées. Que Son Amour continue à couler dans vos âmes, un flot sans fin qui devient un beau récipient de lumière, qui devient toujours plus grand et s’étend et vous englobe et s’étend à partir de vous dans le monde, dans l’univers.
 
 Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -11,7 +11,7 @@ weight:
 
 Inayat Khan  - reçu par Jimbeau Walsh le 20 Février 2023, Nashville, TN, USA.
 
-C’est moi votre frère dans l’Amour de Dieu. Je suis Inayat Khan. Je reviens pour parler des chants et des danses, des arts et de la musique des sphères. Sur le plan terrestre, il existe une grande variété de musique, mais pas une grande variété de musique céleste canalisée par les médiums. Les chansons d’amour sont omniprésentes, elles cherchent l’amour, désespèrent de l’amour perdu, exaltent les joies de l’amour et ainsi de suite.
+C’est moi votre frère dans l’Amour de Dieu. Je suis Inayat Khan<sup id="a1">[1](#f1)</sup>. Je reviens pour parler des chants et des danses, des arts et de la musique des sphères. Sur le plan terrestre, il existe une grande variété de musique, mais pas une grande variété de musique céleste canalisée par les médiums. Les chansons d’amour sont omniprésentes, elles cherchent l’amour, désespèrent de l’amour perdu, exaltent les joies de l’amour et ainsi de suite.
 
 Il y a des chansons que vous appelez le blues et partout dans le monde, ces chansons permettent aux musiciens et aux chanteurs d’exprimer le désir profond du cœur de s’élever au-dessus de ses problèmes. Quel est leur but ? S’élever au-dessus du blues, bien sûr.
 
@@ -24,3 +24,17 @@ Au fur et à mesure que vos vies sont bénies, que vos âmes sont transformées,
 Dans tous les domaines où il y a de l’Amour, il y a de la belle musique et de l’art. À mesure que l’on s’approche des royaumes Célestes, ceux-ci deviennent transcendants, au-delà de tout ce qui existe dans les royaumes physiques. Et dans l’esprit, on découvre que tout a une note et que l’Univers tout entier chante la chanson de la Création sans fin.
 
 Alors, si vous avez le blues, cherchez la chanson, faites-en votre prière, permettez à la musique, à l’art, de toucher votre cœur afin que Dieu puisse toucher votre âme et que vous puissiez être la bénédiction que vous souhaitez être pour le monde. Et c’est ce que vous faites ! Mes chers frères et sœurs, vous avez bien choisi. Que Dieu bénisse chacun de vous de la joie, de la gloire, de la sainteté, de la sécurité et de la paix de son amour. Que Dieu vous bénisse ! Je suis votre frère en Christ dans l’Amour de Dieu, Inayat Khan.
+<small>
+
+1. <large id="f1"> Hazrat Inayat Khan s'est également exprimé lors des messages suivants [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+--|---|---
+Hazrat Inayat Khan | [Gardez une chanson dans votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-9-1-jw-hazrat-inayat-khan/) | 9 Novembre 2021
+Hazrat Inayat Khan | [Gardez un chant dans votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-25-1-jw-inayat-khan/) | 25 Avril 2022
+Hazrat Inayat Khan | [Le chant du cœur et la danse de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-2-1-jw-inayat-khan/) | 2 Mai 2022
+Hazrat Inayat Khan | [Amants et bien-aimés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-9-2-jw-inayat-khan/) | 9 Septembre 2022
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

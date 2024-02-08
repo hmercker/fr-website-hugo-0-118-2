@@ -9,7 +9,7 @@ weight:
 ---
 ### Comprendre vos vraies natures
 
-Confucius - reçu par Al Fike le 16 Juin 2019, Gibsons, Colombie-Britannique, Canada.
+Confucius<sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 16 Juin 2019, Gibsons, Colombie-Britannique, Canada.
 
 Que l'Amour de Dieu vous bénisse, âmes bien-aimées, et vous transporte dans les hauteurs de la Lumière, de la joie et de la paix, en connaissant de manière consciente, le Toucher de Dieu sur vous, en sentant le pouvoir de l'Amour vous élever, vous guérir et vous purifier, âmes bien-aimées. Car vous recherchez la Source la plus élevée, la plus grande bénédiction, le plus bel éveil qui puisse venir à chaque âme. Oui, mes beaux frères bien-aimés, je supervise votre progression. Je viens souvent à vous, vers chacun d'entre vous et beaucoup d'autres, vous encourageant et apportant les bénédictions que je peux donner en tant qu'instrument de Dieu, à ceux d'entre vous qui sont dans le besoin, qui cherchent la Vérité, qui cherchent Dieu. C'est ma bénédiction et mon privilège de vous servir, âmes bien-aimées. Les désirs au sein de vos cœurs, mes frères bien-aimés, vous rapprochent toujours plus de la Vérité, de la Lumière et de l'Amour.
 
@@ -26,3 +26,10 @@ Vous êtes tous appelés par Dieu à changer en vous ces choses qui causent l'in
 Bien-aimés, je vous apporte une bénédiction de paix et de guérison, vous élevant dans la Lumière de la Présence et de la Grâce de Dieu sur vous. Que vos âmes s'ouvrent comme une fleur à Son toucher et à la chaleur de Son Amour, vous amenant à ce lieu de paix profonde, d'amour profond, de joie profonde.
 
 Que Dieu vous bénisse. Je suis Confucius et je vous aime tendrement. Je vous aime tous, mes frères, mes sœurs. Je vous aime tous. Que Dieu vous bénisse. Que Dieu vous bénisse mes bien-aimés.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués  par Confucius sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a1)
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

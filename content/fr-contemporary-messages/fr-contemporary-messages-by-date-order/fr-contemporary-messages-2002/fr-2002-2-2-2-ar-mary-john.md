@@ -33,4 +33,6 @@ Vous n’êtes pas perdus, mes enfants. Vous êtes les saints de Dieu qui accomp
 
 Je vous aime, ma chère famille en Christ. Je suis votre frère, Jean.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)
+### [**Lien vers les messages des années 2002**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

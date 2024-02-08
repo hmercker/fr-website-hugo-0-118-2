@@ -18,3 +18,7 @@ Cette Lumière et cet Amour qui se construiront en vous agiront pour allumer une
 Cherchez ce cadeau et tous les autres cadeaux suivront. Cherchez à connaître votre vrai moi et vous en viendrez à connaître votre propre âme. Dans cette connaissance, vous connaîtrez vraiment Dieu, car votre âme s'ouvre et s'épanouit dans cette Lumière et cet Amour. Les perceptions qui vous permettent, qui vous amènent à la conscience de votre Créateur, s'épanouiront également et vous apporteront la Vérité.
 
 Âmes bien-aimées, soyez dans la Lumière. Cherchez à vous aimer les uns les autres. Cherchez à vous aimer vous-même. Cherchez à être un canal de Lumière dans ce monde. Le monde a besoin de cette Lumière, de cet Amour, de ce don. Puissiez-vous en être un canal pour les autres. Que Dieu vous bénisse. Je suis Matthieu. Je vous transmets mon amour à vous tous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

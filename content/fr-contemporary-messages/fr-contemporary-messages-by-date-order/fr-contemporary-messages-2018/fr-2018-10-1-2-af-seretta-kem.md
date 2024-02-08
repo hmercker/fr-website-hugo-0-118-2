@@ -24,3 +24,7 @@ Bien-aimés, vous continuez à travailler ensemble et vous continuez à découvr
 Vous êtes en effet des âmes bien-aimées bénies et vous continuerez à être dans la faveur et les bénédictions de Dieu. Son Amour pour vous est immense et vous découvrirez chaque jour une autre facette du diamant qu’est Dieu, une autre façon de voir le monde, une autre façon de vous connaître et de connaître Dieu. C’est un voyage sans fin vers la vérité et vers Dieu. Ce que vous avez vécu jusqu’à présent dans votre vie, c’est comme une goutte dans un vaste océan. Tant d’autres choses sont à venir.
 
 Si grand est l’Univers de Dieu, si merveilleuse est votre capacité à le percevoir et à le connaître. Vous vous êtes réveillés, mes bien-aimés, et vous continuerez à ouvrir vos yeux, vos cœurs, vos âmes, vos esprits à une grande perspicacité et à un amour profond. Que Dieu vous bénisse dans ce voyage, mes chers et bien-aimés amis. Je vous aime tellement. Je suis Seretta Kem. Nous serons proches dans ce temps ensemble, très proches en effet. Que Dieu vous bénisse, que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

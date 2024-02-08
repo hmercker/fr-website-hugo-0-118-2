@@ -20,3 +20,7 @@ C’est une conscience, et ainsi, avec votre grande conscience de l’âme, vous
 Avec tout mon amour et mes bénédictions et la protection du Royaume Céleste, que l’Amour de Dieu soit sur vous et transforme vos âmes.
 
 Dans Son Amour, je vous dis adieu pour l’instant, je suis Yogananda.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -21,4 +21,6 @@ Permettez-moi de souligner et d'affirmer que cela ne va pas du tout à l'encontr
 
 Une fois cela accompli, la voie était libre pour affirmer le corps et ses plaisirs d'une manière appropriée. Certes, ce n'était pas l'approche la plus gracieuse, mais votre intention avait un motif pieux.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

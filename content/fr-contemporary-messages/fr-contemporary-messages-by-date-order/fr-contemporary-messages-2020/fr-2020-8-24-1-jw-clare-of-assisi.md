@@ -21,3 +21,7 @@ Je suis Claire d’Assise. Allez avec Dieu.
 <small>
 
 1. <large id="f1"> Il s'agit d'un terme d'affection amusant de Clare à ses trois protégés. On pourrait le comparer à une modification plutôt attachante de la chansonnette pour enfants "Trois souris aveugles". Beaucoup de ces messages de Clare émanent de ce groupe de trois.[↩](#a1)
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

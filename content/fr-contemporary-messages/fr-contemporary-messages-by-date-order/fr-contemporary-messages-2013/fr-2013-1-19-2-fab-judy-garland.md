@@ -38,4 +38,6 @@ Judy Garland | [Les tentatives de suicide de Judy Garland](/fr-contemporary-mess
 Judy Garland | [Judy Garland partage son cœur - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-29-1-fab-judy-garland/) | 29 Octobre 2008
 Judy Garland | [Judy Garland et le spectacle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-3-2-1-fab-judy-garland/) | 2 Mars 2009
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)
+### [**Lien vers les messages des années 2013**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

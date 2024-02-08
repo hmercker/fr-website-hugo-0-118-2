@@ -22,3 +22,7 @@ Les réponses viendront, âmes bien-aimées. Chacun d’entre vous trouvera ses 
 Que Dieu vous bénisse de Son amour. Que vos yeux s’ouvrent. Que les yeux de votre âme, qui peuvent voir tellement plus clairement, tellement plus profondément, tellement plus que ce que votre esprit peut comprendre, puissent arriver à ce que vous soyez conscients de ces manières plus profondes, de ces dons et facettes plus profonds qui sont dans votre âme. Que Dieu vous bénisse, mes amis. Je vous remercie pour vos prières. Je vous remercie de m’avoir attiré près de vous, et je remercie cet instrument qui me permet de parler comme je le fais.
 
 Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse dans l’amour. Car je vous aime, Dieu vous aime, tous les anges du ciel vous aiment, et beaucoup, beaucoup d’autres. Ressentez cet amour, âmes bien-aimées, il vient de tant d’endroits différents et c’est un merveilleux cadeau, une merveilleuse bénédiction de lumière. Que Dieu vous bénisse, mes bien-aimés. Keea Atta Kem vous aime tellement. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

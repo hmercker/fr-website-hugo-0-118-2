@@ -22,3 +22,7 @@ Je vous bénis dans votre voyage, mes bien-aimés. Je suis avec vous alors que v
 Portez-vous avec cette connaissance, avec dignité et grâce, vérité et amour, paix et réconfort. Marchez de cette façon, mes bien-aimés. Ne compromettez pas la Vérité mais que chaque jour commémore votre amour pour Dieu. Que chaque jour soit un reflet de cette belle âme supérieure que vous êtes. Ne permettez pas à la condition humaine d’entrer en jeu, car Dieu a besoin d’exemples aimants dans le monde pour montrer aux autres enfants qui sont perdus une issue à leurs dilemmes, une issue à leur douleur, à leur confusion et à leur peur.
 
 Mes bien-aimés, vous avez choisi cela, cette mission et je vous guiderai sur le chemin comme le feront de nombreux anges qui marchent avec vous, de beaux anges qui vous entourent toujours. Vous trouverez votre chemin et vous serez libérés des encombrements de la condition humaine. Je vous bénis, mes bien-aimés, et dans la grâce de l’Amour de Dieu, vous irez ainsi, vos pas guidés, vos âmes rayonnant de l’Amour de Dieu. Soyez en paix, mes bien-aimés. Soyez en paix.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

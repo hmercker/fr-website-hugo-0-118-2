@@ -32,4 +32,8 @@ Mes bien-aimés, vous êtes à l'avant-garde de cette grande vague de Lumière. 
 Dieu vous bénisse mes bien-aimés, je suis Samuel et j'ai été attiré par votre Lumière. Et je continuerai à vous aider à apporter la Lumière à ce monde. Que Dieu vous bénisse et vous garde mes amis bien-aimés près de Dieu, près de la Lumière et loin des ténèbres. Que Dieu vous bénisse.
 <small>
 
-1. <large id="f1"> Il s'agit d'une conversation entre Al Fike et moi-même (G.J.C. webmaster des sites New-Bbirth.net et Soultruth.ca) où j'ai partagé ce qui a été reçu par un autre médium il y a plusieurs années dans un message hébergé sur ce site. Dans ce message, Jean le Bien-Aimé prétendait que l'âme ne peut choisir que l'amour. Il semblerait maintenant qu'une correction supplémentaire de ce message soit nécessaire afin d'expliquer un contraste aussi frappant avec ce message où une âme peut choisir le mal.[↩](#a1)
+1. <large id="f1"> Il s'agit d'une conversation entre Al Fike et moi-même (Geoff Cutler webmaster des sites New-Bbirth.net et Soultruth.ca) où j'ai partagé ce qui a été reçu par un autre médium il y a plusieurs années dans un message hébergé sur ce site. Dans ce message, Jean le Bien-Aimé prétendait que l'âme ne peut choisir que l'amour. Il semblerait maintenant qu'une correction supplémentaire de ce message soit nécessaire afin d'expliquer un contraste aussi frappant avec ce message où une âme peut choisir le mal.[↩](#a1)
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

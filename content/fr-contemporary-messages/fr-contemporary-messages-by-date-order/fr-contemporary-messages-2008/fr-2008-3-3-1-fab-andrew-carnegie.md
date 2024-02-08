@@ -28,9 +28,20 @@ Je vais essayer de faire ce que vous avez dit, mais vous ne savez pas combien c�
 
 Vous dites, regardez autour de moi, et oui, je vois un esprit très brillant et très beau.
 
-S’il vous plaît, priez pour moi et pensez à moi.
+S’il vous plaît, priez pour moi et pensez à moi.<sup id="a2">[2](#f2)</sup>
 <small>
 
 1. <large id="f1"> **Andrew Carnegie** (25 Novembre 1835 – 11 Août 1919) était un industriel américain d’origine écossaise, un homme d’affaires, un important philanthrope, et le fondateur de la Carnegie Steel Company de Pittsburgh qui est devenue plus tard la U.S. Steel. Carnegie est connu pour avoir construit l’une des entreprises les plus puissantes et les plus influentes de l’histoire des États-Unis et, plus tard dans sa vie, pour avoir donné la plupart de ses richesses pour financer la création de nombreuses bibliothèques, écoles et universités en Amérique, en Écosse et dans d’autres pays du monde. Carnegie, un garçon pauvre doté d’une ambition féroce, d’une personnalité agréable et d’une dévotion pour le travail acharné et l’amélioration de soi, a commencé comme télégraphiste. Dans les années 1860, il avait investi dans des chemins de fer, des wagons-lits, ainsi que dans des ponts et des derricks à pétrole, et il s’est enrichi en tant que vendeur d’obligations, levant des fonds en Europe pour les entreprises américaines. (Source : Wikipedia)[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+2. <large id="f1"> Andrew Carnnegie s'est également exprimé dans les messages suivants : [↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Andrew Carnegie | [La souffrance d'un industriel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-14-1-fab-andrew-carnegie/) | 14 Avril 2008
+Andrew Carnegie | [La loi morale est exacte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-16-2-fab-andrew-carnegie/) | 16 Avril 2008
+Andrew Carnegie | [La loi morale et le fait de gagner de l’argent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-3-7-1-fab-andrew-carnegie/) | 7 Mars 2009
+Andrew Carnegie | [Le matérialisme d'un industriel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-9-14-1-fab-andrew-carnegie/) | 14 Septembre 2009
+
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

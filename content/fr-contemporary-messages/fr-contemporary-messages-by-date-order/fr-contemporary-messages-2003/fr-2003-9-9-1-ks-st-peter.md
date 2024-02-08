@@ -49,4 +49,6 @@ Je prie sincèrement pour que ce que j’ai pu transmettre à travers toi soit d
 
 Je t’aime de mon âme transformée par l’Amour de Dieu en un ange divin. Merci de m’avoir permis d’écrire. Pierre.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)
+### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

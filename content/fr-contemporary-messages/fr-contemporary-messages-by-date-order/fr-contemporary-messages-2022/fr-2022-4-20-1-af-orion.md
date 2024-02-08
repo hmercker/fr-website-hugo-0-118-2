@@ -50,3 +50,7 @@ Puissiez-vous trouver votre chemin sur la voie de la réalisation de l’âme, d
 Ainsi, vous vous verrez dans la lumière, la beauté et l’émerveillement de Dieu et des mondes merveilleux de Dieu dans les mondes de Sa création. Que Dieu vous bénisse, mes amis, qu’il vous soutienne, qu’il vous bénisse, qu’il vous élève et qu’il vous montre le chemin au-delà de ce manteau d’erreur et d’illusion vers la conscience et la vie véritables.
 
 Que Dieu vous bénisse. Je suis votre ami Orion. Je suis heureux de vous parler aujourd’hui alors que vous voyagez sur la Terre et que vous en venez à apprécier sa beauté. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

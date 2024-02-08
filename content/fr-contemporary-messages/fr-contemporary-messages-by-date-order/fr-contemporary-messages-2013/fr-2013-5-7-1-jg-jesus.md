@@ -21,4 +21,6 @@ La paix qui dépasse l’entendement a une sérénité beaucoup plus profonde et
 
 Vous devez prier pour cette paix. Priez souvent pour cela. Priez avec votre âme. La paix qui dépasse la compréhension est un don sans comparaison et c’est la façon dont Dieu vous aide à surmonter la tyrannie de l’esprit. Convoitez cette aide.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)
+### [**Lien vers les messages des années 2013**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

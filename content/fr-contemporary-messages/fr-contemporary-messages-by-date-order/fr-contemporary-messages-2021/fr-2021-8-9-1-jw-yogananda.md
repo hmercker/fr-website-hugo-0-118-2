@@ -20,3 +20,8 @@ Vous connaissez le dicton de ce cher Gandhi, qui est maintenant assez populaire 
 Certains d’entre vous savent, mais beaucoup d’entre vous ne le savent peut-être pas, combien de lumière et d’Amour Divin vous avez reçu et vous transportez dans le monde. Ceux qui souhaitent former des lieux de refuge, des sanctuaires, des havres spirituels durables pour vos enfants et les enfants de vos enfants, ceux d’entre nous ici, vous encouragent. Encourager est le bon mot car le mot courage est essentiel, et le courage est nécessaire. Ce courage vient de votre foi et de la certitude dans votre âme qu’il n’y a pas de mort et que votre avenir est glorieux. Alors, pendant que vous êtes sur terre, faites ce que vous pouvez, chacun à sa manière, pour apporter la paix, la durabilité, la guérison, la bonne santé, et surtout la vérité de l’Amour de Dieu, à ce monde. Que Son amour bénisse chacun d’entre vous dans ce cercle et au-delà, et que cette communauté d’Amour Divin se développe toujours plus abondamment pour embrasser la terre, afin que tous puissent vous voir comme un signe extérieur de Grâce.
 
 Avec tout mon amour et mes bénédictions, je vous remercie. Je suis votre frère et ami éternel dans le Christ. Je suis Yogananda. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

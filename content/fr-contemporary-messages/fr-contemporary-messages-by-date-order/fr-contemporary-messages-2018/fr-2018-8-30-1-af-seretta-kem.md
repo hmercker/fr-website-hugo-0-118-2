@@ -38,3 +38,7 @@ Il n’y a plus d’autre voie pour l’humanité, mes bien-aimés. Toutes leurs
 C’est votre cadeau, âmes bien-aimées, le cadeau de la vie. Ce que vous faites de ce cadeau est déterminé par chaque jour et chaque souffle. Puissiez-vous atteindre le plus haut et trouver tout ce qui est inhérent à l’éveil de l’âme. Le pouvoir de l’amour, le pouvoir de l’amour, mes bien-aimés, est ce dont vous avez besoin. Allez à la source. Recevez et apprenez à connaître, à votre manière, cette vérité, et tout ce dont je parle deviendra parfaitement clair. Tout ce que vous pouvez faire, dans ce monde, sera étendu et éveillé, exprimé et accompli, car Dieu vous guidera et vous utilisera et vous nourrira et vous élèvera.
 
 Que Dieu vous bénisse, âmes bien-aimées. Puissiez-vous en venir à connaître votre vrai moi, et dans cette connaissance, exprimer vos vrais dons dans l’amour et l’harmonie. Pour être vraiment cet individu magnifique que Dieu a créé et mis en avant pour grandir et progresser dans le monde, dans votre monde et dans le nôtre, ce long et beau voyage vers Dieu. Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem et je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

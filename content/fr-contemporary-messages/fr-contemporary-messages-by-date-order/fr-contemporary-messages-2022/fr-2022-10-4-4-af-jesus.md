@@ -22,3 +22,7 @@ Que l’Amour de Dieu continue à remplir vos âmes, mes amis bien-aimés. Nous 
 Ainsi, nous voyageons ensemble, ainsi nous sommes frères et sœurs dans un univers merveilleux plein de bénédictions et d’expressions dynamiques, qui coulent, coulent et s’entremêlent ; ces énergies de Dieu sont magnifiques et puissantes et pleines de bienfaits pour chacun de vous.
 
 Puissions-nous tous marcher harmonieusement ensemble dans la reconnaissance aimante de notre Créateur et l’expression aimante de ce que Dieu a créé pour chacun de nous, et pour nous tous. Que Dieu vous bénisse, mes amis bien-aimés. Que Dieu vous garde dans son amour. Puissiez-vous vous développer et grandir et être transformés, transformés dans la vérité, l’amour et la lumière. Je suis avec vous et je le serai toujours, mes bien-aimés. Je suis Jésus, et je vous aime tous. Je vous embrasse tous.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

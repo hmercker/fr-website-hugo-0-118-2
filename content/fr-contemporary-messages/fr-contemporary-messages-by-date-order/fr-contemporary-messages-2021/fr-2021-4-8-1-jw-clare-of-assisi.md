@@ -19,3 +19,7 @@ Je vais prendre du recul et être avec vous en silence pendant quelques instants
 <small>
 
 1. <large id=”f1”> Robert James Lees est l’auteur de trois livres étonnants, à savoir Through the Mists, The Life Elysian et The Gate of Heaven.[↩](#a1)
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

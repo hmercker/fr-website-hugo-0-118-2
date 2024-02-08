@@ -38,3 +38,7 @@ Vous ressentez l’appel dans vos âmes. Vous en connaissez la vérité, le pouv
 Soyez avec Dieu, mes enfants bien-aimés. Apprenez à connaître Dieu comme une présence constante avec vous et en vous, et tout se déroulera en harmonie et dans l’Amour. Suivez la Lumière. Soyez dans la Lumière. Soyez fidèles à vous-mêmes et à Dieu.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Jean et je vous aime et je suis à vos côtés alors que vous continuez à chercher la vérité. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

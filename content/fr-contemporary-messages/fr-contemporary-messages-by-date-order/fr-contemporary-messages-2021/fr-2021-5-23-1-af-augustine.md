@@ -18,3 +18,7 @@ Alors, puissiez-vous faire de même, bien-aimés amis, pour mettre de côté ces
 C’est ainsi que vous reconnaîtrez la Pentecôte, âmes bien-aimées. Je vous invite chaque jour à appliquer cette leçon afin que vous puissiez vraiment être avec Dieu. Dans cette expérience, vous reconnaîtrez une humilité, une joie, une élévation et les grandes flammes de l’amour qui entourent votre âme et vous éveillent à tout ce qui peut être dans l’étreinte de Dieu.
 
 Bien-aimés, nous sommes ensemble dans un moment sacré. Que chacun d’entre vous embrasse la sainteté qui va de pair avec une vraie prière. Que Dieu vous bénisse. Je suis votre enseignant, Augustin. Je viens prier avec vous en ces moments bénis. Nous sommes tous des enfants de Dieu. Nous sommes tous ensemble dans la lumière. Nous sommes vraiment bénis. Que Dieu vous bénisse, bien-aimés. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

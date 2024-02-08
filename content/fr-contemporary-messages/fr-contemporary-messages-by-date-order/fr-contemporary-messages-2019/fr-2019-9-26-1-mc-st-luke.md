@@ -22,3 +22,7 @@ Pourtant, mes bien-aimés, c’est l’âme qui reste pour toute l’éternité.
 Amis bien-aimés, alors que vous êtes assis en cercle, vous ouvrant à Dieu et aspirant à ce que cette bénédiction d’Amour vous touche, nous sommes à vos côtés. Nous sommes là pour vous aider, vous assister et vous servir. Tendez toujours la main vers Dieu, mes bien-aimés. Nous, vos amis anges, sommes les agents que Dieu envoie en réponse à vos prières d’aide car nous venons vous influencer par la pensée et vous aider à vous guider. Nous sommes ici pour vous servir alors que vous vous adressez à Dieu pour obtenir cette grande bénédiction de Son Amour éternel.
 
 Je vous remercie d’avoir écouté mes paroles et d’avoir partagé votre temps de cette manière entre vous, avec Dieu et avec vos amis célestes. Que Dieu vous bénisse, âmes bien-aimées, je suis Luc. L’amour des anges Célestes est avec vous tous comme l’est l’Amour de Dieu. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

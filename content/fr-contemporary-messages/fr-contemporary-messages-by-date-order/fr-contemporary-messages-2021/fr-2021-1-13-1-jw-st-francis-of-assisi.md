@@ -20,3 +20,7 @@ Chaque fois que vous êtes troublés, prenez un moment, comptez jusqu’à dix s
 Je suis votre frère et ami en Christ.
 Je suis François.
 Allez avec Dieu.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

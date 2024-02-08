@@ -26,3 +26,7 @@ Donc, lorsque nous vous disons : *« vous portez le mal »*, nous le définisson
 Vous continuez à vous rapprocher de cette condition. Vous continuez à grandir dans l'Amour de Dieu et vous trouverez votre chemin. Dieu vous renforce à chaque prière, déverse son amour sur vous, envoie Ses anges pour vous administrer et Il continuera à le faire tous les jours de votre vie dans ce monde et tout votre temps en esprit jusqu'à ce que vous atteigniez les Cieux Célestes. Là, l'Amour de Dieu sera toujours votre nourriture, Ses Eaux Vives se déversant en vous avec une telle mesure, une telle puissance et une telle gloire que votre joie sera inimaginable.
 
 Puissiez-vous continuer à marcher sur ce chemin avec un engagement constant dans la foi, avec des pensées positives, des âmes enthousiastes, de beaux, beaux efforts dans l'amour. Nous continuerons à vous accompagner sur ce chemin. Vous n'êtes jamais seuls, mes bien-aimés et vous êtes tendrement aimés, enfants de Dieu. Soyez ses canaux d'amour. Marchez sur cette route de lumière et sachez que le voyage ne fait que commencer mais qu'il durera toute l'éternité. Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem et je vous aime tendrement. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

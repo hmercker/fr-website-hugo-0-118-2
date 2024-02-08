@@ -22,3 +22,7 @@ Le changement est une loi de l’univers et peu importe à quel point vous souha
 Oui, mes bien-aimés, la clé de la croissance est le changement. La clé de la croissance est d’embrasser tous les changements que Dieu considère comme corrects pour vos vies et pour votre chemin dans ce monde. Et Son Amour vous permettra toujours d’être ouverts et de percevoir et d’embrasser ces changements qui sont censés être. C’est la puissance de cet Amour qui rendra ces changements fluides et ils ne seront pas douloureux mais joyeux et accueillis et pleins et riches.
 
 Âmes bien-aimées, continuez à prier pour l’Amour, l’Amour qui ouvre les portes, l’Amour qui vous transforme, l’Amour qui vous donnera la vision pour accepter de nombreux changements dans votre vie et vous connaîtrez une joie, un épanouissement, de grandes différences entre ce que vous êtes aujourd’hui et ce que vous serez demain. Beaucoup de changements en perspective et beaucoup de choses à venir. Mes amis bien-aimés, je suis souvent avec vous. Je suis avec vous et je serai avec vous à travers tous les changements et les événements de votre vie, car je suis votre véritable ami et votre aide et je vous aime. Je suis Alec et je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

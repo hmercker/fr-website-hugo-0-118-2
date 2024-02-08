@@ -11,7 +11,7 @@ weight:
 
 Aristote <sup id="a1">[1](#f1)</sup> - reçu par FAB le 7 Mai 2009, Santa Cruz, Californie, USA.
 
-Je suis Aristote.
+Je suis Aristote.<sup id="a2">[2](#f2)</sup>
 
 Oui, je suis le philosophe Grec qui a toujours su qu'il savait très peu. Oui, j'étais humble quant à la vérité, et cette humilité m'a permis d'apprendre la doctrine du Maître. J'habite les Cieux Célestes, et beaucoup de choses qui étaient des spéculations confuses sur terre sont devenues des connaissances, que je possède maintenant.
 
@@ -32,4 +32,9 @@ Ce qui manque à mon essai, selon vous, c'est la chaleur. Il vous semble sec, al
 
 1. <large id="f1"> **Aristote** (384 av. J.-C. - 322 av. J.-C.) fut un philosophe grec, élève de Platon et maître d'Alexandre le Grand. Il a écrit sur de nombreux sujets, notamment sur la physique, la métaphysique, la poésie, le théâtre, la musique, la logique, la rhétorique, la politique, le gouvernement, l'éthique, la biologie et la zoologie. Avec Platon et Socrate (le maitre de Platon), Aristote est l'une des plus importantes figures fondatrices de la philosophie occidentale. Il a été le premier à créer un système complet de philosophie occidentale, englobant la moralité et l'esthétique, la logique et la science, la politique et la métaphysique. Les vues d'Aristote sur les sciences physiques ont profondément marqué l'érudition médiévale, et leur influence s'est prolongée jusqu'à la Renaissance, bien qu'elles aient finalement été remplacées par la physique newtonienne. Dans les sciences biologiques, l'exactitude de certaines de ses observations n'a été confirmée qu'au XIXe siècle. Ses œuvres contiennent la première étude formelle connue de la logique, qui a été intégrée à la fin du XIXe siècle dans la logique formelle moderne. En métaphysique, l'aristotélisme a eu une profonde influence sur la pensée philosophique et théologique des traditions islamique et juive au Moyen Âge, et il continue d'influencer la théologie Chrétienne, en particulier la théologie Orthodoxe orientale, et la tradition scolastique de l'Église Catholique romaine. Tous les aspects de la philosophie d'Aristote continuent aujourd'hui à faire l'objet d'études académiques actives. (Source : Wikipedia)[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+2. <large id="f2"> Aristote s'était précédemment dans un message communiqué [le 19 Novembre 1999](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-19-2-Alfredo-aristotle/)[↩](#a2)
+
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

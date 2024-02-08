@@ -28,3 +28,7 @@ Lorsque j’ai marché sur la Terre, guidé par Dieu, de nombreux défis se sont
 Apportez tout à Dieu et permettez à la main de Dieu de vous guider. En faisant cela, vous connaîtrez vos prochains pas. Vous marcherez avec une certitude connectée si profondément à votre Créateur bien-aimé, attirant parmi vous les magnifiques anges et enseignants qui sont ici pour vous servir, vous guider et vous aider à mettre en œuvre ce grand et merveilleux plan que Dieu a pour l’équilibre et l’harmonisation de la Terre.
 
 Je suis Mahatma Gandhi et je suis avec vous, mes chers amis, observant la transformation de vos âmes, servant de guide, d’influence et d’amour pour mes chers amis qui marchent sur Terre avec le désir de servir Dieu de manière profonde et satisfaisante. Que chacun de vous soit béni, mes chers amis, béni par la Grâce de l’Amour Divin au sein de vos âmes, s’alignant et s’harmonisant, éveillant les nombreux potentiels qui attendent, attendent votre monde. Que Dieu vous bénisse
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

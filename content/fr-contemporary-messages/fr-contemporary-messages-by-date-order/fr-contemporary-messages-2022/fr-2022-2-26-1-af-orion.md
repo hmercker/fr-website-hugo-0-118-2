@@ -46,3 +46,8 @@ Voyez comment vous avez filtré et transmuté cette vérité en vous et cherchez
 Puissiez-vous arriver à ce lieu de véritable intégration et d’éveil, en acceptant tout ce que Dieu a à vous donner, tout ce qui vient comme cette grande porte d’inondation s’ouvre, se déversant sur vous et en vous, révélations sur révélations, vérité sur vérité. Un si grand flux de nombreux cadeaux qui vous sont donnés par Dieu, de nombreuses bénédictions, de nombreux réveils. C’est à vous de le prendre et de le demander. Puissiez-vous venir à Dieu avec une telle innocence et une telle grâce, une telle gratitude et un tel amour que la porte s’ouvre en grand et que les bénédictions affluent. Puissent les dons de Son Amour vous réveiller complètement, puissamment et magnifiquement.
 
 Que Dieu vous bénisse, mes amis. Je suis Orion et je suis témoin de la transformation dont vous faites partie et dont vous continuerez à faire partie. Que Dieu vous bénisse. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

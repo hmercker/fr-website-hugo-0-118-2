@@ -19,4 +19,6 @@ Mon cher Arthur, il n’y a pas de contradiction, car nous faisions référence 
 
 L’humanité est à la croisée des chemins, et la grande majorité des mortels veulent que le bien triomphe. Les forces des ténèbres n’ont jamais été aussi consolidées qu’aujourd’hui. Il faut donc quelque chose de plus pour aider l’humanité. C’est précisément ce à quoi nous avons fait référence. Je parle donc de quelque chose qui sera unique et sans précédent dans le long voyage de l’humanité sur Terre. Vous avez beaucoup de choses à attendre.
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

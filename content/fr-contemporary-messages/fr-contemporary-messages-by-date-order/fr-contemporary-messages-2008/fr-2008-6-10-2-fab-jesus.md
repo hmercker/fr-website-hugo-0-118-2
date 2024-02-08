@@ -19,4 +19,6 @@ Il y a tant de Chrétiens orthodoxes qui répondent à partir d'un cœur d'Amour
 
 Ainsi, même si beaucoup m'adorent en tant que Dieu et croient en la croix, ils abordent mes enseignements de manière correcte parce qu'ils comprennent la vérité fondamentale de l'Amour Divin.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

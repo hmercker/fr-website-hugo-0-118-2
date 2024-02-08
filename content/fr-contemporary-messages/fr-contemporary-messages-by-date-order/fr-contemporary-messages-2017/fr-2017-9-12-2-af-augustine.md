@@ -28,3 +28,7 @@ Vous n’êtes jamais seuls et vous n’êtes jamais abandonnés, mes bien-aimé
 Vous êtes aimés. Nous prenons soin de vous. Nous vous donnons ce dont vous avez besoin. Soyez joyeux dans votre journée. Soyez aimant dans votre visage. Soyez fidèle dans vos prières. Soyez toujours avec Dieu. Tout se mettra en place lorsque vous serez les canaux d’amour du Père.
 
 Que Dieu vous bénisse. Votre maître Augustin vous aime tendrement et continuera à parler, à enseigner, à aimer. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

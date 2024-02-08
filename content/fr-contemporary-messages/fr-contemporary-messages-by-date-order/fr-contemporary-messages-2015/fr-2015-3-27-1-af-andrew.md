@@ -29,4 +29,6 @@ Chaque jour apporte une nouvelle épreuve et une nouvelle récompense et une nou
 
 C’est la vérité, mes bien-aimés. Et vous devez être honnêtes avec Lui, reconnaître ces parties qui vous retiennent, reconnaître que pour être ce canal clair d’Amour, ces éléments intérieurs qui bloquent le passage, qui inhibent l’Amour, doivent être nettoyés.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015)
+### [**Lien vers les messages des années 2015**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -11,7 +11,7 @@ weight:
 
 Charlie Chaplin - reçu par FAB le 19 Mai 2008, Santa Cruz, Californie, USA.
 
-C'est moi, Charlie Chaplin.
+C'est moi, Charlie Chaplin.<sup id="a1">[1](#f1)</sup>
 
 Comme tout est différent ! Aucune des contraintes de la vie terrestre n'existe ici, à la seule exception des contraintes qui viennent de l'intérieur. Et j'ai été très, très surpris de voir comment tant de gens que je connaissais ont réussi ici.
 
@@ -22,5 +22,10 @@ Vous vous demandez quel est l'équivalent du cinéma ici. Eh bien, nous, les esp
 Sur terre, vous pouvez apprécier un grand film des années 1940 et le considérer comme appartenant au passé. Mais ce n'est pas la réalité que nous, les esprits, avons. Et par conséquent, nos activités et nos intérêts reflètent cette qualité intemporelle. Pour un mortel, cela ne peut être saisi, mais une fois transposé de ce côté, les esprits s'y retrouvent rapidement, et cela devient naturel et normal.
 
 Dans une perspective plus large, les promesses de Dieu seront tenues, et lorsque cela se produira, il sera constaté que nombreux sont ceux qui ont montré la voie et porté le flambeau de la justice et de la vérité.
+<small>
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+1. <large id="f1"> Les différents messages communiqués  par Charlie Chaplin sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-5-fr-artists-and-musicians/)[↩](#a1)
+
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

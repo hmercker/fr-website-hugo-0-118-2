@@ -52,3 +52,7 @@ Et dans le monde de l’esprit, et dans nos mondes, vous êtes remarqués par vo
 Cherchez le plus haut, mes amis, toujours. Cherchez ce qui est le plus élevé, et vous vous trouverez sur un chemin moins fréquenté, et pourtant si beau. Que les bénédictions de l’Amour de Dieu continuent à vous réveiller. C’est Dieu qui vous a réunis, et c’est Dieu qui vous guidera et vous assistera, chacun de vous, dans vos voyages de service et de lumière. Que l’amour soit votre talisman, votre guide. Qu’il soit le pouvoir que vous portez. Qu’il soit la source de la lumière que vous êtes.
 
 La lumière de l’Amour Divin est la plus grande lumière de toutes, et elle peut être à vous si vous le demandez, mes précieux amis. Je suis Orion, je vous remercie de m’avoir écouté. Je vous remercie de m’avoir invité, et sachez que je viendrai aussi souvent que je serai invité. Je viendrai pour être avec chacun d’entre vous si vous le désirez. Merci, et que Dieu vous bénisse mes amis.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

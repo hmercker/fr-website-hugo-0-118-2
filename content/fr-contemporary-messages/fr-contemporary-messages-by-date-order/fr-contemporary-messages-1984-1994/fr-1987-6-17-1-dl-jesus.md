@@ -48,7 +48,6 @@ Je suis votre frère d’esprit et votre cher ami, Jésus.
 
 1. <large id="f1"> Jésus nuance ici sa déclaration, ce qui est peut-être essentiel. Parce que, dans au moins un livre canalisé, un esprit a subi une régression après avoir obsédé un être humain vivant. C’est peut-être presque la seule façon d’y parvenir ? (Geoff Cutler)[↩](#a1)
 
-[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+### [**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

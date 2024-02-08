@@ -36,4 +36,6 @@ Je vois que cette canalisation vous a aidé à avoir une meilleure opinion de mo
 
 2. <large id="f2"> Jacques Kerouac s'est également exprimé [le 18 Avril 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-18-2-fab-jack-kerouac/), [le 9 Mai 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-9-1-fab-jack-kerouac/),[le 25 Septembre 2009](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-9-25-1-fab-jack-kerouac/) et [le 28 Septembre 2009](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-9-28-1-fab-jack-kerouac/).[↩](#a2)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

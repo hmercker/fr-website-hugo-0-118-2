@@ -9,7 +9,7 @@ weight:
 ---
 ### Le pouvoir de l’amour pour effacer les erreurs
 
-James Padgett - reçu par Kathryn Stokes le 10 Juin 2006, Santa Cruz, Californie, USA.
+James Padgett<sup id="a1">[1](#f1)</sup> - reçu par Kathryn Stokes le 10 Juin 2006, Santa Cruz, Californie, USA.
 
 Ma chère sœur, tu sais que nous sommes toujours capables de partager nos sentiments et nos pensées avec nos frères et sœurs mortels lorsqu’ils sont prêts à nous permettre de canaliser nos pensées à travers eux. Souvent, les canalisations sont données à une personne pour une raison spécifique, pour répondre à sa question ou pour lui donner des conseils de nature personnelle. Toutes les canalisations ne doivent pas être partagées, sauf si le médium accepte que d’autres les lisent.
 
@@ -24,5 +24,10 @@ Essayez donc de toujours vous rappeler l’importance de donner votre amour, en 
 Je n’avais pas réalisé que j’allais souligner l’importance et la grandeur de l’Amour dans vos vies, mais c’est une bonne leçon et j’espère qu’elle sera prise à cœur. Puisque nous avons observé que les courtes leçons sont faciles à absorber et à appliquer, je vais terminer maintenant et vous remercier de m’avoir permis de transmettre mes pensées de cette façon.
 
 Vous commencerez à vous sentir plus à l’aise avec ce processus lorsque vous recommencerez à recevoir sur une base plus régulière. Je suis votre ami et frère en esprit, James Padgett. Nous sommes tous reconnaissants pour le merveilleux travail que vous faites et pour les progrès spirituels que vous réalisez en tant que communauté. Nous vous aimons, tous et chacun.
+<small>
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+1. <large id="f1"> L'ensemble des messages communiqués par James Padgett  est disponible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-12-fr-family-and-friends-of-james-padgett/)[↩](#a1) 
+
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

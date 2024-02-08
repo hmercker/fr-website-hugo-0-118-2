@@ -16,3 +16,7 @@ Nous allons en effet nous joindre à vous dans votre célébration demain pour r
 Puissiez-vous apprendre les uns des autres et apprécier la compagnie d'autres âmes brillantes dans ce monde et ressentir la joie de cette amitié, reconnaître la Lumière parmi vous et chanter vos louanges au Père Céleste dans la reconnaissance joyeuse de la diversité de la vie et de l'émerveillement de chaque âme dans ce monde.
 
 Que Dieu vous bénisse, mes amis. Oui, je continue à être avec vous. Je suis toujours avec toi, mon fils. Nous sommes liés pour l'éternité. Que Dieu vous bénisse, qu'il vous garde dans sa lumière. Je t'aime. Je vous aime, mes bien-aimés.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

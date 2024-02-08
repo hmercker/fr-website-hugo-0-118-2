@@ -44,3 +44,7 @@ Mes chers et beaux étudiants, sachez que vous êtes aimés et que ce que vous f
 Puissiez-vous en venir à exprimer ces dons dans toute leur beauté et leur créativité, l'émerveillement de l'âme unique que vous êtes dans le monde. Puissiez-vous avoir les perceptions et l'inclination à voir les âmes uniques et belles qui vous entourent et qui sont dans le monde partageant cette vie. De cette façon, vous connaîtrez une joie profonde et trouverez une grande satisfaction dans les expériences de votre vie.
 
 Que Dieu vous bénisse profondément, âmes bien-aimées. Je suis votre enseignant Augustin et je vous aime, je vous aime tous. Je vois vos lumières et elles sont belles. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

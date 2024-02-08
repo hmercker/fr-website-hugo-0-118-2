@@ -23,4 +23,7 @@ C'est en effet une bonne possibilité, qui semble s'harmoniser avec l'idée d'un
 
 Mais je tiens à affirmer que M. Padgett a bien canalisé cette idée de la fermeture du Royaume, non seulement de ma part, mais de celle de nombreux esprits Célestes, qui tirent leurs perceptions de Dieu.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

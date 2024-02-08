@@ -45,3 +45,7 @@ Que Dieu vous bénisse, mes amis. Je suis Michaël Collier et je vous remercie d
 <small>
 
 1. <large id=”f1”> La Loi d'Activation a été décrite pour la première fois par Jésus il y a de nombreuses années. Ce message est accessible par [ce lien](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-5-20-1-dl-jesus/).[↩](#a1)
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

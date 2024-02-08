@@ -25,7 +25,21 @@ Lorsque vous appelez Dieu : *« Dieu, peux-tu entendre ma prière, peux-tu m’a
 
 Donc, sachez encore une fois que lorsque vous dites la vérité dans l’amour, elle est entendue par l’âme de celui à qui vous parlez, qu’il soit nombreux ou peu nombreux, car l’âme répond à l’âme.
 
-Merci d’avoir pris mon message mon frère et de m’avoir permis de me présenter à ceux qui ne me connaissent pas. Je reviendrai car ce merveilleux cercle de lumière m’a attiré. Ainsi, avec tout l’amour, l’amour de mon âme et les bénédictions de nous tous ici, je vais me retirer dans la prière pour que Dieu puisse bénir chacun d’entre vous avec une douche du don glorieux de Son amour. Que Dieu vous bénisse tous. Je suis votre frère dans le Christ, Robert Hugh Benson.
+Merci d’avoir pris mon message mon frère et de m’avoir permis de me présenter à ceux qui ne me connaissent pas. Je reviendrai car ce merveilleux cercle de lumière m’a attiré. Ainsi, avec tout l’amour, l’amour de mon âme et les bénédictions de nous tous ici, je vais me retirer dans la prière pour que Dieu puisse bénir chacun d’entre vous avec une douche du don glorieux de Son amour. Que Dieu vous bénisse tous. Je suis votre frère dans le Christ, Robert Hugh Benson.<sup id="a2">[2](#f2)</sup>
+
 <small>
 
 1. <large id=”f1”> Traverser dans ce contexte signifie quitter le monde physique et arriver dans le monde spirituel.[↩](#a1)
+
+2. <large id="f2"> Robert Hugh Benson s'est également exprimé lors des messages suivants [↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+--|---|---
+Robert Hugh Benson | [Merci pour votre considération](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-1-13-1-jw-robert-hugh-benson/) | 13 Janvier 2022
+Robert Hugh Benson | [La Septième Sphère est la porte d’entrée des Cieux Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-2-3-1-jw-robert-hugh-benson/) | 3 Février 2022
+Robert Hugh Benson | [Les royaumes de l’esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-19-1-jw-robert-hugh-benson/) | 19 Avril 2022
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

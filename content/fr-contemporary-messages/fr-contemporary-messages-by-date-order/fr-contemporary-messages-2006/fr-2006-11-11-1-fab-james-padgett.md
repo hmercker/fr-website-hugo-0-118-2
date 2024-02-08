@@ -11,7 +11,7 @@ weight:
 
 James Padgett - reçu par FAB le 11 Novembre 2006, Santa Cruz, Californie, USA.
 
-Je suis là, James Padgett.
+Je suis là, James Padgett. <sup id="a1">[1](#f1)</sup>
 
 Oh, c’est une telle joie pour moi d’être à l’autre bout de la médiumnité avec vous ! Nous exultons tous de cette opportunité donnée par Dieu de continuer à envoyer des messages à la Terre. Et il y en a tant que nous voulons envoyer, tous confirmant et complétant mon propre travail, qui est maintenant fondé de façon permanente sur la Terre, loué soit le Seigneur !
 
@@ -38,5 +38,10 @@ D’une part, je n’aurais pas pu réussir à transmettre les messages si je m�
 Je vais conclure pour le moment. Dans les prochains messages, je développerai d’autres aspects de ma vie.
 
 Permettez-moi également de dire que, de toute évidence, il n’était pas nécessaire que je joue un rôle important de célébrité et d’exposition au monde. Je suis mort, comme vous le dites, dans la discrétion. Mais la chose la plus importante à garder à l’esprit est que ce que j’ai canalisé appartient exclusivement au Royaume Céleste. Je n’étais qu’un simple porte-parole. Ce n’était donc pas du tout une expérience « Padgett ».
+<small>
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+1. <large id="f1"> L'ensemble des messages communiqués par James Padgett  est disponible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-12-fr-family-and-friends-of-james-padgett/)[↩](#a1) 
+
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

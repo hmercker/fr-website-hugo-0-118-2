@@ -66,3 +66,7 @@ Beaucoup de choses vont arriver dans les jours à venir. Je vous ai exhorté à 
 Mes chers et beaux amis, mes frères et sœurs du monde, sachez que beaucoup de choses sont à venir et que vous serez guidés, protégés et aimés. Vos anges amis seront proches. Il y aura de grands défis et pourtant beaucoup de bénédictions. Beaucoup est donné à ceux qui ont la foi, qui viennent à Dieu avec innocence et le désir d’être en alignement avec Dieu. Pas ce qui est de la religion, mais ce qui est uniquement de Dieu, l’âme individuelle qui est avec Dieu dans la foi et la prière. Alors, les bénédictions viendront. La perspicacité viendra et tout ce qui est nécessaire viendra.
 
 Sur ce, je termine cet entretien et je reviendrai un autre jour pour parler de choses qui assureront l’humanité et apporteront la paix et la vérité. Je suis votre frère et ami, Jésus, et je vous aime tous. Que Dieu vous bénisse. Que Dieu vous bénisse tous.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

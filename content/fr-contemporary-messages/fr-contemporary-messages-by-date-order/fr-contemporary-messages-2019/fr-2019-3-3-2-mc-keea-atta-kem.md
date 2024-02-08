@@ -36,3 +36,7 @@ Je vous encourage à en faire une pratique régulière, car cela vous aidera à 
 Vous avez en vous un conseiller très profond. Soyez amis avec votre âme, mes bien-aimés, et que la guérison profonde, la grande paix et l’amour, l’unité et l’harmonie soient à vous par ces efforts que vous vous disciplinez à faire.
 
 Je suis Keea Atta Kem. Vous êtes tous très chers pour moi. Mon amour est avec vous et j’envoie une bénédiction de guérison à chacun d’entre vous alors que vous êtes assis en prière pour recevoir l’Essence de l’Amour de Dieu dans vos âmes. Que Dieu vous bénisse, mes bien-aimés. Mon amour est avec vous. Je suis Keea.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

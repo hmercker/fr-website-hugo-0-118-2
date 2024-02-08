@@ -9,7 +9,7 @@ weight:
 ---
 ### Considérez vos progrès
 
-Confucius - reçu par Al Fike le 24 Octobre 2016, Gibsons, Colombie-Britannique, Canada.
+Confucius<sup id="a1">[1](#f1)</sup>- reçu par Al Fike le 24 Octobre 2016, Gibsons, Colombie-Britannique, Canada.
 
 C’est moi Confucius. Oh, comme vous luttez avec la condition humaine, les grands défis auxquels vous faites face dans ce monde. Chacun d’entre vous doit surmonter ces conditions et ces obstacles dans sa vie afin d’être en harmonie et dans le flux de l’Amour de Dieu. Mes enfants bien-aimés, chacun d’entre vous ici est béni par Dieu et a un ange avec lui alors qu’il surmonte les obstacles sur son chemin et place ses intentions et ses prières auprès de Dieu, afin qu’il puisse ouvrir vos âmes à l’afflux de son essence divine, cet amour puissant qui lui donne la force et la compréhension, la puissance et la joie afin qu’il puisse vivre sa vie dans une plus grande harmonie, qu’il puisse vivre sa vie dans le flux de son amour.
 
@@ -22,3 +22,11 @@ Considérez vos progrès, mes bien-aimés, même ceux d’entre vous qui viennen
 N’est-ce pas ce que l’humanité entière recherche ? Au fond de leurs âmes, ils aspirent à cela, mais tant d’entre eux se détournent, tant d’entre eux ne comprennent pas comment y parvenir et vous, mes bien-aimés, vous avez trouvé la voie, vous avez trouvé une ouverture, une aube, un réveil en vous. Vous devez enseigner cela par votre exemple. Vous devez inspirer les autres par votre amour, par les mots que vous prononcez, les actions que vous entreprenez, le comportement de votre être pour marcher dans la Lumière et l’Amour, mes bien-aimés, pour marcher dans la Lumière et l’Amour près de Dieu, car c’est ainsi que vous serez des agents de changement dans ce monde, que vous apporterez la guérison et la Vérité à ce monde. Comme vous gagnez en vous-mêmes une grande Lumière et un grand éveil, vous l’exprimerez en vous déplaçant dans le monde, en devenant ce canal clair, en surmontant les obstacles qui se présentent à vous, en vous maintenant dans cette Lumière, les pieds fermement implantés sur ce Chemin de Lumière.
 
 Toutes ces bénédictions, mes bien-aimés, ne sont pas destinées à vous seuls, mais à tous ceux qui se trouvent sur votre chemin de vie. Soyez généreux en esprit. Ne jugez pas. Donnez de l’amour. Soyez l’amour. Laissez l’Amour couler à travers vous, cette grande rivière de grâce qui réconfortera tous ceux que vous toucherez, où que vous soyez. Que Dieu vous bénisse, mes bien-aimés. Je suis Confucius et je vous aime. Que Dieu vous bénisse, âmes bien-aimées.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués  par Confucius sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a1)
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

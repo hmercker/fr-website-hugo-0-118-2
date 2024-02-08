@@ -24,3 +24,7 @@ Si vous décidez individuellement, avec une profonde conviction, de vous engager
 C’est un événement extraordinaire qui a été orchestré. Nous sommes tous reconnaissants et nous vous couvrons de ces grandes bénédictions. Permettez à ce cadeau de votre portail individuel d’agir sur vous. Passez du temps à le remarquer. Soyez conscients, chers amis, soyez conscients de ce dans quoi vous êtes engagés, de la façon dont vous vous gérez, de la façon dont vous vous déplacez dans le monde. Lorsque vous vous déplacez avec la conscience de l’amour, de la grâce et de l’humilité qui existent dans votre âme et que vous permettez à cela de s’exprimer dans votre monde, un profond contentement existe en vous ; un monde à part entière en vous sera expérimenté d’une manière telle que ce monde matériel et toutes les distractions et activités dont il est rempli s’estomperont, ne vous distrairont plus. Vous existerez à partir de votre monde intérieur et vous permettrez à cette expression de devenir votre monde réel. Cette âme bien-aimée est le voyage vers la nouvelle naissance.
 
 Je suis Jésus. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

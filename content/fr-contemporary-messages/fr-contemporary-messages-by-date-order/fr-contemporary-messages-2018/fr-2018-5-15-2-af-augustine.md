@@ -22,3 +22,7 @@ Cherchez à être cette belle âme que vous êtes censé être. Cherchez à vous
 C’est un voyage merveilleux, plein de surprises, rempli de nombreuses bénédictions et de l’éveil de nombreux dons. Vous continuez donc votre voyage et vous continuez à accepter et à apporter en vous tout ce que Dieu a à vous donner, afin que cette puissante transformation puisse avoir lieu et se manifester de façon consciente dans votre être et changer qui vous êtes, votre comportement dans le monde, ce qui peut être, sera, manifesté par l’Amour. Que vous soyez profondément bénis par l’Amour du Père, mes amis. Que Dieu vous bénisse et vous garde dans l’Amour.
 
 Je suis votre enseignant Augustin et mon amour aussi est avec vous mes bien-aimés. Je suis souvent avec vous et je continue à vous inspirer, à vous enseigner et à vous aider sur votre chemin. Il continue à monter toujours plus près de la fontaine de l’Amour. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

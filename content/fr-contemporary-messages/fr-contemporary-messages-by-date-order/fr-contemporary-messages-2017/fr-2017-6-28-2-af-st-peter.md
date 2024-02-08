@@ -23,3 +23,7 @@ Soyez bénis, mes bien-aimés. Je suis Pierre et je viens pour être avec vous d
 <small>
 
 1. <large id="f1"> First United Spiritualist Church (Première église spiritualiste unie).[↩](#a1)
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -34,3 +34,7 @@ Alors, nous venons vous parler. Ces chères âmes viennent vous parler pour, esp
 Que le cadeau de votre vie soit honoré et exprimé dans l’Amour et en cela, viendront beaucoup d’autres cadeaux. Dieu déverse Son Amour sur vous en ce moment, âmes bien-aimées. Efforcez-vous de sentir le contact de Son Amour, élevez-vous au-dessus de la condition humaine. Dieu vous soulèvera. Ses anges vous soutiendront. Puissiez-vous continuer à vous efforcer d’atteindre le plus haut, le plus brillant, le plus beau, de l’Amour. Vous serez bénis, âmes bien-aimées, au-delà de ce que vous pouvez imaginer. Cela ne demande rien de plus que votre effort. C’est un cadeau donné librement par Dieu.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant Augustin et je vous remercie d’écouter ce que j’ai à dire. Puissiez-vous grandir, âmes bien-aimées, dans la Lumière. C’es
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

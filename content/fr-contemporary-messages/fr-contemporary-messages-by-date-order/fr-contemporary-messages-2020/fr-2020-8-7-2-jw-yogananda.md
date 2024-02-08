@@ -24,3 +24,7 @@ Encore une fois, comme je l'ai déjà dit, que votre âme soit au-dessus de votr
 Cela est également évident dans la musique lorsque quelqu'un chante profondément à partir de son cœur, nous appelons souvent cela « la musique de l'âme. » Les chansons que j'ai chantées lorsque j'étais sur Terre, je les ai chantées à partir de mon âme. Je n'étais pas un grand chanteur, un quelconque chanteur d'opéra, mais mes intentions étaient si profondes de mon âme, que je ressentais une réelle joie à chanter. C'est ce que je vous donne. Laissez vos cœurs s'ouvrir pour que vos âmes soient bénies, que vos esprits soient à l'aise dans la paix qui dépasse toute compréhension. Permettez cela tout au long de votre journée. Chaque fois que vous êtes distraits, allez dans votre cœur pour que Dieu et les anges puissent toucher votre âme.
 
 Je prie pour que vous restiez tous dans la Lumière et l'Amour de Dieu. Chaque fois que vous appellerez, nous serons là car notre amour est toujours avec vous et nous sommes aussi sur ce chemin ensemble, unis dans l'Amour de Dieu. Mon amour à vous tous. L'amour de Dieu à vous tous. Puissiez-vous rester dans Son étreinte chaleureuse, toujours. Que Dieu vous bénisse. Je suis Yogananda.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

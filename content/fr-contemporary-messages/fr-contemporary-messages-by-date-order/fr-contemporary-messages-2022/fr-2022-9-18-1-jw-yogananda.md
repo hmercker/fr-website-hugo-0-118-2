@@ -20,3 +20,7 @@ Lorsque l’on veut construire une structure, apprendre un instrument ou poursui
 Je vous encourage donc à commencer par un désir très simple dans votre âme, avec la simple intention d’aller vers Dieu et de permettre à la grande bénédiction de Son amour de venir dans vos âmes et de vous élever. Permettez à vos âmes d’informer vos esprits et d’être une bénédiction pour ce monde au-delà de vos doutes, de vos inquiétudes, au-delà, si je puis dire, de vos tentatives de comprendre. Car lorsque vous êtes dans la grâce de Dieu, toutes les choses sont révélées, toutes les questions trouvent une réponse, et tout devient possible dans l’amour.
 
 Je vais me retirer pour être avec vous dans ce beau cercle et je vous remercie de m’avoir permis de venir. Que Dieu bénisse chacun d’entre vous avec un grand afflux d’Amour Divin, le plus grand des cadeaux. Je suis Yogananda.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

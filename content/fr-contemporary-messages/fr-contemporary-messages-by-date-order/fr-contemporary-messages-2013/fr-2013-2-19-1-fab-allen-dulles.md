@@ -20,4 +20,8 @@ Je ne peux pas exprimer de manière adéquate l’expérience d’une vie de tra
 
 1. <large id="f1"> **Allen Welsh Dulles** (7 Avril 1893 – 29 Janvier 1969) fut un diplomate, avocat, banquier et fonctionnaire américain qui devint le premier civil et le plus ancien (1953-1961) directeur de la Central Intelligence (chef de facto de la Central Intelligence Agency des États-Unis) et membre de la Commission Warren. Entre ses périodes de service dans le gouvernement, Dulles était avocat d’affaires et associé chez Sullivan & Cromwell. Allen Dulles a été aussi actionnaire principal de la United fruit Company dont les intérêts ont été rudement mis à l’épreuve dans de nombreux pays d’Amérique Latine. Son frère aîné, John Foster Dulles, a été secrétaire d’État sous l’administration Eisenhower. (Source : Wikipedia)[↩](#a1)
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)
+2. <large id="f1"> Allen Dulles a confirmé ses propos dans le message qu'il a communiqué [le lendemain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-2-21-1-fab-allen-dulles/)[↩](#a1)
+
+### [**Lien vers les messages des années 2013**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -28,3 +28,7 @@ Beaucoup d’attente, âmes bien-aimées, beaucoup d’attente. Nous continuons 
 Que Dieu vous bénisse, mes bien-aimés. En effet, nous sommes tous les belles fleurs de Dieu qui s’éveillent à l’Amour, montrant notre vrai moi à Dieu, Son Grand Amour rayonnant sur nous tous, attirant tous nos beaux moi dans leur gloire, leur unicité et leur émerveillement.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Keea Atta Kem. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

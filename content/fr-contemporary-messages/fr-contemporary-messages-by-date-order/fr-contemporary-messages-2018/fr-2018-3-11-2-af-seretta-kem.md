@@ -26,3 +26,7 @@ Je sais que vous avez peut-être besoin de la reconnaissance de vos frères et s
 Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem et nous nous réunirons à nouveau pour continuer ces prières et un jour, bientôt je l’espère, vous irez de par le monde démontrer les vérités de l’Amour de Dieu, amenant de nombreuses âmes à l’éveil de ce potentiel, montrant le chemin avec votre sagesse, l’Amour en vous, la compassion que vous avez pour vos frères et sœurs, servant Dieu avec chaque respiration et chaque pas que vous faites. Ce n’est pas si loin. Il est proche.
 
 Puissiez-vous continuer à faire les efforts dont vous êtes conscients et qui doivent être faits. Soyez toujours dans la Lumière, âmes bien-aimées. Nous vous remercions et nous vous bénissons pour ce temps que vous avez pris dans l’amour. Nous sommes avec vous. Je suis votre serviteur Seretta Kem et je vous aime. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés. Nous sommes avec vous.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

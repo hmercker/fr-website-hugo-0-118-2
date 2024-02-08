@@ -38,3 +38,7 @@ Comme toujours, le choix est devant vous. L’amour de Dieu attend de remplir, d
 Puissiez-vous continuer à recevoir cette bénédiction de l’Amour du Père afin que cela vous donne l’élan et le pouvoir de prendre les décisions, les choix pour la lumière, pour la libération et la liberté. L’Amour de Dieu vous soutient à jamais, âmes bien-aimées. Il brûle brillamment en vous. C’est la sagesse, c’est le pouvoir et la beauté qui changent votre vision du monde, votre capacité à aimer, à pardonner, et il vous portera toujours en avant, vous contraindra à une plus grande lumière.
 
 Puissiez-vous écouter de tout votre être ce que vos âmes souhaitent vous guider, car votre âme est connectée à Dieu et Dieu continue à vous inspirer et à vous aimer et cela s’exprime dans vos âmes. Dieu vous bénit, mes bien-aimés. Je suis André et je vous aime profondément. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

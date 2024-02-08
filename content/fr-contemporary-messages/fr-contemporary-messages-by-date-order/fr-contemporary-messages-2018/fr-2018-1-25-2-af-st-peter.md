@@ -16,3 +16,7 @@ L’Amour de Dieu se répandra dans le monde à partir des âmes qui aspirent à
 Âmes bien-aimées, vous êtes bénies. Vous êtes dans cette lumière. Dieu a préparé une place pour vous dans ce sanctuaire. Venez prier et connaître Sa Présence ici et vous ne serez pas déçues mais connaîtrez une profonde communion avec le Père Céleste. Soyez en paix, âmes bien-aimées, et sachez que vous êtes aimées, aimées au-delà de toute mesure, aimées dans la grâce de la pure bénédiction de Dieu pour vous.
 
 Que Dieu vous bénisse. Je suis Pierre. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

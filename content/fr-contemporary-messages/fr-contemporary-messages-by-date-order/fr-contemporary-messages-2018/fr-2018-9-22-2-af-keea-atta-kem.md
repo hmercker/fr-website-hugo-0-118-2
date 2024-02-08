@@ -32,3 +32,7 @@ Bien-aimés, soyez forts. Ayez une grande foi et soyez alignés avec Dieu et vou
 Puissiez-vous entendre l’appel de Dieu et répondre à cet appel par vos prières, l’éveil du désir de votre âme et trouver votre chemin vers ce lieu de communion, de réception, d’éveil, de connaissance et d’être dans le flux de l’Amour de Dieu.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Keea Atta Kem. Je vous aime. Que Dieu vous bénisse, mes bien-aimés. Je suis avec vous et je désire vous soutenir dans l’amour. Que Dieu vous bénisse. Je vous aime.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

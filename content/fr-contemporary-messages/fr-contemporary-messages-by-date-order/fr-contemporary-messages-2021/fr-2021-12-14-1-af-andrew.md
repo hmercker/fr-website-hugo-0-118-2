@@ -22,3 +22,7 @@ Nous sommes ensemble, dans cet effort, pour éveiller le monde à l’ordre de D
 Réconfortez vos frères et sœurs, mes amis bien-aimés, réconfortez tous ceux qui sont avec vous. Mettez de côté vos jugements et apportez votre compassion, votre volonté d’aimer, d’aimer vraiment, à la place de toutes les conditions qui ne sont pas de l’amour. En faisant cela, vous ouvrez le canal clair que vous êtes afin que de grandes et belles bénédictions viennent à vos frères et sœurs, les canaux de Dieu, bien-aimés, les canaux de Dieu, et nous marchons ensemble pour accomplir ce grand objectif d’apporter une plus grande lumière et vérité au monde.
 
 Que Dieu vous bénisse. Je suis André. Mon amour pour vous est grand. Âmes bien-aimées, nous sommes ensemble dans la lumière, buvant ces eaux d’amour qui vous baignent. Buvez-les et sachez que vous êtes avec Dieu en ce moment même, Dieu vous bénisse. André vous aime tendrement. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

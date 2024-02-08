@@ -37,4 +37,6 @@ Ces dons d’amour, vous ne vous les envierez pas les uns les autres, mais vous 
 
 Je vous aime, mes disciples du Christ, et je suis votre frère et ami, Jésus, qui vous aime et vous sert dans l’Amour Divin.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)
+### [**Lien vers les messages des années 2001**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

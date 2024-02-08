@@ -9,7 +9,7 @@ weight:
 ---
 ### La vérité passe par l'âme
 
-Confucius - reçu par Al Fike le 29 Juillet 2017, Gibsons, Colombie-Britannique, Canada
+Confucius<sup id="a1">[1](#f1)</sup>- reçu par Al Fike le 29 Juillet 2017, Gibsons, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Confucius. J'espère que vous pouvez m'entendre.
 
@@ -24,3 +24,11 @@ Ces prises de conscience surviennent lorsque Dieu touche votre âme avec Son Amo
 Que Dieu vous bénisse, mes bien-aimés. Puissiez-vous continuer à créer la Lumière dans ce monde, que vos efforts soient un canal de la Volonté et de l'Amour de Dieu dans ce monde. Puissiez-vous entendre Ses murmures dans vos âmes. Puissiez-vous connaître la guidance que Dieu a pour vous, afin que vous puissiez vivre vos vies sur le chemin de la Lumière et de l'Amour. Dieu a beaucoup à donner, âmes bien-aimées. Il est désireux de vous donner la grande abondance de Sa Bénédiction si vous demandez et êtes réceptifs à ce qui est donné.
 
 Dieu vous bénit, mes bien-aimés. Les anges sont avec vous. Dieu est avec vous. Vous êtes dans la Lumière. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués  par Confucius sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a1)
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

@@ -37,3 +37,7 @@ Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant Augustin. Je s
 <small>
 
 1. <large id="f1"> La somatisation est la génération de symptômes physiques à partir d’un état mental tel que l’anxiété.[↩](#a1)
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

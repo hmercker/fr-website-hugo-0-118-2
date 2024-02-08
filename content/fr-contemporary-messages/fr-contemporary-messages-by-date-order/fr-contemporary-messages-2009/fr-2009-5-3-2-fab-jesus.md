@@ -27,4 +27,8 @@ Eh bien, chacun d'entre nous a une mission. Les esprits des sphères inférieure
 
 Mais même si ces bons esprits n'ont pas la Nouvelle Naissance, ils sont toujours capables de faire le bien.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+

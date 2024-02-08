@@ -37,4 +37,7 @@ Il est nécessaire à ce stade que vous vous en teniez à votre foi et que vous 
 
 La paix et la justice viendront sûrement, et les forces des ténèbres seront vaincues. Après tout, ces forces sont contrôlées par des êtres humains très faibles qui ont construit leurs fondations sur du sable, qui ne peut pas tenir.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

@@ -15,4 +15,6 @@ C’est moi, Jésus (il sourit doucement) Tu es dans le cercle d’Amis, nous so
 
 Je vous salue dans une joyeuse attente, car vous entrez dans une nouvelle année et nous nous réjouissons et savons que nous travaillons ensemble. Vous êtes maintenus dans notre amour et notre serviabilité perpétuelle. Appelez-nous seulement. C’est moi, Jésus, ton frère aîné, proche de la source de notre Père, toujours prêt à aider pour que chacun puisse découvrir la connaissance et la sagesse de notre Père.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)
+### [**Lien vers les messages des années 2013**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

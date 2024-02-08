@@ -25,4 +25,8 @@ Et c'est bien normal, car les vies des êtres humains se croisent d'innombrables
 
 Et toujours, planant au-dessus du plan terrestre, se trouve le Créateur aimant, qui se soucie avant tout du bien-être spirituel de ses enfants.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+

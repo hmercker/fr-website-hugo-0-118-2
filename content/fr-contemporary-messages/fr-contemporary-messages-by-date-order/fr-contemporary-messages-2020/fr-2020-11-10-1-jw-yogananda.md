@@ -20,3 +20,7 @@ C’est pourquoi la prière pour l’Amour de Dieu est si importante et pourquoi
 Comme nous l’avons dit à maintes reprises, ne vous inquiétez pas du passé ou du lendemain, mais soyez dans le présent. Soyez en Sa présence ! Apportez cela à chaque instant en servant le monde avec amour. Comme l’a dit mon frère Gandhi, « Soyez le changement que vous souhaitez voir dans le monde ». N’est-ce pas magnifique ?
 
 Que Dieu vous bénisse de Son Amour Divin. Je suis votre frère et votre ami. Je suis Yogananda.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

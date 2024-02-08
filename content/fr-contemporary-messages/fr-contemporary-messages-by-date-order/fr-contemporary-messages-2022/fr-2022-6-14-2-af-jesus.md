@@ -26,3 +26,7 @@ Beaucoup de ceux qui sont dans l’obscurité et la douleur sont élevés par vo
 Il y a beaucoup de travail à faire, âmes bien-aimées, tant de choses pour annuler l’obscurité et apporter une plus grande lumière. Bien-aimés, nous sommes ensemble dans cette lumière. Nous sommes dans cet amour, ce flux d’amour, tous frères et sœurs, tous faisant partie d’une grande famille d’amour.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis avec vous. Nous portons cette vérité ensemble. La torche de la vérité brûle brillamment parmi vous. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse. Je suis Jésus, et je viens prier avec vous en ce jour et chaque jour. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

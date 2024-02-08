@@ -17,4 +17,6 @@ Comme vous pouvez le voir, nous vous guidons pour relire les canalisations de Pa
 
 Comme vous le découvrez, de telles contradictions n'existent pas vraiment, puisque ces messages représentent les vérités de Dieu. Mais comme le langage est imparfait et ne peut pas toujours comprendre ou élucider certaines réalités qui sont au-delà du plan terrestre, ces confusions apparentes existent.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

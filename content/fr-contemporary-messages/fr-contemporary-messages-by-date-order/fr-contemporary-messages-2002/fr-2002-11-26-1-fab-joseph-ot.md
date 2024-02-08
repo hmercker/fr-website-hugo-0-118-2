@@ -23,4 +23,6 @@ Vous pouvez donc vous attendre à de nombreuses années de canalisation. Prenez 
 
 M. Padgett et le Dr Samuels sont ici. Ils disent qu’ils reconnaissent mes commentaires précédents et qu’ils sont impatients d’aider au déroulement de ce plan merveilleux. Ils écriront également par votre intermédiaire.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)
+### [**Lien vers les messages des années 2002**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

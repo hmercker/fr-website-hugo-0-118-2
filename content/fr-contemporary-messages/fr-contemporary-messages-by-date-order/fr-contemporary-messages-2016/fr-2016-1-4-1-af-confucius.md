@@ -9,7 +9,7 @@ weight:
 ---
 ### Accepter les nouvelles prises de conscience d'une âme qui se libère
 
-Confucius - reçu par Al Fike le 4 Janvier 2016, Gibsons, Colombie-Britannique, Canada.
+Confucius <sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 4 Janvier 2016, Gibsons, Colombie-Britannique, Canada.
 
 Chaque moment, chaque effort que vous faites est une opportunité d’apprendre et de grandir dans vos âmes, et votre désir sincère d’augmenter le canal de guérison et d’Amour dans ce monde est beau à voir, mes bien-aimés.
 
@@ -26,5 +26,10 @@ Mais votre esprit, mes bien-aimés, doit être fort et discipliné. Vos cœurs d
 Bénédictions à vous, mes bien-aimés, mes beaux enfants nouveau-nés, dont les yeux doivent encore s’ouvrir. Cela vient et nous nous en réjouissons, mes bien-aimés, réjouissez-vous. Que Dieu vous bénisse, âmes bien-aimées, que Dieu vous bénisse. Votre ami Confucius est toujours avec vous dans votre voyage.
 
 Que Dieu vous bénisse.
+<small>
 
-[Liste des Messages année 2016](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016)
+1. <large id="f1"> Les différents messages communiqués  par Confucius sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a1)
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

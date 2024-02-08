@@ -32,3 +32,7 @@ Les lois de Dieu sont parfaites. Elles permettent des erreurs et ne les condamne
 Je vous demande de faire confiance à votre Père céleste. Vous qui reconnaissez sa souveraineté, sa bonté, sa bienveillance, ayez confiance en lui. Ayez confiance en son plan, en son plan pour vous et en son plan pour le monde. Le monde que vous avez connu se dérobe, se transforme et se remodèle dans son amour et sa volonté. L’obscurité se dissipera. Il se peut que le nouveau monde émerge des cendres des actions de l’humanité. Mais ce sera le monde de Dieu. Et c’est un monde auquel il faut croire et qu’il faut espérer.
 
 Je suis son fils, celui qui a marché sur cette Terre il y a tant d’années et qui est toujours avec vous pour vous montrer le chemin. Je suis Yeshua ben Yosef.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

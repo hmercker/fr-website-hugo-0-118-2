@@ -53,4 +53,6 @@ Vous, comme tant d’autres, ne pouvez souvent pas comprendre les voies du Créa
 
 Pour votre consolation, je peux vous assurer que vous et vos compatriotes américains n’aurez pas à endurer ce qui s’est passé en Europe dans cette terrible période des années 1940. Cette fois, le soulagement viendra, et avec lui, l’assurance réconfortante qu’il existe un Créateur qui aime l’humanité et la terre.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

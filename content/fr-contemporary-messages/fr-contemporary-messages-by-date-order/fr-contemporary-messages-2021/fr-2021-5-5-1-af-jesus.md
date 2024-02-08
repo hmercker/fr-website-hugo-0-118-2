@@ -70,3 +70,7 @@ Mais en effet, votre contribution est importante et nécessaire pour que ces cho
 Que Dieu vous bénisse dans vos efforts, âmes bien-aimées, et sachez que je ne dis pas ces choses pour diminuer votre enthousiasme ou vos tentatives de marcher dans le monde de l’Amour et de la Vérité de Dieu sur Son Chemin Divin, mais plutôt pour vous informer et vous éclairer sur ce qui est requis et ce qui vient lorsque vous vous engagez à ouvrir cette porte pour servir Dieu. Cette porte est l’avenue vers de vastes ressources, une vaste lumière, un amour et une grâce puissants et des bénédictions qui peuvent couler à travers vous vers les autres. Elle est le fruit de l’humilité, de la prière, de la compréhension de l’immensité de l’univers de Dieu. Cela vient parce que vous avez appris à vous aimer, à être humble, et dans la Grâce de Dieu toujours. De cette façon, beaucoup de choses, beaucoup de bénédictions viendront à vous, à travers vous, et tout autour de vous.
 
 Que Dieu vous bénisse. Je suis votre frère, votre ami, Jésus. Mon amour est avec vous. Que Dieu vous bénisse, âmes bien-aimées.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

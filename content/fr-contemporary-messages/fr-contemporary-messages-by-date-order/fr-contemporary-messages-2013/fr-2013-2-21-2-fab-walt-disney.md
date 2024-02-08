@@ -38,4 +38,7 @@ Walt Disney | [Walt Disney, l’histoire et l’espoir](/fr-contemporary-message
 Walt Disney | [Inharmonie et Boomerang](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-6-10-1-fab-walt-disney/) | 10 Juin 2012
 Walt Disney | [Le sens moral de Walt Disney](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-6-21-2-fab-walt-disney/) | 21 Juin 2012
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)
+
+### [**Lien vers les messages des années 2013**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

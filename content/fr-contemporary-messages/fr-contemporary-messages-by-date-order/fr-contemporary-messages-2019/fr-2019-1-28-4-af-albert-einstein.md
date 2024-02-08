@@ -23,3 +23,7 @@ Dieu vous bénisse, mes amis. Que Dieu vous bénisse et vous remercie pour vos e
 <small>
 
 1. <large id="f1"> Le problème non formulé est que pour recevoir du matériel scientifique, le médium a besoin d'un esprit formé à la science. Nous n'avons pas de tels médiums dans notre mouvement.[↩](#a1)
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

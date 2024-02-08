@@ -9,7 +9,7 @@ weight:
 ---
 ### La relation de Jésus au Judaïsme, et l'idée de Logos
 
-John - reçu par FAB le 29 Juillet 2009, Santa Cruz, Californie, USA.
+Jean - reçu par FAB le 29 Juillet 2009, Santa Cruz, Californie, USA.
 
 C'est moi, Jean.
 
@@ -21,4 +21,6 @@ Oui, vous avez raison - Jésus a élargi la Torah, et c'est parce qu'il était l
 
 J'ai nié, dans [ma canalisation du 17 Janvier 2007](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-17-2-fab-st-john/), que je faisais référence au Logos dans la phrase d'ouverture de mon Évangile. Ceci est vrai. Vous avez lu que le philosophe Juif Philon a utilisé cette idée grecque. Mais Philon a cherché à l'intégrer à son héritage Juif. Cela n'a jamais été mon intention, ni celle de Jésus, de le faire.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

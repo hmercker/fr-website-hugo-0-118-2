@@ -24,3 +24,7 @@ Puissiez-vous en venir à vous voir comme un canal véritable et pur de l’amou
 Que Dieu vous bénisse, âmes bien-aimées. Puissiez-vous parvenir à connaître votre véritable moi et ce qu’il est et se manifeste dans le monde. Vous êtes ses enfants. Nous sommes tous les enfants de Dieu. Puissions-nous parvenir à être en harmonie, en paix et en amour avec Dieu et tout ce que Dieu veut pour ce monde.
 
 Que Dieu vous bénisse, mes bien-aimés, que Dieu vous bénisse. Je suis votre enseignant Augustin, et je suis avec vous pendant que vous priez, comme le sont de nombreux anges des Cieux Célestes. Que Dieu vous bénisse et vous garde dans la lumière. Notre amour est avec vous tous, âmes bien-aimées. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -16,3 +16,7 @@ Que Dieu vous bénisse, mes bien-aimés. Oui, cet instrument va continuer à se 
 Pourtant, il continue à aller de l'avant avec ses dons. La clarté viendra, ainsi qu'un sentiment de confiance concernant les personnes qui l'éclipsent. Parce que certains esprits ne lui sont pas familiers, il y a un sentiment d'hésitation. Je dois le rassurer que ses guides et gardiens continueront à s'assurer que ceux qui passent par lui sont de la plus haute importance et font partie du Plan. Il ne doit donc pas s'inquiéter ou se préoccuper de ce qui passe par lui, mais être un individu ouvert et confiant. Dieu veillera à ce que tout ce qui vient ait un but et soit une bénédiction.
 
 Merci, âmes bien-aimées. Que Dieu vous bénisse. Que Son Amour continue à couler dans vos âmes en grande abondance. Je suis votre professeur Augustin et toujours à vos côtés alors que vous continuez à servir Dieu de cette manière. Beaucoup de bénédictions à vous, âmes bien-aimées, et à tous ceux qui sont connectés à cette grande entreprise d'apporter la Vérité de l'Amour de Dieu à ce monde. Tous sont bénis dans cet effort. Tous sont bénis. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

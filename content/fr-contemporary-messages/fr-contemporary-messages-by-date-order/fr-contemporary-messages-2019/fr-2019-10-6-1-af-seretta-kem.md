@@ -32,3 +32,7 @@ Soyez patientes, âmes bien-aimées, mais soyez sérieuses dans vos prières et 
 Ayez de la compassion pour vous-mêmes et cherchez à vous aimer. Cherchez à libérer toutes les barrières, tous les jugements, toutes les choses qui ne sont pas de l’amour. De cette façon, vous écartez le rideau de la condition humaine qui continue à envelopper toute l’humanité dans une grande ignorance et une grande peur.
 
 Vous vous réveillez et vous continuerez à vous réveiller. Vous êtes fermement à la portée de Dieu. Que Dieu vous bénisse dans ce voyage et que vous sachiez que vous êtes entourés par les anges de Dieu. En effet, vous êtes très précieux pour nous tous et nous faisons tout notre possible pour vous aider et vous élever au cours de ce voyage. Que Dieu vous bénisse. Je suis Seretta Kem. Mon amour est avec vous tous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

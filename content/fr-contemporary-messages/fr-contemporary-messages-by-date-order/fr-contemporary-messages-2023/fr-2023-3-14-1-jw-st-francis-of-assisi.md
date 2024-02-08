@@ -18,3 +18,7 @@ Dans un monde si occupé à acquérir des choses matérielles, dans un monde si 
 Alors, oui, priez, écoutez les conseils des Anges et du Maître, puis apportez ces mots dans votre réalité afin d’apporter la lumière là où il y a de l’obscurité, d’apporter la guérison là où il y a de la blessure, d’apporter la foi là où il y a du doute, la paix là où il y a de la colère, et l’amour, toujours l’amour.
 
 Que le grand Amour de Dieu qui nous élève tous, qui nous transforme, soit sur nous dans cette prière. Et que Dieu bénisse chacun d’entre vous dans les jours à venir, alors que vous marchez dans ce monde en étant des canaux de l’amour et de la lumière de Dieu. Vous êtes notre espoir et nous vous aimons. Je vais me retirer et rejoindre le cercle sacré dans la grâce de Dieu. Je suis votre frère et votre ami éternel dans le Christ. Je suis François. Allez en paix.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

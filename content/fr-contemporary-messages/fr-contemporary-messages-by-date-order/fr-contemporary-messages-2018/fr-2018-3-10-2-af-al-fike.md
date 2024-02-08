@@ -50,3 +50,7 @@ Al : Oui, dans le monde mais pas du monde.
 G : Donc, il n’est pas bon de se replier et de dire que je ne veux rien faire dans le monde parce que, en fin de compte, nous devons agir dans le monde.
 
 Al : Tous ces gens dans nos vies qui n’ont pas ce que nous avons, ils sont confrontés à cela. Il faut donc avoir de la compassion pour ce qu’ils vivent. Gary y fait face. Bill y fait face. Nos enfants y font face. Tous ces gens font face à cela et ils n’ont pas, ou du moins d’une manière consciente, ils n’utilisent pas les outils que nous comprenons, pour essayer de le neutraliser, donc vous ne pouvez pas, vous ne pouvez pas juger parce que c’est juste tellement omniprésent et ce qu’ils sont capables de faire sans cette force que nous construisons en nous-mêmes, vous devez avoir un peu d’admiration pour leur ténacité et essayer de rester positif et de vivre leur vie d’une bonne manière.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

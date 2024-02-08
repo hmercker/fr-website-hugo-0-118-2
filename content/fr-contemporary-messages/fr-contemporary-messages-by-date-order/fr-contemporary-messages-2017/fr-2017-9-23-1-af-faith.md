@@ -30,3 +30,8 @@ J'ai donc fait l'expérience de la puissance de la foi au sein de mon âme. Je l
 Continuez, mes frères et sœurs, dans vos efforts pour apporter une plus grande Lumière dans ce monde, car une plus grande Lumière est en effet nécessaire. Si le monde pouvait découvrir le pouvoir de la foi, il serait vraiment différent, car Dieu serait connecté de manière consciente avec chaque âme et chaque âme vivrait en harmonie avec Dieu et la Création de Dieu. N'est-ce pas là un objectif à poursuivre ? N'est-ce pas une vérité à donner au monde ? N'est-ce pas une vérité à vivre, à exprimer et à faire grandir dans le pouvoir de la foi ? Puissiez-vous le faire chaque jour, mes bien-aimés. Puissiez-vous le faire chaque jour et que Son Amour se déverse dans votre âme à chaque instant et à chaque souffle de désir, afin que vous puissiez vraiment connaître la puissance de cette foi qui grandit en vous, que vous puissiez vraiment vivre de cela et être en harmonie avec Dieu.
 
 Que Dieu vous bénisse. Je suis Faith. Je vous aime tellement. Je vous aime tellement. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

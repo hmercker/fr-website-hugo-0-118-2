@@ -21,3 +21,7 @@ Que Dieu vous bénisse tous dans vos voyages. Je suis votre enseignant Augustin 
 <small>
 
 1. <large id=”f1”> Barbara a donné plus de détails ultérieurement par [ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-20-1-af-barbara-davies/)[↩](#a1)
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

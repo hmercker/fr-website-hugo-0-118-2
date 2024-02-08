@@ -21,4 +21,6 @@ Vous avez été consternés de voir à quel point ce comportement est maintenant
 
 Je sais qu'il vous est arrivé de ne pas croire les nombreuses déclarations que vous avez canalisées au sujet de la délivrance, mais la délivrance viendra, et l'humanité verra la Main du Seigneur tendue pour Ses enfants.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

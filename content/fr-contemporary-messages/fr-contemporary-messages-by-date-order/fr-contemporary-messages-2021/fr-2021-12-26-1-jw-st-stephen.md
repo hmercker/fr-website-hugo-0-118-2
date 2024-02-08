@@ -23,3 +23,7 @@ Je remercie celui-ci de m’avoir accordé ce temps et je me joins maintenant à
 <small>
 
 1. <large id=”f1”> La fête de Saint Étienne est célébrée le 26 Décembre par l’Église Catholique et certaines églises protestantes. Elle est célébrée le 27 Décembre par l’Église Orthodoxe.[↩](#a1)
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -22,4 +22,9 @@ Je vous remercie pour ce temps et je me joindrai à vous, comme beaucoup d’aut
 Je suis votre frère en Christ, votre ami éternel, je suis Yogananda. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> Il fait peut-être référence à ceci : « La masse des hommes mène une vie de désespoir tranquille, et va au tombeau avec la chanson encore en eux. » Henry David Thoreau.[↩](#a1)
+1. <large id=”f1”> Il fait peut-être référence à ceci : *« La masse des hommes mène une vie de désespoir tranquille, et va au tombeau avec la chanson encore en eux. »* Henry David Thoreau.[↩](#a1)
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

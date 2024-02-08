@@ -32,3 +32,7 @@ Vous serez toujours bénis et vous, sur votre chemin, continuez à aller de l’
 Puissiez-vous toujours choisir la Lumière. Puissiez-vous toujours marcher sur ce chemin d’intégrité, d’amour, d’humilité et de grâce. Vous vous rapprochez de nous chaque jour. Vous êtes touchés par la grâce de Dieu chaque jour. Que cette Grâce soit présente dans tout ce que vous faites et tout ce que vous êtes et ces dilemmes et défis s’estomperont avec la sagesse et la certitude de ce qui se trouve dans vos âmes.
 
 Que Dieu vous bénisse, mes amis. Je suis Flavius Josèphe et je suis heureux d’avoir commenté le message de notre cher frère. Car cette relation qui continue à se développer entre ces deux beaux médiums va effectivement contribuer à élargir le champ de la connaissance qui vient. Nous sommes heureux que tous deux soient en harmonie et s’aiment avec un profond respect et une grande joie. Quelle bénédiction Dieu a donné dans cette relation. Que Dieu vous bénisse et vous garde tous les deux et vous tous, dans cette grande harmonie d’amour. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

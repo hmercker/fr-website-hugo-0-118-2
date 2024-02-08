@@ -37,4 +37,6 @@ Je suis avec vous. Ne doutez pas, mes chers frères et sœurs. Vous n'êtes jama
 
 Je suis votre ami et votre frère qui vous aime tendrement et prie Dieu pour votre réveil spirituel et votre renaissance dans l'Amour, Jésus.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)
+### [**Lien vers les messages des années 2001**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

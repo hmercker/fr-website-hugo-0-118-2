@@ -45,4 +45,8 @@ Je te laisse maintenant avec mes bénédictions et l’assurance que nous contin
 
 Que Dieu vous bénisse tous et chacun. Je suis votre frère dans le Christ, André l’Apôtre de Jésus, véritable adepte de ses enseignements. Joseph est tout près et vous envoie son amour et ses bénédictions et nous sommes de hauts esprits Célestes qui veillent sur vous tous.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+
+### [**Lien vers les messages des années 2000**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

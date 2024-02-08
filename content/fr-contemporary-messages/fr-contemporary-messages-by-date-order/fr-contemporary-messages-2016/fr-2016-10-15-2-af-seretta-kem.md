@@ -22,3 +22,7 @@ Le monde cherche l’équilibre, la vie cherche la vie, et l’harmonie avec les
 Oui, mes bien-aimés, vous êtes au bord de beaucoup de changements et il y aura des luttes et des difficultés, mais vous serez protégés et portés à travers cette période et vous ne pouvez pas porter la peur, mais l’espoir, l’espoir d’un monde qui est en harmonie et il y aura la joie et l’amour et beaucoup à gagner de ce qui est à venir. Grande joie à vous, mes bien-aimés, Amour et Lumière. Sachez que vous êtes aimés, que vous êtes dans la Lumière, que nous serons avec vous alors que vous continuez à naviguer dans ce monde en mutation et en changement.
 
 Que Dieu vous bénisse, mes bien-aimés. Seretta Kem vous aime tendrement, est avec vous alors que vous continuez à grandir et à chercher la vérité et à permettre à la Lumière de Dieu de se construire en vous. Âmes bien-aimées.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

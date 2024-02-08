@@ -23,4 +23,6 @@ Nous vous remercions pour ces efforts que vous avez faits mes enfants. Vous rend
 
 Continuez à prier pour l’Amour du Père, continuez sincèrement, le temps presse, mes enfants. Le temps presse, il y a beaucoup à faire. De grandes opportunités vous attendent, chacun qui est disposé et désireux d’être un instrument de paix et de changement dans ce monde. De nombreux dons se trouvent dans chaque âme, des dons désireux de se manifester et d’être utilisés par Dieu pour aider votre prochain, comme vous marchez sur ce chemin avec humilité et amour, alors Dieu vous utilisera, et Dieu vous bénira. Continuez à demander l’Amour, continuez à vous engager dans ce travail, continuez à grandir dans l’Amour, à partager les uns avec les autres, à avoir une compréhension commune. Et en cela vous travaillerez ensemble comme une famille, harmonieusement et magnifiquement. Que Dieu vous bénisse, je suis Isaïe et je vous aime.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014)
+### [**Lien vers les messages des années 2014**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

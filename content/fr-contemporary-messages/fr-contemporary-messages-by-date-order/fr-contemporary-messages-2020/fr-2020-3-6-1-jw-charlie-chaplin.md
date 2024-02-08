@@ -19,3 +19,7 @@ Ainsi, que vous preniez soin d'un autre être humain physiquement ou que vous pa
 <small>
 
 1. <large id=”f1”> Jane Gartshore et Rev. Jimbeau Walsh.[↩](#a1)
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

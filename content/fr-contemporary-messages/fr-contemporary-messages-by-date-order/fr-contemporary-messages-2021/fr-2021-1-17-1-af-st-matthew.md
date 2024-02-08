@@ -22,3 +22,7 @@ Dieu a besoin que vous soyez dans la Lumière, âmes bien-aimées. Dieu a besoin
 Car souvent, cela prend du temps. Souvent, cela vient lentement et subtilement, mais en effet, le changement vient. Car le monde est destiné à changer et chaque âme individuelle en son sein est destinée à changer. Le pouvoir du libre arbitre déterminera beaucoup de choses, âmes bien-aimées, mais le pouvoir de l’Amour est encore plus grand et peut apporter le changement sur autrui, étant donné le pouvoir de votre propre foi, ce grand rocher en vous d’amour et de foi, de compassion et de vérité. Ces choses peuvent changer le monde et ces choses sont déjà en train de changer chacun d’entre vous.
 
 Que Dieu vous bénisse dans ce voyage d’amour. Je suis Matthieu. Je suis venu prier avec vous, comme le font de nombreux membres du Royaume Céleste. Que Dieu vous bénisse. Que Son Amour vous apporte la paix, que Son Amour vous élève, que Son Amour vous donne la perspicacité, et que Son Amour fasse grandir le grand aspect de la Foi dans chaque âme. Que Dieu vous bénisse. Que Dieu vous bénisse tendrement. Mon amour est avec vous.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -28,3 +28,8 @@ C’est si simple. Même un petit yogi comme moi peut le comprendre (rires). C�
 Que Dieu vous bénisse, mes bien-aimés. Je reviendrai et je vous parlerai. J’ai beaucoup d’amour pour vous parce que vous apportez une lumière à ce monde et plus vous pouvez lui permettre de briller auprès de toutes les personnes de ce monde, plus vous apporterez un changement et une différence. Vous allumerez une bougie, qui allumera une bougie, qui allumera une bougie dans le monde jusqu’à ce que le monde entier soit illuminé par la Vérité.
 
 Que Dieu vous bénisse. Je suis Yogananda et je vous honore, j’honore chacun de vous en tant que belles âmes de l’Amour de Dieu. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

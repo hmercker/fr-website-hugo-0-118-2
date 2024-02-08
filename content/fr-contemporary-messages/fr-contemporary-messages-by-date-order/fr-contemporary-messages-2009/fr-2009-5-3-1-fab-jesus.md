@@ -35,4 +35,7 @@ Nous faisons donc ce que nous pouvons pour aider, et les bons esprits non croyan
 
 Vous vous souviendrez que j'ai dit que Dieu ne donnera pas un serpent à une personne qui demande un poisson.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

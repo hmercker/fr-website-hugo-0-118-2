@@ -33,3 +33,8 @@ Que peut demander de plus une âme ? Au fur et à mesure que vous traverserez ce
 <small>
 
 1. <large id="f1"> La Phénicie était une ancienne civilisation de langue sémitique originaire de la région du Levant en Méditerranée orientale, plus précisément du Liban moderne. Elle était concentrée le long de la côte libanaise et comprenait certaines zones côtières de la Syrie et du nord d’Israël, s’étendant au nord jusqu’à Arwad et au sud jusqu’à Acre et peut-être Gaza. À son apogée, entre 1500 et 300 avant notre ère, la civilisation phénicienne s’est répandue dans toute la Méditerranée, de Chypre à la péninsule ibérique.[↩](#a1)
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

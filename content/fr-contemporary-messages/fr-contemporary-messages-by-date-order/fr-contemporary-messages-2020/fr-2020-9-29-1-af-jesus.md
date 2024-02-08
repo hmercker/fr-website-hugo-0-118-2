@@ -38,3 +38,8 @@ Ces réalités viendront au fur et à mesure que vous continuerez à vous dével
 Ainsi, cela viendra pas à pas. Cela viendra donc au fur et à mesure que vous continuerez à grandir, à avoir confiance et à demander à Dieu de vous guider et de vous montrer la voie pour ouvrir votre âme à Son Amour et à tout ce qui vient avec ce don. Il en sera ainsi, l’épanouissement de vos perceptions, l’émerveillement de tout ce qui est en vous s’éveillant dans l’Amour.
 
 Que Dieu vous bénisse sur ce chemin. Je suis votre frère et votre ami, Jésus. Je suis venu aujourd’hui pour vous enseigner la vérité de l’âme. Que Dieu vous bénisse. Que Dieu vous bénisse, mes amis bien-aimés. Mon amour pour vous est grand et c’est pourquoi nous voyageons ensemble vers une plus grande vérité, une plus grande connaissance, une plus grande expérience et un plus grand amour. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

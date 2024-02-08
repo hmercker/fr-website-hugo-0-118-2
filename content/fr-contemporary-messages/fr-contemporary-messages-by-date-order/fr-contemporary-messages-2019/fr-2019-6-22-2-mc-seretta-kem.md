@@ -26,3 +26,7 @@ Nous espérons que les deux d'entre vous qui résidez ici sur cette belle île s
 Celui qui se connecte à la véritable essence de l'amour de Dieu reçoit un cadeau éternel de la vie, des potentiels infinis, d'innombrables changements et miracles. Il y a beaucoup de bénédictions à recevoir par le toucher de l'Amour de Dieu. Je vous remercie de me permettre de venir partager des mots et une invitation à connaître et à comprendre la Vérité de la Création, la Vérité de l'Amour. Que votre temps ensemble soit béni et nous marcherons avec vous.
 
 Je suis Seretta Kem et je vous remercie de me permettre de venir partager ma lumière, mon amour et ma sagesse alors que vous priez. Que Dieu vous bénisse. Mon amour est avec vous tous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

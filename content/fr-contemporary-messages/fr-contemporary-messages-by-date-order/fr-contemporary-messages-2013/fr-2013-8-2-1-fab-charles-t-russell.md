@@ -24,4 +24,7 @@ Lorsque j’ai prédit que [Jésus reviendrait en 1914](/fr-james-padgett-messag
 
 2. <large id="f2"> Cette communication est remarquable. En effet il est connu que les témoins de Jéhovah avaient fait cette prédiction. Cependant ils l’ont maintenant commodément oubliée, car ils ont évidemment conclu qu’elle n’a pas eu lieu. Il n’est donc pas possible de trouver l’énoncé de cette croyance dans la version actuelle de Wikipedia qui leur est consacrée.[↩](#a2)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)
+### [**Lien vers les messages des années 2013**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

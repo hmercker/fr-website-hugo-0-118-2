@@ -24,3 +24,7 @@ Donc, mes chers, quoi que vous ressentiez contre vous, sachez que vous pouvez al
 Oh mes amis, nous sommes fiers de vous. Nous continuerons à vous encourager et à être avec vous dans ce voyage, non seulement pour votre transformation, mais aussi pour la transformation du monde et la grande guérison qui est nécessaire et pour laquelle vous vous êtes tous engagés et embarqués ; embarqués dans ce voyage, pour le bien de tous. Comment nous vous aimons.
 
 Je suis avec vous, mon amour est avec vous. Que Dieu vous bénisse et vous embrasse dans Sa Lumière et Son Amour. Nous sommes tous unis en cela. Je suis Yogananda. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

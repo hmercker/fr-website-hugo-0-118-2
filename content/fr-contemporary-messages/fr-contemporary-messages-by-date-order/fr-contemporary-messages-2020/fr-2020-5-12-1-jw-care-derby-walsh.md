@@ -24,3 +24,7 @@ Vous avez entendu le Maître dire qu’il y avait certains événements qu’il 
 J’espère avoir répondu aux questions de ceux qui se sont interrogés sur ces cadeaux. J’espère pour ceux qui sont concernés que l’Amour de Dieu leur apporte la paix, comme Il est dit, la paix qui dépasse la compréhension. Comme nous souhaitons cela pour vous tous. Que votre cercle continue à être béni dans la lumière et l’amour et dans l’étreinte du Père céleste alors que vous vous élevez vers les cieux Célestes. Que Dieu bénisse chacun d’entre vous. Merci pour m’avoir accueilli cette fois-ci.
 
 Avec tout mon amour. Je suis Care.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

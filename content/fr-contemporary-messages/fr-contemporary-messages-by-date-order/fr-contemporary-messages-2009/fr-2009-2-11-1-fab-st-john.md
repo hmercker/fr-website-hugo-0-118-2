@@ -23,4 +23,7 @@ Je faisais référence à notre expérience, à la société dans laquelle Jésu
 
 Nous vous encourageons à poursuivre votre lecture, car nous avons un fort désir de révéler l'environnement culturel dans lequel le Maître a enseigné. Il en faisait profondément partie, et il désire lui-même que cette vérité soit soulignée et comprise, afin que la vérité de l'origine Juive du Christianisme soit mise en évidence et expliquée.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

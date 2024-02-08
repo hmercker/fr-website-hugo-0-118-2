@@ -11,7 +11,7 @@ weight:
 
 Dr Gordon Leonard  - reçu par Al Fike le 26 Décembre 2021, Gibsons, Colombie-Britannique, Canada.
 
-Je m’appelle Dr Gordon Leonard. Je travaille avec ce cercle et ce groupe dans la région où ils résident depuis de nombreuses années, aidant à élever et à guérir mes frères et sœurs bien-aimés qui marchent sur ce plan terrestre, le plan si frappé par de nombreux pièges et problèmes physiques, problèmes émotionnels, tant, tant de choses compliquées sur le plan terrestre. Je suis un Ange Céleste. Je continue à travailler avec de nombreuses personnes sur la Terre, car j’étais un médecin lorsque je marchais sur la Terre. Je vais administrer à tous ceux qui ont demandé la guérison et les bénédictions comme beaucoup d’anges seront dispersés en ce moment dans de nombreux coins du monde à cause de vos prières.
+Je m’appelle Dr Gordon Leonard<sup id="a1">[1](#f1)</sup>. Je travaille avec ce cercle et ce groupe dans la région où ils résident depuis de nombreuses années, aidant à élever et à guérir mes frères et sœurs bien-aimés qui marchent sur ce plan terrestre, le plan si frappé par de nombreux pièges et problèmes physiques, problèmes émotionnels, tant, tant de choses compliquées sur le plan terrestre. Je suis un Ange Céleste. Je continue à travailler avec de nombreuses personnes sur la Terre, car j’étais un médecin lorsque je marchais sur la Terre. Je vais administrer à tous ceux qui ont demandé la guérison et les bénédictions comme beaucoup d’anges seront dispersés en ce moment dans de nombreux coins du monde à cause de vos prières.
 
 Je veux affirmer le pouvoir de la foi, car c’est avec l’expression de la foi dans votre cœur, votre âme et votre esprit, lorsque vous demandez la prière ou la bénédiction de guérison pour une autre personne, que cela peut être accompli. Si vous ne croyez pas sincèrement, ne comprenez pas et ne ressentez pas que cette bénédiction viendra effectivement sur un individu ou même sur vous-mêmes, alors le pouvoir du Toucher de Dieu sur cet individu sera limité car il n’est déterminé que par le pouvoir de votre foi. En effet cette foi intérieure, cette connaissance véritable, est ce qui ouvre le canal de la guérison pour un autre. Lorsqu’ils sont réceptifs, alors cette communication de Dieu à l’individu est complète et la guérison peut se produire, des guérisons miraculeuses, car le corps physique n’est pas, comme vous pouvez le percevoir, comme une chose solide et difficile à manipuler ou à changer. Il est fluide. Les cellules peuvent réagir aux énergies, aux bénédictions et aux intentions.
 
@@ -44,3 +44,17 @@ Dieu pourvoit toujours aux besoins de ses enfants. Il est généreux. Il est aim
 Bien-aimés et beaux amis, vous vous embarquez dans une nouvelle année, un temps pour le renouvellement, un temps pour la re-dédication, un temps pour être ensemble dans une plus grande harmonie et paix. Que Dieu vous bénisse avec un vrai désir et une intention d’être dans une plus grande lumière et un plus grand amour, que vos âmes puissent vraiment s’éveiller davantage, que vos perceptions s’approfondissent, que votre capacité d’amour s’élargisse, que vous puissiez vraiment être les instruments de Dieu sur Terre, car on a cruellement besoin de vous, mes amis, on a tellement besoin de vous.
 
 Je vous remercie de m’avoir écouté aujourd’hui. Je suis le Dr Gordon Leonard. Je suis heureux de vous aider dans n’importe quelle situation, dilemme, condition qui a besoin de guérison. Que Dieu vous bénisse, mes amis, qu’il vous garde toujours dans sa lumière et son étreinte. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> Dr Gordon Leonard s'est également exprimé dans les messages suivants :  [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+--|---|---
+Dr Gordon Leonard | [L'Amour Divin de Dieu, le chemin du bonheur et de la santé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-112-1969-anonymous-dr-gordon-leonard/) |   1969
+Dr Gordon Leonard | [Comment rester en bonne santé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-92-1970-anonymous-dr-gordon-leonard/) |   1970
+Dr Gordon Leonard  | [Le pouvoir de la foi pour guérir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-26-2-af-dr-gordon-leonard/) | 26 Décembre 2021
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

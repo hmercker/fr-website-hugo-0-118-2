@@ -19,4 +19,6 @@ Mais alors, pensez-vous, si Dieu ne contrôle pas le libre arbitre et laisse la 
 
 Je sais que c'est difficile à voir et à prévoir, mais nous sommes en train de mettre en place quelque chose qui va aider. Ce seront les efforts de l'humanité qui changeront le cours des événements, mais dans cet effort, nous allons aider.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

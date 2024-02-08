@@ -30,3 +30,8 @@ Tout viendra à vous mes amis, avec le temps, alors que vous continuez à grandi
 Beaucoup de choses vous attendent. Cela vous a répété maintes et maintes fois et il est vrai que, même si vous venez d’entamer un grand et merveilleux voyage, il est important que vous réalisiez qu’il y a effectivement beaucoup de choses qui vous attendent. Soyez enthousiastes, mes amis, soyez joyeux, cherchez le plus haut, venez à Dieu autant que vous le pouvez. Car, chaque fois que vous tirerez sur cette corde de l’âme en prière, vous serez bénis et vous serez magnifiés dans la Lumière.
 
 Que Dieu vous bénisse, mes amis. Je vous remercie de m’avoir écouté aujourd’hui et je reviendrai un autre jour pour vous parler de la nature spirituelle et l’éveil de l’âme. Que Dieu vous bénisse. Je suis Michaël Collier. Mon amour est avec vous tous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

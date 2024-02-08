@@ -21,3 +21,8 @@ Je vous laisse avec tout mon amour, mon soutien et mes bénédictions dans l’a
 <small>
 
 1. <large id=”f1”> Par cette remarque, Judas fait référence aux 180 messages qu'il a communiqué d'Août 2001 à Juin 2003 à ce frère en équateur qui souhaite conserver l'anonymat. Ces très nombreux messages sont accessibles par [ce lien](/fr-judas-of-kerioth-messages/).[↩](#a1)
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

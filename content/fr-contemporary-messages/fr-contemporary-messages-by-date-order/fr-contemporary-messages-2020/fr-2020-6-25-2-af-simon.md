@@ -24,3 +24,7 @@ Au fur et à mesure que vous vous rapprocherez de Dieu, que votre foi en Dieu au
 Âmes bien-aimées, sachez que chaque individu qui s’engage à recevoir et à pratiquer cette simple prière pour recevoir l’Amour Divin aura un Ange à ses côtés, connaîtra l’élévation du Toucher de Dieu, commencera un voyage comme aucun autre qui est bien au-delà des concepts de votre esprit, allant profondément dans votre âme, une résonance et une joie grandiront parce que vous avez trouvé le chemin de l’âme. Dans ce chemin de l’âme, vous trouverez tout ce que votre âme désire, tout ce qui est de la Vérité, tout ce qui est de l’Amour. Puissiez-vous être bénis par cette grande bénédiction de l’Amour de Dieu. Puissiez-vous arriver à connaître ce vrai moi intérieur que Dieu a implanté en chacun de vous et qui aspire à la vie, à être nourri d’Amour, de l’Amour de Dieu, et vous réveiller ainsi dans le grand voyage de l’âme.
 
 Dieu vous bénisse, âmes bien-aimées, je suis Simon et je suis heureux de vous parler aujourd’hui de ces Vérités de l’âme, de ces Vérités de l’Amour de Dieu. Que Dieu vous bénisse. Que Dieu vous bénisse, belles âmes. Mon amour est avec vous.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

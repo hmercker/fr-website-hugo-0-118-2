@@ -27,4 +27,6 @@ Il vient, le Souffle de Dieu se répand et affecte tout le monde et continuera �
 
 Le Toucher de Dieu atteint vos âmes et des influx puissants de Son Amour s’ouvrent, mes bien-aimés, attirez-le en vous. C’est la manne du Ciel. Que Dieu vous bénisse.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015)
+### [**Lien vers les messages des années 2015**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

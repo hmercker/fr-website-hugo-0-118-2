@@ -25,3 +25,8 @@ Que Dieu vous bénisse, mes amis. Je suis Seretta Kem et mon amour est avec vous
 <small>
 
 1. <large id="f1"> Une référence à Al Fike arrivant à Sydney pour rejoindre Geoff Cutler et Jimbeau Walsh.[↩](#a1)
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

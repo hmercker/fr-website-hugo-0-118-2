@@ -23,3 +23,8 @@ Je vous donne mon amour, dans l’Amour du Père Céleste, dans l’amour d’un
 <small>
 
 1. <large id=”f1”> « Ma vie au Paradis » par Anthony Borgia … Partie 2 Chapitre 2.[↩](#a1)
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

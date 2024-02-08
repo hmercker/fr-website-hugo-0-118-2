@@ -29,4 +29,6 @@ Il est vrai que longtemps après que l'humanité ait perdu ce privilège, rien d
 
 Lorsque je suis apparu en Terre Sainte pour prêcher la Bonne Nouvelle, mon avènement avait été soigneusement préparé par un ordre très précis d'apparitions mortelles. Ainsi, mes prédécesseurs ont préparé la voie à ma venue. S'ils n'ont pas eu le privilège de recevoir l'Amour Divin, c'est uniquement à cause du fonctionnement du Plan de Dieu, et non à cause d'une quelconque injustice de la part de Dieu.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

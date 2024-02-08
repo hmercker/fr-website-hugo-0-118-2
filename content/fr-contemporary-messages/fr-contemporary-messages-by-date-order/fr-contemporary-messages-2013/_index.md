@@ -83,8 +83,6 @@ Le Père Céleste | [Laissez Mon Amour être votre fondement](/fr-contemporary-m
 John Wilkes Booth | [Comprendre un fanatique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-9-5-1-fab-john-wilkes-booth/) | 5 Septembre 2013
 Yogananda | [Transcender ses émotions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-11-15-1-wv-yogananda/) | 15 Novembre 2013
 
-[Lien vers les messages de l’année 2014](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/)
-<br>
-<br>
-[Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+### [**Lien vers les messages des années 2014**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/)
 
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -11,7 +11,7 @@ weight:
 
 John Wesley - reçu par Al Fike le 22 Août 2021, Gibsons, Colombie-Britannique, Canada.
 
-Salutations à vous, âmes bien-aimées. Je m’appelle John Wesley. Certains d’entre vous me connaissent bien, car vous avez adhéré à l’église et aux disciples que j’ai créés il n’y a pas si longtemps. J’étais méthodiste et j’ai fait connaître au monde les idées du méthodisme. Bien que vous puissiez penser qu’il est inhabituel pour moi de parler de vos efforts et de vos désirs d’apporter la Vérité de l’Amour Divin au monde, je pense que je suis bien qualifié parce que j’ai aussi fait de grands efforts pour apporter au monde ce que j’ai compris être les vérités que Jésus a enseignées.
+Salutations à vous, âmes bien-aimées. Je m’appelle John Wesley<sup id="a1">[1](#f1)</sup>. Certains d’entre vous me connaissent bien, car vous avez adhéré à l’église et aux disciples que j’ai créés il n’y a pas si longtemps. J’étais méthodiste et j’ai fait connaître au monde les idées du méthodisme. Bien que vous puissiez penser qu’il est inhabituel pour moi de parler de vos efforts et de vos désirs d’apporter la Vérité de l’Amour Divin au monde, je pense que je suis bien qualifié parce que j’ai aussi fait de grands efforts pour apporter au monde ce que j’ai compris être les vérités que Jésus a enseignées.
 
 Bien sûr, je sais maintenant qu’une grande partie de ce dont j’ai parlé était une erreur et un grand malentendu. Mes enseignements abordaient certainement les questions morales de l’époque et tentaient de répondre aux besoins de l’âme et de sa relation avec Dieu. Ainsi, aujourd’hui, vous avez également un profond désir, beaucoup d’entre vous, de faire comprendre à vos frères et sœurs la nécessité et le grand avantage d’établir une relation d’âme avec le Créateur, avec Dieu.
 
@@ -62,3 +62,17 @@ C’est l’essence du plan de Dieu, pour que l’humanité puisse changer de di
 Puissiez-vous en venir à le savoir et à comprendre combien chacun de vous est merveilleux et combien les potentiels que vous portez sont magnifiques dans leur portée et dans leur expression. Consacrez-vous à Dieu, mes amis bien-aimés, et parcourez le monde dans la lumière et tout le reste suivra à mesure que votre âme grandira dans Son Amour.
 
 Merci de m’avoir écouté. Nous sommes avec vous. Nous sommes avec vous dans vos efforts. Que Dieu nous bénisse tous alors que nous allons de l’avant. Je suis John Wesley. Moi aussi, je me suis consacré à vos efforts, à nos efforts pour apporter une plus grande vérité à l’humanité. Merci de m’avoir écouté. Mon amour est avec vous. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> John Wesley s'est également exprimé dans les messages suivants :  [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+John Wesley | [Le rôle de la voix directe dans l'éveil de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-20-1-af-john-wesley/) | 20 Mai 2018
+John Wesley | [Toute vérité commence avec l’âme éveillée dans l’amour – Retraite F.U.S.C.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-9-2-af-john-wesley/) | 9 Juin 2018
+John Wesley | [Exprimez-vous pour la vérité et le changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-5-2-af-john-wesley/) | 5 Novembre 2018
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

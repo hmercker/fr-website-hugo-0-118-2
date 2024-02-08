@@ -11,7 +11,7 @@ weight:
 
 Jeannette Rankin <sup id="a1">[1](#f1)</sup> - reçu par FAB le 16 Juillet 2009, Santa Cruz, Californie, USA.
 
-Je suis Jeannette Rankin.
+Je suis Jeannette Rankin.<sup id="a2">[2](#f2)</sup>
 
 Vous avez tout à fait raison, je vous ai donné des impressions de pensée sur mes opinions alors que vous lisiez ma biographie, *« Jeannette Rankin, A Political Woman (Jeannette Rankin, Une Femme Politique) »*.
 
@@ -33,5 +33,16 @@ Et, au bon moment, quelque chose se produira dans notre pays bien-aimé qui acco
 <small>
 
 1. <large id="f1"> **Jeannette Pickering Rankin** (11 Juin 1880 – 18 Mai 1973) a été la première femme à être élue à la Chambre des représentants des États-Unis et la première femme membre du Congrès parfois appelée la Dame de la Chambre. Pacifiste de longue date, elle a voté contre l’entrée des États-Unis dans la Première et la Deuxième Guerre mondiale, étant le seul membre du Congrès à voter contre cette dernière. À ce jour, elle est la seule femme à avoir été élue au Congrès dans le Montana. En 1940, Jeannette Rankin a été de nouveau élue au Congrès, cette fois sur un programme anti-guerre. Après l’attaque de Pearl Harbor, elle a de nouveau voté contre l’entrée dans une guerre mondiale, la seule membre du Congrès à le faire, en déclarant : *« En tant que femme, je ne peux pas aller à la guerre et je refuse d’y envoyer quelqu’un d’autre. Ce n’est pas nécessaire. Je vote NON »*. Cependant, elle n’a pas voté contre la déclaration de guerre à l’Allemagne et à l’Italie suite à leur déclaration de guerre aux États-Unis, elle a plutôt voté simplement Présente. À la fin de son mandat, la position anti-guerre de Jeannette Rankin était devenue si impopulaire qu’elle ne s’est pas représentée aux élections. Jusqu’à la fin de sa vie, elle s’est rendue sept fois en Inde et fut une adepte des principes gandhiens de non-violence et d’autodétermination. (Source:Wikipedia)[↩](#a1)
+<small>
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+2. <large id="f2"> Jeannette Rankin a commmuniqué les messages suivants :[↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Jeannette Rankin | [L’image que se fait d’elle-même une politicienne américaine – 1](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-16-1-fab-jeannette-rankin/) | 16 Juillet 2009
+Jeannette Rankin | [L’image que se fait d’elle-même une politicienne américaine – 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-17-1-fab-jeannette-rankin/) | 17 Juillet 2009
+Jeannette Rankin | [L’opinion de Jeannette Rankin sur ses biographes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-17-2-fab-jeannette-rankin/) | 17 Juillet 2009
+
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

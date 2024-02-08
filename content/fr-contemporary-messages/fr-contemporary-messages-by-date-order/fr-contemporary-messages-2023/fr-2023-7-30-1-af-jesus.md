@@ -24,3 +24,7 @@ Je souhaite que vous le sachiez maintenant. Je souhaite que vous construisiez su
 Mes bien-aimés, je vous apporte cette perspicacité et cette compréhension de l’importance de votre rassemblement afin que ceux d’entre vous qui sont de deux esprits et ambivalents, puissent, je le suggère, faire de grands efforts pour venir se joindre à cette bénédiction de la touche de Dieu sur vous tous . Il vous sera donné avec une telle abondance, une telle gloire que vous rentrerez chez vous changés, renforcés et éclairés dans l’amour.
 
 Que Dieu vous bénisse, bien-aimée.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

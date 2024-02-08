@@ -26,3 +26,7 @@ Ces deux âmes délicieuses viennent avec ce message ainsi que ceux qui les acco
 Réveillez-vous, mes bien-aimés, réveillez-vous à cette abondante bénédiction d’amour et vous vous trouverez dans des lieux élevés, dans la lumière, dans la joie, dans la sagesse et dans l’amour. Dieu donne à Ses enfants sans fin car l’Amour de Dieu pour Ses enfants est sans fin. Vous pouvez recevoir cette grande bénédiction goutte à goutte alors qu’elle entre dans votre âme et apporte la lumière, la guérison, la paix qui dépasse toute compréhension, elle vient à vous, vient à vous, âmes bien-aimées, afin que vous puissiez vous éveiller et connaître la vérité profonde.
 
 Que Dieu vous bénisse ainsi, belles, très belles âmes. Que Dieu vous bénisse profondément et réveille tout ce qui est à l’intérieur car il y a beaucoup de grands cadeaux et de bénédictions qui vous attendent et qui sont à vous si vous demandez. Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant Augustin. Je suis heureux de vous accompagner cet après-midi dans votre temps de prière. Que Dieu vous bénisse. Un ange est avec chacun d’entre vous. Sentez l’amour et l’élévation qui viennent avec le toucher de Dieu sur vous. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

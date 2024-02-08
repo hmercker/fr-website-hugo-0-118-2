@@ -19,3 +19,7 @@ Puissiez-vous continuer à découvrir votre vrai moi, à exprimer vos êtres uni
 <small>
 
 1. <large id="f1"> **Aldous Leonard Huxley** (26 Juillet 1894 - 22 Novembre 1963) était un écrivain et philosophe anglais. Il a écrit près de cinquante livres - des romans et des ouvrages non fictionnels - ainsi que des essais, des récits et des poèmes de grande envergure. ll est surtout connu pour ses romans, dont Le Meilleur des mondes, roman d’anticipation dystopique (contre-utopique). À la fin de sa vie, Huxley était largement reconnu comme l'un des plus grands intellectuels de son temps. Au milieu de sa carrière et plus tard, il a publié des récits de voyage et des scénarios cinématographiques. Il a passé la dernière partie de sa vie aux États-Unis, vivant à Los Angeles de 1937 jusqu'à sa mort. En 1962, un an avant sa mort, il a été élu Compagnon de littérature par la Royal Society of Literature. (Source : Wikipedia)[↩](#a1)
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

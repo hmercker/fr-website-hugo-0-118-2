@@ -24,3 +24,7 @@ Un signe angélique fera en sorte que votre cœur et votre âme le sachent et le
 J'espère que cela vous sera utile et je vous remercie pour votre merveilleux travail et votre engagement continu à avancer dans la progression de vos âmes dans l'Amour de Dieu. Quelle grande chose que cela et combien Dieu est grand dans son amour pour nous. Puissiez-vous garder cela dans votre cœur. Je reviendrai et parlerai plus longuement sur ce sujet, mais je peux vous dire qu'il y a tant de personnes qui souhaitent vous remercier, vous encourager, marcher avec vous sur ce chemin dans l'Amour de Dieu.
 
 Je suis votre frère et votre véritable ami dans le Christ, je suis Judas.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

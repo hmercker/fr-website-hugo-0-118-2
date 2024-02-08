@@ -11,7 +11,7 @@ weight:
 
 Confucius - reçu par Al Fike le 22 Janvier 2022, Gibsons, Colombie-Britannique, Canada
 
-Bénédictions à vous, enfants bien-aimés, je suis Confucius. Je suis heureux que vous parliez de ces choses, des nombreuses bénédictions de Dieu qui vous aident dans votre vie, aidant à guérir vos corps, apportant la paix à votre esprit, élargissant votre âme comme l'amour, apporte l'harmonie, l'harmonie.
+Bénédictions à vous, enfants bien-aimés, je suis Confucius<sup id="a1">[1](#f1)</sup>. Je suis heureux que vous parliez de ces choses, des nombreuses bénédictions de Dieu qui vous aident dans votre vie, aidant à guérir vos corps, apportant la paix à votre esprit, élargissant votre âme comme l'amour, apporte l'harmonie, l'harmonie.
 
 Dieu ouvre de nombreuses voies pour qu'il en soit ainsi. C'est à vous de vous éveiller à ces choses, de les désirer, de prier pour ces bénédictions. Dieu, dans son grand amour pour ses enfants, apporte de nombreuses bénédictions à chacun. Puissiez-vous en venir à connaître cela comme une partie véritable et vitale de votre vie, à comprendre que dans le flux de Dieu, il y a beaucoup à donner, et beaucoup à recevoir, et beaucoup à couler à travers chacun de vous.
 
@@ -26,3 +26,10 @@ Permettez-vous d'avoir la foi, d'avoir la patience et la persévérance à cet �
 Puissiez-vous être bénies dans l'Amour de Dieu, et puisse cette bénédiction ouvrir les nombreux portails de dons, les canaux de lumière, les beaux flux d'énergies et de bénédictions, pour vous dans votre vie, pour vos proches, pour les nombreux que vous pouvez rencontrer sur votre chemin.
 
 Que Dieu vous bénisse, âmes bien-aimées, que Dieu vous bénisse. Confucius est avec vous dans ce voyage d'éveil et de connaissance de votre vrai moi. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées. Âmes bien-aimées de Dieu.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués  par Confucius sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a1)
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

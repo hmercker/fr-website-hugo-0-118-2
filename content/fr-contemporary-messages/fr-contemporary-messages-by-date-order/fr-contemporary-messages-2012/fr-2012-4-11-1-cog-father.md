@@ -27,5 +27,6 @@ Il y a beaucoup de sujets sur lesquels nous pouvons avoir une conversation et tu
 
 Ton Père Céleste qui t’aime comme tous Ses enfants.
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
 
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

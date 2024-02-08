@@ -42,3 +42,7 @@ Ainsi, vous faites vos efforts, âmes bien-aimées, pour vous réunir et accueil
 Puissiez-vous continuer dans ce travail, âmes bien-aimées. C’est un travail noble. C’est un reflet de la croissance au sein de vos âmes. Dieu vous sourit, mes bien-aimés, Il déverse Son Amour et Ses bénédictions sur vous et en effet vous bénéficiez, comme je l’ai fait, de mes efforts et continuez à le faire, à travers ces efforts pour soutenir tous les mortels dans ce monde qui cherchent à servir de cette façon.
 
 Que Dieu vous bénisse, mes chères âmes, pour tout votre amour, votre désir et votre travail pour le Royaume de Dieu. Que Dieu vous bénisse. Je suis André et je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

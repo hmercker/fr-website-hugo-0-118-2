@@ -16,3 +16,7 @@ Al : C’était une expérience très intense pour moi aujourd’hui. Très phys
 C’était charmant, peut-être dix ou quinze minutes de cela. Puis ils m’ont allongé et j’ai atterri dans mon corps, et c’est comme si nous avions tous reçu une couverture de chaleur et d’amour, qui nous a tous recouverts. C’est resté pour le reste de la période avec nous. Oh, il y avait quelque chose pour toi dont nous allons parler plus tard, Bill, une sorte de vision pour Bill.
 
 Je ne sais pas, c’était très agréable, très exaltant, très aimant, et je me suis sentie exalté et plein d’amour pour tout le monde, reconnaissant envers Dieu et toutes ces choses standard que nous ressentons tous lorsque nous sommes dans cette béatitude. C’était très bien.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

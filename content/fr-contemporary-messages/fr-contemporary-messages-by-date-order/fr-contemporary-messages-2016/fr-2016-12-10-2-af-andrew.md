@@ -26,3 +26,7 @@ Mes bien-aimés, ce cadeau de Dieu, ce temps passé ensemble est donné gratuite
 Vous êtes aimés, mes bien-aimés, sachez-le vraiment, amenez cet amour profondément en vous et reconnaissez combien vous êtes beaux, aimez-vous comme Dieu vous aime, aimez les autres comme Dieu vous aime, soyez toujours dans le flux de son amour. Et je vous aime, mes bien-aimés, je suis André et je suis avec vous dans ce grand amour.
 
 Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

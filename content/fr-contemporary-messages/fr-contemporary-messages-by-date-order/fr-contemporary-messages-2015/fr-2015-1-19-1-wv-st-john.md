@@ -63,4 +63,6 @@ Bien que j’aimerais continuer et alors que j’ai encore beaucoup de choses à
 
 Je te remercie de nous avoir donné ces possibilités et que Dieu te bénisse. Ton frère et ami de toujours, Jean.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015)
+### [**Lien vers les messages des années 2015**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

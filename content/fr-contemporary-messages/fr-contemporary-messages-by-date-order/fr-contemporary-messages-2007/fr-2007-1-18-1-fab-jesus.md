@@ -21,4 +21,7 @@ Il y a beaucoup de mortels qui sont dépourvus de dimension spirituelle dans leu
 
 Les mortels comme vous qui perçoivent cette composante spirituelle peuvent facilement placer le côté physique et matériel de la vie, qui est un aspect important et nécessaire de la vie terrestre. Ainsi, jouir des plaisirs physiques tout en reconnaissant le spirituel, c'est affirmer la bonté de la nature animale, tout en reconnaissant simultanément la plus grande importance du spirituel. Cette approche est beaucoup plus proche de votre Judaïsme natal.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

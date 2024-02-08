@@ -11,7 +11,7 @@ weight:
 
 Le roi David - reçu par FAB le 8 Février 2003, Santa Cruz, Californie, USA.
 
-C’est moi, David.
+C’est moi, David.<sup id="a1">[1](#f1)</sup>
 
 J’apprécie la façon dont vous m’avez aimé, et dont vous avez aimé les descriptions de mon personnage sur terre. Nombreux sont ceux qui ont fait de même.
 
@@ -34,5 +34,15 @@ Eh bien, comme vous l’avez compris, j’habite les Cieux Célestes, où nous t
 Gardez votre courage. Continuez à vous fier à votre guide. Sachez que le chemin est préparé pour vous, de sorte que lorsque vous viendrez ici, vous serez un esprit des plus heureux.
 
 Avec amour, David.
+<small>
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)
+1. <large id="f1"> Le Roi David a également commmuniqué les messages suivants :[↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Le roi David | [Participez au moins par Vos prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-3-20-1-pjr-king-david/) | 20 Mars 2003
+Le Roi David | [David, roi des Juifs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-18-2-af-king-david/) | 18 Novembre 2017
+
+### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

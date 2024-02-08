@@ -39,8 +39,11 @@ Le temps est venu de se dire au revoir.
 
 Ton ami et frère, Judas.
 
-**Note :** Il est probable que Jésus connaît beaucoup de choses sur ces êtres mais il ne lui fut pas permis de les révéler, à ce moment-là, par l’intermédiaire du médium. Le livre d’Urantia comporte un chapitre sur une planète proche qui est habitée, sans révéler toutefois si ces êtres ont un concept similaire à celui de l’Amour Divin. Ultérieurement d’autres messages ont été communiqués par des êtres vivant sur des planètes autres que la Terre, et particulièrement sur la nébuleuse Orion qui est située dans un des bras de la Voie Lactée. Ces différents messages ont accessibles par [le lien suivant](/9-fr-topical-subjects/9-8-fr-the-peoples-of-outer-space/).
+**Note :** Il est probable que Jésus connaît beaucoup de choses sur ces êtres mais qu'il ne lui fut pas permis de les révéler, à ce moment-là, par l’intermédiaire du médium. Le livre d’Urantia comporte un chapitre sur une planète proche qui est habitée, sans révéler toutefois si ces êtres ont un concept similaire à celui de l’Amour Divin. Ultérieurement d’autres messages ont été communiqués par des êtres vivant sur des planètes autres que la Terre, et particulièrement sur la nébuleuse Orion qui est située dans un des bras de la Voie Lactée. Ces différents messages ont accessibles par [le lien suivant](/9-fr-topical-subjects/9-8-fr-the-peoples-of-outer-space/).
 
 © Geoff Cutler 2013
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)
+### [**Lien vers les messages des années 2002**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

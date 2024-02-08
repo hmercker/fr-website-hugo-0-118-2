@@ -53,4 +53,6 @@ La nouvelle aube arrive, mes frères et sœurs bien-aimés. La nouvelle voie s'a
 
 Que Dieu vous bénisse, mes amis. Nous continuons ce voyage ensemble avec beaucoup d'autres à nos côtés. Nous marchons sur une route d'amour. Nous portons la bannière de la vérité. Nous sommes vraiment les instruments de Dieu et nous soutiendrons donc ce qui a été construit et ce qui se développera. Mes amis bien-aimés, je suis Seretta Kem. Que Dieu vous bénisse, mes chers amis, qu'il vous bénisse profondément, pleinement, profondément de son amour. Que Dieu vous bénisse. Mon amour est avec vous. Que Dieu vous bénisse.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

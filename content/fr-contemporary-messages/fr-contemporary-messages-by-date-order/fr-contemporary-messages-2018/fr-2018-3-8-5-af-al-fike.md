@@ -33,3 +33,7 @@ J’aurais pu l’inventer. Mais à la fin, ils m’ont ramené à ça et ils m�
 J’avais juste l’impression d’être à l’intérieur de moi-même, d’être alerte et claire, claire, la clarté ne cessait de venir, la clarté. C’était comme si je regardais autour de moi et que cette belle lumière blanche était tout autour de moi et c’était juste clair, c’était juste fort et clair et beau.
 
 Je ne sais pas … il y avait d’autres choses que je ne suis pas très … je ne sais pas comment les décrire et donc je ne vais pas m’embêter … je vais tout gâcher donc … Quoi qu’il en soit, c’était une expérience très puissante pour moi … très instructive.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

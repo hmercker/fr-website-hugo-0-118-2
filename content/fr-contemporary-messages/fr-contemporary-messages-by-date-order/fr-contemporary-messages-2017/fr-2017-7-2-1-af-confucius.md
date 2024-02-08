@@ -9,7 +9,7 @@ weight:
 ---
 ### Cherchez la lumière
 
-Confucius - reçu par Al Fike le 2 Juillet 2017, FUSC, Burnaby, Colombie-Britannique, Canada
+Confucius<sup id="a1">[1](#f1)</sup>- reçu par Al Fike le 2 Juillet 2017, FUSC, Burnaby, Colombie-Britannique, Canada
 
 Que chaque âme soit touchée par Dieu dans cette maison de la Lumière. Que Sa Grâce soit votre bénédiction, mes bien-aimés, et que votre âme s'ouvre à ce merveilleux cadeau d'Amour. Je suis Confucius et je viens vous apporter ma lumière et mon message, âmes bien-aimées.
 
@@ -20,3 +20,11 @@ C'est votre choix, mes bien-aimés. C'est votre choix d'être dans la Lumière, 
 Que la Gloire du grand Toucher de Dieu vous élève dans Ses Bras afin que vous puissiez connaître de chaque partie de votre être l'Amour de Dieu et comment cet Amour est personnel, intime, parfait et beau.
 
 Je suis Confucius et je suis heureux de venir dans ce groupe d'âmes sérieuses qui cherchent la Vérité. Que vos désirs et vos prières soient exaucés, mes bien-aimés. Que les anges marchent avec vous dans votre vie. Puissiez-vous connaître la Lumière et la joie - la joie d'une âme éveillée dans l'Amour. Que les Bénédictions du Père soient toujours vôtres, âmes bien-aimées. Âmes bien-aimées, cherchez la Lumière. Frappez à cette porte puissante et tout viendra à vous, mes bien-aimées. Tout viendra en temps voulu. Que Dieu vous bénisse et que la paix soit avec vous, mes bien-aimés. Paix, joie, amour. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués  par Confucius sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a1)
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

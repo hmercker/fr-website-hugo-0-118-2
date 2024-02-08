@@ -27,4 +27,6 @@ Le monde entier se dirige vers la Vérité, vers la compréhension de la bonté 
 
 Soyez assurés que vous trouverez la vérité que vous cherchez, pour votre bonheur. Gardez la foi en vos idéaux les plus élevés, et dans la plénitude du temps, la compréhension viendra à vous, et vous vivrez votre vie, assuré que vous êtes en harmonie avec la Volonté de Dieu.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)
+### [**Lien vers les messages des années 2002**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

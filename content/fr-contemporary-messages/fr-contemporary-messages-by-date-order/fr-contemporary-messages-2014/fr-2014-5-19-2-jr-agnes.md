@@ -21,4 +21,6 @@ Nous apprécions grandement chaque occasion de nous approcher près de chez vous
 
 Alors cherchez souvent cette expérience, avec les autres, mais aussi par vous-même à tout moment, alors que vous êtes assis, que vous vous reposez, que vous marchez dans la forêt, ou que vous vous promenez sur la plage. Il est toujours à votre disposition. Et nous sommes toujours disponibles pour vous rejoindre. Alors s’il vous plaît ouvrez vos cœurs pour nous permettre de venir proches de vous. Nous dépendons de votre libre arbitre pour permettre notre approche et à accepter les cadeaux que nous vous offrons. Notre Père aime chacun de nous profondément, et nous, qui vivons dans ces royaumes, aimons chacun d’entre vous d’une manière qui est totalement au-delà de votre compréhension, permettez nous donc d’être proches alors que vous cheminez vers cette réalité dans laquelle vous vivrez tous un jour. Je vous bénis.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014)
+### [**Lien vers les messages des années 2014**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

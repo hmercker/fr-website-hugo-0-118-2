@@ -22,3 +22,7 @@ Chaque âme que vous rencontrez est précieuse pour Dieu et nous vous demandons 
 Regardez-vous toujours dans cette merveilleuse Lumière et Dieu vous guidera vers de nombreuses âmes qui ont un profond désir d’avoir ce que vous avez, de reconnaître leur propre Lumière et beauté, d’être comblées dans cette merveilleuse rivière d’Amour. Vous continuez à grandir, à vous étendre dans vos âmes. Vous continuez à le reconnaître dans vos esprits et bientôt tous ces enseignements deviendront une seconde nature pour vous, alors que l’Amour de Dieu vous transforme de l’intérieur et vous amène à cet éveil conscient et puissant qui sera vraiment une expression de l’Amour de Dieu à l’intérieur.
 
 Que Dieu vous bénisse, âmes bien-aimées. Que vos Lumières continuent à briller dans ce monde et que nous continuions à marcher avec vous en tant que vos gardiens et enseignants, en tant qu’amis, et que la grande Lumière de Dieu enveloppe tout ce que vous faites dans ce monde et tout ce que vous êtes, et serez, alors que vous traversez ce chemin éternel vers l’expiation. Que Dieu vous bénisse, je suis Keea et je vous aime tendrement. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

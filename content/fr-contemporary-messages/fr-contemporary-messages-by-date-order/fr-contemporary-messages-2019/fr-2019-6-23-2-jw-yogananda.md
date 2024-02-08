@@ -24,4 +24,8 @@ C'est un moment important sur la Terre, pour établir un sanctuaire dans ces lie
 Je souhaite dire maintenant que j'étends mon amour et mes bénédictions à tous ceux qui sont ici et à ceux qui entendront ce message. Je suis votre frère et ami, Yogananda. Que Dieu vous bénisse et remplisse vos âmes de Son Amour Divin. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> Bien que cela ne soit pas expliqué dans ce message, dans un message communiqué le lendemain, Saint François d'Assise a expliqué que les références à ce terme se rapportent toutes à la véritable signification de la "Sainte Communion", à savoir la connexion sainte entre les humains et Dieu pendant qu'ils sont en profonde prière pour l'Amour Divin, et qu'il ne s'agit pas d'une référence à l'usage plus commun de ces mots, qui font partie d'une messe Chrétienne standard où le pain (Symbolisé par l’ostie dans l’Eglise Catholique) et le vin sont partagés..[↩](#a1)
+1. <large id=”f1”> Bien que cela ne soit pas expliqué dans ce message, dans un message communiqué le lendemain, Saint François d'Assise a expliqué que les références à ce terme se rapportent toutes à la véritable signification de la "Sainte Communion", à savoir la connexion sainte entre les humains et Dieu pendant qu'ils sont en profonde prière pour l'Amour Divin, et qu'il ne s'agit pas d'une référence à l'usage plus commun de ces mots, qui font partie d'une messe Chrétienne standard où le pain (Symbolisé par l’ostie dans l’Eglise Catholique) et le vin sont partagés.[↩](#a1)
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

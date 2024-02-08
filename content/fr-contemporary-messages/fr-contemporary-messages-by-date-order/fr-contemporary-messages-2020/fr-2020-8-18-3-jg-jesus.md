@@ -30,3 +30,7 @@ Au fil du temps, avec les bénédictions répétées de ce don, l’âme humaine
 Je terminerai par un avertissement à ceux d’entre vous dont les croyances dictent que l’Essence de Dieu est déjà à l’intérieur: la Chute de l’homme a été provoquée par une telle croyance, et se perpétue par celle-ci. Cherchez Dieu. Demandez et vous recevrez.
 
 Je continuerai ce sujet plus tard. Mon amour est avec vous. Je suis Yeshua, Maître du Royaume Céleste, le premier à ne faire qu’Un avec le Créateur.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

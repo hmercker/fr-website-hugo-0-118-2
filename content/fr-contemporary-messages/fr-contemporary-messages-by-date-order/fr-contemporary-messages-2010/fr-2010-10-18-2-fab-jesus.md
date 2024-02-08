@@ -21,4 +21,6 @@ Mon message aux peuples du monde est qu'ils doivent s'aimer les uns les autres. 
 
 Je tiens à remercier R____ d'avoir rendu ces commentaires possibles.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

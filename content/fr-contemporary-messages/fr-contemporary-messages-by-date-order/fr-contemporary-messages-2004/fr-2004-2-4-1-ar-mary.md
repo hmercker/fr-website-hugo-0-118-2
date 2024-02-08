@@ -21,4 +21,6 @@ Je ris, oui. Je dis cela seulement parce que je veux que tu saches que je serai 
 
 Je te laisse maintenant, ma chère sœur. Je suis Marie, la mère de Jésus, qui prie pour que l’Amour Divin de Dieu remplisse chaque jour davantage mon âme afin que je puisse vous aimer, ma très chère famille.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004)
+### [**Lien vers les messages des années 2004**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -17,4 +17,6 @@ Dans [ma canalisation du 24 janvier 2009](/fr-contemporary-messages/fr-contempor
 
 Je faisais référence aux circonstances de son début de vie. Dieu était avec lui alors qu'il allait de triomphe en triomphe.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

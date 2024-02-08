@@ -24,4 +24,7 @@ Il est difficile pour un militaire de s'en sortir dans ce monde des esprits. Tou
 
 1. <large id="f1"> **Alexandre le Grand Megas Alexandros** ; (356 av. J.-C. - 323 av. J.-C.), également connu sous le nom d'Alexandre III de Macédoine, était un ancien roi (basileus) grec de Macédoine (336-323 av. J.-C.). Il était l'un des plus grands commandants militaires de tous les temps et est présumé invaincu au combat. Au moment de sa mort, il avait conquis (voir Guerres d'Alexandre le Grand) l'Empire Perse Achéménide, l'ajoutant aux territoires Européens de Macédoine ; selon certains auteurs modernes, c'était la majeure partie du monde tel que connu par les Grecs anciens. (Source : Wikipedia)[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

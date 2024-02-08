@@ -38,3 +38,7 @@ Chaque moment, chers et beaux chercheurs d’Amour et de Lumière, vous sera ré
 Marchez dans la Volonté de Dieu, mes bien-aimés. Marchez dans la Lumière de Dieu et l’Amour de Dieu avec l’intention d’avoir vos yeux ouverts à la Volonté et à la direction du Toucher de Dieu sur vous. Beaucoup de belles bénédictions, d’expériences, de cadeaux et d’opportunités viendront à vous. Vous serez surpris et ravis et joyeux par les cadeaux que Dieu vous donne, les opportunités qui vous traversent pour servir l’humanité.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre enseignant Augustin. Je continue à marcher à vos côtés pour vous aider à comprendre les possibilités de votre propre âme engagée dans la vie, le service et l’amour. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

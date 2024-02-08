@@ -35,7 +35,8 @@ Je vous aime, tous et chacun, et vous laisse avec mes bénédictions pour une se
 
 Je suis votre ami et frère en Christ, vous remerciant de recevoir mes écrits, Jésus de la Bible et Maître des Cieux Célestes.
 
-[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+### [**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

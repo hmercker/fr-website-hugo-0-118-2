@@ -32,3 +32,7 @@ Bien-aimés, amis bien-aimés, frères et sœurs, soyez cette lumière. Sachez q
 Âmes bien-aimées, vous êtes précieuses pour Dieu. Vous êtes précieuses pour nous dans le Royaume céleste. Vous êtes précieuses dans ce monde, car vous portez une vérité et une lumière qui peuvent le transformer et éliminer toute la douleur et la souffrance qui s’y trouvent. Sachez-le et croyez-le. Ayez une grande foi en cela, et vous trouverez la liberté, la vérité, la joie, la lumière que vous recherchez. Cela viendra au fur et à mesure que Son Amour coulera en vous et vous transformera.
 
 Que Dieu vous bénisse, âmes bien-aimées, et vous garde dans la lumière. Je suis Salomé et mon amour est avec vous, vous tous. Mes prières vous accompagnent. Et les prières dont vous parlez sont exaucées par vos efforts communs, en les envoyant à Dieu qui répondra en harmonie avec Ses lois et Sa Volonté. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

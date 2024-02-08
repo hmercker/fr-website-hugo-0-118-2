@@ -28,3 +28,7 @@ Pourtant, vous, mes bien-aimés, vous êtes réunis dans la prière, dans votre 
 Je vous en conjure, mes beaux amis, faites un effort pour dire ces prières et le cours de votre vie changera irrévocablement. Les résultats seront profonds. Votre conscience intérieure changera et vous connaîtrez une joie profonde dans votre relation avec Dieu. Un simple acte, une simple prière, une volonté d’ouverture, une reconnaissance du véritable désir de votre âme, voilà tout ce qu’il faut et en cela vous gagnerez le monde, le monde de Dieu.
 
 Dieu vous bénisse et merci de m’avoir écouté. Je suis Luc et je vous aime. Que Dieu vous bénisse, âmes bien-aimées.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

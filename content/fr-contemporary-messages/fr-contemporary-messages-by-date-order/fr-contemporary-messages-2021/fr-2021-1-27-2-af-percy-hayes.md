@@ -29,3 +29,7 @@ Bénédictions à vous tous. Bénédictions à ma famille. Sachez que je suis pr
 <small>
 
 1. <large id=”f1”> Percy Hayes fut un des pionniers du mouvement de l’Amour Divin au Canada et a largement contribué à l’établissement de la communauté de Vancouver.[↩](#a1)
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

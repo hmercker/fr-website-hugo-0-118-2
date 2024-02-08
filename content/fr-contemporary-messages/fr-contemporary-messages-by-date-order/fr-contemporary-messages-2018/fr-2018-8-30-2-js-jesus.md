@@ -16,3 +16,7 @@ L’amour est le grand libérateur. L’amour est la chose qui va libérer votre
 Je tiens à dire que vous êtes un merveilleux groupe de personnes merveilleuses, vous faites tous partie du plan de salut de Dieu pour l’humanité. C’est une chose magnifique. Je vous aime tous tendrement. Je veillerai toujours sur vous pour que vous n’ayez pas à vous inquiéter. L’amour est une chose à rechercher comme vous le faites. Cela apportera un grand changement dans ce monde. Vous devez le croire et le savoir dans votre cœur.
 
 Je voudrais dire que c’est tout pour le moment. Je reviendrai. Que Dieu vous bénisse, chères âmes. Je suis Jésus. Je vous aime.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

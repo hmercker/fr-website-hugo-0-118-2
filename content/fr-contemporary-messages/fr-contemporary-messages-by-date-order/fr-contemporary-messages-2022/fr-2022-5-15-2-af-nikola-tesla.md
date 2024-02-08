@@ -60,3 +60,10 @@ Il y a beaucoup de choses qui attendent de venir à l’humanité, pour aider à
 Que Dieu vous bénisse dans l’amour. Que vous puissiez connaître l’amour comme vous ne l’avez jamais connu. Puissiez-vous en venir à voir le monde comme vous ne l’avez jamais vu. Puissiez-vous en venir à vous aimer et à aimer tous ceux qui vous entourent d’une manière profonde et profonde, de sorte que votre vie entière reflète quelque chose de beau et de magnifique.
 
 Je suis Nicolas Tesla. Je viens en effet sur Terre pour aider les autres. J’en aide beaucoup, comme beaucoup m’aident. Ainsi, la chaîne de vérité et de lumière est maintenue pour toute l’éternité. Merci. Merci à vous, mes amis. Je dois maintenant partir.
+<small>
+
+1. <large id="f1"> Nicolas Tesla s'était également exprimé dans un  premier message communiqué [le 3 Novembre 2017](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-3-4-af-nikola-tesla/)[↩](#a1)
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

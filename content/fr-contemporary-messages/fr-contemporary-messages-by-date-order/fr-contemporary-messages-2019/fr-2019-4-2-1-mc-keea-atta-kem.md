@@ -18,3 +18,7 @@ Alors que vous continuez à marcher sur ce chemin, recevant un plus grand Amour 
 Lorsqu'une âme est éveillée par le grand don de l'Amour Divin de Dieu, il vient un grand désir pour que ces dons coulent librement et comme ils le font, votre âme éveillée touche beaucoup. Vous marchez avec une grande liberté dans votre monde, marchant sur la Terre comme un instrument de Dieu pour apporter le changement, pour apporter la paix et pour apporter un plus grand amour et une plus grande lumière dans votre monde. Alors rappelez-vous, mes bien-aimés, que ce cadeau est donné librement en fonction de votre désir et de votre demande. Au fur et à mesure que votre âme s'éveille dans vos dons spirituels, bénissez beaucoup de gens avec ces dons, car Dieu désire que tous Ses enfants soient éveillés, qu'ils soient en paix et qu'ils vivent en harmonie.
 
 Que chacun de vous soit grandement béni par cet Amour, en lui permettant de vous changer et en montrant aux autres le chemin de leur changement. Je suis Keea Atta Kem et mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

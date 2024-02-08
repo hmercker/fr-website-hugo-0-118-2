@@ -18,3 +18,7 @@ Je serai avec chacun d’entre vous. Je m’efforcerai de vous aider à vous ren
 C’est un grand cadeau qui vous a été donné, mes bien-aimés, un grand cadeau. Puissiez-vous comprendre et voir les perles que le Ciel a déposées à vos pieds et incorporer cette sagesse et cet amour dans vos vies. Marchez dans la vérité, amis bien-aimés. Marchez dans la foi. Marchez dans l’amour et tout le reste tombera dans vos mains avec facilité. Il n’y aura pas de mystères. Ce qui doit venir viendra comme si cela avait toujours été prévu. Vous verrez. Vous verrez, âmes bien-aimées, comment Dieu vous guidera effectivement le long de ce destin et ouvrira toutes les portes. Tout ce que vous devez faire est d’avancer dans la confiance et la foi et tout sera comme cela doit être.
 
 Dieu vous bénisse, mes bien-aimés. Je suis Fleur de Lotus et je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

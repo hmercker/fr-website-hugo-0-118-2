@@ -32,3 +32,7 @@ Puisque vous désirez tous être sur le chemin de l’éveil de l’âme, de la 
 Que Son Amour continue à se déverser en vous, âmes bien-aimées. Puissiez-vous vous tendre la main les uns aux autres en formant de tels liens, forts en Amour, vous soutenant les uns les autres et partageant votre sagesse. Puissiez-vous aller dans le monde en apportant une plus grande Lumière, car tant de choses sont en mouvement en ce moment. Il y a une augmentation de la confusion. Beaucoup ne sont pas ancrés dans la Vérité mais trompés par la condition humaine, les pensées de l’humanité qui sont si désireuses de créer leur propre réalité. Tous doivent venir à la Réalité de Dieu en temps voulu. Comme vous êtes plus proches de Dieu, vous montrerez le chemin par votre exemple et votre Lumière.
 
 Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous garde dans sa Lumière. Je suis Samuel et mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

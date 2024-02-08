@@ -43,7 +43,7 @@ Goldie | [Vous ne pouvez grandir que pas à pas](/fr-contemporary-messages/fr-co
 Mahatma Gandhi | [Que l'Amour de Dieu vous enveloppe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-32-1969-11-3-anonymous-mahatma-gandhi/) | 3 Novembre 1969
 Moïse | [Aucun d'entre nous n'est une île](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-33-1969-11-3-anonymous-moses/) | 3 Novembre 1969
 Seretta Kem | [Produits chimiques de guérison (Chimiste en chef Égyptien du groupe)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-35-1969-11-10-anonymous-seretta-kem/) | 10 Novembre 1969
-Solomon | [Laissez les esprits de votre âme prendre le dessus (Salomon de l'Ancien Testament)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-36-1969-11-20-anonymous-solomon/) | 20 Novembre 1969
+Salomon | [Laissez les esprits de votre âme prendre le dessus (Salomon de l'Ancien Testament)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-36-1969-11-20-anonymous-solomon/) | 20 Novembre 1969
 Mario Lanza | [Sur l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-37-1969-11-21-anonymous-mario-lanza/) | 21 Novembre 1969
 Keea Atta Kem | [Vivez tranquillement ces vérités](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-38-1969-11-24-anonymous-keea-atta-kem/) | 24 Novembre 1969
 Saul | [Sur l'élévation des vibrations](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-39-1969-12-3-anonymous-saul/) | 3 Décembre 1969
@@ -122,7 +122,7 @@ Moïse | [Vivre selon des vérités simples](/fr-contemporary-messages/fr-contem
 Jean-Baptiste | [Placez Dieu en premier en toutes choses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-172-1969-anonymous-john-the-baptist/) |   1969
 Jacques | [Demandez davantage de l'Amour Divin de Dieu pour que vos lumières deviennent de plus en plus fortes, jour après jour et heure après heure](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-173-1969-anonymous-james/) |   1969
 Jésus | [Nous ne faisons qu'un avec Dieu, frères et sœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-174-1969-anonymous-jesus/) |   1969
-Solomon | [L'Amour de Dieu a un pouvoir illimité - Shalom - Solomon](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-175-1969-anonymous-solomon/) |   1969
+Salomon | [L'Amour de Dieu a un pouvoir illimité - Shalom - Solomon](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-175-1969-anonymous-solomon/) |   1969
 
 
 

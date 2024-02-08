@@ -22,3 +22,7 @@ Chaque âme a le choix de recevoir ce don d’Amour. Il n’est pas donné avec 
 Cherchez le Royaume, comme cela a été dit maintes fois, et le Royaume vous appartiendra en temps voulu, à condition que vous soyez constants et sérieux dans vos efforts de prière.
 
 Que Dieu vous bénisse sur ce voyage, belles âmes. Que vous veniez chercher le plus haut et connaître le plus grand des dons de votre Père Céleste qui est Dieu, le Créateur, la Source de tout. Que Dieu vous bénisse. Je suis André. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

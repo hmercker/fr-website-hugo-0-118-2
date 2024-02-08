@@ -52,3 +52,7 @@ Dieu vous fait un cadeau ici. Un cadeau non seulement pour que vous puissiez don
 Puissiez-vous continuer à servir Dieu de ces belles manières. Le monde a besoin d’un plus grand nombre d’entre vous pour travailler ensemble, pour servir, pour amener l’humanité vers un lieu de plus grande illumination, de connaissance et d’amour. Tous ces efforts que vous faites aident le monde en apportant une plus grande lumière et dans cette entreprise dans laquelle vous êtes engagés, vous allumerez des bougies qui allumeront des bougies jusqu’à ce que le monde entier soit éveillé dans la lumière.
 
 Que Dieu vous bénisse, votre ami Alec est avec vous et je vais effectivement parler aux foules et donner un peu de ma sagesse et être avec vous chaque jour dans vos efforts. Que Dieu vous bénisse. Je suis toujours avec toi, ton frère, ton ami, qui t’aime tant. Que Dieu te bénisse. Que Dieu te bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

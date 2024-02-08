@@ -17,4 +17,6 @@ Oui, beaucoup de personnes reçoivent l'Amour Divin par l'intermédiaire de l'Es
 
 Mais nous sommes très désireux que les gens comprennent ma véritable relation avec Dieu et la vérité de la Nouvelle Naissance de l'âme.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

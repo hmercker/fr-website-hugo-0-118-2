@@ -20,6 +20,8 @@ Oui, vous avez raison. Je n'ai certainement pas été récompensé pour mon acti
 Je me bats toujours pour la justice, mais maintenant, je réalise pleinement que la violence n'est pas la solution.
 <small>
 
-1. <large id="f1"> **John Brown** (9 Mai 1800 - 2 Décembre 1859) a été le premier abolitionniste américain blanc à prôner et à pratiquer l'insurrection et le meurtre comme moyen d'abolir l'esclavage. Le président Abraham Lincoln a déclaré qu'il était un "fanatique égaré" et Brown a été appelé *« le plus controversé de tous les Américains du 19e siècle. »* (Source : Wikipedia)[↩](#a1) 
+1. <large id="f1"> **John Brown** (9 Mai 1800 - 2 Décembre 1859) a été le premier abolitionniste américain blanc à prôner et à pratiquer l'insurrection et le meurtre comme moyen d'abolir l'esclavage. Le président Abraham Lincoln a déclaré qu'il était un "fanatique égaré" et Brown a été appelé *« le plus controversé de tous les Américains du 19e siècle. »* (Source : Wikipedia)[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

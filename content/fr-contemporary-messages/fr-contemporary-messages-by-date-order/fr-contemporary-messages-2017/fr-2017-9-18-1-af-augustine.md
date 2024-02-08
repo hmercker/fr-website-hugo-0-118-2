@@ -20,3 +20,8 @@ Dans cette simple prière viennent de nombreuses bénédictions. Dans ce désir 
 Cette abondance de bénédictions est disponible pour tous ceux qui demandent et qui sont capables d'aller au-delà de la condition de l'esprit vers un lieu de communion de l'âme avec Dieu. Ce n'est pas si difficile, mes bien-aimés. Ce n'est pas si difficile. Il suffit de se concentrer, d'avoir un désir et d'exprimer ce désir sous forme de prière, et tout le reste entre en jeu. On commence à reconnaître et à ressentir cette grande bénédiction, cette paix profonde, ce sentiment de la Présence de Dieu. Puissiez-vous faire de même cette nuit. Recevez tout ce que Dieu a à vous donner, âmes bien-aimées.
 
 Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse. Je suis votre enseignant Augustin et j'ai un grand amour pour chacun de vous, chaque belle âme et puissiez-vous connaître cet amour d'une manière profonde et profonde. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

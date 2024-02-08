@@ -26,3 +26,7 @@ Soyez en harmonie, mes bien-aimés, soyez dans la joie de Sa Touche. Ayez de la 
 Que Dieu vous bénisse, âmes bien-aimées, dans la vérité de Son Amour, afin que nous soyons un témoignage vivant de cette vérité et que nous devenions de plus en plus lumineux à mesure que nous recevons davantage de Sa bénédiction et que nos âmes sont libérées dans la vérité, l’amour et la lumière.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre maître, Augustin, et je viens prier avec vous dans toute la gloire de cette lumière et de cette vérité. Je suis avec vous, comme beaucoup de ceux qui vous aiment tendrement et qui ont une grande compassion pour les luttes de votre plan terrestre. Nous sommes avec vous, nous ne vous quitterons jamais. Dieu est avec vous. À chaque respiration, l’amour de Dieu brille sur vous. Que Dieu vous bénisse, que Dieu vous bénisse tous, dans l’amour et la lumière de sa grâce.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

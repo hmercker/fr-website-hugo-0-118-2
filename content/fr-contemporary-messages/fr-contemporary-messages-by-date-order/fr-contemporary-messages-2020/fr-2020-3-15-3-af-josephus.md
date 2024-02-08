@@ -40,3 +40,7 @@ Merci, âmes bien-aimées. Je crois que nous avons suffisamment parlé aujourd�
 Puissiez-vous continuer à grandir dans l’Amour de Dieu. Dans cette croissance et cette expansion, les réponses et les visions, la vraie compréhension viendront et infuseront dans votre conscience une connaissance si profonde de la Vérité qu’elle sera inébranlable, mais aussi qu’elle s’étendra au fur et à mesure que vos âmes se développeront. Que Dieu vous bénisse dans ce voyage, mes amis. 
 
 Je suis Flavius Josèphe Je suis heureux d’être avec vous aujourd’hui. Que ce jour soit béni, âmes bien-aimées, et rappelez-vous que vous pouvez demander notre aide. Vous pouvez nous faire venir près de vous, mais votre demande s’adresse d’abord et avant tout à Dieu. Ensuite, nous répondons en fonction de la Volonté de Dieu qui coule à travers nous et se manifeste dans votre vie. Que Dieu vous bénisse, âmes bien-aimées. Mon amour est avec vous et je suis impatient de vous aider tous et j’essaierai de le faire de nombreuses façons différentes.  Que Dieu vous bénisse et que Son Amour soit avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

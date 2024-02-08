@@ -20,3 +20,7 @@ Pour ceux qui débutent et qui ont besoin d’inspiration pour être dans leur c
 Alors, comme Luc l’a si bien dit, apportez votre âme dans la lutte. Apportez à Dieu tout ce qui vous accable. Permettez à Dieu d’atteindre votre âme, afin qu’elle soit changée, afin que vous puissiez être une lumière pour ce monde, comme vous avez l’intention de le faire dans le service, dans la gratitude, dans la gloire de Dieu. L’Amour de Dieu sans fin, incessant, éternel. Puisse-t-il être le vôtre.
 
 Je vous rejoins maintenant dans ce cercle d’amour, dans cette prière sacrée, en présence de Dieu, et en compagnie de tant de personnes ici dans le royaume. Avec tout mon amour et mes bénédictions, je suis votre frère et ami en Christ, autrefois de Kerioth, maintenant un habitant du royaume céleste. Que Dieu vous bénisse. Je suis Judas.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

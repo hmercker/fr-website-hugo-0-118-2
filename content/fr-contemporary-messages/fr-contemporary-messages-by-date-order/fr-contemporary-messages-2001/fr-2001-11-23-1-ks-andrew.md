@@ -45,4 +45,6 @@ Nous serons toujours là pour vous aider, pour prier avec vous, lorsque vous nou
 
 Je vous laisse maintenant avec mes bénédictions, et je dirai que j'ai apprécié l'opportunité d'écrire à travers vous aujourd'hui. Je suis votre ami et gardien de longue date, André l'Apôtre de Jésus, et même si j'écris rarement, je ne suis jamais loin de votre appel. Je vous aime, et je continuerai à veiller sur vous jusqu'à la fin de votre vie sur terre. Je suis un véritable adepte des enseignements de notre Maître, qui est Jésus, et Maître des Cieux Célestes.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)
+### [**Lien vers les messages des années 2001**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

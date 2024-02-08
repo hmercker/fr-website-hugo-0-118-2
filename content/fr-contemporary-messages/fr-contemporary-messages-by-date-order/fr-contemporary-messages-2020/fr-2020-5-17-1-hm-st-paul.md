@@ -26,3 +26,7 @@ Les âmes affamées et les âmes nostalgiques cherchent un moyen de se connecter
 Le sujet de la prière a de nombreuses facettes, car les prières sont aussi variées que les âmes, et pourtant c’est l’un des aspects les plus importants de votre voyage dans la vie. Vous connaissez la prière, alors priez avec les autres, enseignez l’Amour de Dieu et comment l’obtenir et le vivre.
 
 Mon amour est avec vous. Dieu vous bénisse, je suis Paul et je souhaite continuer mon discours sur la prière. Que Dieu vous bénisse de son amour alors que je prie avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

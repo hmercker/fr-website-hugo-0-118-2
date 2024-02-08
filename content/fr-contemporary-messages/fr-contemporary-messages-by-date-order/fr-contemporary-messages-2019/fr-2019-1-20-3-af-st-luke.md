@@ -26,3 +26,7 @@ Dans les moments de confusion ou d’incertitude, priez mes bien-aimés. Priez D
 Ainsi, le noyau de qui vous êtes est l’amour et la grande Essence du Créateur est l’Amour. Permettez à votre âme d’être fortifiée par la sagesse et la vérité et vous, bien-aimés, vous aurez la force de franchir toutes les portes en étant conduits par la main de Dieu. C’est une grande marche et un voyage qui se poursuit pour l’éternité. Nous, vos amis célestes, honorons toujours la volonté de Dieu, pour chacun de nous individuellement. Nous prions pour vous aussi, chers amis, que votre force grandisse et que vous soyez capables d’entendre et de suivre la volonté de Dieu dans votre vie.
 
 Je suis Luc et je vous remercie de m’avoir écouté. Que Dieu bénisse chacun d’entre vous. Mon amour est avec toi. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

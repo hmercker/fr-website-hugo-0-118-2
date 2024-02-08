@@ -15,4 +15,6 @@ Je suis Rose Kennedy.
 
 Je suis consciente que certains de mes descendants sont déjà actifs dans le pays et dans le monde. Ce que j'ai voulu dire dans ma [canalisation du 9 Septembre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-9-1-fab-rose-kennedy/) est que leur rôle va augmenter en importance et en portée, et que d'autres Kennedy trouveront des rôles d'importance.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

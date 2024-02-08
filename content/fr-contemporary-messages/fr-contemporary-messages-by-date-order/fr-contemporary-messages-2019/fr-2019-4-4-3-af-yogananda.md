@@ -38,3 +38,7 @@ C’est le désir de Dieu pour chacun d’entre vous et pour tous ceux qui sont 
 Je vous remercie, chers amis, d’avoir écouté mon exposé. Je reviendrai car je continue à servir Dieu avec le désir d’apporter la vérité au monde, comme le font beaucoup de mes collègues, les beaux anges des Cieux Célestes. Nous travaillons tous ensemble à ces fins, pour vous guider, pour continuer à parler de la vérité, et pour marcher avec vous alors que vous vous éveillez à la vérité.
 
 Que Dieu vous bénisse profondément, mes beaux amis. Que cet Amour de Dieu soit votre désir singulier de recevoir. Que Dieu vous bénisse. Que Dieu vous bénisse, mes amis. Yogananda, à votre service et je vous aime profondément. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

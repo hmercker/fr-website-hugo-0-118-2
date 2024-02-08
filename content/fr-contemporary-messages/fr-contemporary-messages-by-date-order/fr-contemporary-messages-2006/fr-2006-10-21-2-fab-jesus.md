@@ -25,4 +25,6 @@ En d'autres termes, je tentais de nier une conception anthropomorphique de Dieu.
 
 Lorsque les mortels qui croient aux messages de Padgett pénétreront dans les Cieux Célestes, ils comprendront pleinement ce que je dis. Il n'y a vraiment aucune contradiction, seulement un problème linguistique qui reflète les limitations de la vie mortelle.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

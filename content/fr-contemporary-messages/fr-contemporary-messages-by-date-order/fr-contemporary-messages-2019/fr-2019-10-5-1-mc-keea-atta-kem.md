@@ -24,3 +24,8 @@ Cette voie est donc différente dans la mesure où il ne s’agit pas de savoir 
 Je vous remercie d’avoir écouté mes paroles, car je sens que vous êtes très désireux d’entendre avec les oreilles de votre âme. Il existe une condition lumineuse des plus gracieuses et des plus belles. Vos âmes sont illuminées et rayonnent une belle fréquence, car elles entendent cette Vérité, et elles entendent l’appel de Dieu, et elles désirent s’aligner avec cet Amour, une âme éveillée.
 
 Je suis Keea Atta Kem, un de vos enseignants Célestes. Mon amour est avec vous. Que Dieu bénisse chacun d’entre vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

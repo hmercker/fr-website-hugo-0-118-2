@@ -30,4 +30,6 @@ Nous voyons tous ce qui s'est passé dans le pays qui est devenu temporairement 
 
 1. <large id="f1"> **Robert Louis Balfour Stevenson** (13 Novembre 1850 - 3 Décembre 1894), était un romancier, poète, écrivain et un grand voyageur, célèbre pour ses romans L'Île au trésor (1883), L'Étrange Cas du docteur Jekyll et de M. Hyde (1886) et pour son récit Voyage avec un âne dans les Cévennes (1879). Stevenson est parfois considéré comme un auteur de romans d'aventures ou de récits fantastiques pour adolescents, mais son œuvre a une tout autre dimension : il est d'ailleurs salué avec enthousiasme par les plus grands de ses contemporains et de ses successeurs. Ses nouvelles et romans manifestent en effet une profonde intelligence de la narration. (Source : Wikipedia.)[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

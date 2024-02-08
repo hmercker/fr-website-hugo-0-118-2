@@ -48,4 +48,8 @@ C’est pourquoi nous, dans les Cieux Célestes, continuons à marcher avec vous
 Maintenant, je vais vous dire bonne nuit, mes bien-aimés. Je suis heureux de vous avoir parlé et j’espère avoir répondu à certaines de vos questions. Ah, l’esprit interrogateur du mortel. Je sais que cela pourrait être une conversation sans fin mais le rapport est limité et je dois vous dire bonne nuit.
 <small>
 
-1. <large id=”f1”> Ceci fait référence à Isis, la déesse égyptienne. La personne qui a posé la question (T) est d’avis que cet esprit est l’un de ses guides.[↩](#a1)
+1. <large id=”f1”> Ceci fait référence à Isis, la déesse égyptienne. La personne qui a posé la question (T) pense que cet esprit est l’un de ses guides.[↩](#a1)
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

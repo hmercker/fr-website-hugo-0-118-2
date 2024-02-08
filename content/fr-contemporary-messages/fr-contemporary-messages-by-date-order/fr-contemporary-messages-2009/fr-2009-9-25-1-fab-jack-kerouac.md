@@ -30,4 +30,6 @@ Je suis donc un exemple vivant du fait, que ce monde spirituel démontre ampleme
 
 1. <large id="f1"> Jacques Kerouac s'était exprimé précédemment [le 16 Avril 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-16-1-fab-jack-kerouac/), [le 18 Avril 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-18-2-fab-jack-kerouac/), [le 9 Mai 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-9-1-fab-jack-kerouac/) et [le 28 Septembre 2009](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-9-28-1-fab-jack-kerouac/).[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

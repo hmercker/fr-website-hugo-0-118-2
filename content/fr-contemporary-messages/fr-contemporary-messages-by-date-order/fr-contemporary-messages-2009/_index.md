@@ -82,7 +82,7 @@ W.E.B. Du Bois | [La passion d'un militant afro-américain](/fr-contemporary-mes
 James Albert Okawsaw Gronniosaw | [Un voyage spirituel au dix-huitième siècle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-27-1-fab-james-albert-okawsaw-gronniosaw/) | 27 Juillet 2009
 Frederick Douglass | [La joie d'un abolitionniste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-27-2-fab-frederick-douglass/) | 27 Juillet 2009
 Malcolm X | [Semer et récolter pour un leader afro-américain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-28-1-fab-malcolm-x/) | 28 Juillet 2009
-John | [La relation de Jésus au Judaïsme, et l'idée de Logos](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-29-1-fab-john/) | 29 Juillet 2009
+Jean | [La relation de Jésus au Judaïsme, et l'idée de Logos](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-29-1-fab-john/) | 29 Juillet 2009
 James Madison | [Le soi-disant problème de Madison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-8-2-1-fab-james-madison/) | 2 Août 2009
 Milton Friedman | [Les souffrances d'un esprit - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-8-19-1-fab-milton-friedman/) | 19 Août 2009
 Jésus | [Faire de l'argent - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-8-21-1-fab-jesus/) | 21 Août 2009
@@ -114,8 +114,6 @@ Jésus | [Clarification](/fr-contemporary-messages/fr-contemporary-messages-by-d
 Woodrow Wilson | [Le point de vue d'un président](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-28-1-fab-woodrow-wilson/) | 28 Décembre 2009
 Jésus | [Clarification - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-28-2-fab-jesus/) | 28 Décembre 2009
 
-[Lien vers les messages de l’année 2010](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
-<br>
-<br>
-[Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
 
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

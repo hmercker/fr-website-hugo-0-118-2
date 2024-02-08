@@ -42,6 +42,5 @@ Je vous laisse maintenant avec mes bénédictions, et j’espère que cela a ré
 Je suis votre ami et votre frère en esprit, Jésus de la Bible et Maître des Cieux Célestes.
 
 ### [**Lien vers les messages des années 2000**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/)
-<br>
-<br>
+
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

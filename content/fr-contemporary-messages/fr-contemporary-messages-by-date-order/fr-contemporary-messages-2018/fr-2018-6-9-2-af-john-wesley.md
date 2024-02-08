@@ -11,7 +11,7 @@ weight:
 
 John Wesley - reçu par Al Fike le 9 Juin 2018, Gibsons, Colombie-Britannique, Canada.
 
-Je suis John Wesley. Pour beaucoup d’entre vous, votre vie est un rêve dont vous devez vous réveiller. Car vous vivez dans vos pensées, et les pensées de l’humanité sont enveloppées d’illusion, bien qu’elle croie connaître la Vérité. La seule façon dont chacun peut s’éveiller des illusions, c’est par l’intermédiaire de son âme. Car dans votre âme se trouve la capacité de connaître la Vérité, de s’éveiller à la Création de Dieu plutôt que de s’endormir dans l’illusion de l’homme. Le monde doit réveiller mes amis, avant qu’il ne soit trop tard et que les illusions de l’humanité n’entraînent sa propre destruction. Le monde doit s’éveiller mes amis, parce que Dieu désire que tous ceux qui vivent dans ce monde finissent par connaître la vérité de leur propre existence, et finissent par connaître le pouvoir de Dieu et de Son Amour, le pouvoir de réveiller l’humanité de Son sommeil et d’apporter cette connaissance, claire et nette, qui vient des facultés de l’âme qui sont éveillées par le Toucher de Dieu.
+Je suis John Wesley<sup id="a2">[2](#f2)</sup>. Pour beaucoup d’entre vous, votre vie est un rêve dont vous devez vous réveiller. Car vous vivez dans vos pensées, et les pensées de l’humanité sont enveloppées d’illusion, bien qu’elle croie connaître la Vérité. La seule façon dont chacun peut s’éveiller des illusions, c’est par l’intermédiaire de son âme. Car dans votre âme se trouve la capacité de connaître la Vérité, de s’éveiller à la Création de Dieu plutôt que de s’endormir dans l’illusion de l’homme. Le monde doit réveiller mes amis, avant qu’il ne soit trop tard et que les illusions de l’humanité n’entraînent sa propre destruction. Le monde doit s’éveiller mes amis, parce que Dieu désire que tous ceux qui vivent dans ce monde finissent par connaître la vérité de leur propre existence, et finissent par connaître le pouvoir de Dieu et de Son Amour, le pouvoir de réveiller l’humanité de Son sommeil et d’apporter cette connaissance, claire et nette, qui vient des facultés de l’âme qui sont éveillées par le Toucher de Dieu.
 
 Ce désir et cet effort de connaître la Vérité accompagnent l’humanité depuis aussi longtemps que l’humanité existe. Pourtant, le défaut vital de chacun dans ce monde est de croire que le mental, le mental matériel, a toutes les réponses. Pourtant, le mental matériel a une vision limitée du monde et ne peut pas vraiment connaître des choses qui dépassent sa capacité de comprendre. Cependant, Dieu vous a béni avec une autre faculté, une autre partie de vous, la partie la plus vitale de vous, votre âme. Dans l’âme se trouvent de nombreux dons et facultés, capacités et possibilités, de connaître la vérité de vos propres créations, de la création de Dieu de l’univers. Jusqu’à ce que l’humanité s’éveille à ces potentiels et possibilités intérieurs qui sommeillent à l’intérieur, il ne peut y avoir de grand changement et d’harmonisation de ce monde qui est le vôtre. Pour n’utiliser que les capacités intellectuelles, l’humanité est terriblement inadéquate pour résoudre les grands dilemmes de l’humanité et de l’humanité, dans ce monde.
 
@@ -23,3 +23,16 @@ Alors je vous donne cette invitation, à chercher cette bénédiction, à mettre
 <small>
 
 1. <large id="f1"> F.U.S.C. First United Spiritual Church (Première Église Spirituelle Unie).[↩](#a1)
+
+2. <large id="f2"> John Wesley s'est également exprimé dans les messages suivants :  [↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+John Wesley | [Le rôle de la voix directe dans l'éveil de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-20-1-af-john-wesley/) | 20 Mai 2018
+John Wesley | [Exprimez-vous pour la vérité et le changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-5-2-af-john-wesley/) | 5 Novembre 2018
+John Wesley | [Il est temps d’apporter la vérité à l’humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-22-1-af-john-wesley/) | 22 Août 2021
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

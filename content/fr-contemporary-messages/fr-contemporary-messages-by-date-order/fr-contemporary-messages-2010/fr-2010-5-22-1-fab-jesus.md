@@ -17,4 +17,6 @@ Nous connaissons les desseins et les plans des gens, parfois même avant qu'ils 
 
 L'élite du pouvoir a voulu l'empire, et cela, nous ne pouvons le contrôler. Mais dans cet état d'esprit, il y a une ouverture pour nous de guider le comportement vers le succès de nos plans.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

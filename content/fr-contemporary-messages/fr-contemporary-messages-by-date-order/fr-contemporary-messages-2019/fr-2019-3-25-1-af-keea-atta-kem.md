@@ -48,3 +48,7 @@ Mes chers, très chers amis, sachez que nous sommes conscients de votre douleur 
 Dieu est toujours avec vous. Nous sommes toujours avec vous, et vous n’êtes jamais seuls. Demandez notre aide. Demandez les bénédictions de Dieu. Comme vous le savez bien, c’est la clé qui ouvrira la porte à ce que vous cherchez, à ce qui vous est promis et à ce qui viendra. Alors, mes chers et bien-aimés amis, que Dieu vous bénisse profondément, vous élève, vous guérisse et vous donne tout ce dont vous avez besoin pour vous guérir dans ce monde complexe et difficile. Que chaque cellule de votre être soit éclairée par l’Amour du Père, que chaque partie de votre être magnifique soit éveillée par l’Amour du Père, et que chaque vérité, chaque guérison, chaque don soit éveillé alors que vous continuez à grandir dans cet Amour.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Keea. Je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

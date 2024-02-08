@@ -18,3 +18,7 @@ Il y a une réalisation de soi qui consiste à découvrir la beauté de votre â
 Il vous a été donné les Vérités qui vous transporteront sur l’océan de l’Amour de Dieu vers les réalités du Royaume Céleste et les rivages d’où nous parlons. Nous sommes avec vous dans la prière. Nous apportons l’Amour de Dieu dans nos âmes et la guidance que nous percevons est nécessaire à tout moment. Ceux qui sont ici avec moi souhaitent parler et partager cette union et ils reviendront pour le faire. Nous vous honorons, nous vous remercions et nous vous sommes très reconnaissants pour votre travail. Nous poursuivrons ce voyage avec vous en marchant dans l’Amour de Dieu qui vous portera tous vers son Royaume.
 
 Nous vous remercions. Je vous aime. Je suis Care.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

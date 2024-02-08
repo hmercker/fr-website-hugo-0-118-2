@@ -58,4 +58,14 @@ Donc, pour conclure, il y a de bonnes raisons d’être optimiste, même mainten
 
 1. <large id="f1"> **Thomas Paine** (Thetford, Angleterre, 29 Janvier 1737 – 8 Juin 1809, New York City, USA) était un pamphlétaire, révolutionnaire, intellectuel radical et déiste. Né en Grande-Bretagne, il a vécu en Amérique, ayant émigré dans les colonies américaines juste à temps pour prendre part à la Révolution américaine, principalement en tant qu’auteur du puissant pamphlet, Common Sense, largement diffusé, prônant l’indépendance des colonies américaines vis-à-vis de la Grande-Bretagne. Paine a eu une grande influence sur la Révolution française. Il a écrit les Droits de l’homme comme un guide des idées des Lumières. Il est devenu célèbre avec son livre, L’âge de raison, qui prône le déisme et s’oppose aux doctrines chrétiennes. Dans La justice agraire, il a introduit des concepts similaires au socialisme. (Source : Wikipedia)[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+2. <large id="f2"> Thomas Paine s'est également exprimé par l'intermédiaire des messages suivants :[↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Thomas Paine | [Thomas Paine et la guerre.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-22-2-fab-thomas-paine/) | 22 Mars 2007
+Thomas Paine | [Le militarisme a tout faux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-12-6-2-fab-thomas-paine/) | 6 Décembre 2007
+
+
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

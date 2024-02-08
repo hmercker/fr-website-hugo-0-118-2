@@ -27,4 +27,6 @@ Vous vous demandez peut-être, s’il était si curieux, pourquoi, après 400 an
 
 Sa gloire terrestre, comme vous pouvez l’imaginer, ne le concerne pas – il se soucie maintenant de ses progrès spirituels. Lorsqu’il sera prêt, il viendra vous voir et vous écrira plus en détail sur sa vie. Mais il dit maintenant que les mortels doivent considérer le spirituel comme l’aspect le plus important de la vie.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)
+### [**Lien vers les messages des années 2002**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

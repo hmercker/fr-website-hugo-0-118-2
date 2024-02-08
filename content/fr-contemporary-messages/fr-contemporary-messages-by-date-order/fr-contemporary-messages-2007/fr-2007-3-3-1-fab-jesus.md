@@ -19,4 +19,6 @@ Eh bien, en plus de leur apathie à l'égard de nombreux problèmes publics, bea
 
 Ce qu'il faut garder à l'esprit, c'est qu'il y aura une masse critique, comme vous dites, d'Américains pour modifier la tendance à la destruction et à l'apathie. Et dans la nouvelle Amérique, il y aura effectivement une approche beaucoup plus positive des problèmes du jour. Ceux qui continuent à ne pas se sentir concernés seront laissés pour compte et seront incapables de faire face au nouvel ordre de votre pays qui est en train d'émerger.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

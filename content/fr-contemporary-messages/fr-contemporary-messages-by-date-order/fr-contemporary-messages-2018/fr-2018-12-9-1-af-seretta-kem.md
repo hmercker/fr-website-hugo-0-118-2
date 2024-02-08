@@ -28,3 +28,7 @@ Votre âme est une création si impressionnante de Dieu et vous êtes en train d
 C’est votre destin, mes bien-aimés. C’est votre destin et Dieu vous guide. Dieu continue à vous protéger et à vous apporter la vérité et à éveiller votre âme dans l’Amour. C’est votre destin et tout se déroule comme le Créateur nourrit Son jardin, Ses belles fleurs, Sa création parfaite dans l’Amour.
 
 Que Dieu vous bénisse, mes amis bien-aimés. Je suis Seretta Kem. Mon amour est avec vous et je suis avec vous, âmes bien-aimées. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -28,3 +28,7 @@ Que cette ouverture et cet éveil soient réalisés par vous et ceux que vous to
 Votre travail, âmes bien-aimées, est le travail de l’humble enfant qui porte la Grande Bénédiction d’Amour dans le monde, l’enfant de Dieu, connu par Dieu, touché par Dieu, béni et béni encore. Telle est votre vie. Ce sera votre vie et elle vous apportera la joie. Elle vous apportera la plénitude dans votre relation avec votre Créateur. Dans cette joie et cet épanouissement, vous exprimerez la profondeur, la beauté et la puissance de l’Amour de Dieu pour tous ceux qui peuvent voir, qui désirent et sont attirés par cela. Ils vous connaîtront. Ils vous connaîtront, mes bien-aimés. Puissiez-vous continuer à grandir dans l’Amour du Père, à marcher dans la Lumière de l’Amour et de la Volonté de Dieu, à être Ses canaux d’Amour et beaucoup sera accompli alors que vous continuez à marcher humblement dans la foi et l’amour.
 
 Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse profondément dans vos âmes. Je suis Matthieu et je marche avec vous, comme beaucoup. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

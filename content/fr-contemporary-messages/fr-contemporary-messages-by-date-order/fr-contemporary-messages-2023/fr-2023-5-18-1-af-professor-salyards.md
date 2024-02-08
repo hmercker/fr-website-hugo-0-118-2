@@ -26,3 +26,7 @@ Mais lorsque la graine est plantée en vous et qu’elle y prend naissance, c’
 N’ayez pas peur d’exprimer vos rêves et vos idées, mes chers amis. C’est important. Le début de ces pensées n’est peut-être pas le point final ou la réalisation de ce qui doit être, mais c’est un début, et toutes les choses doivent avoir un début. Je vous invite donc à continuer à penser en fonction de l’inspiration, de la prière et du désir de servir. Dieu veillera à ce que beaucoup de choses viennent à votre conscience et à ce que de nombreuses possibilités se réalisent en vous, à travers vous, autour de vous.
 
 Que Dieu vous bénisse, mes amis bien-aimés. Je suis votre professeur Salyards, je suis heureux et joyeux de voir que la lumière de l’inspiration vous touche tous profondément. C’est Dieu qui est à l’œuvre. Ce sont vos âmes qui s’éveillent et qui réalisent leur potentiel. Que Dieu vous bénisse. Je vous aime beaucoup, mes amis bien-aimés. En effet, que beaucoup de choses vous parviennent par les nombreux chemins que Dieu utilise pour inspirer Ses enfants dans le monde. Que Dieu vous bénisse. Que Dieu vous bénisse tous dans son amour.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

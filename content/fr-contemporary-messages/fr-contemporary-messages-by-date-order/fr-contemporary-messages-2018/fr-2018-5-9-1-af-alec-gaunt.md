@@ -34,3 +34,7 @@ Ainsi, marcher sur cette ligne d’équilibre et d’harmonie est votre objectif
 Ayez la foi, mes amis, ayez la foi, vous êtes sur la bonne voie que Dieu vous révélera avec chaque jour, et qu’avec chaque jour vient la conscience naissante du grand Plan de Dieu pour le salut de l’humanité. Vous êtes profondément bénis. L’Amour continue de couler dans vos âmes. Vous continuez à écouter. Vous continuez à désirer être un canal d’Amour, à être au service de Dieu de toutes les manières possibles. Ainsi il se déroulera dans vos vies, ce beau réveil, ce beau cadeau de la vie. C’est notre cadeau d’en être les témoins en chacun de vous, alors que Dieu éveille un autre ange dans Son Univers par la bénédiction de Son Amour.
 
 Que Dieu vous bénisse, mes amis. Je suis Alec. Mon amour, ma compassion et ma compréhension sont avec vous et le seront toujours. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

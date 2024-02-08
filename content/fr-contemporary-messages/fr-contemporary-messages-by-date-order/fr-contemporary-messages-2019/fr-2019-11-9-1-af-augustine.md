@@ -32,3 +32,7 @@ Vous vivez une époque très intéressante, âmes bien-aimées. Vous verrez de g
 Que Dieu vous bénisse dans ce voyage, âmes bien-aimées. Puissiez-vous vous réveiller, vous réveiller avec joie, vous réveiller avec des perceptions profondes, vous réveiller avec une plus grande capacité à aimer et à embrasser tous vos frères et sœurs. En vous efforçant d’atteindre ces objectifs, vous verrez que par vos actions, vous aurez marché sur le chemin de l’amour et de l’harmonie.
 
 Je vous bénis, âmes bien-aimées. Je suis votre enseignant Augustin et mon amour, mon amour est avec vous tous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

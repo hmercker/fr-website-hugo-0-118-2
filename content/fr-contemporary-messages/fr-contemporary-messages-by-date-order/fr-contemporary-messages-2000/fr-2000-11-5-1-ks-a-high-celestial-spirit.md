@@ -41,5 +41,8 @@ J’espère avoir contribué à répondre à la question que vous avez posée ; 
 
 Je vous laisse avec ces pensées et avec la prière qu’elles s’avèrent utiles au chercheur de vérité. Je suis un esprit Céleste élevé qui a reçu la permission d’écrire sur ce sujet aujourd’hui. Je suis proche de notre Maître, Jésus, et nous aimons Dieu de tout notre cœur et de toute notre âme. Amen.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+
+### [**Lien vers les messages des années 2000**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

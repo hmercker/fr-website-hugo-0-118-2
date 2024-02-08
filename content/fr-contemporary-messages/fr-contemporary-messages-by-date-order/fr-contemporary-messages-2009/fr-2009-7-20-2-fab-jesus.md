@@ -17,4 +17,6 @@ Oui, Mlle Rankin a confirmé les recherches de ses biographes dans les canalisat
 
 Quand j'ai dit [« si ses opinions semblaient en contradiction avec les recherches de ses biographes »](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-17-3-fab-jesus/), je faisais référence à la défense de son caractère par Mlle Rankin, alors que ses biographes avaient découvert de nombreux cas où elle avait été égoïste et incompatible avec ses prises de position publiques pour la justice et l'égalité.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -53,11 +53,15 @@ Tu as tout à fait raison : lorsque tu m’apprécieras de plus en plus, tu t’
 
 N’aie pas peur d’obtenir tes réponses. Il y a bien d’autres réponses que celles que tu as cherchées jusqu’à présent. Et ces réponses, je les laisse tomber comme des miettes sur une piste que tu peux suivre si tu le souhaites – pour trouver ton chemin vers moi, ce que tu es libre de faire si tu le veux. J’aimerais bien.
 
-Tu sais qui je suis, qui a écrit ce matin, et moi aussi.
+Tu sais qui Je suis,
+qui a écrit ce matin,
+et moi aussi.
 
 Avec mon amour et le tien, Amen.
 <small>
 
 1. <large id="f1"> Commentaire de PJR : Inutile de dire que j’ai été plus que surpris de recevoir une réponse aussi claire et directe à mon approche claire et directe. Peut-être le Père aurait-il pu continuer à me « parler » directement, à la première personne. Mais quelqu’un a eu la gentillesse d’intervenir et de sauver la situation, après avoir vu à quel point j’étais soudainement désorienté. J’ai toujours supposé que toute communication directe de Sa part ne se ferait pas avec des mots ou même des pensées, mais qu’elle prendrait la forme d’un désir et d’une intention modulés, transmis d’âme à âme. J’ai également supposé que tous les mots que je pourrais écrire ne seraient, par nécessité, que le résultat de mon interprétation de Lui et, par conséquent, ne viendraient pas directement de Lui. Cette expérience a ébranlé cette supposition, qui reste néanmoins, ni étayée ni réfutée.[↩](#a1)
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004)
+### [**Lien vers les messages des années 2004**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

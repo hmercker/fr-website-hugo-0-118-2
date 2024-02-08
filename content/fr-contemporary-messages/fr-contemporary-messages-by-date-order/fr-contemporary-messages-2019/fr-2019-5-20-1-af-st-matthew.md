@@ -34,3 +34,7 @@ Vous rencontrerez ces vérités, cette nouveauté de perception et de vérité, 
 Puissiez-vous continuer à rechercher l'Amour du Père, à accepter le voyage, car Dieu a tracé ce chemin pour chacun d'entre vous. Vous en viendrez à connaître Dieu comme votre ami bien-aimé et intime, votre Père, votre Source de toute joie, votre Source de tout amour. Cela vient. Cela vient.
 
 Que Dieu vous bénisse, mes bien-aimés, et vous garde sur ce chemin Divin, afin que vous puissiez vous éveiller pleinement et connaître les gloires de l'amour, du véritable et bel Amour qui est Divin. Que Dieu vous bénisse. Je suis Matthieu et je suis avec vous dans l'amour. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

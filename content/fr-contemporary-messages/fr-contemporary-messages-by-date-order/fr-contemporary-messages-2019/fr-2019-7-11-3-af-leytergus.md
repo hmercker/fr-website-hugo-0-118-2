@@ -11,7 +11,7 @@ weight:
 
 Leytergus - reçu par Al Fike le 11 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
 
-Je suis Leytergus. Je n’ai pas parlé par cet instrument auparavant, bien que vous m’ayez connu par d’autres voies et médiums et par des livres ; j’y ai fait des commentaires. Une question a été posée : *« Comment une âme peut-elle travailler avec Dieu pour apporter une plus grande Lumière dans votre monde et comment sait-on que ce travail est accompli en accord avec la volonté de Dieu ? »* . Je suis venu m’exprimer sur ce sujet.
+Je suis Leytergus <sup id="a1">[1](#f1)</sup>. Je n’ai pas parlé par cet instrument auparavant, bien que vous m’ayez connu par d’autres voies et médiums et par des livres ; j’y ai fait des commentaires. Une question a été posée : *« Comment une âme peut-elle travailler avec Dieu pour apporter une plus grande Lumière dans votre monde et comment sait-on que ce travail est accompli en accord avec la volonté de Dieu ? »* . Je suis venu m’exprimer sur ce sujet.
 
 En raison de la nature de votre monde et des conditions qui y règnent, il vous est difficile de discerner et de savoir ce qui est motivé par votre âme, ce qui est motivé par votre esprit et ce qui est guidé par Dieu. Parce que dans votre expérience de la vie, tout est un flux entremêlé d’intentions attentives et de désirs de l’âme et des intentions de Dieu pour vous. La façon dont l’âme comprend la Volonté de Dieu et la met en œuvre est très différente de celle de l’esprit, comme vous le savez bien. Pourtant, le mental est désireux d’interpréter, d’être clair et de comprendre ces inclinations, ces motivations, les visions et les informations guidées qui viennent de Dieu.
 
@@ -32,3 +32,20 @@ Le pouvoir de la prière, mes bien-aimés, est un grand activateur et votre volo
 Vous commencez à comprendre la puissance de cet Amour et ce qu’il peut accomplir, mais Je vous le dis, vous n’avez qu’une infime partie de la compréhension de sa puissance et de son émerveillement. Vous devez continuer à grandir et à vous éveiller à ce Don, à le recevoir, à le désirer intensément, à prier pour lui chaque fois que vous le pouvez, à consacrer du temps à ce processus de transformation qui éveillera vos dons et de plus grandes possibilités pour que la Volonté de Dieu soit mise en œuvre à travers vous.
 
 Lorsque vous parviendrez à cette compréhension claire de ce qui s’est passé dans vos vies, dans vos efforts pour servir Dieu, vous serez stupéfaits de ce que Dieu a pu faire à travers vous dans ce monde. Oui, cela ne vous apporte pas de grandes accolades ou de reconnaissance de la part des autres, car ils ne voient pas et ne comprennent pas ce que vous essayez de faire et d’être dans le monde, mais je vous dis que Dieu connaît chaque moment de votre existence et qu’il utilise chaque opportunité qui est disponible pour apporter des bénédictions aux autres à travers vous. Permettez à cela d’être, âmes bien-aimées, et sachez que c’est vrai. Car il y a beaucoup de choses qui se passent à travers vous dont vous n’avez pas conscience. Il y a beaucoup de choses qui peuvent venir à travers vous et qui dépendent de votre capacité à vous connecter avec Dieu et à être en harmonie avec Dieu. Plus la connexion est grande, plus l’harmonie est grande et plus cet alignement avec Dieu est intense, plus l’instrumentation qui permet à Sa Volonté d’être promulguée dans votre monde est efficace.
+<small>
+
+1. <large id="f1"> Leytergus s'est également exprimé dans les messages suivants :  [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+--|---|---
+Leytergus | [Cet amour vous aidera à surmonter les obstacles sur votre chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-52-1970-1-26-anonymous-leytergus/) | 26 Janvier 1970
+Leytergus | [Relation entre le mental matériel et le mental de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-11-2-af-leytergus/) | 11 Septembre 2017
+Leytergus | [Les différences entre la Sixième Sphère et les Sphères Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-12-3-af-leytergus/) | 12 Septembre 2017
+Leytergus | [Ce que signifie vraiment la co-création avec Dieu. (Retraite Q&A Gibsons Juillet 2019)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-11-3-af-leytergus/) | 11 Juillet 2019
+Leytergus | [Embrasser la diversité et l’autre dans l’acceptation et l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-23-1-af-leytergus/) | 23 Juillet 2020
+Leytergus | [Prier avec intention](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-2-23-1-af-leytergus/) | 23 Février 2021
+
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

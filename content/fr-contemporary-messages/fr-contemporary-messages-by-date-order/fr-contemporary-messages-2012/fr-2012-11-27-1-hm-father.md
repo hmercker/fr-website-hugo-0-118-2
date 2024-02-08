@@ -21,4 +21,6 @@ Reconnais le côté créatif en toi, l’accomplissement et l’honneur des dons
 
 Fais partie de cela, Mon enfant, d’avoir un cœur de chair et un amour qui coule doucement pour toutes mes créatures et la création. C’est ton père qui te parle maintenant et te soutient avec des bras d’amour. Je t’aime, ton père.
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

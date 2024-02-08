@@ -9,7 +9,7 @@ weight:
 ---
 ### Notre âme et la loi de l’attraction
 
-Confucius - reçu par Al Fike le 15 Février 2017, Gibsons, Colombie-Britannique, Canada
+Confucius<sup id="a1">[1](#f1)</sup>- reçu par Al Fike le 15 Février 2017, Gibsons, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse, âmes précieuses. C’est Confucius. Vous vous êtes réunis, mes bien-aimés, pour apporter la lumière dans vos âmes, pour vous apporter l’amour les uns aux autres, pour venir et être dans ce cercle béni rempli d’âmes qui reconnaissent la lumière dans toutes ses manifestations, qui cherchent Dieu de différentes manières, qui ont des compréhensions, des croyances culturelles et des façons de vénérer Dieu qui sont différentes et uniques. Pourtant, ne sentez-vous pas tous que vous faites partie d’une seule famille, une famille précieuse dans la lumière de l’Amour de Dieu ?
 
@@ -22,3 +22,10 @@ Lorsque Dieu vous réunit de cette manière, vous êtes dans cette bénédiction
 Continuez, mes chères âmes, dans votre quête d’être avec vos âmes sœurs, votre famille dans l’amour, alors qu’elle grandit et continue à être touchée par Dieu. Continuez à vous débarrasser de tout ce qui vous restreint, vous lie et de tout ce qui limite votre amour les uns pour les autres. Alors que vous grandissez dans cette lumière, vous allez embrasser beaucoup, beaucoup d’âmes de différentes cultures, croyances et compréhensions. Car ce qui est dans le mental a très peu d’influence sur cette grande loi d’attraction où nos âmes sont attirées ensemble dans une étreinte aimante tout en reconnaissant le pouvoir de l’amour – la beauté de l’amour.
 
 Que Dieu vous bénisse, mes chères âmes. Continuez à chercher la lumière ensemble, à partager vos dons et à partager votre amour. Dieu sera toujours là et ce grand portail grandira en beauté, en lumière, en puissance et en grâce, vous enveloppant tous et s’étendant dans le monde … apportant des bénédictions à beaucoup. Que Dieu vous bénisse. Confucius vous aime, âmes bien-aimées, et continuera à être avec vous alors que vous priez ensemble et que vous êtes dans cette fraternité aimante permettant à la lumière de circuler et à l’amour de grandir. Que Dieu vous bénisse, que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués  par Confucius sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a1)
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

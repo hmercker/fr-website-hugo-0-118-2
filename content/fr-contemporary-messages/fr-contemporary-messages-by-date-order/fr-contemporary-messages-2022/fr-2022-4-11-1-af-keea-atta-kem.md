@@ -16,3 +16,7 @@ J’apporte à chacun d’entre vous une bénédiction de guérison, une éléva
 Que Son Amour continue à vous éveiller, mes amis, transformant vos âmes, apportant la lumière à tout ce qui est dans vos âmes. Dieu souhaite avoir de vos nouvelles. Dieu souhaite que vous l’entendiez et ainsi les dons de perspicacité, d’écoute et de connaissance continuent de croître en chacun de vous alors que vous vous rapprochez de Dieu et que cette expérience de communication avec votre Père céleste ne sera pas un mystère ou n’ira pas et viendra mais sera constante dans votre vie pour vous aider à grandir, pour vous aider à aider les autres, pour vous aider à être guidé et à connaître votre chemin.
 
 Bénédictions à vous, mes amis bien-aimés, bénédictions et amour à chacun de mes précieux amis qui parcourent le chemin de l’unification avec Dieu. Dieu vous bénisse, mes bien-aimés, je vous aime. Grand amour pour chacun de vous. Que Dieu vous bénisse. Je suis Keea Atta Kem. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

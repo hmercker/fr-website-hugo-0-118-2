@@ -23,4 +23,6 @@ Mais tu dois avoir confiance. C’est comme allumer la lumière verte pour que l
 
 Et pourtant, ces portes moins favorables sont utilisées. Choisis de faire confiance et ferme les portes du doute. L’inquiétude est ta récompense pour avoir douté. Quelle porte choisir, quand les résultats sont connus ?
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)
+### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

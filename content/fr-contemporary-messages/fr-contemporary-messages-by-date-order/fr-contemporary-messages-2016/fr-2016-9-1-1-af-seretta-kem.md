@@ -30,3 +30,8 @@ Dieu a un plan pour chaque âme dans ce monde et c’est à vous, mes bien-aimé
 Je vous remercie, mes bien-aimés, de m’avoir permis de m’exprimer. Je suis Seretta Kem. J’ai vécu il y a plusieurs milliers d’années dans le pays d’Égypte. J’étais un guérisseur et je continue d’être un guérisseur dans le monde de l’esprit et même dans ce monde lorsque je peux être utilisé comme canal de Dieu par la guérison et l’Amour dans ce monde, je viens et j’aide. Alors je vous demande, âmes bien-aimées, quand vous avez besoin de mon aide, appelez-moi par mon nom et je viendrai à vous pour vous aider avec ce qui vous pose problème, car en tant qu’ange dans les Cieux Célestes, notre grande tâche et notre grande joie est de servir tous les esprits et l’humanité dans l’amour.
 
 Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse et je vous aime.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

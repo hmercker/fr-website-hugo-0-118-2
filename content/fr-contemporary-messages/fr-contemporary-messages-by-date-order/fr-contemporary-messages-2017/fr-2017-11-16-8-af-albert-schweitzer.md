@@ -17,3 +17,7 @@ Que Dieu vous bénisse. Je suis avec vous et je marche avec vous dans ce voyage 
 <small>
 
 1. <large id="f1"> **Albert Schweitzer** (14 Janvier 1875 - 4 Septembre 1965) fut un médecin, pasteur et théologien protestant, philosophe et musicien alsacien. Il est particulièrement connu pour l'hôpital qu'il a développé, dans la forêt équatoriale, à Lambaréné (Gabon) à partir de 1913. Il a été récompensé par le prix Nobel de la paix en 1952.[↩](#a1)
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

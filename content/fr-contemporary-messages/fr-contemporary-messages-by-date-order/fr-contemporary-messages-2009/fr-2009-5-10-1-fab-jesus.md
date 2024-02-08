@@ -19,4 +19,7 @@ Nous préconisons une réforme du système, une ouverture du cœur qui sera en a
 
 Et quand nous disons le système, nous voulons dire la structure globale. Nous ne voulons jamais nier cette générosité, qui est si évidente.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

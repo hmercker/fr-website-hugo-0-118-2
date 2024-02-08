@@ -38,3 +38,7 @@ Donc, je vous exhorte, mes chères âmes, à être fortes dans la Lumière, à r
 Ceci est mon message pour vous, âmes bien-aimées. En ce moment, vous êtes entourés d’anges. Le toucher de Dieu est sur vous. Il vous a gratifié de ce magnifique portail de Lumière qui crée entre vous un lien d’Amour qui pourra être utilisé dans le futur pour vous soutenir en ces temps de changement. Vous êtes aimés. Dieu a un profond souci et un profond désir de vous élever. Puissiez-vous écouter, répondre et grandir dans la Lumière. Choisissez chaque jour, chaque instant. Tout est disponible pour vous, mes âmes bien-aimées, tellement de choses. Puissiez-vous être ouverts et répondre à l’appel de Dieu.
 
 Je vous donne mes bénédictions et mon amour et je vous remercie de m’écouter. Car ce sont en effet des temps sérieux et nous faisons de grands efforts pour atteindre l’humanité, pour aider à introduire ce changement pour le bien et l’harmonie de ce monde. Ainsi, je souhaite de l’amour pour vous, âmes bien-aimées, la paix dans vos vies, la joie dans votre cœur, la sagesse de vos âmes. Que Dieu vous bénisse. Je suis Seretta Kem. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -24,3 +24,7 @@ L'humanité s'est trop longtemps détournée de Dieu et, en se détournant, elle
 Y a-t-il un appel plus élevé, mes bien-aimés ? Y a-t-il quelque chose qui vaille la peine d'être poursuivi et qui soit plus grand que cela ? Car cela apporte le vrai bonheur, la libération des chaînes de la condition humaine, la vérité et la connaissance au-delà de votre compréhension actuelle, une conscience de Dieu qui sera centrale dans votre conscience et puissante partout où vous allez. Quelles autres richesses un homme peut-il posséder qui soient plus grandes que celle-ci ? Recherchez votre Père Céleste dans la prière, en le suppliant de placer Son Amour dans votre âme, et vous serez une âme très riche, très riche dans ce monde. Des richesses que vous pourrez emporter partout où vous irez et lorsque votre heure d'entrer dans le monde de l'Esprit arrivera, vous marcherez dans une grande lumière, vous connaîtrez une grande joie et vous verrez que votre choix et votre chemin étaient justes et équitables.
 
 Âmes bien-aimées, soyez avec Dieu et tout le reste suivra. Soyez avec Dieu. Que Dieu vous bénisse, je suis Joseph.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

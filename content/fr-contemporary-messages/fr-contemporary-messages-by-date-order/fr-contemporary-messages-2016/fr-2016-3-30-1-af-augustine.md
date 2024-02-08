@@ -28,3 +28,7 @@ Durant ma vie sur Terre, ces concepts furent très étrangers. Je n’ai pas vra
 Mes étudiants bien-aimés, continuez d’atteindre ce haut chemin, ce lieu de compréhension vraie et pure de la volonté de Dieu, ce lieu d’humilité puissante, d’être en grâce, d’apprendre de l’âme. Car, en ce lieu, tout ce que vous cherchez à faire en ce monde pour aider vos frères et sœurs se déroulera d’une manière merveilleuse, au-delà de vos conceptions les plus folles. Et cela vient avec l’humilité, la force de la foi, la puissance de l’Amour.
 
 Que Dieu vous bénisse, mes étudiants. Je suis si heureux de pouvoir délivrer ce message, d’être avec vous, d’avoir cette occasion. Et je suis souvent avec vous alors que vous vivez votre vie et luttez contre la condition humaine. J’ai beaucoup d’empathie et de compassion pour ces luttes. Et je vous aime, bien-aimés étudiants, je vous aime si profondément et je serai toujours avec vous pour vous aider sur votre chemin. Que Dieu vous bénisse, que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

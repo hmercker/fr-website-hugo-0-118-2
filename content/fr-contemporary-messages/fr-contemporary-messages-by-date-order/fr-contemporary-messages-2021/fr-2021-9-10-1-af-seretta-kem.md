@@ -22,3 +22,7 @@ De cette façon, vous vous accorderez plus complètement avec Dieu, vous vous ac
 En fait, vous poursuivez cette grande entreprise. Vous continuez à vous éveiller et à développer les dons qui doivent circuler à travers vous tous. Nous sommes très satisfaits de vos progrès jusqu’à présent. Nous sommes proches du but. Puisse Dieu être proche de vous en ces moments. Puissiez-vous expérimenter l’afflux de son amour afin qu’il devienne une partie réelle et tangible de votre expérience commune et de votre expérience avec Dieu, alors que vous continuez à grandir dans son amour. Nous sommes avec vous. Nous sommes avec vous.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Seretta Kem. Mon amour, mon amour est grand pour vous tous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

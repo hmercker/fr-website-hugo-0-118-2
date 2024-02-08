@@ -23,4 +23,6 @@ Nous étions là avec toi, dans ces jours de miséricorde, et ces moments nous s
 
 Il y a d’autres raisons pour lesquelles nous venons à toi, bien qu’en fin de compte l’Amour soit notre cause, et nous pourrons en discuter lors de nos futures réunions que nous attendons mutuellement avec joie. Nous aimons tous nos frères et sœurs et nous prions pour vous, et nous venons à toi avec notre amour, notre aide et notre soutien, bien qu’à ton insu, à tout moment. Nous te remercions de nous avoir appelés et nous remercions notre Père pour ce privilège.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)
+### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

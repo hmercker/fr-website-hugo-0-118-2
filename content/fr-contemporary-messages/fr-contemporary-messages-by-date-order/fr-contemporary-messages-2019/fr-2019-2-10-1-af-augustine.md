@@ -28,3 +28,7 @@ Ici, vous êtes confrontés à de nombreuses pensées, idées et expériences di
 Je vous exhorte à demander cette bénédiction dans la prière, à vous ouvrir à cette expérience, à permettre à ce qui est en vous de vous éveiller dans l’amour, vous commencerez alors un voyage de lumière qui apportera une plus grande lumière pour l’éternité.
 
 Que Dieu vous bénisse, âmes bien-aimées. Que Son Amour continue à couler en vous. Puissiez-vous vous réveiller amoureux. Je suis votre maître Augustin et je reviendrai vous parler des vérités de votre propre existence. Il y a beaucoup de vérités à connaître et beaucoup de voies à explorer. Que Dieu vous bénisse dans vos pérégrinations. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

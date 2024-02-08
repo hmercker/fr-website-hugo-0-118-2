@@ -38,6 +38,9 @@ Ils n'ont jamais parlé de leur première heure de gloire, mais je pouvais senti
 Bien, laissez-moi conclure pour le moment. Je ne connais pas l'histoire, mais l'humanité (ou du moins beaucoup de ceux qui ne sont pas fixés sur la Bible) s'éloigne d'une interprétation littérale de la Bible, et dans ce processus, le monde ancien devra être vu d'une nouvelle manière.
 <small>
 
-1. <large id="f1"> Les différents messages relatifs à Aman(Adam), Amon(Eve) et leur famille sont disponibles par l'intermédiaire [de ce lien](/fr-james-padgett-messages/1-9-fr-messages-related-to-adam-and-eve/).[↩](#a1)
+1. <large id="f1"> Les différents messages relatifs à Aman(Adam), Amon(Eve) et leur famille sont disponibles par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/).[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

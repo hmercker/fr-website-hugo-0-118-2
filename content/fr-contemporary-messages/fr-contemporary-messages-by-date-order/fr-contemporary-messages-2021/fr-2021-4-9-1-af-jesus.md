@@ -38,3 +38,7 @@ Que Dieu vous bénisse dans ce voyage, âmes bien-aimées. Puissiez-vous en veni
 Ainsi, Ses bénédictions se déversent sur vous, âmes bien-aimées. Ainsi, le monde ressent la chaleur nourricière et les bénédictions du toucher de Dieu sur lui, revigorant et guérissant ces parties endommagées. Ainsi, vous parviendrez à faire véritablement partie de ce monde, de l’Univers de Dieu et de la grande famille d’âmes de Dieu qui marchent dans la lumière, faisant partie d’un endroit merveilleux et d’une expression de la Création de Dieu.
 
 Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse profondément, que vos facultés s’ouvrent, que vous puissiez vous abreuver aux Eaux Vives de l’Amour de Dieu, nourrissant et étanchant la soif de votre âme, que vous puissiez vraiment connaître et vous éveiller à Son Toucher profond sur vous. Que Dieu vous bénisse, mes bien-aimés. Je suis avec vous et je vous aime tendrement. Je suis avec vous et je suis proche. Que Dieu vous bénisse, âmes bien-aimées.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

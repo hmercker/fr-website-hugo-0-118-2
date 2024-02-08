@@ -48,3 +48,7 @@ Vous, âmes bien-aimées, avez commencé un voyage qui durera pour toute l’ét
 Allez à Dieu, mes bien-aimés, pour votre Vérité. Les mots ne sont que des mots, mais ce qu’ils transmettent peut inspirer un éveil à la Vérité dans votre âme, qui vous apportera joie, liberté et élévation.
 
 Que Dieu vous bénisse dans ce voyage. Je suis votre frère et votre ami. Je suis Jésus et je vous aime. Je vous aime, mes bien-aimés. Vous êtes proches de mon cœur. Je vous embrasse tous. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -42,3 +42,8 @@ Je vous bénis, mes bien-aimés, je suis Keea et je suis souvent avec vous et je
 Âmes bien-aimées, vous êtes vraiment aimées, vous avez beaucoup à donner et vous donnerez en grandissant plus intensément, plus magnifiquement à ceux que vous rencontrerez dans ce monde. Le monde attend votre sagesse, il attend la vérité de Dieu. Accomplissez le désir de Dieu que cette vérité et cette sagesse viennent avec une clarté simple et une révélation puissante et de belles, douces, rassurantes et réconfortantes, paroles de beauté et de vérité et de grâce.
 
 Dieu vous bénisse, Keea vous aime, Keea vous aime, Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

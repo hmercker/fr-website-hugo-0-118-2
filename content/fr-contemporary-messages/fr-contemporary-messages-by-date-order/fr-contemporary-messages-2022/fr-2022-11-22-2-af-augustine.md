@@ -30,3 +30,7 @@ Vous grandissez tous. Votre dévouement est évident et très nécessaire. Vos e
 Mes élèves bien-aimés, puissiez-vous continuer à écouter, à grandir, à aspirer, à prier et à être en alignement avec tout ce qui est en harmonie avec l’Amour Divin et la Vérité de ce grand don que Dieu donne volontairement, abondamment, et joyeusement. Puissiez-vous en effet connaître la joie de ce beau voyage, les réveils qui viennent, cette montée de joie de votre âme alors que vous reconnaissez ce qui émerge de votre âme et vient à votre conscience. Tant de choses vous arrivent, âmes bien-aimées. Tant de choses vous sont destinées. Tout est fait pour que vous soyez des canaux d’amour efficaces, beaux et puissants pour Dieu.
 
 Tout vient au gré de vos propres désirs, avec l’expression de votre propre âme, et l’intention qui est au plus profond de vous de servir Dieu dans l’amour, de servir vos frères et sœurs dans l’amour. Ainsi vous le ferez, âmes bien-aimées. Je suis votre enseignant, Augustin, et je vous aime. Je vous aime beaucoup. Que Dieu vous bénisse. Que Dieu vous bénisse profondément.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

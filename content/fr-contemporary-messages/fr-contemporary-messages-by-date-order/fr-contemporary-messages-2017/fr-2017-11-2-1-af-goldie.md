@@ -14,3 +14,7 @@ Goldie - reçu par Al Fike le 2 Novembre 2017, Gibsons, Colombie-Britannique, Ca
 Cette petite fille ne mettra pas son doigt dans la digue. Au lieu de cela, je vous aiderai à faire plus de fissures et de crevasses pour que les eaux puissent couler. Je vais vous aider. Je vous aiderai. Je vais danser sur cette barrière et la faire disparaître, la faire disparaître. Car elle est destinée à partir. Ces eaux qui se construisent sont faites pour vous et elles viendront. Elles arrivent. Il y a beaucoup de fissures profondes qui permettent déjà à l'eau de couler et elle ne sera que plus grande, plus belle et plus puissante.
 
 Restez dans le flux, mes bien-aimés. Je vous tiendrai la main parce que je vous aime tellement. Que Dieu vous bénisse. Je suis Goldie. Je vous aime tellement, mes amis spéciaux sur terre. Je vous aime tellement.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

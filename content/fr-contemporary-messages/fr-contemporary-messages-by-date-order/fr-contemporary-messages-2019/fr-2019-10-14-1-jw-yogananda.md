@@ -18,3 +18,7 @@ C’est ainsi que vous savez que vous êtes dans l’Amour Divin. La disparition
 Comme le Maître l’a dit : *« Aimez les autres comme je vous ai aimés »*, c’est-à-dire dans l’Amour de Dieu. Vous créerez un lien éternel avec ceux que vous touchez dans l’Amour de Dieu. Il n’y a pas de fin à cela. Il est au-dessus de ce monde et au-delà. Mais il embrasse ce monde. Portez cet Amour avec vous, chers amis. Marchez dans la lumière. Vivez dans l’Amour. Ne faites pas de mal, comme l’a dit le grand philosophe Hippocrate : *« Ne faites pas de mal. »* Et comme le poète Virgile l’a écrit il y a si longtemps : *« L’amour vainc tout. »* Comme c’est vrai. Aimez tout dans l’amour de Dieu.
 
 Que Dieu remplisse vos âmes et les transforme dans Son glorieux Amour et Sa Lumière, ce cadeau que vous avez la chance de recevoir. Tout mon amour et mes bénédictions à vous. Je suis Yogananda.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -41,6 +41,6 @@ Nous sommes tous des êtres humains, des esprits et des âmes. Nous sommes tous 
 
 Mettez-les en pratique. La théorie sans la pratique est comme un diamant brut qui n’est jamais taillé : personne ne verra sa véritable beauté.
 
-Bonne nuit.
+### [**Lien vers les messages des années 2011**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/)
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/)
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -20,3 +20,7 @@ Toi, mon fils, notre cher ami, ton engagement en ce lieu est profondément appr�
 Vous êtes des âmes précieuses, profondément aimées par Dieu et profondément aimées par les royaumes spirituels. Tant de personnes vous regardent et vous observent. Elles sont attirées par vous car votre Lumière est brillante et elle émane de vous, attirant beaucoup de monde. Quel cadeau précieux, toutes les âmes qui prient pour l'Amour Divin de Dieu, grandement nécessaires sur votre Terre, protégées, guidées.
 
 Je suis Keea Atta Kem et mon amour est avec vous et je vais aider à établir une grande lumière ici avec vous. Dieu vous bénisse et mon amour est avec vous.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

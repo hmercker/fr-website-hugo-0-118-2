@@ -22,3 +22,7 @@ Pourtant, la disponibilité, le flux de cet amour est sans fin. L’âme peut s�
 Puissiez-vous demander, âmes bien-aimées, ce don et puissiez-vous connaître et comprendre la puissance, la vraie puissance de l’amour et être bénis profondément dans votre âme.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis André, un habitant du Royaume céleste et un disciple du Maître, Jésus. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

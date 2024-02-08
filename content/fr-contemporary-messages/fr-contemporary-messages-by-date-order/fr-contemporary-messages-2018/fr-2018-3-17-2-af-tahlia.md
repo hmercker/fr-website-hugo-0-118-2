@@ -11,7 +11,7 @@ weight:
 
 Tahlia - reçu par Al Fike le 17 Mars 2018, Hawaii Kai, Oahu, HI, USA.
 
-Je suis Tahlia et j’ai vécu autrefois dans l’empire Inca il y a de nombreuses années. J’ai une connexion particulière avec toi, ma fille et je travaille avec toi. Tu sentiras mon pouvoir. Tu sentiras les énergies qui viennent à travers moi et à travers toi alors que tu continues ton travail dans ce monde pour aider les gens à guérir et à venir à la Vérité et pour les guider dans le monde. Vous me connaîtrez. Vous me connaîtrez.
+Je suis Tahlia<sup id="a1">[1](#f1)</sup>  et j’ai vécu autrefois dans l’empire Inca il y a de nombreuses années. J’ai une connexion particulière avec toi, ma fille et je travaille avec toi. Tu sentiras mon pouvoir. Tu sentiras les énergies qui viennent à travers moi et à travers toi alors que tu continues ton travail dans ce monde pour aider les gens à guérir et à venir à la Vérité et pour les guider dans le monde. Vous me connaîtrez. Vous me connaîtrez.
 
 Nous travaillerons ensemble pour apporter la Vérité de l’Amour de Dieu dans ce monde. De nombreux anges travaillent avec vous, vous tous ici, tous ceux qui sont disposés. Tous ceux qui sont avec Dieu auront de nombreux anges travaillant à travers eux et apporteront de nombreuses bénédictions, de nombreux événements qui changeront la vie des autres de manière imprévue, qui apporteront l’harmonie, la Vérité et l’Amour. En fonction de vos personnalités et des lois d’attraction et de rapport, ces anges s’approcheront. Au fur et à mesure que vos dons se développent et que les ouvertures au sein de vos âmes commencent à émerger et à devenir claires pour vous et que le don de la vue vient, le don de connaître votre Dieu, votre Père Céleste, vient à vous. Ainsi, vous trouverez ces anges qui se consacreront à vous, non seulement pour votre amélioration, mais aussi pour l’amélioration des autres à travers vous.
 
@@ -26,3 +26,16 @@ Toutes ces pensées et idées, toutes ces ambitions et perspectives de l’espri
 Alors que votre âme s’éveille, lavée par ces eaux, nettoyée et renforcée, remplie de Lumière, vous n’aurez plus besoin de cette ancienne vie qui s’accroche aux rochers. Vous vous laisserez simplement aller dans un abandon joyeux et dans la reconnaissance aimante que vous serez comme un poisson dans la rivière, vous portant le long. C’est votre maison maintenant. C’est ici qu’est votre place. Que cet Amour qui pleut sur vous, touchant votre âme, étant absorbé par votre âme assoiffée, vous oblige à plonger, à ne faire qu’un avec l’Amour, à faire confiance au pouvoir de l’Amour, au courant de l’Amour, à la beauté de l’Amour. Laissez-vous aller maintenant, mes amis, laissez-vous dériver et boire et connaître Dieu dans Son grand fleuve d’Amour.
 
 Que Dieu vous bénisse, mes amis bien-aimés, mes amis bien-aimés. Rejoignez-moi dans l’Amour. Je suis Tahlia et je nage avec vous, vous tous. Suivez vous jusqu’à la Lumière de l’Amour de Dieu. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> Tahlia s'est également exprimé dans les messages suivants :  [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Tahlia | [Semer les graines de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-1-1-af-tahlia/) | 1 Décembre 2016
+Tahlia | [Marcher dans la lumière à travers les bouleversements à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-2-1-af-tahlia/) | 2 Octobre 2017
+Tahlia | [Ce qui n'est pas en harmonie avec la création de Dieu s'écroulera](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-3-10-1-af-tahlia/) | 10 Mars 2019
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

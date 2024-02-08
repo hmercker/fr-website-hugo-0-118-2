@@ -26,3 +26,7 @@ Le cadeau que vous pouvez faire à ce monde est d’aimer chacun comme Dieu vous
 Que l’amour de Dieu soit avec vous tous. Que la paix et la joie de sa grâce soient avec chacun de vous. Avec tout mon amour et mes bénédictions, je suis votre frère et ami dans l’amour de Dieu.
 
 Je suis Gandhi.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -22,3 +22,7 @@ De cette façon, toutes les choses de votre cœur, de votre esprit et l’expres
 Cherchez à ne pas encombrer votre esprit de nombreuses pensées et spéculations, de sombres émotions créées par les désirs de l’esprit qui sont si différents des désirs de l’âme. Mettez ces choses de côté, enfants bien-aimés, et sachez qu’en vérité et en amour, le chemin vers Dieu est simple et direct. Le désir ardent de vos âmes exprimé par votre cœur, votre amour pour Dieu, apportera tout ce dont vous avez besoin dans ce voyage éternel vers l’expiation, en réalisant le véritable désir de votre âme.
 
 Puissiez-vous être bénis dans ce voyage, âmes bien-aimées. Puissiez-vous parvenir à connaître votre véritable moi profondément, intimement, puissamment et connaître toutes les bénédictions de Dieu. Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant Augustin et je prie avec vous, âmes bien-aimées, je prie avec vous. Que Dieu vous bénisse. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -30,6 +30,5 @@ Je vous laisse maintenant avec ces pensées et, comme vous pouvez le constater, 
 Je vous aime tous et chacun, et vous laisse avec mes bénédictions d’amour, Jésus de la Bible et Maître des Cieux Célestes.
 
 ### [**Lien vers les messages des années 2000**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/)
-<br>
-<br>
+
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

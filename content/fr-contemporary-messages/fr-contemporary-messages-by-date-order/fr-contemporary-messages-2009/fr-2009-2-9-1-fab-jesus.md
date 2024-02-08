@@ -21,4 +21,7 @@ Mais c'est un fait que les esprits conservent toujours leur individualité, mêm
 
 Il n'y a donc pas lieu de s'embrouiller. Les Soufis et d'autres mettent l'accent sur la nécessité d'abandonner l'ego égoïste, qui sépare les gens de la vie. Ils enseignent la nécessité de se considérer comme une partie intime du cosmos et de Dieu.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

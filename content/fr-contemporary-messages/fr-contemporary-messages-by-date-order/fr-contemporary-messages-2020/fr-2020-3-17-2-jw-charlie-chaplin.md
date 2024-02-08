@@ -15,3 +15,7 @@ Je suis ici Charles. Certains d’entre vous me connaissent sous le nom de Charl
 
 Vous êtes de si belles âmes et si douées, chacune d’entre vous. Chacun d’entre vous a un don unique à offrir à ce monde. C’est incroyable. Je voulais partager avec vous pour que vous puissiez partager vos dons avec d’autres. Que Dieu vous bénisse.
 Je suis votre frère et ami, Charles.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

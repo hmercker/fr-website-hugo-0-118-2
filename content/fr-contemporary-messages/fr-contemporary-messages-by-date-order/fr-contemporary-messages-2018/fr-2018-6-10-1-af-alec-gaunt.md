@@ -25,3 +25,7 @@ Que Dieu vous bénisse toujours et vous garde toujours dans cette Lumière. Son 
 <small>
 
 1. <large id="f1"> F.U.S.C. First United Spiritual Church (Première Église Spirituelle Unie).[↩](#a1)
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

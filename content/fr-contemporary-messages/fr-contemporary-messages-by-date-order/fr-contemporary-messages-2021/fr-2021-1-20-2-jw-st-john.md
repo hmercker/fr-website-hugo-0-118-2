@@ -25,3 +25,7 @@ Que la lumière et l’amour du Créateur soient avec vous, restent avec vous. E
 <small>
 
 1. <large id=”f1”> Changement d’administration dans le gouvernement des États-Unis.[↩](#a1)
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

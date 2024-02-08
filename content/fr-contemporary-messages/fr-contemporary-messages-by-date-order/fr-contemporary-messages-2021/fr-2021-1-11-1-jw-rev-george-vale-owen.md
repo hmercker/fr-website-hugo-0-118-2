@@ -17,7 +17,8 @@ Mes écrits contiennent également beaucoup de Vérité sur l’Amour de Dieu, s
 
 Lorsque vous recevez quelque chose que vous savez être vrai, c’est parce qu’il est livré dans un paquet d’amour. Votre âme le sait et vous êtes donc capable de le partager. La plus haute vérité étant la Vérité de l’Amour de Dieu, et la réalité de toute âme ayant de vraies intentions, étant capable de la recevoir et d’être changée et de progresser.
 
-Il y a beaucoup à dire sur le voyage du cœur pour trouver l’amour. Mais ce qu’il faut dire, c’est que la vraie prière ne consiste pas à égrainer des chapelets, à faire un pèlerinage, ou à se battre pour nier ceci ou cela. C’est une affaire simple entre vous et Dieu. Et quand vous allez vers Dieu, quand vous demandez, la réponse vient. Nous vous disons toujours : « Ne vous embêtez pas à tout analyser et à essayer de comprendre la vie spirituelle parce que, mes amis, c’est une question de cœur et une question d’âme. Dieu fait le travail pour vous quand vous vous ouvrez dans la prière, comme dans ce cercle d’amour. » Il y a tant de personnes présentes ici ce soir ; tant de personnes. Je vous remercie de l’honneur qui m’est fait de pouvoir transmettre ce message par l’intermédiaire de mon cher frère. Je prends maintenant du recul pour me joindre à vous dans cette prière pour l’Amour de Dieu.
+Il y a beaucoup à dire sur le voyage du cœur pour trouver l’amour. Mais ce qu’il faut dire, c’est que la vraie prière ne consiste pas à égrainer des chapelets, à faire un pèlerinage, ou à se battre pour nier ceci ou cela. C’est une affaire simple entre vous et Dieu. Et quand vous allez vers Dieu, quand vous demandez, la réponse vient. Nous vous disons toujours : *« Ne vous embêtez pas à tout analyser et à essayer de comprendre la vie spirituelle parce que, mes amis, c’est une question de cœur et une question d’âme. Dieu fait le travail pour vous quand vous vous ouvrez dans la prière, comme dans ce cercle d’amour. »* Il y a tant de personnes présentes ici ce soir ; tant de personnes. Je vous remercie de l’honneur qui m’est fait de pouvoir transmettre ce message par l’intermédiaire de mon cher frère. Je prends maintenant du recul pour me joindre à vous dans cette prière pour l’Amour de Dieu.
+Noé                                            
 
 Avec tout mon amour et mes bénédictions, je suis votre frère dans le Christ, George Vale Owen.
 <small>
@@ -29,3 +30,14 @@ Avec tout mon amour et mes bénédictions, je suis votre frère dans le Christ, 
 3. <large id=”f3”> Sir Arthur Conan Doyle (écrivain de Sherlock Holmes).[↩](#a3)
 
 4. <large id=”f4”> Paraphrasant les mots sur une pierre angulaire de l’église National Spiritualist de Kingston sur la Tamise en 1927 *« To the Glory of God and His Angels »* qu’Arthur Conan Doyle a posé.[↩](#a4)
+
+4. <large id="f5"> Révérend George Vale Owen s'est également exprimé lors des messages suivants [↩](#a5)
+
+**Auteur** | **Titre du message** | **Date du message**  
+--|---|---
+Pasteur George Vale Owen | [Prier pour s'ouvrir à l'amour du Créateur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-10-1-jw-rev-george-vale-owen/) | 10 Août 2020
+Pasteur George Vale Owen | [Dans la gratitude et l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-12-1-jw-rev-george-vale-owen/) | 12 Août 2020
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

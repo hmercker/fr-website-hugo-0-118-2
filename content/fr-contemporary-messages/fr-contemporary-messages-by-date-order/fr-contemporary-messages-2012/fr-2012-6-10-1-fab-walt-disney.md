@@ -27,7 +27,6 @@ Walt Disney | [Walt Disney et ses studios en grève - 2](/fr-contemporary-messag
 Walt Disney | [Le sens moral de Walt Disney](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-6-21-2-fab-walt-disney/) | 21 Juin 2012
 Walt Disney | [La mentalité de guerre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-2-21-2-fab-walt-disney/) | 21 Février 2013
 
+### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
 
-
-
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

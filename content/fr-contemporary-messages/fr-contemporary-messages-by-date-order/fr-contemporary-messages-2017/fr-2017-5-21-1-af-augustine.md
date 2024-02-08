@@ -38,3 +38,7 @@ Je vous invite à continuer à prier ensemble pour Son Amour et Son Toucher. Je 
 Merci d’être venus ensemble, mes chers étudiants. Merci d’avoir prié, d’avoir fait cet effort. Je continuerai à venir et à enseigner. Je vais imprégner chacun d’entre vous de plus de vérités. Vous connaîtrez cette inspiration d’une manière consciente et mon amour sera avec vous.
 
 L’Amour de Dieu vous entoure, mes bien-aimés. Marchez dans cet Amour, marchez dans cet Amour, le monde a besoin de plus de personnes qui marchent dans l’Amour. Dieu vous bénisse. Dieu vous bénisse, je suis Augustin et je vous aime.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

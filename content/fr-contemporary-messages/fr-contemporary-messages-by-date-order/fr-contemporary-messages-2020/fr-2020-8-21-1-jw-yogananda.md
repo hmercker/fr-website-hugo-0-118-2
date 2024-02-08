@@ -24,3 +24,7 @@ Je parle de ce sujet parce qu’il est important d’être vulnérable, de s’o
 Que l’amour de Dieu vous apporte la foi et la confiance et tout don bon et parfait dans la Grâce. Je suis votre frère et votre ami dans l’amour de Dieu.
 
 Je suis Yogananda.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

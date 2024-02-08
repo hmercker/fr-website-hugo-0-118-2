@@ -18,3 +18,7 @@ Dieu vous demande de faire partie de son grand effort, de ce plan pour éveiller
 Âmes bien-aimées, sachez que Dieu apportera tous les cadeaux et toutes les bénédictions à ceux qui désirent et sont ouverts à ce contact. Vous vous retrouverez dans cette lumière, dans ce beau contact de Dieu, et vos âmes s’ouvriront en réponse et la joie de vos âmes viendra à votre moi conscient. Bien-aimés, nous sommes ensemble dans cette lumière. Nous sommes ensemble dans le désir d’un plus grand amour et d’une plus grande lumière pour pénétrer la Terre. Ensemble, nous travaillons, nous prions avec diligence et sincérité pour que les dons de Dieu nous touchent tous et touchent tous les habitants du plan terrestre.
 
 Âmes bien-aimées, vous êtes bénies et vous êtes aimées. Sachez que nous vous aimons, que nous vous aimons et que nous sommes les canaux des Bénédictions de Dieu envers vous. Dieu vous bénit. Je suis André et je vous aime. Que Dieu vous bénisse, mes bien-aimés, que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

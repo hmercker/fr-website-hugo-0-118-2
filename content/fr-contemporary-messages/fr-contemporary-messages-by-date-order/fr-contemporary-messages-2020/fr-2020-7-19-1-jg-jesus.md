@@ -25,4 +25,10 @@ Beaucoup peuvent percevoir un tel état chez une autre personne ou dans un espri
 
 Ne vous laissez pas tromper par les apparences ! Nombreux sont ceux qui, dans ce monde, jouent à un jeu de tromperie. Leurs paroles ne veulent pas dire grand-chose. Leur vraie nature se révélera une fois que la lumière de Dieu aura brillé sur eux. Et cela arrivera. Cela viendra.
 
-Faites confiance à votre Saint-Père. Croyez qu’Il vous fera voir les ténèbres et la lumière. Et quoi que vous fassiez, ne cachez pas votre propre obscurité. Remettez-la à Dieu. Choisissez l’amour, et repentez-vous de vos péchés. Il est miséricordieux. Et Il vous aime, chacun et chacune d’entre vous. Je suis Yeshua.
+Faites confiance à votre Saint-Père. Croyez qu’Il vous fera voir les ténèbres et la lumière. Et quoi que vous fassiez, ne cachez pas votre propre obscurité. Remettez-la à Dieu. Choisissez l’amour, et repentez-vous de vos péchés. Il est miséricordieux. Et Il vous aime, chacun et chacune d’entre vous. 
+
+Je suis Yeshua.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

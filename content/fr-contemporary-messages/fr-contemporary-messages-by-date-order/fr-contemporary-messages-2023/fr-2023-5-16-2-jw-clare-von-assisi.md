@@ -20,3 +20,7 @@ Je vous dis ces choses parce que vous devez avoir que vous êtes exactement là 
 Laissez-vous surprendre par la création, laissez votre âme, qui est le grand don fait à l’image du Père, s’ouvrir dans l’amour afin que vous puissiez ressentir toujours plus la présence du Créateur. Pour que vous puissiez vraiment transcender le monde dans la vibration qui est divine dans sa source, le pont entre le ciel et la terre. Considérez ces choses comme une libération de la gravité dans tous les sens du terme. Ne vous avons-nous pas dit que l’Amour Divin est anti-gravitationnel, libre du poids terrestre du monde ?
 
 Alors, priez, restez tranquilles et permettez à Dieu de vous bénir à tout moment et, lorsque vous ressentez son amour, envoyez-le à tous les êtres. Soyez dans la joie ! Je vous remercie et je vous aime. Comme on l’a dit et comme on continuera à le dire, « Cherchez d’abord le Royaume », et gardez l’espoir, l’espoir d’un réveil, l’espoir d’une transformation. Que Dieu vous bénisse. Je suis votre frère, votre ami et votre guide dans le Christ. Je suis Judas.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

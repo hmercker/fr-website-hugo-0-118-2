@@ -25,7 +25,14 @@ Si vous pensez à des molécules qui tournent et interagissent les unes avec les
 
 C’est à cela que vous arriverez avec le temps, mes amis. J’espère avoir expliqué dans une certaine mesure les différences entre votre existence sur Terre et l’existence de ces esprits dans les plans supérieurs et de ces Anges Célestes au Ciel. Vous aspirez à quelque chose de magnifique, âmes bien-aimées. Vous parviendrez à ces compréhensions et expériences magnifiques. Vous en viendrez à connaître la joie expansive d’une âme éveillée et rachetée par l’Amour de Dieu. Tout vient avec le temps, et pourtant, avec le temps, vous aurez l’impression que le temps n’existe pas. Et ainsi je me contredis, comme c’est le cas lorsqu’on utilise des mots pour expliquer les Vérités infinies de la Création de Dieu.
 
-Que Dieu vous bénisse, mes amis, et vous garde dans son amour. Je suis Copernic et je suis aussi un Ange Céleste et j’aimerais, j’aimerais beaucoup, pouvoir vous transmettre davantage cette compréhension des voies de l’univers qui est en harmonie et fonctionne pleinement et complètement dans les Lois de la Création et de l’Amour de Dieu. Mais nous essayons, nous essayons, mes amis, de vous aider à comprendre, de vous aider à vous interroger, à demander vous-mêmes à Dieu : *« Puissé-je connaître ces vérités de mon âme. »* Et dans cette expérience de l’âme, vous comprendrez vraiment. Que Dieu vous bénisse et vous garde dans son amour. Dieu vous bénisse, chers amis, et mon amour est avec vous. Que Dieu vous bénisse.
+Que Dieu vous bénisse, mes amis, et vous garde dans son amour. Je suis Copernic<sup id="a2">[2](#f2)</sup> et je suis aussi un Ange Céleste et j’aimerais, j’aimerais beaucoup, pouvoir vous transmettre davantage cette compréhension des voies de l’univers qui est en harmonie et fonctionne pleinement et complètement dans les Lois de la Création et de l’Amour de Dieu. Mais nous essayons, nous essayons, mes amis, de vous aider à comprendre, de vous aider à vous interroger, à demander vous-mêmes à Dieu : *« Puissé-je connaître ces vérités de mon âme. »* Et dans cette expérience de l’âme, vous comprendrez vraiment. Que Dieu vous bénisse et vous garde dans son amour. Dieu vous bénisse, chers amis, et mon amour est avec vous. Que Dieu vous bénisse.
 <small>
 
 1. <large id=”f1”> Nous appellerions cela des esprits « liés à la terre ». (G.C.).[↩](#a1)
+
+2. <large id="f2"> Copernic s'était également exprimé [le 9 Septembre 2019](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-9-3-af-copernicus/.)[↩](#a2) 
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

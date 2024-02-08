@@ -35,4 +35,6 @@ Le monde a besoin de vous. Le monde a vraiment besoin de vos efforts. Le monde a
 
 Je vous remercie, mes amis, de m’avoir donné l’occasion de vous parler et mon cœur se dilate de gratitude et d’amour pour ceux d’entre vous qui ont poursuivi ce travail. Je vous remercie, je vous remercie. Et s’il vous plaît continuez, s’il vous plaît travaillez diligemment et avec Amour. Les récompenses vous attendent, mes bien-aimés, et elles sont grandes. Que Dieu vous bénisse et vous garde dans Ses soins. Que Dieu vous bénisse.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015)
+### [**Lien vers les messages des années 2015**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

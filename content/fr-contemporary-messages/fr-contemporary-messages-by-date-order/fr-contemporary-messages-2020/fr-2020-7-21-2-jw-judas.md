@@ -18,3 +18,7 @@ Pour vous dont les âmes souhaitent recevoir l’Amour et avoir cet Amour de Die
 Parfois, on plante des graines et selon l’endroit où elles tombent, les résultats peuvent varier. Mais vous savez que lorsqu’elles tombent sur un sol fertile et qu’elles sont soignées et arrosées, dans ce cas dans l’Amour de Dieu, dans les eaux vives, ces graines vont pousser. Il n’y a donc pas lieu de s’inquiéter au-delà du fait d’être une lumière et un amour dans ce monde dans la grâce de Dieu.
 
 Je suis content de celui-là pour avoir pris ce message et comment il l’a reçu et je reviendrai. Avec tout mon amour, je suis votre frère et ami dans le Christ. Je suis Judas de Kerioth.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

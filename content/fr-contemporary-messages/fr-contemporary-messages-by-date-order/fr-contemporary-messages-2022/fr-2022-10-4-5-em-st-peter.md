@@ -16,3 +16,7 @@ Je suis Pierre. Je vous apporte un message de votre Père Céleste de qui l’am
 Vous avez encore tellement de choses à donner à cet effort, à marcher sur ce chemin. Oui, c’est une éternité de marches, chaque pas étant pleinement ancré dans cet Amour. Il n’y a pas de retour en arrière. Il n’y a pas de retour en arrière du tout, seulement de l’avant. Quelle sagesse a le Père que nous ne pouvons qu’aller de l’avant. Un tel Amour que Sa Volonté est que vous reveniez à Lui et que vous profitiez de tous les avantages d’avoir été créés, d’avoir vécu une vie sur la Terre en exerçant votre libre arbitre, en choisissant de suivre un chemin que vous suivez actuellement, qui devient de plus en plus lumineux à mesure que votre âme se transforme.
 
 Quel chemin ! Chaque chemin individuel est vraiment guidé par le Père et nous, à sa demande, nous venons l’aider. Quelle chance avez-vous ? Comme vous êtes aimés ? Vous possédez la Vérité, l’Amour Divin, la foi, vous pouvez aussi posséder la Volonté du Père en vous. Il suffit d’exercer ta volonté, ton libre choix, et de demander à Dieu cette bénédiction. Je suis Pierre. Dieu vous bénit tous.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

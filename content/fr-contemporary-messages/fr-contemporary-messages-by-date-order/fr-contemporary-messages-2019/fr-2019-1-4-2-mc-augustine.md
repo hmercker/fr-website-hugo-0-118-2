@@ -28,3 +28,7 @@ Tout s’harmonise, âmes bien-aimées. Tout s’harmonise. Et lorsque votre âm
 Il viendra un moment dans votre vie où vous n’aurez que la capacité de parler, de penser et d’agir à partir d’un lieu d’amour. Ne serait-ce pas un monde merveilleux à vivre, où l’amour est la première action et la première pensée ? Fixez votre vie sur cet objectif, mes bien-aimés. Prenez la résolution d’apprendre à connaître votre âme, en permettant à Dieu d’être proche de vous. Car c’est alors que tout le reste viendra dans un timing parfait et dans une harmonie qui vous est spécifiquement destinée.
 
 Je vous remercie d’avoir écouté mes paroles et nous nous joignons à vous dans la prière. Notre amour est avec vous. C’est important, mes bien-aimés, vos âmes sont importantes. Développez-les. Demandez à Dieu de les purifier. Guérissez-les et regardez votre nature s’épanouir, la nature de ce que vous avez été créés pour être. Que Dieu bénisse chacun d’entre vous. Je suis votre enseignant Augustin et mon amour est avec vous. Que Dieu vous bénisse et bonne nuit.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

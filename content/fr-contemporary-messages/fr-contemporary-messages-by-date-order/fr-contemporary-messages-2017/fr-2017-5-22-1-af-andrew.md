@@ -22,3 +22,7 @@ Dieu vous guidera vers l'endroit où vous devez aller, vers la personne avec laq
 Je remercie chacun de vous d'avoir ces intentions et ces désirs d'être un canal d'Amour. Nous, en esprit, continuerons à vous accompagner, car nous aussi, nous faisons partie de ce grand Plan. Nous aussi, nous agissons en tant que canaux et instruments de Dieu et nous utilisons vos dons et votre présence de nombreuses façons. Et ainsi, le flux de la chaîne de Lumière continue à être forgé dans ce monde.
 
 Bénédictions à vous, mes bien-aimés, bénédictions sur vos voyages. Que chaque pas soit béni. Que chaque acte soit un acte d'Amour dans la Grâce de Dieu. Que chaque pensée soit la plus élevée. Que chaque personne que vous rencontrez reçoive une bénédiction de quelque sorte que Dieu placera sur eux aussi longtemps que vous êtes un canal clair et volontaire pour cela. Que Dieu vous bénisse, mes bien-aimés. Je suis André et je vous aime.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

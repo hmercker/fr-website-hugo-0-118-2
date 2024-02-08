@@ -11,7 +11,7 @@ weight:
 
 Martha - reçu par Al Fike le 26 Octobre 2018, Gibsons, Colombie-Britannique, Canada.
 
-Je m’appelle Martha. Vous savez lorsque nous voyons les conditions du monde et les conditions des âmes qui habitent ce monde, il est décourageant pour nous de tenter d’élever une âme au-delà de ces conditions. Ce n’est pas une tâche facile et cela demande nos efforts, mais surtout cela demande la Toucher de Dieu pour réaliser cette transformation de l’âme. Avec Son Amour, tout est possible, sinon ceux qui marchent sur le chemin de l’amour naturel ont un grand et difficile voyage à gravir au-delà de ces conditions. Nous recherchons donc les âmes qui sont ouvertes à la voie de l’amour, qui sont prêtes à investir leur temps et leurs efforts, à voir la vie sous un angle différent et à marcher dans ce monde dans l’amour.
+Je m’appelle Martha<sup id="a1">[1](#f1)</sup>. Vous savez lorsque nous voyons les conditions du monde et les conditions des âmes qui habitent ce monde, il est décourageant pour nous de tenter d’élever une âme au-delà de ces conditions. Ce n’est pas une tâche facile et cela demande nos efforts, mais surtout cela demande la Toucher de Dieu pour réaliser cette transformation de l’âme. Avec Son Amour, tout est possible, sinon ceux qui marchent sur le chemin de l’amour naturel ont un grand et difficile voyage à gravir au-delà de ces conditions. Nous recherchons donc les âmes qui sont ouvertes à la voie de l’amour, qui sont prêtes à investir leur temps et leurs efforts, à voir la vie sous un angle différent et à marcher dans ce monde dans l’amour.
 
 Vous, mes bien-aimés, êtes ces âmes que nous recherchons, pour lesquelles nous avons déployé nos efforts, et travaillé en conjonction avec la guidance et le Toucher de Dieu sur vos âmes. Vous devez rechercher toutes ces âmes dans le monde qui sont prêtes, comme vous l’avez été, à s’ouvrir à ce puissant toucher d’amour afin que le changement vienne à elles et à beaucoup d’autres. Vous avez ouvert la porte à ce travail et nous sommes si heureux de votre engagement, de vos efforts, du fait que vous ayez lutté et surmonté tant de choses et que vous continuiez à avoir confiance dans le pouvoir de l’amour, l’Amour de Dieu, et que vous soyez suffisamment courageux, volontaires et forts pour forger le chemin le moins fréquenté, pour être les âmes sœurs et les enfants de Dieu.
 
@@ -22,3 +22,28 @@ Mes amis, âmes bien-aimées qui poursuivent, qui ont permis à la chaîne d’�
 Cela nous apporte une grande joie à tous, un grand espoir pour l’humanité que cette résilience de l’âme continue à briller contre des conditions si sombres. Mes chers amis, j’aimerais que vous puissiez savoir à quel point vous êtes profondément aimés, appréciés et reconnus. Tous les anges du Ciel savent qui vous êtes, mes bien-aimés. Ils continuent à prier pour vous, afin que vous puissiez effectivement surmonter tous les obstacles qui se trouvent sur votre chemin, toutes les douleurs et les blessures qui sont dans votre âme, toutes les obstructions qui vous distraient de l’amour. Nous sommes avec vous. Nous continuerons à nous efforcer de vous soutenir dans ce voyage de l’éveil de vos âmes et du grand service que Dieu a ouvert pour chacun d’entre vous en grandissant dans l’amour.
 
 Chers amis, chers amis, Martha vous aime, elle vous aime tendrement. Je poursuivrai mon engagement à vous soutenir et à être avec vous, à prier pour vous, à vous servir. Je vous aime. Je vous aime du plus profond de mon âme. Je vous aime. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> Martha s'est également exprimée dans les messages suivants :  [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Martha | [Un nouveau départ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-15-9-af-martha/) | 15 Décembre 2017
+Martha | [Je suis là pour vous aider](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-18-2-af-martha/) | 18 Décembre 2017
+Martha | [Permettez à Dieu de travailler à travers cette église - F.U.S.C.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-10-2-af-martha/) | 10 Juin 2018
+Martha | [Nous sommes avec vous sur le chemin de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-26-2-af-martha/) | 26 Octobre 2018
+<small>
+
+1. <large id="f1"> Martha s'est également exprimée dans les messages suivants :  [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Martha | [Un nouveau départ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-15-9-af-martha/) | 15 Décembre 2017
+Martha | [Je suis là pour vous aider](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-18-2-af-martha/) | 18 Décembre 2017
+Martha | [Permettez à Dieu de travailler à travers cette église - F.U.S.C.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-10-2-af-martha/) | 10 Juin 2018
+Martha | [Nous sommes avec vous sur le chemin de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-26-2-af-martha/) | 26 Octobre 2018
+Martha | [Soyez ouverts et réceptifs à ce que nous faisons - Que chacun de vous puisse donner à chacun de vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2019-1-20-4-af-martha/) | 20 Janvier 2019
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

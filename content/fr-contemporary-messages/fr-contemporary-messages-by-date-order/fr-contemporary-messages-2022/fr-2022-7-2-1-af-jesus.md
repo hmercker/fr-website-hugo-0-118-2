@@ -82,3 +82,7 @@ Il y a déjà beaucoup de choses que vous pouvez faire, âmes bien-aimées. Bien
 Que les dons de Dieu vous touchent profondément, âmes bien-aimées. Puissiez-vous vraiment en venir à comprendre la lumière que vous portez et le bel amour qui brille en vous, celui qui continue à grandir. Sachez que nous sommes proches et que nous nous rapprocherons toujours plus de vous. Il viendra un moment où vous sentirez que nous faisons vraiment partie de votre vie et que nous existons comme vos amis, vos parents et vos proches existent dans votre vie. Cela aussi est indicatif d'un changement dans votre réalité et cela arrive. Vous êtes vraiment bénis, âmes bien-aimées, vraiment bénis.
 
 Je vous remercie de m'avoir écouté aujourd'hui, pour présenter une autre leçon au monde. Puisse le monde s'éveiller à la réalité de Dieu et à tout ce que cela implique, car c'est et ce sera la guérison du monde, le changement de conscience, l'éveil de l'âme. Que Dieu vous bénisse, mes bien-aimés. Mon amour est avec vous. Je suis avec vous. Dieu est avec vous. Que Dieu vous bénisse. Je suis votre frère et ami, Jésus. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

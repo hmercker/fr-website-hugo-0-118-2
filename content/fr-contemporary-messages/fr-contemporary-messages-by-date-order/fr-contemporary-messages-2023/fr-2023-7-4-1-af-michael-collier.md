@@ -32,3 +32,7 @@ Vous êtes tous sur ce chemin, chacun de vous est une lumière, et dans un jour 
 Mes amis bien-aimés, puissions-nous demander cette grande bénédiction. Vous demandez. Nous demandons. Toutes les âmes amoureuses de Dieu demandent cette grande bénédiction. Car c’est le point culminant d’une âme ardente cherchant à se réconcilier avec Dieu et cela ne sera jamais complet. Ce sera une grande bénédiction qui grandira et s’agrandira de façon exponentielle à mesure que vous parcourrez ce chemin de l’amour, le Chemin Divin, comme vous l’appelez. C’est à vous de le demander et c’est le grand et bel Amour de Dieu pour vous qui ouvre la porte à cette grande bénédiction sur votre âme.
 
 Que Dieu vous bénisse, mes amis. Je m’appelle Michael Collier et je vous remercie de m’avoir écouté aujourd’hui. Je vous remercie de rechercher l’Amour de Dieu, d’être une lumière dans le monde et d’être cohérent avec cela. Que Dieu vous bénisse, mes amis, et vous garde dans la lumière. Que la joie de Son Amour continue de croître en vous et de jaillir comme une grande fontaine de joie, de lumière et de vérité. Que Dieu vous bénisse. Mon amour est avec vous tous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

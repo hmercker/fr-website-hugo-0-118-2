@@ -21,4 +21,6 @@ Je souhaite ajouter pour vous tous que mes frères et moi avions des croyances a
 
 Je vous embrasse tous. Je vous soutiens tous, comme nous le faisons tous. Je vous laisse avec mon amour et mon souhait que les bénédictions de Dieu soient vôtres. Je t’aime. Je suis ton frère et ami, François.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021)
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

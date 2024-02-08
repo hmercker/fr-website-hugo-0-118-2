@@ -30,3 +30,7 @@ Mes bien-aimés et beaux amis, puissiez-vous vraiment vous trouver et trouver vo
 Puisse Son Amour continuer à vous éveiller, âmes bien-aimées. Puissiez-vous continuer à vous voir tels que vous êtes vraiment, brillants et beaux enfants de Dieu. Ainsi, nous sommes vraiment frères et sœurs sur un chemin magnifique vers l’union avec notre Créateur. Mon amour est avec vous, bien-aimés. Je suis avec vous. Nous voyageons ensemble toujours, toujours ensemble car vous n’êtes jamais seuls. Vous n’êtes jamais seuls, bien-aimés, mais vous avez le Toucher de Dieu sur vous et l’assistance de vos amis anges et de vos esprits brillants et les uns des autres.
 
 Alors, puissiez-vous continuer à défendre la vérité, à exprimer la vérité et à vivre la vérité. Que Dieu vous bénisse, bien-aimés. Je suis Jésus et je suis avec vous. Je suis avec vous et je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -32,3 +32,7 @@ Puissiez-vous continuer à vous soutenir mutuellement, à soutenir ces efforts e
 Âmes bien-aimées, je suis avec vous dans vos efforts comme beaucoup d’autres. Je marche avec vous comme beaucoup d’autres. Bien-aimés, que le grand Amour de Dieu remplisse vos âmes en vous éveillant davantage à tout ce qui vous attend, tout ce qui est censé être en vous, couler à travers vous, s’exprimer dans vos vies de serviteurs de Dieu.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre frère et ami Jésus et je suis avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

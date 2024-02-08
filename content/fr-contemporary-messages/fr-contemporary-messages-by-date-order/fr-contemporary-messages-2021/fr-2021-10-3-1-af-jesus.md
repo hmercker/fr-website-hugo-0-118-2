@@ -22,3 +22,7 @@ Nous marchons ensemble. Nous marchons ensemble dans ce merveilleux voyage, et no
 Je suis votre frère Jésus et je suis venu pour donner une bénédiction à chacun d’entre vous, pour vous élever et vous soutenir sur cette planète qui donne tant de lutte et de douleur à tant de gens. Ainsi, je vous élève et dissous l’obscurité autour de vous et apporte la lumière à chacun d’entre vous. Personne n’a été exclu, tous sont bénis dans ce voyage de lumière.
 
 Âmes bien-aimées, je suis avec vous. Dieu vous bénit avec un puissant afflux de Son Amour. Que Dieu vous bénisse avec une paix profonde qui dépasse toute compréhension. Que Dieu vous bénisse avec Sa Grâce de guérison sur vous. Que Dieu vous bénisse dans la Lumière, une Lumière toujours plus grande.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

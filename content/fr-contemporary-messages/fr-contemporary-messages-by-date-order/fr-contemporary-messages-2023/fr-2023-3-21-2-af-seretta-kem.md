@@ -34,3 +34,7 @@ Il y en a tant devant vous qui ne demandent qu’à vous aider dans chacune de v
 Vous serez au-dessus de ces conditions, mes amis, non pas d’une manière qui vous paraîtrait arrogante, artificielle ou prétentieuse, mais plutôt avec humilité et grâce. Vous marcherez au-dessus de ces tentations et de ces conditions du plan terrestre et vous marcherez vraiment comme un enfant de Dieu et serez Son instrument, clair, beau et puissant dans le monde. Vous continuez à progresser dans cette voie. Je reconnais vos efforts. Je reconnais votre lumière. Je reconnais la cohérence et l’engagement dont vous faites preuve chaque jour. Je suis honorée de vous servir et d’être votre amie et votre partenaire dans ce grand travail.
 
 Je suis Seretta Kem. Mon amour vous accompagne, mes amis, alors que nous nous aventurons vers une plus grande lumière, une plus grande vérité et un plus grand amour. Que Dieu vous bénisse. Mon amour est avec vous tous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -29,4 +29,6 @@ Jésus qui, oui, est un avec le Père – tu commences à saisir ce que cela sig
 
 Ce message simple fait partie d'une série. Ils seront liés, pour faciliter la lecture dans l'ordre. Voici le [prochain message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-9-8-1-pjr-various/), et voici le [le précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-9-2-1-pjr-psr/).
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)
+### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

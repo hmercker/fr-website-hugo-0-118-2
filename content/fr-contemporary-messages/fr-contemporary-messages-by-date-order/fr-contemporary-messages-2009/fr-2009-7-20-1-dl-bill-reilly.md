@@ -49,4 +49,7 @@ Votre père et grand-père aimant, Bill.
 
 **Note :** Le rôle de Bill Reilly dans l’évolution de l’église a été décrit ici : [Histoire de l’Eglise](/fr-james-padgett-messages/1-11-fr-churches-based-on-james-padgetts-messages/). Son premier message enregistré est [ici](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1995-10-10-1-dl-bill-reilly/).
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

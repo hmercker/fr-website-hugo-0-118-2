@@ -60,4 +60,6 @@ Avec amour, ton ami, un esprit Céleste, mais toujours amoureux de la science.
 
 2. <large id="f2"> Ou ne finissent pas par l’être.[↩](#a2)
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)
+### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

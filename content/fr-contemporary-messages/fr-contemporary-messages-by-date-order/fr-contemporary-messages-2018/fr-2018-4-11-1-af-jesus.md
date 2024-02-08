@@ -28,4 +28,8 @@ Vous avez à peine effleuré la surface du travail à venir, mais vous êtes en 
 Vous êtes vraiment des enfants de Dieu. Vos âmes continuent le voyage de la rédemption et de l’adoration. Soyez joyeux et sachez que Dieu a posé sa main sur vous et continue à vous bénir de nombreuses façons. Que Dieu vous bénisse, mes chers. Je suis votre frère et votre ami, Jésus du Royaume Céleste. Que Dieu vous bénisse. Que Dieu vous bénisse.
 <small>
 
-1. <large id="f1"> Plusieurs autres messages ont confirmé que Jésus était grand, aux cheveux châtains et aux yeux bleus éclatants. Il y a des références à ces messages sur cette page qui contient également de nombreux portraits d’apôtres.[↩](#a1)
+1. <large id="f1"> Plusieurs autres messages ont confirmé que Jésus était grand, aux cheveux châtains et aux yeux bleus éclatants. Il y a des références à ces messages [sur cette page](/3-fr-judas-of-kerioth-messages/3-8-fr-portraits-of-the-apostel/) qui contient également de nombreux portraits d’apôtres.[↩](#a1)
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -17,7 +17,7 @@ J’ai parlé de la musique et du chant, du son de votre voix et de l’ouvertur
 
 Si votre cœur vous y conduit, vous pouvez dissiper les chants de vexation et d’inharmonie qui imprègnent souvent l’atmosphère des âmes qui souffrent, qui sont en colère et qui ne sont pas en harmonie et qui souhaitent vraiment le diffuser. Si vous pouvez considérer cela comme un appel à l’aide et ne pas être dérangé, vous pouvez envoyer de l’amour, et demander aux anges d’influencer ces esprits et la personne dans le besoin. Je n’ai pas mentionné la dernière fois, la danse, car dans les traditions spirituelles il y a aussi la danse. Il peut s’agir, comme dans ma tradition, d’une danse qui souhaite relier le corps, l’esprit et l’âme au Créateur, comme dans le Sema des derviches tourneurs, mais les soufis ont aussi des danses de célébration. Considérez toutes les cultures du monde et les danses de mariage, les danses d’accouplement, les danses de joie, les danses de la beauté du corps et des formes. Toutes ont leur place.
 
-Mais pour vous, mes chers frères et sœurs, tout ce que je demande, c’est que vous fassiez ces danses avec un chant dans votre cœur et que vous vous réjouissiez de l’Amour de Dieu. Avec tout mon amour et mes bénédictions pour tous et les bénédictions de notre Glorieux Créateur, je vous laisse maintenant pour ces moments de silence afin que nous puissions tous recevoir le grand cadeau de l’amour de Dieu. Je suis votre frère de chant sur le chemin de l’Amour de Dieu, Inayat Khan.
+Mais pour vous, mes chers frères et sœurs, tout ce que je demande, c’est que vous fassiez ces danses avec un chant dans votre cœur et que vous vous réjouissiez de l’Amour de Dieu. Avec tout mon amour et mes bénédictions pour tous et les bénédictions de notre Glorieux Créateur, je vous laisse maintenant pour ces moments de silence afin que nous puissions tous recevoir le grand cadeau de l’amour de Dieu. Je suis votre frère de chant sur le chemin de l’Amour de Dieu, Inayat Khan.<sup id="a2">[2](#f2)</sup>
 
 **Khalil Gibran prend la parole :**
 
@@ -25,3 +25,16 @@ Je souhaite ajouter à l’éloquence de mon cher frère sur le chant de l’âm
 <small>
 
 1. <large id=”f1”> Prières pour Louie à Phoenix.[↩](#a1)
+
+2. <large id="f2"> Hazrat Inayat Khan s'est également exprimé lors des messages suivants [↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+--|---|---
+Hazrat Inayat Khan | [Gardez une chanson dans votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-9-1-jw-hazrat-inayat-khan/) | 9 Novembre 2021
+Hazrat Inayat Khan | [Gardez un chant dans votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-25-1-jw-inayat-khan/) | 25 Avril 2022
+Hazrat Inayat Khan | [Amants et bien-aimés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-9-2-jw-inayat-khan/) | 9 Septembre 2022
+Inayat Khan  | [Le chant et la danse Divins](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-20-1-jw-inayat-khan/) | 20 Février 2023
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

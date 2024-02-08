@@ -27,4 +27,6 @@ Acceptez et honorez et sachez vraiment ce qu’est l’Amour, l’Amour de Dieu,
 
 Que Dieu vous bénisse, mes bien-aimés. Ma bénédiction à vous. Le Grand Esprit Saint de Dieu touche chaque âme dans cette pièce et beaucoup d’autres. Que Dieu vous bénisse. Que Dieu vous bénisse.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017)
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -18,3 +18,7 @@ Beaucoup suivront, car ce monde doit changer et Dieu inspire les âmes qui cherc
 Vous êtes bénis, mes frères et sœurs, vous êtes bénis. Dieu continuera à vous soutenir et à vous guider sur le chemin que vous êtes destinés à suivre. Tout est fait dans l'Amour. Tout est exprimé dans la Lumière. Tel est votre voyage alors que vous forgez le chemin vers Dieu.
 
 Que Dieu vous bénisse. Je suis Jésus et je vous aime. Je vous serre dans mes bras. Vous êtes précieux pour moi. Vous êtes bénis dans l'Amour.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

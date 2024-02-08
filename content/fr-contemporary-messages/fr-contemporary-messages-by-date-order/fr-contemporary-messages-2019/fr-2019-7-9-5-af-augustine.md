@@ -26,3 +26,7 @@ C’est le changement qui doit venir non seulement pour chacune de vos âmes bie
 Ainsi, mes chers et beaux amis, chacun d’entre vous est une lumière, chacun d’entre vous est une âme précieuse pour Dieu, puissiez-vous en effet utiliser ce temps pour l’élévation et l’édification de votre âme. Priez, mes bien-aimés. Soyez clairs sur vos intentions et vos désirs. Sachez que ces choses informent sur ce qui peut être dans ces jours à venir. Par-dessus tout, aspirez à Dieu. Permettez à Ses grandes bénédictions d’affluer dans vos âmes et vos êtres et nous vous amènerons à des hauteurs de Lumière qui sont généralement rarement atteintes par les mortels.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant Augustin et je vous remercie tous d’être réunis dans ce Cercle de Lumière, désireux d’être éveillés, désireux de vérité, désireux d’aimer. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

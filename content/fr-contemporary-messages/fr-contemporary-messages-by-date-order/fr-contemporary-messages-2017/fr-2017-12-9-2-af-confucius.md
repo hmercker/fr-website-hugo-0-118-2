@@ -19,7 +19,15 @@ Ainsi, dans ce beau cercle, il y a beaucoup d'Amour et beaucoup de Lumière. Je 
 
 Vous n'êtes que quelques-uns, mais il y en a beaucoup plus, beaucoup plus. Tendez la main à tous ceux que vous pouvez, mes bien-aimés, tous ceux que vous pouvez avec votre message, avec votre amour et Dieu vous guidera ainsi. Dieu vous guidera vers de nombreux endroits et vous toucherez de nombreuses âmes car vous êtes dans la rivière de Son Amour et de Sa Volonté. Il vous porte, il vous porte vers de nombreuses âmes.
 
-Que le Père Céleste continue à vous bénir, mes bien-aimés. Puissiez-vous continuer à vous réveiller intérieurement et à voir la Vérité avec clarté et à dire la Vérité avec amour. Que Dieu vous bénisse, mes bien-aimés. Je suis Confucius. Oui, ce vieux sage continue à être avec l'humanité pour aider beaucoup d'entre vous alors que vous traversez ce monde pour apporter la Lumière. Je ne suis qu'un parmi tant d'autres qui continuent à vous aider dans vos efforts, car Dieu fournit Ses anges à ceux qui ont un profond désir de servir dans l'Amour. Puissiez-vous continuer à être bénis et portés dans la Lumière. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
+Que le Père Céleste continue à vous bénir, mes bien-aimés. Puissiez-vous continuer à vous réveiller intérieurement et à voir la Vérité avec clarté et à dire la Vérité avec amour. Que Dieu vous bénisse, mes bien-aimés. Je suis Confucius. Oui, ce vieux sage continue à être avec l'humanité pour aider beaucoup d'entre vous alors que vous traversez ce monde pour apporter la Lumière. Je ne suis qu'un parmi tant d'autres qui continuent à vous aider dans vos efforts, car Dieu fournit Ses anges à ceux qui ont un profond désir de servir dans l'Amour. Puissiez-vous continuer à être bénis et portés dans la Lumière. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.<sup id="a2">[2](#f2)</sup>
 <small>
 
 1. <large id="f1"> Nous avons reçu la visite de Hari Nam Singh et de plusieurs membres de son groupe sikh. Ils sont tous bien connus de M. Ils ont fait leur rituel de prière et nous avons partagé le nôtre et un repas. C'était un moment agréable.[↩](#a1)
+<small>
+
+2. <large id="f2"> Les différents messages communiqués  par Confucius sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a2)
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

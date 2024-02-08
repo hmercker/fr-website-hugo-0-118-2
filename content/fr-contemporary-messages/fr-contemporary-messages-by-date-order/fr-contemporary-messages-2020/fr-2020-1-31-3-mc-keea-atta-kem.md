@@ -24,3 +24,7 @@ Et alors que ce muscle se renforce, se développe et se fortifie, qu’il est no
 Mes chers amis, continuez ce voyage en permettant à votre âme de prendre des forces, de s’éveiller et donnez lui cette place, une occasion de s’exprimer. Ainsi, mes chers amis, votre voyage sera riche et les expériences de votre vie s’approfondiront. Il y aura en vous un profond sentiment d’épanouissement à l’idée que vous atteignez votre but ; et vous êtes des êtres aimés. Car chaque âme a un but commun, celui de s’éveiller dans l’Amour de Dieu. Ainsi, vous êtes sur la bonne voie.
 
 Mon amour est avec vous. Je suis Keea Atta Kem. C’est une grande joie de voir tant d’âmes réunies de cette façon pour partager l’Amour du Créateur, pour partager la gloire de la façon dont l’Amour de Dieu agit dans leur vie, et comment l’Amour de Dieu peut dépasser tous les détails et du mental. Que Dieu vous bénisse, mes chers amis. Je suis Keea Atta Kem et mon amour est avec vous.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

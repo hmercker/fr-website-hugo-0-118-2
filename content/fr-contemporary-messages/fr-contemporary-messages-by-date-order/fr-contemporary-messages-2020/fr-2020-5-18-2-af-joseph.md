@@ -24,3 +24,7 @@ Ce n’est pas que vous vous abandonnez au pouvoir et au désir de Dieu. Il s’
 Puissiez-vous être vraiment guidés dans ce voyage, mes bien-aimés. Vous êtes tous de belles lumières. Vous avez tous de grands potentiels, des dons profonds à partager avec les autres, des possibilités merveilleuses sur votre chemin qui se déroule dans la Lumière de l’Amour de Dieu.
 
 Que Dieu vous bénisse, mes amis, et vous garde dans Sa Lumière et Son Amour. Vous continuez à émerger, à grandir, à vous étendre dans l’Amour, à vous éveiller dans la Vérité. Qu’il en soit toujours ainsi au cours de votre voyage. Que Dieu vous bénisse. Je suis Joseph et mon amour est avec vous, très chers. Mon amour est avec vous.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

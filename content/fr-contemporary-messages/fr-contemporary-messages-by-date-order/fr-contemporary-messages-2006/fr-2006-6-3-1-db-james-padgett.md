@@ -9,7 +9,7 @@ weight:
 ---
 ### Les bonnes choses
 
-James Padgett - reçu par DB le 3 Juin 2006, Troup, Texas, USA.
+James Padgett<sup id="a1">[1](#f1)</sup> - reçu par DB le 3 Juin 2006, Troup, Texas, USA.
 
 Vous êtes prêt Daniel, alors commençons. Je voudrais répondre aux commentaires de Geoff concernant ma réception des messages de mon frère aîné en Christ, Jésus. Geoff, tu as dit que j’avais *« reçu les bonnes choses *»* et c’est à ce commentaire que je souhaite « aussi » répondre.
 
@@ -28,5 +28,10 @@ Essentiellement, toutes les révélations futures donnent des preuves supplémen
 Votre ami et frère en Christ, James Edward Padgett.
 
 **Note de Geoff Cutler :**  Le contexte de ce commentaire était que nous discutions des actions de proximité spirituelles, et je pense que les esprits Célestes ont de nombreuses actions de proximité, mais que James Padgett avait une action de proximité qui avait « les bonnes choses » alors que d’autres, bien qu’importantes, peuvent ne pas avoir cette profondeur de Vérité.
+<small>
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+1. <large id="f1"> L'ensemble des messages communiqués par James Padgett  est disponible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-12-fr-family-and-friends-of-james-padgett/)[↩](#a1) 
+
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -31,4 +31,7 @@ Tous ces processus vont progressivement desserrer l’emprise des esprits sombre
 
 Faites-nous confiance, et tout se déroulera selon le plan parfait de Dieu.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

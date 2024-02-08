@@ -23,3 +23,7 @@ Je suis votre frère dans l’Amour de Dieu et un disciple du Maître comme vous
 <small>
 
 1. <large id=”f1”> En référence à l’apparition de deux anges à ce médium en 1987.[↩](#a1)
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

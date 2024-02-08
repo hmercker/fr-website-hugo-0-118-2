@@ -66,3 +66,7 @@ Avec la Main de Dieu sur vous et toutes les bénédictions qu’Il déverse en v
 Puissiez-vous parvenir à comprendre véritablement votre propre conscience et votre réalité et chercher à modifier les aspects de votre propre existence qui ne sont pas en harmonie avec les lois d’Amour de Dieu. Faites les efforts et les prières, les pensées et les actes qui apporteront le changement en vous et autour de vous. Profitez pleinement de ce que Dieu vous offre au cours de ce voyage. Cherchez le chemin le moins fréquenté et sachez que la route qui se trouve devant vous est éclairée par Dieu et que vous êtes bien protégés et pris en charge.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre frère et ami, Jésus, Maître du Royaume Céleste et votre humble serviteur. Que Dieu vous bénisse. Que Son Amour continue à couler dans vos âmes et à vous réveiller, comme il se doit. Que Dieu vous bénisse, mes bien-aimés. Je vous aime.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

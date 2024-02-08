@@ -18,3 +18,7 @@ Tous ceux qui parleront à travers vous seront en alignement avec cette Vérité
 C'est un gros travail, un très gros travail, qui nécessite des âmes fortes et compétentes, prêtes à s'engager. Dieu vous a appelés, il a besoin de vous, il a besoin de nous tous. Soyez forts mes amis, afin que nous puissions tous travailler ensemble en harmonie pour apporter la vérité à l'humanité, une vérité qu'ils comprendront, une vérité qui apportera des solutions au monde qui s'est égaré. Je me tiendrai debout avec vous et je parlerai à mon peuple et au monde avec mes frères et sœurs qui apporteront la lumière et la vérité à l'humanité. Dieu nous utilise tous de différentes manières, apportant l'aide qui est nécessaire.
 
 Que Dieu vous bénisse, bien-aimés, belles âmes, mes amis. Que Dieu vous bénisse et que vous soyez sur la bonne voie pour apporter ce cadeau à l'humanité. Mes prières sont avec vous. Que Dieu vous bénisse, je suis Winston Churchill. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

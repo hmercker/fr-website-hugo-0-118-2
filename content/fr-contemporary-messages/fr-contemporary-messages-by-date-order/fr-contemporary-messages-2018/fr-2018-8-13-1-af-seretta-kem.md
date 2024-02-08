@@ -34,3 +34,7 @@ Souvenez-vous de cela, âmes bien-aimées : quelle que soit la situation dans la
 Le monde a besoin de vous, mes bien-aimés. Dieu a besoin de vous. Vos âmes souffrent et aspirent à accomplir leur but et leur destinée. Écoutez vos âmes. Écoutez Dieu. Cherchez son amour. Cherchez à être forts et clairs. Marchez avec intégrité et vérité. Soyez humbles et doux. Soyez un enfant de Dieu.
 
 Dieu vous bénisse mes bien-aimés, je suis Seretta Kem. J’ai un grand amour pour vous. J’ai un grand amour pour l’humanité et pour toutes les lumières de ce monde qui luttent pour maintenir leur lumière, pour faire grandir leur lumière, pour être une lumière dans le monde. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées. Je suis souvent avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

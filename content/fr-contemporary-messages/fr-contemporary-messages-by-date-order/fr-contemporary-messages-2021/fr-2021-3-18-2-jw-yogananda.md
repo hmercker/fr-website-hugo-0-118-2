@@ -18,3 +18,8 @@ Nous tous, ici dans les royaumes Célestes, vivons dans la joie et la félicité
 Ainsi, lorsque nous venons, notre intérêt est d’être avec vous lorsque vous recevez la nourriture spirituelle qui nourrit l’âme, qui embrasse non seulement votre corps spirituel, mais qui affecte votre corps physique et votre environnement de manière très positive et curative. C’est, bien sûr, la raison pour laquelle les gens aiment la comédie et l’humour. Notre ami Charlie (Chaplin), qui était si bon dans ce domaine, vous a dit qu’il aimait voir la joie que son travail apportait au cœur de millions de personnes. Imaginez combien le Père Céleste se réjouit des joies que vous éprouvez à recevoir Son Amour : à le demander, à vous y ouvrir, afin qu’Il puisse vous combler de cet Amour et vous rapprocher toujours plus de la source de Son être et de Sa grâce. Et oui, vos âmes vous ont conduit ici, dans ce lieu de prière, à la beauté du chant, de la mélodie et de la louange, de la poésie et de la prière. Car il existe de nombreuses façons de s’ouvrir à la grâce de Dieu lorsque l’âme aspire à la recevoir.
 
 Je viens dans ce cercle en tant qu’invité aujourd’hui et j’envoie à chacun d’entre vous mon amour et non seulement les bénédictions de mon âme mais aussi de tous ceux qui sont ici et qui vous élèvent dans l’amour de Dieu. Que ce soit le vôtre. Je suis votre frère et ami, vraiment. Que Dieu vous bénisse. Je suis Yogananda.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

@@ -19,3 +19,7 @@ Merci de me laisser partager ma guidance céleste avec vous tous. Vous êtes un 
 <small>
 
 1. <large id=”f1”> Se référant à une chanson écrite et interprétée par Jane G.[↩](#a1)
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

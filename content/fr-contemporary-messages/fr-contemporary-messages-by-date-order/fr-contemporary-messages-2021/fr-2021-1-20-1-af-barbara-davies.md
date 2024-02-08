@@ -32,3 +32,7 @@ Comme vous êtes aimés, mes amis. Comme vous êtes beaux. Et je sais que beauco
 Mon amour est avec vous. Je suis heureuse de faire partie de ce cercle. Et ma chère et bien-aimée sœur, comme tu es dévouée à aider les autres. Et mon amour, mon aide et mon appréciation de ce que vous êtes ne cessent de croître. En vous observant de mon côté de la vie, je vois plus intensément, plus profondément, la beauté de votre âme. Ainsi, depuis l’endroit où je réside, lorsque je viens sur Terre et que je suis attirée par ceux qui sont dans la lumière, j’en suis venue à apprécier beaucoup plus les efforts, les luttes et les cheminements que vous faites tous pour trouver Dieu. Et mes prières et mon amour sont avec vous tous alors que vous continuez ce voyage d’amour.
 
 Que Dieu vous bénisse de Son Amour, de cette belle Paix, de la belle Touche de Dieu. C’est pour vous tous. Elle est pour toute l’humanité. Continuez à prier pour que l’humanité soit touchée par Dieu, intensément, profondément. Que Dieu vous bénisse, mes amis. Sachez que je suis proche, plus proche que vous ne le pensez, que je continuerai à vous aider à être élevé dans l’amour. Que Dieu vous bénisse, mes amis. Je suis Barbara. Je vous aime. Que Dieu vous bénisse tous.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

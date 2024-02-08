@@ -30,3 +30,7 @@ C’est ce progrès que je souhaite à chacun d’entre vous et je ne veux pas d
 Que votre journée soit bénie, que vous restiez dans cette lumière et cet amour dont Dieu vous a gratifiés.  Je vous aime, que Dieu vous bénisse. Je suis votre frère et votre ami dans les Cieux Célestes.
 
 Yogananda.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

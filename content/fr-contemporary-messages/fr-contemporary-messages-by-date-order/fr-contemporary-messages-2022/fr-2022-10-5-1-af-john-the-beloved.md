@@ -32,3 +32,7 @@ Abandonnez vos réticences, vos peurs et vos préjugés, et suivez Dieu. Car c�
 Soyez en paix, mes bien-aimés, soyez en paix. Sachez que vous êtes parvenus à ce lieu d’éveil et de manifestation véritable de la lumière de votre âme. Bien-aimés, marchez sur le chemin de Dieu et voyez vous sur ce chemin pleinement et ouvert à tout ce que Dieu guide, qui vous montre sa volonté, l’accomplissement de son plan, l’éveil de l’humanité.
 
 Je suis avec vous, âmes bien-aimées, comme beaucoup. Faites confiance à ce qui vous parle, vous montre le chemin, car c’est votre âme qui reflète la volonté de Dieu. Dieu vous bénit, âmes bien-aimées, et vous garde dans la lumière au cours de ce voyage.  Je vous aime, je suis Jean, et je vous aime, mes frères et sœurs pour Dieu.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

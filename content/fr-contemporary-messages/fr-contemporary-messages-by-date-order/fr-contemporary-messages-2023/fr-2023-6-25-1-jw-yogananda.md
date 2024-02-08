@@ -24,3 +24,7 @@ Nous vous demandons donc, si vous devez être dans votre esprit, d’envoyer vos
 Cet amour de Dieu s’accompagne d’un grand désir de servir, et il y a tant de façons, chaque jour, chaque nuit, de servir. Même si vous êtes seul, vous pouvez envoyer de l’amour comme lorsque vous êtes en public, dans la société et dans le monde. Les bouddhistes diraient « soyez attentifs ». Sur le chemin de l’amour divin, cela signifie qu’il faut avoir Dieu à l’esprit et être plein de cœur, plein d’âme, afin d’être une bénédiction pour tous.
 
 Que l’Amour de Dieu descende sur vous en ce moment, dans ce lieu de sécurité. Soyons calmes et recevons. Je vous remercie pour ce temps. Que Dieu vous bénisse et vous garde dans Son Amour. Mes frères et sœurs, je suis votre ami dans l’éternité et je vous aime. Je suis Yogananda.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

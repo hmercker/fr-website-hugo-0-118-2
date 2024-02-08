@@ -35,4 +35,6 @@ Ici, dans le monde des esprits, de nombreux esprits continuent à agir selon les
 
 Je sais que je me suis éloigné du sujet, mais je voulais profiter de l'occasion pour exprimer ces autres pensées.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

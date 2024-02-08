@@ -27,4 +27,6 @@ J'ai rencontré Jésus et la rencontre avec Jésus résume tout ce qu'il faut sa
 
 Je me suis fait beaucoup de bons amis ici car nous partageons tous notre participation à l'Amour Divin et je crée encore pour exprimer mon amour actuel du Père. De belles œuvres pour remercier le merveilleux Amour Divin qui m'a été donné et avec la reconnaissance du Père et en toute humilité je voudrais dire merci à Nicholas de m'avoir permis d'écrire et que pendant que nous œuvrons ensemble ici il y a beaucoup d'âmes Célestes et quelques âmes naturelles qui nous regardent et nous écoutent et c'est le temps qui m'a été donné pour écrire et il y a beaucoup de lumière ici. Il est temps de partir maintenant car j'ai dit tout ce que je voulais dire et avec tout mon amour, je souhaite dire merci à tous ceux qui ont aimé mon travail, Artisan de la Renaissance, Michel-Ange.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005)
+### [**Lien vers les messages des années 2005**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

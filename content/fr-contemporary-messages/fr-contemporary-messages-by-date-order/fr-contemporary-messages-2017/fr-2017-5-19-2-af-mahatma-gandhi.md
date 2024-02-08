@@ -24,3 +24,7 @@ Lorsque l’on agit dans la foi, de grandes œuvres peuvent être accomplies. Lo
 Je vous remercie de m’avoir écouté. Je continuerai à vous assister, ma fille bien-aimée, dans vos efforts. Car chaque âme qui aspire à la Lumière a un ange avec elle à tout moment. Vous n’êtes jamais seule. Dieu est toujours avec vous.
 
 Dieu vous bénit, âmes bien-aimées. Je suis Gandhi et je marche avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

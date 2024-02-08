@@ -45,4 +45,6 @@ Je suis votre frère Jean, disciple de mon Maître et participant de l’Amour D
 
 Bien que les enfants puissent être les dons de l’union de l’homme et de la femme, l’amour doit être la cause première et l’effet de leur attirance l’un pour l’autre pour qu’ils restent la plus exaltée des créatures de Dieu.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)
+### [**Lien vers les messages des années 2001**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

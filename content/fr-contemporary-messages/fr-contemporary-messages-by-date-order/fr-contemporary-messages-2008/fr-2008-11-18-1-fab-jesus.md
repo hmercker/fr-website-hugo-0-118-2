@@ -23,4 +23,6 @@ La clé est de voir ces personnes qui font ces choses injustes comme étant éga
 
 Un souci passionné de justice est très différent d'une pensée moralisatrice, car le premier affirme l'équité fondamentale voulue par le Créateur, tandis que le second rejette simplement les gens. En d'autres termes, l'objectif et l'intention sont complètement différents.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

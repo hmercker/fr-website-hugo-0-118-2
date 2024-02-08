@@ -40,3 +40,7 @@ En terminant cet exposé, je vous rappelle que ce portail dont vous êtes dotés
 Lorsque nous nous réunirons dans le prochain cercle, chacun d’entre vous sera utilisé d’une manière qui apportera un effet dynamique et profond des Cieux à la Terre, qui imprégnera la Terre, provoquant un grand changement et une lumière qui pénétrera au centre de la Terre, l’aidant à expier ce qui n’est pas en harmonie avec ce qu’elle a enduré. Ainsi, nous vous utiliserons comme ces canaux, ces portails pour créer un magnifique effet de guérison qui s’écoulera vers vous, et qui aura son effet à travers vous. Comme vous le savez, la gratitude est au-delà des mots. Nous travaillons ensemble de manière merveilleuse et ce que nous avons établi ensemble en ce moment change tout dans l’Univers ; cela a eu un effet sur chaque sphère de l’esprit dans le monde matériel et au-delà. L’Univers est changé par ce rassemblement.
 
 Je suis Seretta Kem. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

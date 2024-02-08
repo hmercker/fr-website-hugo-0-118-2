@@ -25,4 +25,6 @@ Choisissez-vous l’Amour ? Ou choisissez-vous ces conditions humaines en vous q
 
 Mes bien-aimés, je suis si heureux de vous voir unis dans vos efforts, dans votre désir d’accomplir ce travail et d’être ces canaux d’amour. Je dis ces mots pour vous encourager et vous rappeler ce qui est requis pour marcher dans cette voie afin d’atteindre un endroit plus élevé. Enfants bien-aimés, enfants bien-aimés, vous êtes aimés. Dieu vous bénit. Votre professeur Augustine vous aime. Que Dieu vous bénisse. Reconnaissez-vous vos deux moi, celui qui est humain et celui qui est votre âme ?
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015)
+### [**Lien vers les messages des années 2015**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -27,3 +27,7 @@ Je suis votre sœur dans le Christ et je suis heureuse d’être votre guide si 
 1. <large id="f1"> **Elizabeth Barrett Browning**, est née le 6 Mars 1806 à Coxhoe Hall, dans le comté de Durham. Elle est décédée le 29 Juin 1861 à Florence, est une poétesse, essayiste et pamphlétaire britannique de l’ère victorienne. (Wikipédia)[↩](#a1)
 
 2. <large id="f2"> [A travers les Brumes par Robert J. Lees – Chapitre 17](https://new-birth.net/media/cms_page_media/220/Through_the_Mists_May_2021.pdf)[↩](#a2)
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

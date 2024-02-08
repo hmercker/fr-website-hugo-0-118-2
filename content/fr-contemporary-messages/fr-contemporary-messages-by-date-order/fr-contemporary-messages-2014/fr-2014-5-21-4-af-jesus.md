@@ -23,4 +23,6 @@ Je vous exhorte à prier avec ferveur, à prier de tout votre cœur et de toute 
 
 Que Dieu vous bénisse avec un puissant afflux de Son Essence Divine et qu’il vous porte vers ce lieu de communion profonde où nous nous rencontrerons et partagerons ce cadeau Céleste. Que Dieu vous bénisse.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014)
+### [**Lien vers les messages des années 2014**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

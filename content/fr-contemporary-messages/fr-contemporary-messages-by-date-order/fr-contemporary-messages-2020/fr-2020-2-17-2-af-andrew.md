@@ -20,3 +20,7 @@ Vous vous sentez tous au bord du seuil d’une nouvelle conscience et d’une no
 Pour trop de gens sur cette Terre, l’intellect domine et ne reconnaît pas les aspects les plus profonds de chaque âme. Ici, lorsque vous venez prier dans ces Cercles de Lumière, vous vous offrez une grande opportunité de vous aventurer dans des domaines que beaucoup ne connaissent pas encore, mais qui leur donnent l’impression d’être chez eux. C’est l’endroit où vous pouvez découvrir et connaître votre vrai moi. Dans la prière et l’aspiration, dans le fait de recevoir et de donner, dans l’humilité et la grâce, l’Amour de Dieu vous comblera et vous apportera une grande joie.
 
 Que Dieu vous bénisse sur ce chemin, mes amis bien-aimés. Sachez que les anges sont avec vous, ils vous entourent en ce moment. Et toute aide est donnée, toute assistance pour vous élever au-dessus des conditions de votre monde vers un lieu rempli de joie et de Vérité et d’Amour. Elle est à la disposition de chacun d’entre vous. Elle est donnée gratuitement. C’est un don de Dieu. Que Dieu vous bénisse. Je suis André. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -24,3 +24,7 @@ Beaucoup de choses vous parviennent, mes amis, plus d’idées, plus de compréh
 Oui, nous sommes sur la route, mes amis bien-aimés, nous sommes sur la route. Nous allons donc progresser sur ce chemin, en marchant fermement dans la foi, dans le désir, dans la prière et dans l’effort d’application cohérente des vérités. Ainsi, nous irons au-delà des choses de la Terre vers les choses du Ciel, en connaissant la joie et l’accomplissement du voyage.
 
 Que Dieu vous bénisse, mes amis. Je suis votre professeur Salyards. Je suis avec vous dans l’amour et l’encouragement, dans la fraternité et la sororité, et dans tout ce qui est de Dieu. Que Dieu vous bénisse, chers amis. Mon amour vous accompagne toujours. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

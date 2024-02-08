@@ -25,4 +25,6 @@ Il y a effectivement des descriptions du monde des esprits qui n’avaient jamai
 
 Vous avez bien canalisé James, qui a son propre point de vue sur la question. Il est compréhensible qu’il se soit exprimé de cette façon, puisque Swedenborg a joué un rôle important dans ses expériences terrestres. Et même s’il a désappris certaines choses, il a conservé son amour pour Swedenborg ici-bas.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

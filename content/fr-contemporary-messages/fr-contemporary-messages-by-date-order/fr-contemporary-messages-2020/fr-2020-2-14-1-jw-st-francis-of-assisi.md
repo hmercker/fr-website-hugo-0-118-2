@@ -22,3 +22,7 @@ Ces prières qui apportaient l’Amour du Père dans nos âmes, ne venaient pas 
 Mais si vous permettez aux désirs de votre âme de prévaloir sur tout, comme vous le faites lorsque vous venez dans ce Cercle, vous ressentirez toujours à travers la douche de l’Amour de notre Créateur et cet Amour transformera votre âme ; je vous le promets. N’ayez pas peur d’abandonner ce monde, car ce qui vous attend est glorieux au-delà de vos rêves. Je vous le dis en tant que votre frère et ami.
 
 Tout mon amour. Que Dieu vous bénisse, chacun d’entre vous. Je suis François. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

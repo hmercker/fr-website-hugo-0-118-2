@@ -22,3 +22,7 @@ Je suis entré ici dans un lieu que vous appelleriez la troisième sphère et ce
 Ainsi, je ne souhaite pas seulement vous remercier tous, mais aussi prier avec vous. Je souhaite dire à ma famille, à mes amis, à tous ceux qui me sont chers, de se réjouir de ma vie et que je continue à vivre dans la lumière et l’amour. S’il vous plaît, envoyez mon amour à tout le monde et assurez-les que je suis heureux et émerveillé dans ma nouvelle vie en esprit sur le chemin de l’Amour Divin. C’est glorieux. Je vous laisse tous dans la félicité de l’Amour de Dieu qui imprègne ce cercle, tant d’anges ici. Oh, si vous pouviez voir, oh mon Dieu. Je remercie mon ami Jimbeau d’avoir accepté de prendre ce message de ma part. Avec tout mon amour, je vais me joindre à vous dans la prière silencieuse.
 
 Que Dieu vous bénisse et vous garde jusqu’à notre prochaine rencontre. Je suis Joseph Babinsky, votre ami dans l’Amour de Dieu, dans le Christ.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

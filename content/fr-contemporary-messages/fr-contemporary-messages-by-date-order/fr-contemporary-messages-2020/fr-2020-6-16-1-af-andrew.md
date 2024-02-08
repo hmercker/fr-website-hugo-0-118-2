@@ -22,3 +22,7 @@ Ne laissez pas vos préjugés vous détourner de ces liens et de ces efforts. Pe
 Âmes bien-aimées, vous êtes bénies en effet, de nombreuses opportunités vous sont données et de nombreuses portes sont ouvertes, beaucoup de possibilités continuent à être réalisées et exprimées par la lumière de vos âmes et la volonté de Dieu qui orchestre tant de choses. Nous sommes avec vous, comme vous le savez. Nous continuons à travailler avec vous pour forger ces possibilités de connexion et de compréhension. Nous travaillons ensemble. Vous sur votre plan terrestre et nous en esprit, nous continuons dans cette grande entreprise et ce plan pour le salut de l’humanité.
 
 Que Dieu vous bénisse, mes chères âmes, je suis André. Sachez que je suis toujours avec vous. Continuez à travailler dans le grand effort d’interconnexion dans l’Amour et la Lumière. Que Dieu vous bénisse. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

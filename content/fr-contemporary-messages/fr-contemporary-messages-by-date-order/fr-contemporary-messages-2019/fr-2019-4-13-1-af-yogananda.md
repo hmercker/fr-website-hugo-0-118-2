@@ -26,3 +26,7 @@ Ne vous contentez pas de l'immobilité. Cherchez les endroits plus profonds où 
 Tout est là qui vous attend, mes amis bien-aimés. Il n'y a rien qui puisse vous retenir, à part vous-mêmes qui trouvez les distractions de ce monde plus importantes que le calme de votre âme. Écoutez, mes chers amis, mes beaux amis. Vous êtes dans le moment, nous sommes dans le moment, et nous pouvons venir à Dieu dans ce moment. Que Dieu atteigne vraiment votre âme, votre moi conscient, votre vrai moi en ce moment.
 
 Je vous bénis, mes amis, je suis Yogananda. Puissiez-vous continuer à atteindre la lumière, le plus haut degré d'amour, la plus belle connexion avec le Créateur. Que Dieu vous bénisse. Je vous aime.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

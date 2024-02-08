@@ -36,3 +36,7 @@ Lorsque ce conduit d’information est clair et fort, il y a en effet une forte 
 Il y a beaucoup de choses qui attendent chaque mortel et chaque esprit qui voyage sur ce chemin. Mais ce n’est pas le mental matériel qui est le plus important ici. Les qualités du mental sont un facteur dans la médiumnité en transe, mais elles ne sont pas l’aspect prédominant qui facilitera la communication. C’est l’Amour Divin et l’âme. Vous verrez, chacun d’entre vous verra, à mesure que vous progresserez sur ce chemin, ce à quoi je fais référence. Vos expériences seront uniques et différentes les unes des autres, mais de nombreuses bénédictions viendront, de nombreuses bénédictions en effet.
 
 Je vous bénis donc dans vos voyages, mes amis. Puissiez-vous continuer à vous éveiller dans vos âmes et que vos esprits continuent à accepter ce qui vient dans cet éveil. Puissiez-vous connaître la paix et l’harmonie, l’amour et la joie au cours de ce voyage. Que Dieu vous bénisse, âmes bien-aimées. Je suis Seretta Kem et je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

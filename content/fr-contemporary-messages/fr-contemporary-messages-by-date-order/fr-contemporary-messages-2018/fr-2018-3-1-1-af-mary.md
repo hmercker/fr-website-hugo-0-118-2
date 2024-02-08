@@ -20,3 +20,7 @@ Et pourtant, lorsqu’une âme, un individu est en équilibre entre les besoins 
 Reconnaissez, en vous-mêmes, mes bien-aimés, que vous êtes aimés et venez connaître le pouvoir de l’Amour de Dieu dans une expression consciente et réelle dans votre vie et votre être. Tant de choses attendent chaque âme qui désire être avec Dieu. Dieu fera tomber les barrières, éclairera le chemin et vous rapprochera toujours plus de Sa Lumière et de Sa Présence. C’est à vous de le désirer et d’agir selon les incitations de vos âmes à venir connaître votre Père Céleste.
 
 Je vous bénis de mon amour. Car je vous aime, mes chères âmes bien-aimées, et tous ceux qui cherchent la Lumière et tous ceux qui cherchent la Vérité, et tous ceux qui cherchent cet Amour, cette grande bénédiction de Dieu. Que Dieu vous bénisse et qu’Il garde votre âme dans Son Amour et Sa Lumière. Je suis Marie et je suis avec vous et je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

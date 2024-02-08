@@ -38,3 +38,7 @@ Je vous remercie, mes amis, de m’avoir écouté aujourd’hui. Car lorsque ces
 Merci et que Dieu vous bénisse. Je suis Orion, et je viens dans l’amour et la reconnaissance. Mes chers frères et sœurs qui cherchent quelque chose de plus élevé, de plus grand et de plus lumineux dans leur vie. Bénédictions à vous, mes amis, et à tous ceux qui cherchent la vérité.
 
 Que Dieu vous bénisse et vous garde dans Son Amour.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

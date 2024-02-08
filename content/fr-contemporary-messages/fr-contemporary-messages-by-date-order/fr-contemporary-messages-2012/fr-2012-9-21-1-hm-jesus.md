@@ -25,4 +25,6 @@ C’est un long message mais d’importance et je suis heureux de sa réception.
 
 Nous parlerons de la loi de l’aide à un autre moment, lorsque tes perceptions seront plus ouvertes pour cela. C’est avec amour que je te salue ma sœur. Ton aide dans l’Amour et la lumière qui te guide vers la Source, Notre Père, c’est Jésus.
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

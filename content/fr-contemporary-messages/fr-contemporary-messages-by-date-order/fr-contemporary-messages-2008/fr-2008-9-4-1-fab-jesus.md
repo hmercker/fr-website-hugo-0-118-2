@@ -27,4 +27,6 @@ Il y a beaucoup de gens qui font de leur mieux afin de faire avancer les choses 
 
 Je peux lire vos pensées. Vous pensez que vous ne faites que perpétuer les erreurs de canalisation dans ce message, mais je vous assure que ce sont mes pensées, pas les vôtres. Vous ne justifiez pas vos propres erreurs, vous recevez mes pensées.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

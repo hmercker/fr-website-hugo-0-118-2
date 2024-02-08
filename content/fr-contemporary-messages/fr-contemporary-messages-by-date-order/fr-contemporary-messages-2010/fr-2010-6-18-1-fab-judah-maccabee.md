@@ -22,4 +22,6 @@ Mais je ne souhaite pas dénigrer le beau symbole de la célébration de Hanoukk
 
 1. <large id="f1"> **Judas Maccabée** (ou Judah Maccabee, également orthographié Machabeus, ou Maccabaeus, Yehudah HaMakabi, Juda le Marteau) était un Kohen et le troisième fils du prêtre Juif Mattathias. Il a mené la révolte des Maccabées contre l’Empire séleucide (167-160 avant J.-C.) et est considéré comme l’un des plus grands guerriers de l’histoire Juive, aux côtés de Josué, Gédéon et David. La fête juive de Hanoukka (« Dédicace ») commémore la restauration du culte Juif au temple de Jérusalem en 165 avant J.-C., après que Juda Maccabee ait retiré les statues païennes. (Source : Wikipedia)[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

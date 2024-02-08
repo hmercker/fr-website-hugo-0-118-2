@@ -90,3 +90,7 @@ Bien que vous soyez humain et donc que vous entreteniez de nombreuses pensées e
 Libérez-vous, âmes bien-aimées. Libérez-vous de tout ce qui n’est pas en harmonie avec l’amour. Permettez à l’amour d’être la grande vérité de votre existence. Permettez à votre âme d’être l’expérience prédominante de la vie. Permettez-vous les grands bénéfices qui viennent avec ceux qui marchent sur le Chemin Divin. Ils sont nombreux et plus puissants que les ténèbres.
 
 C’est ainsi que je vais conclure notre première session de questions. J’espère que nous avons réussi à inspirer, informer, éduquer et soulager les inquiétudes de mes frères et sœurs afin qu’ils puissent s’engager dans la vie sur ce monde avec joie, compréhension, sagesse et détermination. Que Dieu vous bénisse tous, âmes bien-aimées. Que Son Amour continue à vous réveiller pleinement et à vous apporter toute la vérité qu’Il souhaite donner à chacun de Ses enfants sur cette Terre et dans le monde de l’esprit et des Cieux Célestes. La vérité continue de couler de la Grande Âme de Dieu vers les âmes des hommes et des femmes de votre monde et du prochain. Que Dieu vous bénisse. Dieu vous bénisse tous, âmes bien-aimées, et vous remercie.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -11,7 +11,7 @@ weight:
 
 John Lennon - reçu par FAB le 16 Février 2003, Santa Cruz, Californie, USA.
 
-Je suis John Lennon.
+Je suis John Lennon.<sup id="a1">[1](#f1)</sup>
 
 Je vous remercie d’avoir reçu mes pensées ce matin. Je sais que vous avez pensé que j’étais confus, mais comme votre ami l’a dit, j’ai représenté beaucoup de bonnes choses, comme vous le réalisez.
 
@@ -30,5 +30,15 @@ Une chose que je voudrais dire, c’est qu’il est tellement plus facile de fai
 Je vous remercie d’être un canal pour notre travail. J’aimerais que vous me considériez comme votre nouvel ami.
 
 Avec amour, John Lennon.
+<small>
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)
+1. <large id="f1"> John Lennon a également commmuniqué les messages suivants :[↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+John Lennon | [Espoir d’un Beatle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-11-3-1-fab-john-lennon/) | 3 Novembre 2011
+John Lennon | [Tout ce dont vous avez besoin est l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-16-6-af-john-lennon/) | 16 Novembre 2017
+
+### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

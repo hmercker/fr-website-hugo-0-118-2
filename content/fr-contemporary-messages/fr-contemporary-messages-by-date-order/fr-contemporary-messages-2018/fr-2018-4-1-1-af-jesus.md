@@ -21,3 +21,7 @@ Que la Paix du Père soit sur vous, âmes bien-aimées, vous enveloppant ce jour
 <small>
 
 1. <large id="f1"> F.U.S.C : First Spiritual United Churc (Première Eglise Spirituelle Unie).[↩](#a1)
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

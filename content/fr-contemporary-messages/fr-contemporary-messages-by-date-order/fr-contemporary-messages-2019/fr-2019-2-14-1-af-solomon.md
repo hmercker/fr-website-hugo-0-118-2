@@ -32,3 +32,7 @@ Dieu vous place sur un chemin puissant, un chemin qui éveille et informe l’â
 Âmes bien-aimées, recherchez cet Amour par-dessus tout. Permettez la transformation de votre âme et de votre esprit afin que tout fonctionne dans la lumière et la beauté du toucher de Dieu sur vous. Oui, avec de grands changements de conscience, des expériences profondes, des capacités d’aimer et de comprendre vraiment vos frères et sœurs, d’avoir une profonde compassion et une profonde connaissance de votre cœur que vous êtes tous frères et sœurs et enfants de Dieu.
 
 Puissiez-vous connaître une paix profonde, mes amis bien-aimés. Que la sagesse profonde s’épanouisse dans votre âme et qu’une grande force et une grande perception accompagnent ce don de sagesse afin que tout ce que vous faites soit coloré de vérité et d’amour. Que Dieu vous bénisse, mes amis qui cherchent la vérité, et que vous trouviez ce que vous cherchez vraiment. Que Dieu vous bénisse. Je suis Salomon. Que Dieu vous bénisse, mes amis.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -32,3 +32,7 @@ Je vous remercie de m’avoir permis de me présenter. J’apporte mes dons du v
 Que le souffle de Dieu souffle profondément en vous, vous transportant dans les royaumes de l’esprit avec les bénédictions de l’Amour.
 
 Que Dieu vous bénisse, mes chères âmes, je suis La Joya, que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

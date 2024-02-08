@@ -25,4 +25,6 @@ Si vous pouvez faire confiance à l'Amour Divin pour ouvrir vos yeux et voir ce 
 
 Merci, ma chère sœur. Tu n'es pas seule. Je suis Marie, et ta gardienne dans l'Amour Divin.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

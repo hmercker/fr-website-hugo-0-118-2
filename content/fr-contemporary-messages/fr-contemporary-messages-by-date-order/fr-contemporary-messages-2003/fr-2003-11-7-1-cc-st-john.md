@@ -34,4 +34,6 @@ Je mets fin à notre sujet à ce stade et attendrai une autre occasion. Je suis 
 
 1. <large id="f1"> La [loi du rapport et de la communication](/10-fr-spiritual-subjects/10-1-fr-spiritual-laws/10-1-15-fr-the-law-of-rapport/).[↩](#a1)
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)
+### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

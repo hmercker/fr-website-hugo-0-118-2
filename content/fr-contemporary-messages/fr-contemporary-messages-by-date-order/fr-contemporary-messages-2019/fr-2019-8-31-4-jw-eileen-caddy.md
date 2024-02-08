@@ -24,4 +24,8 @@ Merci de m’avoir permis de venir et de partager avec vous. Je suis ravie d’�
 
 1. <large id=”f1”> Son autobiographie « Flight into Freedom » est une fabuleuse explication à la fois de son voyage et de sa guidance, aussi étonnante qu’elle ait pu être. Je recommande ce livre à tout chercheur sérieux. (Geoff Cutler).[↩](#a1)
 
-2. <large id=”f2”> Il y avait un portail de lumière à Findhorn, et il existe encore aujourd’hui.[↩](#a21)
+2. <large id=”f2”> Il y avait un portail de lumière à Findhorn, et il existe encore aujourd’hui.[↩](#a2)
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

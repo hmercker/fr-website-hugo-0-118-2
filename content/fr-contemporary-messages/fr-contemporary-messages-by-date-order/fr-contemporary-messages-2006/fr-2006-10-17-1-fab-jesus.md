@@ -29,4 +29,6 @@ Vous faites l'expérience de la réalité que la vie terrestre est imparfaite, e
 
 J'ai donc moi aussi compris que mes compatriotes Juifs n'honoraient souvent pas leur héritage, mais j'ai pu voir au-delà de cela, dans la belle tradition qui honorait essentiellement les femmes, même si celles-ci ont souvent souffert de l'incapacité de certains Juifs à se montrer à la hauteur d'un idéal sanctionné dans leur culture.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

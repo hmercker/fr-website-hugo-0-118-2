@@ -20,3 +20,7 @@ En cette période de grands changements, alors que vos cœurs s’élèvent dans
 Que ce monde s’élève dans la lumière, que votre paix brille sur cette terre troublée. Sachez que vous n’êtes pas seuls, car non seulement nous sommes tous avec vous, dans des multitudes que vous ne pouvez pas imaginer, mais aussi les millions, voire les milliards de personnes sur terre qui envoient des prières à Dieu pour l’Amour, pour la paix, pour un monde nouveau.
 
 Alors, entretenez vos jardins pour avoir la générosité de la terre et entretenez vos âmes pour vous épanouir dans la générosité de l’Amour de Dieu. Je vais me retirer et vous rejoindre dans ce cercle de lumière et d’amour, dans la gloire de l’Amour de Dieu et dans la paix. Je suis votre frère et ami dans le Christ, je suis François, autrefois d’Assise, maintenant une âme rachetée dans les Cieux Célestes. Que Dieu vous bénisse tous et que sa paix soit sur vous.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

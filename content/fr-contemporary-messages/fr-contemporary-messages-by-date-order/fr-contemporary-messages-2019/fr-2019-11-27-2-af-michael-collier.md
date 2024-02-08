@@ -24,3 +24,7 @@ Notre objectif est d’établir un fondement de Vérité et d’Amour dans l’�
 L’humilité est une partie tellement importante de l’expression de la Vérité de l’âme. La douceur et la passion de l’âme, ces choses apportent la Lumière et les bénédictions de Dieu. Bien-aimés, beaux amis, je souhaite vous remercier pour vos efforts, merci pour votre temps et l’application de vos dons et l’expression de vos âmes dans cette entreprise. Je vais continuer à travailler avec ces belles âmes qui marchent sur cette terre. Mon engagement est fort. Mon désir est grand. Mes efforts seront incessants pour apporter la Vérité de l’Amour de Dieu dans cette partie du monde.
 
 Que Dieu vous bénisse tous, qu’il vous garde dans son amour et dans le flux et la grâce de son toucher. Mon amour est avec vous aussi. Je suis votre ami Michael Collier. Que Dieu vous bénisse. Que Dieu vous bénisse dans vos voyages. Que Dieu vous bénisse et qu’il prenne soin de vous tous, qu’il vous protège et vous enveloppe de son amour. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

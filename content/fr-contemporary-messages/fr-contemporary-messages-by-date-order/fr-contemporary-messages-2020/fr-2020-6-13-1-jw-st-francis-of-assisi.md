@@ -20,3 +20,7 @@ Car il ne sert à rien de donner si ce n’est dans l’amour, de parler si ce n
 Mes chers frères, vous êtes vraiment aimés, vous êtes vraiment surveillés par beaucoup, guidés par beaucoup. Sachez cela dans vos cœurs et ne vous laissez pas distraire par la négativité. Oui, le monde a ses problèmes. Quelle est la solution ? C’est l’amour, l’amour humain et l’amour de Dieu. Je ne peux que vous suggérer d’apporter cela au monde à chaque souffle. Ne vous inquiétez pas de vos défauts, car vous êtes humains. Mais permettez-vous d’être élevés dans cette belle grâce de l’amour de Dieu.
 
 Comme nous vous aimons, comme Dieu vous aime. Je suis votre frère et ami dans le Christ, je suis François. Allez avec Dieu !
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

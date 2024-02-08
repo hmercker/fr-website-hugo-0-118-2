@@ -18,3 +18,10 @@ Chaque fois qu’il y a une lutte, chaque fois qu’il y a une crise, Dieu prés
 Souvenez-vous de la magnificence de la grâce de Dieu et de la promesse d’une vie au-delà des luttes, dans la transformation complète de vos âmes en lumière, en amour, en joie, en grâce. Le don éternel qui vous a été donné vous apporte l’espoir, vous apporte la foi. Alors, comme vous avez confiance en l’Amour de Dieu, Dieu met Son Amour dans chaque âme. Il ouvre cette porte à l’éternité, à l’immortalité et au royaume céleste. Réjouissez-vous les uns les autres. Réjouissez-vous de la transition. L’Univers du Père est progressif, il change toujours, il se déploie toujours, il est béni. C’est votre destin, mes chers amis.  Puissiez-vous être une bénédiction pour ce monde qui en a tant besoin et puissiez-vous toujours vous rappeler que vous avez le soutien du Royaume Céleste, l’Amour de Dieu et la guidance de tous les anges. Réjouissez-vous ! Dieu est bon !
 
 Avec tout mon amour et ma bénédiction pour chacun d’entre vous. Et avec l’amour d’une mère, d’une grand-mère et de votre sœur dans le Christ, je vous remercie. Je suis Anne Rollins. Que Dieu vous bénisse !
+<small>
+
+1. <large id="f1"> L'ensemble des messages communiqués par Anne Rollins est disponible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-12-fr-family-and-friends-of-james-padgett/)[↩](#a1) 
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

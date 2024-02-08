@@ -36,7 +36,8 @@ Je veux encourager mes frères, A____ et M____, pour qu’ils ne perdent jamais 
 
 Soyez inébranlables et gardez votre foi et Dieu guidera votre navire dans ce monde. Nous vous aimons, mes chers frères et sœurs, Jean l’Apôtre, et Marie et mère de Jésus, et vos amis sur le chemin divin.
 
-[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+### [**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

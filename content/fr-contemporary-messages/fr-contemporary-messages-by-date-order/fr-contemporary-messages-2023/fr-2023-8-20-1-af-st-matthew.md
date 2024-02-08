@@ -34,3 +34,7 @@ Nous sommes avec vous et nous ne vous quitterons jamais, âmes bien-aimées. Soy
 Ainsi, vous êtes profondément bénis, bien-aimés. Vous êtes profondément bénis et vous le serez aussi, à condition que vous continuiez sur ce chemin. Ayez une grande foi en l’Amour de Dieu, en la puissance de Son Amour, pour apporter tout ce qui est bon et de lumière, de vérité, d’harmonie. La sagesse de votre âme le sait et le comprend. Et donc, vous devez écouter au plus profond de vous et vous apporter de manière consciente la vérité, la puissance, la beauté, l’émerveillement de la relation de votre âme avec Dieu et combien c’est le don et la vérité le plus important et le plus merveilleux.
 
 Je suis Matthieu. Mon amour pour toi est grand. Ma compassion pour vos luttes est grande. Et pourtant, je vois déployées autour de chacun de vous de grandes forces de lumière, de belles bénédictions disponibles et données gratuitement à chacun. Puissiez-vous connaître ces bénédictions, vraiment connaître l’émerveillement de la Volonté, du Toucher et de l’intention de Dieu pour chacun de vous. Car vous êtes des lumières et nous sommes tous des lumières ensemble. Que Dieu te bénisse. Que Dieu vous bénisse tous à la lumière de l’Amour de Dieu.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

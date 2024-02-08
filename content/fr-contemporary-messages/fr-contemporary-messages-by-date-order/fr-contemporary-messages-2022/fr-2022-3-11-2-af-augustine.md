@@ -20,3 +20,7 @@ Bien que cela puisse être fait par des voies et des moyens puissants et stimula
 Ne remettez pas en question la vérité que vous connaissez dans vos âmes. Ne reculez pas devant le but qui est à l’intérieur. Car le moment est venu d’avancer, non pas de reculer, mais d’avancer sur le chemin du service, sur le chemin de l’amour, sur tout ce qui est censé être porteur de lumière dans le monde.
 
 Vous êtes appelé par le bien-aimé Maître du Royaume Céleste. Vous êtes appelé par tous les anges qui font partie de ce royaume. Vous êtes appelé par le Créateur de tous ceux qui recherchent la guérison et l’élévation de l’humanité. Que la force de votre âme vous guide. Que l’amour intérieur soit la pierre de touche qui fera avancer tout ce que vous faites, tous vos efforts dans la lumière et l’harmonie et en alignement avec la Volonté de Dieu. Vous êtes les enfants de Dieu et vous serez Ses instruments sur la Terre et rejoindrez ceux qui entendront cet appel au jugement, ce son de cloche qui attire l’humanité vers la lumière. Que Dieu vous bénisse, bien-aimés. Je suis votre maître Augustin et je viens affirmer la vérité et reconnaître vos efforts, votre lumière, vos âmes. Que Dieu vous bénisse. Que Dieu vous bénisse, bien-aimés.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -17,4 +17,6 @@ Oui, je comprends votre confusion. Comme je l'ai déjà dit, nous ne sommes pas 
 
 Durant la vie terrestre, les préoccupations matérielles et spirituelles se mêlent en raison de la double nature de l'être humain. Nous cherchons donc toujours à amener un mortel à prendre conscience que le spirituel peut influencer et même dépasser le matériel, sans pour autant nier l'importance et la validité du matériel.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

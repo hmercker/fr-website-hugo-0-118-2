@@ -22,3 +22,8 @@ Permettez à cette éducation d’avoir lieu en vous. Permettez-vous de ressenti
 Il y a tant à gagner dans vos efforts pour atteindre Dieu. Plus vous gagnerez en force, plus vous serez un canal d’amour et de lumière dans le monde. Vous verrez à travers les illusions, les erreurs, l’obscurité. Votre conscience s’illuminera avec la conscience de l’âme et sera ainsi une source de sagesse, de force et d’amour pour vos frères et sœurs. Le monde a besoin d’âmes éclairées. Puissiez-vous arriver à cet endroit. Sentez l’élan et la bénédiction de Dieu vous guider vers l’avant. Là, vous aiderez le monde à s’acclimater et à être en plus grande harmonie avec les lois de la création de Dieu, avec ce qui est censé être dans le monde.
 
 Que Dieu vous bénisse dans ce voyage, mes bien-aimés. Je m’appelle André. Je suis heureux d’être avec vous aujourd’hui dans la prière, de prier pour votre monde, car il a tellement besoin de prière, d’amour, de lumière, de sagesse et de vérité. Dieu fournira ces choses à ceux qui sont ouverts et disposés à recevoir. Ainsi, il sera donné en abondance, en vagues et puissantes bénédictions sur l’humanité. Dieu vous bénit, mes bien-aimés. Je suis avec vous. Je suis avec vous tous dans vos prières. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

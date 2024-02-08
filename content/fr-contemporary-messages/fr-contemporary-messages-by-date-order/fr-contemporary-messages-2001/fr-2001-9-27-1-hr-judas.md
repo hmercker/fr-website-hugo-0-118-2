@@ -47,8 +47,11 @@ Ton frère en Christ, Judas.
 
 ![title](/3-fr-judas-of-kerioth-messages/fr-andrew-large.jpg)
 
-                André
+                # **André**
 
 © Geoff Cutler 2013
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)
+### [**Lien vers les messages des années 2001**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

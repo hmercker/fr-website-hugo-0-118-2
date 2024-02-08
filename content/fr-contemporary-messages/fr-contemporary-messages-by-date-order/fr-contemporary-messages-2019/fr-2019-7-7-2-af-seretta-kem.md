@@ -32,3 +32,7 @@ Nous continuons à marcher avec vous, âmes bien-aimées, et vous devenez de plu
 Tant de choses sont à venir, âmes bien-aimées. Maintenant, il y a peu de choses sur votre chemin alors que vous avancez et beaucoup de choses à découvrir sur le Chemin Divin. Réveillez-vous, frères et sœurs ; réveillez-vous à vos destinées et soyez dans la puissante rivière de l’Amour de Dieu.
 
 Que Dieu vous bénisse profondément et pleinement, richement et magnifiquement de Son Amour. Je suis avec vousi, Seretta Kem. Je suis avec vous. Que Dieu vous bénisse. Que Dieu vous bénisse. Je vous aime.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -23,4 +23,6 @@ Mes chers frères et sœurs en Christ, je vous demande de porter ce vêtement br
 
 Je vous aime et je suis reconnaissant pour chacun de vos choix d'aimer. Je suis votre frère, toujours présent, Jésus.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005)
+### [**Lien vers les messages des années 2005**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

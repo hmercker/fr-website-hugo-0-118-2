@@ -24,3 +24,7 @@ Continuez dans vos prières, mes bien-aimés. Continuez à vous tendre la main l
 Au fur et à mesure que votre nombre augmente et que vos efforts s’intensifient, ce grand treillis de lumière, ce filet d’amour, sera renforcé et se développera. Tout cela fait partie du plan de Dieu, mes chères âmes. Chacun d’entre vous peut en effet en faire partie. Tout ce qui est nécessaire, ce sont vos prières sincères et le temps que vous consacrez à Dieu et à penser à vos frères et sœurs en prière, à tendre la main avec votre cœur et à reconnaître ce don de la fraternité.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis André et puisse l’Amour de Dieu continuer à affluer dans vos précieuses âmes et continuer à vous éveiller à vos grands potentiels et dons, pour apporter cette belle vérité de l’amour à l’humanité. Que Dieu vous bénisse, âmes bien-aimées, que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -26,3 +26,7 @@ Vous devez croire en vous-mêmes, âmes bien-aimées. Marchez dans la foi et la 
 Même si certains vous rejetteront parce qu'ils ne voient pas au-delà de leurs attentes en matière d'acuité intellectuelle, beaucoup ressentiront en effet dans leur cœur la vérité dont vous parlez. Bien qu'ils puissent interpréter dans leur propre esprit et avec leurs propres mots ce que vous dites, c'est l'âme qui a reconnu la vérité. C'est ce qui est requis et important dans votre travail. Continuez à dire votre vérité. Exprimez votre vérité dans la lumière et l'amour. Apportez du réconfort. Apportez l'amour à tous ceux que vous rencontrez et Dieu ne vous en demandera pas plus. Vous faites le travail de Dieu lorsque vous apportez l'amour.
 
 Que Dieu vous bénisse dans votre travail, vos voyages et vos efforts dans les pays lointains. En effet, vous êtes bénis et les portes continueront à s'ouvrir pour vous, mes amis bien-aimés, et à vous apporter toutes les gloires et les merveilles et la lumière et l'amour que l'Âme de Dieu à votre âme, peut apporter et être déversée sur vous. Que Dieu vous bénisse, mes chers amis. Je suis Matthieu et mon amour est avec vous. Que Dieu vous bénisse tous les deux.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

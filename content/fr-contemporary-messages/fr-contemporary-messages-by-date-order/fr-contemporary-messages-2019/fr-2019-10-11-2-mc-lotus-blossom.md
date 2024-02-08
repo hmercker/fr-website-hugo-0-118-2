@@ -24,3 +24,7 @@ Alors que vous, âmes bien-aimées, êtes assises ici dans votre cercle, ouvrant
 Je souhaite vous diriger dans les bras de Dieu et vous ouvrir à une belle bénédiction d’Amour, où le pardon sera possible, les douleurs libérées et guéries et les pensées du mental qui perturbent et détruisent peuvent aussi être libérées. Faites l’expérience de cet Amour, mes bien-aimés. Faites l’expérience de la Vérité de cet Amour dans toutes ses potentialités. Dieu vous attend et Dieu répond immédiatement à la demande de votre âme, un cri.
 
 Puissiez-vous tous recevoir la paix, l’amour et la joie que cet Amour apporte. Je suis Fleur de Lotus, et mon amour est avec chacun d’entre vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

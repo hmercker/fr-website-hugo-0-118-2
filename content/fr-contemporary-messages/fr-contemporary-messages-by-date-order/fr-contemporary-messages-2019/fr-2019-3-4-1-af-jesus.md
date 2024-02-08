@@ -24,3 +24,7 @@ Je suis votre frère, votre ami. Je suis Jésus. J’ai un grand amour pour vous
 Bien-aimés, bien-aimées, puissiez-vous continuer votre recherche et vos voyages vers la lumière et Dieu vous bénira dans ce voyage, vous aidera à vous éveiller, apportera les clés de l’éveil à chacun d’entre vous si vous avez la foi et marchez avec une profonde confiance dans la volonté de Dieu. De cette façon, vous trouverez ce que vous cherchez. La vérité, la vérité viendra.
 
 Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse et que mon amour soit avec vous tous au cours de vos voyages. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

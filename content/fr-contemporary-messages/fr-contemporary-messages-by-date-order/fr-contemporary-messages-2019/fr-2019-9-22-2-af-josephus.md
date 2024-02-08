@@ -38,3 +38,7 @@ Que Dieu vous bénisse dans ce voyage, âmes bien-aimées, et qu’il vous garde
 Si vous vous efforcez d’atteindre le plus haut niveau, vous serez bénis en conséquence.
 
 Que Dieu vous bénisse, bien-aimés, je suis Flavius Josèphe et je suis avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

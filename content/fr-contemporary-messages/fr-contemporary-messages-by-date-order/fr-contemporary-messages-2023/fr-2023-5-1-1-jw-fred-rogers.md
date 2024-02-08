@@ -21,3 +21,17 @@ Que Dieu bénisse chacun de vous. Je suis votre frère et ami en Christ sur le c
 <small>
 
 1. <large id="f1"> [Voir Exode 20 : 5-6](https://saintebible.com/exodus/20-5.htm) *« Tu ne te prosterneras point devant elles, et tu ne les serviras point; car moi, l’Éternel, ton Dieu, je suis un Dieu jaloux, qui[ punis ]l’iniquité des pères sur les enfants jusqu’à la troisième et la quatrième génération de ceux qui me haïssent, et qui fais miséricorde jusqu’en mille générations à ceux qui m’aiment et qui gardent mes commandements. »*[↩](#a1)
+
+2. <large id="f2"> Fred Rogers s'est également exprimé dans les messages suivants :  [↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+--|---|---
+Fred Rogers | [Rappelez-vous l’importance de guider les enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-5-1-jw-fred-rogers/) | 5 Juillet 2021
+Fred Rogers | [Travailler avec les petits enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-12-1-jw-fred-rogers/) | 12 Octobre 2021
+Fred Rogers | [Amis imaginaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-29-1-jw-fred-rogers/) | 29 Septembre 2022
+Fred Rogers | [Habitudes, Dépendances  et Guérisson](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-3-1-jw-fred-rogers/) | 3 Avril 2023
+Fred Rogers | [Habitudes, Dépendances  et Guérisson](/fr-contemporary-messages/fr-contemporary-messages-bdate-order/fr-contemporary-messages-2023/fr-2023-4-7-1-jw-fred-rogers/) | 7 Avril 2023
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

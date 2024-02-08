@@ -16,3 +16,7 @@ Je suis là, Charles. Vous me connaissez sous le nom de Charlie, Charlie Chaplin
 Lorsque je suis passé en esprit et que j’ai été guidé par ma chère mère qui était devenue un ange Céleste et qui a toujours cru en moi, j’ai commencé à progresser. Ainsi, ma prière sur terre venait de mon cœur et ma prière maintenant vient de mon âme. Et vous qui souhaitez être une bénédiction sur cette terre et progresser dans l’amour naturel et Divin, je vous encourage à laisser votre prière venir de votre cœur et de votre âme. Que vous puissiez embrasser le monde et le bénir avec amour et que votre âme puisse s’éveiller et progresser vers le Royaume Céleste. De cette façon, chacun d’entre vous peut permettre à ses dons de faire briller une lumière sur l’obscurité de ce monde, d’apporter de l’espoir et surtout d’être présent en tant qu’amour et bénédiction. Il est temps de laisser chacun d’entre vous sortir de l’ombre et faire briller cette lumière, cet amour que vous avez reçu, les dons que vous possédez et de cette façon, vous ne serez pas déçus et vous serez bénis à tous égards.
 
 Merci de me permettre de passer par mes chers frères et sœurs sur le chemin de l’Amour de Dieu. Avec tout mon amour et mes bénédictions, je suis Charles. Que Dieu vous accompagne !
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

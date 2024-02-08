@@ -104,3 +104,7 @@ L’Amour de Dieu pour vous est grand. Son désir que vous soyez en alignement a
 Que Dieu vous bénisse dans ce voyage, âmes bien-aimées. Je suis votre frère et votre ami, votre compagnon de voyage. Je suis Jésus et mon amour pour chacun de vous, pour toute l’humanité est grand. Que la lumière vienne dans votre monde. C’est ma prière la plus fervente. Que tous les habitants de votre monde trouvent la paix et l’harmonie, l’amour et la vérité. Dieu donne toutes ces choses à ceux qui désirent les recevoir. Que vos désirs soient forts et que l’Amour de Dieu en vous s’épanouisse afin qu’il s’exprime dans chaque respiration et dans chaque aspect de votre vie.
 
 Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

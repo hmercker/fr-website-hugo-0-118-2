@@ -37,4 +37,6 @@ En fait, comme vous pouvez le constater, je n’étais pas vraiment un disciple 
 
 Ainsi, la déclaration que j’ai canalisée à travers M. Padgett, que vous avez citée ci-dessus, était vraie, même si ma compréhension à l’époque était limitée.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

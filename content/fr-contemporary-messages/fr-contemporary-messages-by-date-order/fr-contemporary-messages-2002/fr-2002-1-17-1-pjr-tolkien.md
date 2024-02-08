@@ -70,4 +70,6 @@ Je t’aime Papa.
 
 2. <large id="f2"> Oui, j’ai mal orthographié son nom de famille deux fois en écrivant ce message. Voir le message [du 24 Mars 2003](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-3-24-1-pjr-tolkien/) pour en savoir plus. PJR[↩](#a2)
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)
+### [**Lien vers les messages des années 2002**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

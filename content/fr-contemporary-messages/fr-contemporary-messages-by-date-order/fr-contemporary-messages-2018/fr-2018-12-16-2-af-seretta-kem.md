@@ -38,3 +38,7 @@ Que Dieu vous bénisse profondément dans vos âmes, amis bien-aimés, et qu’i
 Ces choses viennent, mes bien-aimés et moi serons proches, beaucoup seront proches. Vous apprendrez à nous connaître. Certains d’entre vous viendront nous voir comme si nous étions en chair et en os et il y aura une grande coopération et collaboration entre nous pour aider à ramener le monde du bord du gouffre.
 
 Que Dieu vous bénisse, mes bien-aimés, toujours. Que vos âmes soient avides d’Amour, avides et ouvertes afin que Dieu puisse être proche et que vous puissiez marcher dans la Lumière. Bien-aimés, amis bien-aimés, que Dieu vous bénisse et que je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

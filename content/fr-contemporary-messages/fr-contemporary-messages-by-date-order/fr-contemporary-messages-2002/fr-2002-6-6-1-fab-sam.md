@@ -43,4 +43,6 @@ Vous êtes venus non seulement pour travailler et partager avec dévouement, mai
 
 Nous vous remercions pour votre amour et votre dévouement. Si vous pouviez mieux comprendre à quel point nous vous aimons, vous vous rapprocheriez de la venue des Cieux Célestes sur terre, car c'est alors que la transformation que vous recherchez s'accomplira.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)
+### [**Lien vers les messages des années 2002**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

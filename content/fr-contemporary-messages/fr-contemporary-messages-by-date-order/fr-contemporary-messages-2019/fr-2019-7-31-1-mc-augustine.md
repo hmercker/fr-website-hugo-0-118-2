@@ -34,3 +34,7 @@ Marchez dans la grâce de votre âme. Vivez de la grâce de votre âme. Parlez e
 Je suis Augustin, votre enseignant. J’espère que j’ai pu apporter quelques conseils à ceux qui facilitent ces Cercles de Lumière qui attirent de nombreuses âmes porteuses de nombreuses croyances, qui aspirent et qui cherchent. Vous êtes tous en train de grandir, mes bien-aimés. Vous vous développez tous et vous cherchez tous, ce qui apporte une grande unité parmi vous. Nous continuerons à être avec vous alors que vous animez ces Cercles et que vous êtes envoyés dans le monde pour partager, pour parler, pour enseigner et pour exprimer à partir de votre expérience votre expérience de l’âme, ce qu’est l’Amour de Dieu, l’Essence de la Vérité pour tous.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre enseignant Augustin et mon amour reste avec vous. Mes chers élèves, que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

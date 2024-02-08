@@ -32,3 +32,7 @@ Vous ne capitulerez pas devant les cris de ceux qui s’accrochent fermement au 
 Buvez profondément ces bénédictions, amis bien-aimés, et sachez que nous sommes à vos côtés. La force et la solidarité du ciel sont avec vous. Vous pouvez compter sur notre protection, sur nos ministères d’amour, sur nos paroles de soutien et sur notre toucher sur vous en tant qu’instruments d’amour de Dieu. Nous sommes avec vous, mes bien-aimés, et nous ne vous quitterons jamais. Ce pouvoir et cette force vont croître. Vous en prendrez conscience à mesure que votre lumière continuera de briller à l’intérieur et que vos dons s’ouvriront, chaque fleur s’épanouissant au soleil de la chaleur et de l’amour de Dieu. Âmes bien-aimées, vous êtes plus fortes que vous ne le pensez et cette force continuera à se manifester dans votre vie et dans vos efforts pour apporter la lumière dans le monde.
 
 Que Dieu vous bénisse, mes amis bien-aimés. Je suis avec vous. Je suis Martin Luther, celui qui connaît bien le pouvoir de la réforme et l’effort qu’il faut déployer pour apporter un changement dans le monde. Je suis à vos côtés avec ma force, ma lumière et mon amour. Comme beaucoup d’autres. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

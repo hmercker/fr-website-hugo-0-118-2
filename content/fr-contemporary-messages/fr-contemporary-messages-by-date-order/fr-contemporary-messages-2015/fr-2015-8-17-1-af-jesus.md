@@ -59,4 +59,6 @@ Que Dieu vous bénisse, mes bien-aimés. J’espère que maintenant vous êtes e
 
 Je suis Jésus, et je suis votre ami et votre frère, et je suis avec vous dans tout ce que vous faites, dans chaque effort que vous faites. Car c’est vraiment de l’origine de vos âmes et chaque effort que vous ferez dans ce sens sera vraiment béni. Marchez avec moi et j’éclairerai le chemin.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015)
+### [**Lien vers les messages des années 2015**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

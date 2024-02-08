@@ -24,3 +24,8 @@ Par vos prières et vos intentions, vos pensées et vos actes, agissez avec amou
 Buvez profondément, mes amis, buvez profondément les eaux de l’Amour de Dieu et sachez que vous êtes en effet dans Sa lumière, Sa présence et que vous êtes nourris de cette façon. Tous ceux pour qui vous priez seront touchés et réconfortés, la guérison s’étendra à beaucoup. Cela fait partie de votre effort et de votre dévouement ensemble.
 
 Que Dieu vous bénisse, mes bien-aimés, je suis Luc. Je vous aime. Vous êtes vraiment bénis. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

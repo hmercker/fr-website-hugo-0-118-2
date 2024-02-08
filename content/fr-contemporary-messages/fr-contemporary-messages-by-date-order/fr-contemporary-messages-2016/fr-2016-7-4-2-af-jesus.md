@@ -24,3 +24,7 @@ Mes bien-aimés, vous cherchez à faire naviguer votre navire sur des eaux calme
 Âmes bien-aimées, vous connaissez le chemin, vous connaissez la voie que vous devez suivre et vous devez faire des efforts pour apaiser les perturbations de votre mental et nourrir la paix qui se trouve dans vos âmes et de cette façon vous trouverez ce que vous cherchez, vous trouverez de grandes récompenses et beaucoup de joie, peu importe ce que les eaux de la vie vous apportent et jettent autour de vous, vous serez un centre calme dans ces eaux agitées et un phare de Lumière et d’espoir et de confort et d’assurance pour ceux qui vous entourent. Je vous le promets, car la puissance de l’Amour de Dieu vous apportera une grande paix, une paix durable et puissante, une paix profonde, résonnante et magnifique.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Jésus et je suis avec vous plus souvent que vous ne le savez. Et je connais vos luttes. Je sais ce qui se trouve dans vos cœurs et j’ai un amour profond pour chaque enfant qui cherche la Vérité et qui souhaite manifester l’Amour dans sa vie. Je suis avec vous et je vous aime. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

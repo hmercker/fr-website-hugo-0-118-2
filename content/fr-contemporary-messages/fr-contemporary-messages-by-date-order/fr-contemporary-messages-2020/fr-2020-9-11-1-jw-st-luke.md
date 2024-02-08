@@ -18,3 +18,7 @@ Il y a une quantité infinie de matériel sur le plan terrestre en termes de spi
 Comme c’est merveilleux que vous parcouriez ces messages donnés par Judas au frère de l’Équateur, parce qu’ils sont contemporains et parlent à l’époque actuelle et sont en grande harmonie avec ce que James Padgett et le Dr Samuels ont reçu et aussi avec ce que ce cher frère reçoit de nous. Il s’agit de l’Amour de Dieu.
 
 Puissiez-vous tous recevoir chaque bon et parfait et beau cadeau alors que nous nous engageons avec vous, que nous vous inspirons, que nous vous influençons et que nous marchons sur ce chemin, parce que vous l’avez demandé. Puissiez-vous aller dans la Grâce de Dieu et de son Amour. Je vous remercie. Je suis votre frère en Christ, et un disciple du Maître, je suis Luc.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

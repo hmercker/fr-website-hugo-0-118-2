@@ -18,3 +18,8 @@ Le temps et l’énergie qui ont été consacrés à la création de ce sanctuai
 Devenez les jardiniers de vos âmes afin qu’elles puissent s’épanouir et que le parfum de l’Amour, comme une rose, comme un lotus, imprègne cette atmosphère pour que tous puissent le ressentir, et pour que tous puissent guérir. Pour chaque âme qui se languit, fournissez ceci. La récompense sera au-delà de ce que vous pouvez imaginer, car c’est une récompense Céleste. Je souhaite remercier, au nom de nous tous ici, les hôtes qui ont offert leur lieu pour être un lieu de prière et de sanctuaire. Je les encourage à poursuivre cet effort et à inviter tous ceux qu’ils peuvent accueillir. Je vois que c’est le désir de leur cœur de servir les autres de cette manière. Ceci, bien sûr, serait leur choix. Si vous choisissez, vous aurez beaucoup d’aide, beaucoup de conseils. Nous viendrons et serons avec vous dans la prière, dans le sanctuaire, dans le refuge.
 
 Que l’Amour de Dieu imprègne ce lieu et s’épanouisse dans chacune de vos âmes. Devenez les jardiniers de vos âmes, mes chers amis. Que le Créateur bénisse ce lieu et tous ceux qui viennent. Nous vous protégerons. Je suis votre ami et votre frère dans les cieux célestes, Francis. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

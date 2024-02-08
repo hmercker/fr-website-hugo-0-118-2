@@ -30,3 +30,7 @@ Pour conclure, je voudrais souligner une fois de plus l’importance de la foi, 
 De nombreuses paroles sont prononcées dans votre monde pour encourager les autres à croire. Les enseignements et les organisations sont construits sur des croyances, mais le voyage de la vérité est construit sur la foi. *« L’amour et la foi sont les deux faces d’une même médaille »*. Ce sont des mots qui ont été écrits, et en effet, l’amour va de pair avec la foi et la foi avec l’amour.
 
 Nous avons assez écrit pour aujourd’hui et je suis heureux d’être ici avec toi en cette heure matinale. Je reviendrai, car j’ai beaucoup à partager. Pour l’instant, je te donne mon amour, ma chère âme. Je t’aime et je suis souvent avec toi et le cercle plus large. Beaucoup de choses vont venir, mon enfant bien-aimé, et sache que nous te tenons la main et que nous marchons avec toi, comme l’amour va main dans la main avec la foi. Seretta Kem t’aime profondément ainsi que tous ceux avec qui tu es en relation. Que Dieu vous bénisse et vous garde dans son amour. Seretta Kem te salue et t’aime.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

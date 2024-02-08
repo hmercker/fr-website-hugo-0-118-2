@@ -26,3 +26,7 @@ Silent Spring est un livre de Rachel Carson sur l’environnement. Publié le 27
 À la fin des années 1950, Carson a commencé à travailler sur la conservation de l’environnement, en particulier sur les problèmes environnementaux qui, selon elle, étaient causés par les pesticides synthétiques. Le résultat de ses recherches est le Printemps silencieux, qui a permis de sensibiliser le public américain aux problèmes environnementaux. Le livre a suscité une opposition farouche de la part des entreprises chimiques, mais il a influencé l’opinion publique et a conduit à un revirement de la politique américaine en matière de pesticides, à une interdiction nationale du DDT à des fins agricoles et à un mouvement environnemental qui a abouti à la création de l’Agence américaine de protection de l’environnement.
 
 En 2006, Silent Spring a été désigné comme l’un des 25 meilleurs livres scientifiques de tous les temps par les rédacteurs du magazine Discover.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

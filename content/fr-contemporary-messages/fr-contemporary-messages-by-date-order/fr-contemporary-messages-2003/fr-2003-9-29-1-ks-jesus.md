@@ -43,4 +43,6 @@ La vie spirituelle est libre et légère. Pas de blocages ou d’obscurité – 
 
 Je vais te quitter maintenant, mais je resterai avec toi en esprit même si je suis soi-disant « localisé » dans les Cieux Célestes. Je te laisse mes bénédictions d’amour – je suis ton ami et frère en Esprit, Jésus le Christ.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)
+### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -33,5 +33,6 @@ Je vous aime et j’apprécie l’opportunité d’écrire. Vous avez bien reçu
 
 Je suis votre ami et frère en Esprit, Joseph, le père de Jésus, et je vous laisse avec mes bénédictions d’Amour.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004)
+### [**Lien vers les messages des années 2004**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/)
 
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

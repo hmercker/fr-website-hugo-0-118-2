@@ -36,3 +36,7 @@ Oui, âmes bien-aimées, vous commencez à voir que le monde de l’ombre de vot
 Mais je vous dis que chaque fois que vous avancez un peu dans votre compréhension, vous vous rapprochez de plus en plus de la vérité et c’est un processus magnifique, magnifique, qui nous apporte la joie d’en être témoins et qui vous apporte la joie de l’expérimenter, qui continue ainsi et qui continuera ainsi.
 
 Que Dieu vous bénisse, mes chers étudiants. Votre maître Augustin a beaucoup de joie et d’amour pour vous, Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

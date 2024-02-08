@@ -20,3 +20,7 @@ Chacun d’entre vous sait dans son âme qu’il fait partie d’un grand effort
 Et ainsi nous montons ces escaliers de la vérité et ainsi l’atmosphère est imprégnée d’Amour, et nous ressentons la joie, l’anticipation, l’excitation de monter toujours plus haut, de nous rapprocher toujours plus de l’unification avec Dieu. Que Dieu nous bénisse tous dans ce voyage où nous travaillons dur. Ce labeur n’est pas dû à un sentiment d’obligation ni à une grande tension, mais c’est plutôt une expression d’amour et dans une expression d’amour vient la joie, vient la belle expérience de votre croissance continue et de votre service continu et de l’éveil de votre âme.
 
 Que Dieu vous bénisse, âmes bien-aimées. Puissiez-vous en effet vous élever jusqu’à des hauteurs élevées et aider vos frères et sœurs en leur tendant la main et en leur donnant une certaine élévation vers la lumière. Dieu vous bénisse, je suis Matthieu et mon amour est avec vous, âmes bien-aimées, mon amour et beaucoup d’entre nous dans le royaume céleste prient et se concentrent sur vous tous alors que vous continuez à voyager et à vous éveiller et à devenir cette belle âme que vous êtes censés être. Dieu vous bénisse, Dieu vous bénisse tous, mes bien-aimés.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

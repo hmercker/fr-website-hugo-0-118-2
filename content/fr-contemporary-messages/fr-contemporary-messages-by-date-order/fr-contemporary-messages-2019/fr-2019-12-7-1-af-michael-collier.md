@@ -40,3 +40,7 @@ Il y a beaucoup à faire, mes amis, et peu de temps pour le faire. Vous pouvez a
 Que Dieu vous bénisse dans ce voyage, âmes bien-aimées. Je suis votre ami, Michaël Collier. Je continue à être avec vous dans vos conversations et vos réflexions, vos prières, en suppliant Dieu de vous bénir continuellement. Mais cette grande bénédiction de Dieu doit s'accompagner d'une réponse d'amour et de service et d'une prise de conscience que votre monde est profondément désespéré et a besoin de vos efforts, de votre sagesse, de la Vérité que vous connaissez, pour se manifester.
 
 Que Dieu vous bénisse, mes amis. Que Dieu continue à vous bénir et à vous garder dans sa lumière, à vous fortifier chaque jour et à vous montrer le chemin. Que Dieu vous bénisse. Mon amour est avec vous. Je suis Michaël Collier. Merci, mes amis.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

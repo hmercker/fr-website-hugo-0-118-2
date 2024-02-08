@@ -9,7 +9,7 @@ weight:
 ---
 ### La plus grande force vient de Dieu
 
-Jeanne d'Arc - reçu en 1969, Vancouver, Colombie-Britannique, Canada.
+Jeanne d'Arc<sup id="a1">[1](#f1)</sup> - reçu en 1969, Vancouver, Colombie-Britannique, Canada.
 
 Cela fait si longtemps que j'attends de parler, mes amis. C'est une condition merveilleuse ici ce soir et je vais vous parler franchement.
 
@@ -22,9 +22,15 @@ Sur votre plan terrestre aujourd'hui, les hommes et les femmes sont malheureux e
 De nombreux dirigeants sont tellement occupés qu'ils ne prennent pas le temps de se fortifier. Il n'y a rien ni personne sur votre plan terrestre qui puisse apporter l'amour, l'harmonie, la paix et le bonheur à tous, si ce n'est l'Amour de Dieu. Dieu souhaite que vous soyez en sécurité et libérés de la peur et c'est à vous, qui consacrez votre vie, d'essayer d'aider les autres à être forts et fortifiés. Soyez un bon leader, rayonnez de force et de sagesse. Vous pouvez le faire lorsque vous prenez le temps de vous rapprocher de Dieu, préparés et dignes de recevoir Sa grande bénédiction d'Amour Divin. Votre monde en a tellement besoin aujourd'hui, mes amis.
 
 Ne pensez pas que nous venons à vous pour vous parler sans rien faire. J'ai déjà mené une croisade et j'espère et je prie pour que Dieu me laisse vous aider à mener la vôtre. Bonne nuit et que Dieu vous bénisse.
+<small>
 
+1. <large id="f1"> Jeanne d'Arc s'est également exprimée dans les messages suivants  : [↩](#a1)
 
-
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Jeanne d'Arc | [Et si je [Jeanne d’Arc] n’avait pas été exécutée ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-26-3-gmb-joan-d'arc/) | 26 Décembre 2006
+Jeanne d'Arc | [S'avancer pour Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-15-1-af-joan-darc/) | 15 Novembre 2017
+Jeanne d'Arc | [La prière avec les Liens de l'Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-30-3-af-joan-d'arc/) | 30 Mars 2023
 
 ### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
 

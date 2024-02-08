@@ -33,4 +33,6 @@ Ainsi, mes amis, rappelez-vous la vérité de l'amour éternel et constant de Di
 
 Je vous aime, et je prie pour votre bonheur et votre bien-être, car vous êtes mes disciples bien-aimés, et je suis toujours avec vous - votre frère en Christ, Jésus.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)
+### [**Lien vers les messages des années 2002**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

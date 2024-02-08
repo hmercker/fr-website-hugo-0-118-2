@@ -22,3 +22,8 @@ Dans cette prière, dans ce cercle de lumière, dans le rayonnement de l’amour
 Je vous encourage à marcher avec un cœur ouvert et à vous souvenir de Dieu. Demandez à être en harmonie avec la Volonté de Dieu. Demandez depuis votre âme. Il est bon d’avoir des connaissances de ce genre, mais je dis qu’il est encore mieux d’être l’amour, reposant dans les bras de Dieu, tous enfants du Créateur. En ayant confiance en cela, votre foi peut vous porter en sachant que vos prières seront toujours exaucées. Parfois d’une manière que vous ne pouvez pas voir, mais peut-être que plus tard, vous réaliserez le résultat. Restez dans la félicité et dans la joie de l’Amour de Dieu et toutes choses vous seront données comme promis.
 
 Je suis votre frère et ami en Christ. Je suis Luc. Allez en paix et dans l’Amour de Dieu.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

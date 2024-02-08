@@ -24,3 +24,7 @@ C’est la véritable rédemption, âmes bien-aimées. Car avec cette guérison 
 Mes amis bien-aimés, soyez dans la grâce de Dieu. Cherchez Son Amour maintenant. Ouvrez-vous à Son contact et toutes ces choses dont je parle seront vôtres. Avec le temps, vous trouverez votre chemin et vous en connaîtrez la joie, l’émerveillement et la beauté. Votre âme s’anime, s’éveille et se transforme dans l’amour.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Mylora, et je viens prier avec vous. Je suis votre amie. Je suis avec vous et je le serai alors que nous faisons ce voyage ensemble, âmes bien-aimées. Que Dieu vous bénisse. Dieu vous bénit profondément dans Son Amour, et je vous aime.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

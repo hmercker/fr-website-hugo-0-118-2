@@ -23,4 +23,6 @@ Ce qui m'amène à dire que tout comme les ténèbres ont eu un plan organisé, 
 
 Et maintenant, votre esprit proteste et dit, ils ont accumulé tant de pouvoir et d'argent. Je vous répète donc ce que vous dites aux autres depuis des mois : qui est plus puissant, eux ou Dieu ? Nous voyons, à partir de n'importe quel malheur et de n'importe quelle malchance qui sont arrivés en Europe, une suite heureuse. Vous m'avez donc canalisé avec précision, ce soir et par le passé.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

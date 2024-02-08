@@ -25,4 +25,6 @@ Beaucoup de choses n’en sont qu’à leurs débuts et il y a beaucoup plus à 
 
 Continuez à prier, cherchez votre Père Céleste de tous vos cœurs et de toutes vos âmes, de toutes vos aspirations et de tous vos désirs, et il vous sera donné, et vous serez soutenus, et bénis puissamment, car votre temps est venu. Dieu vous donne ce dont vous avez besoin pour être Ses instruments de Lumière, de changement et d’Amour dans ce monde. Ouvrez vos oreilles, ouvrez vos yeux, priez vos prières avec un désir sincère et sérieux et mes mots sonneront vrai et vous arriverez à connaître votre vrai moi et votre vrai but dans ce monde. Que Dieu vous bénisse, votre ami bien-aimé Alec est toujours avec vous et je vous aime tendrement. Que Dieu vous bénisse.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015)
+### [**Lien vers les messages des années 2015**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -28,3 +28,7 @@ Al : Non. Non, je ne le vois pas comme toi. Je dois avoir les yeux fermés pour 
 *[Jeanne : Il ne voit pas comme moi.]*
 
 *[Darlene : Les détails plus complexes qu’Al a partagés, je ne les ai pas tellement vus ou compris. J’ai ressenti un immense don d’Amour Divin. Il s’est simplement déversé dans mon âme. Nous étions tous dans cette incroyable lumière de Dieu. Tous ceux d’entre nous qui priaient et tous ces cercles de personnes, tellement nombreux. C’est une grande nouvelle dans le monde spirituel qui s’est produite. Tout le monde est autorisé. Tout le monde est autorisé à voir et à faire partie de cela. Donc, c’est juste la grande Lumière de Dieu qui induit la prière avec nous tous, en train de prier. Cette lumière est juste si puissante qu’elle m’a fait pleurer. C’était si puissant à l’intérieur de mon âme. Merci. C’est tout ce qui est important.]*
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

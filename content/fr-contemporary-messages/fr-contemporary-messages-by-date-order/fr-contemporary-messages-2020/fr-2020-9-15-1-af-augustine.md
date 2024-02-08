@@ -30,3 +30,7 @@ Vous, âmes bien-aimées, profitez pleinement de ces bénédictions dans vos pri
 Ne résistez pas dans votre mental. Mettez de côté vos préoccupations, vos peurs, vos doutes, votre douleur. Venez à Dieu pour être embrassés, pour être guéris, pour être aimés. De cette façon, vous deviendrez les précurseurs de ce qui est destiné à toute l’humanité et un grand exemple de ses dons et intentions pour chaque âme du monde. C’est à vous de choisir comme toujours, à vous d’examiner, de contempler, de prier, de vous aligner. Vous trouverez votre chemin. Vous avez de nombreux anges qui sont avec vous, qui vous assistent, qui vous appellent à avancer, qui vous aident à vous aligner sur Dieu. Utilisez le pouvoir de la prière, âmes bien-aimées. Utilisez la connaissance de la vérité que chacun de vous porte. Exprimez vos profonds désirs à Dieu et tout viendra en temps voulu, avec de grandes bénédictions, avec une grande joie.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre enseignant Augustin et mon amour est avec vous. Mon amour, mes prières, mon désir que vous soyez tous élevés est que vous atteigniez les grands royaumes de lumière que Dieu a préparés pour ses enfants. Que Dieu vous bénisse. Que Dieu vous bénisse, mes chers.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

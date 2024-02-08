@@ -11,7 +11,7 @@ weight:
 
 Wat Tyler <sup id="a1">[1](#f1)</sup> - reçu par FAB le 14 Février 2009, Santa Cruz, Californie, USA.
 
-Je suis Wat Tyler.
+Je suis Wat Tyler.<sup id="a2">[2](#f2)</sup>
 
 Vous captez parfaitement nos pensées, alors ayez confiance en votre don.
 
@@ -45,5 +45,16 @@ En conclusion, les faits de guerre, avec toutes les atrocités et les tragédies
 <small>
 
 1. <large id="f1"> **Walter Tyler**, plus connu sous le nom de Wat Tyler (4 Janvier 1341 – 15 Juin 1381) a été le leader de la révolte des paysans anglais de 1381. Les connaissances sur les débuts de la vie de Tyler sont très limitées et proviennent essentiellement des archives de ses ennemis.Les historiens pensent qu’il est né dans l’Essex, mais ne savent pas exactement pourquoi il a traversé l’estuaire de la Tamise pour se rendre dans le Kent, d’où il a mené la révolte. (Source : Wikipedia)[↩](#a1)
+<small>
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+2. <large id="f2">  Wat Tyler s'est également exprimé dans les messages suivants : [↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Wat Tyler | [La négativité dans la guerre - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-16-1-fab-wat-tyler/) | 16 Février 2009
+Wat Tyler | [La négativité à la guerre - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-17-1-fab-wat-tyler/) | 17 Février 2009
+
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

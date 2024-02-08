@@ -24,3 +24,7 @@ Dieu déverse ses bénédictions sur vous en ce moment mes bien-aimés. De nombr
 Vous avez les uns les autres pour partager cela. Encouragez-vous et soutenez vous les uns les autres, mes bien-aimés. Soyez avides de cette élévation et débarrassez-vous des manteaux que vous portez et qui vous maintiennent piégés dans le monde, bien qu’ils soient en lambeaux et ne servent plus à rien, vous les portez encore, comme s’ils avaient une quelconque importance. Libérez-vous de vos manteaux, allez nus devant Dieu, mettez vos âmes à nu. Libérez-vous de tout ce qui l’empiète et soyez avec Dieu.
 
 Que Dieu vous bénisse. Je suis Matthieu et je vous aime.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

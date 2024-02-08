@@ -30,3 +30,7 @@ Et bien que vous soyez impatients et que vous sentiez que vous devez tout savoir
 Que Dieu vous bénisse, âmes bien-aimées, dans ce voyage. Nous, les anges de Dieu, sommes avec vous. Nous continuons à vous encourager, à vous soutenir, à vous montrer le chemin. Dieu continue de vous pousser à continuer avec Son Amour, afin que vous puissiez absorber autant de ce Grand Don que vous le pouvez. Car c’est la clé de tout, comme vous le savez bien ; la clé du voyage, la clé de l’ouverture de l’âme, la clé de l’éveil de tout cela à l’intérieur.
 
 Puissiez-vous continuer à prier pour ce Don et à prier pour être au service de votre monde, de l’humanité tout entière, et dans la Volonté de Dieu que tout ce qui doit être fait, soit fait et réalisé. Que Dieu vous bénisse, âmes bien-aimées, je suis Joseph. Mon amour est avec vous. Que Dieu vous bénisse, mes bien-aimés.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

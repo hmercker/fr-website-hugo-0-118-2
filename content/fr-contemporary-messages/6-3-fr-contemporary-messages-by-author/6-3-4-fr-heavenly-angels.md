@@ -330,6 +330,7 @@ Keea Atta Kem | [Ayez de la compassion pour vous-mêmes](/fr-contemporary-messag
 Keea Atta Kem | [Préparatifs de nos rassemblements de prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-11-1-af-keea-atta-kem/) | 11 Janvier 2023
 Keea-Atta-Kem | [Heureux d'être à nouveau réunis avec le groupe du Cercle des 7](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-13-1-af-keea-atta-kem/) | 13 Mars 2023
 Laila | [Marchez chaque jour dans Sa lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-19-3-af-laila/) | 19 Mai 2017
+La Joya | [Éléments utilisés dans la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-8-2-mc-la-joya/) | 8 Octobre 2020
 Le père du médium | [Aide aux pays en difficulté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-23-2-fab-medium’s-father/) | 23 Janvier 2007
 Leslie Stone | [Leslie Stone est très haut dans les Cieux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-11-7-2-fab-leslie-stone/) | 7 Novembre 2005
 Leslie Stone | [La mission de Leslie Stone.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-9-19-2-fab-leslie-stone/) | 19 Septembre 2007
@@ -338,6 +339,8 @@ Lorenzo | [Encouragements pour Alfredo](/fr-contemporary-messages/fr-contemporar
 Lorenzo | [Message personnel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-16-2-Alfredo-lorenzo/) | 16 Novembre 1999
 Lorna Scott | [Donnez aux autres, aimez les autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-13-1-af-lorna-kincaid/) | 13 Novembre 2016
 Lorna Scott | [Notre croissance dans l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-24-1-af-lorna-scott/) | 24 Novembre 2022
+Martha | [Un nouveau départ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-15-9-af-martha/) | 15 Décembre 2017
+Martha | [Je suis là pour vous aider](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-18-2-af-martha/) | 18 Décembre 2017
 Meera | [L’espoir change la réalité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-2-4-2-wv-meera/) | 4 Février 2004
 Meera | [Importance de la dualité et des limites](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-2-19-1-wv-meera/) | 19 Février 2004
 Mère du médiumn | [Dieu est juste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-8-1-fab-mother-of-medium/) | 8 Août 2007
@@ -605,9 +608,5 @@ Seretta Kem | [Un développement plus important est nécessaire pour la manifest
 Seretta Kem | [Les fascinantes distractions de l'intégration de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-4-1-af-seretta-kem/) | 4 Mars 2023
 Seretta Kem | [Développer la conscience de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-18-1-af-seretta-kem/) | 18 Mars 2023
 Seretta Kem | [Trouver l'équilibre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-21-2-af-seretta-kem/) | 21 Mars 2023
-Tahlia | [Semer les graines de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-1-1-af-tahlia/) | 1 Décembre 2016
-Tahlia | [Marcher dans la lumière à travers les bouleversements à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-2-1-af-tahlia/) | 2 Octobre 2017
-Tahlia | [Connaître Dieu dans son grand fleuve d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-17-2-af-tahlia/) | 17 Mars 2018
-Tahlia | [Ce qui n'est pas en harmonie avec la création de Dieu s'écroulera](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-3-10-1-af-tahlia/) | 10 Mars 2019
 
 

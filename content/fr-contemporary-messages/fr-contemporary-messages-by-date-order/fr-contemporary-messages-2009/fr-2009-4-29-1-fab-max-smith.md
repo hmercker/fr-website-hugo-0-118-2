@@ -19,4 +19,7 @@ Mais le Créateur avait un point de vue différent, que nous avons découvert à
 
 Que les mortels sachent que chaque acte de violence et de cruauté qu'ils commettent devra être justifié, et que rien n'échappe aux yeux du Créateur.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

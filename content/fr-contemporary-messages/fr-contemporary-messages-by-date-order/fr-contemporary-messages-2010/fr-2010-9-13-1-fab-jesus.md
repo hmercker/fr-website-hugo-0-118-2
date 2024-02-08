@@ -19,4 +19,6 @@ Eh bien, ce sont en effet des réalités distinctes, mais elles étaient destin�
 
 Dans le même temps, il existe un royaume spirituel invisible qui s'exprime parfois de manière matérielle, comme c'est le cas ci-dessus, mais qui ne peut néanmoins jamais être assimilé au séculier ou au matériel. Il y a donc la vérité spirituelle, puis les actions qui expriment cette vérité sur le plan matériel, apportant ainsi le spirituel aux questions terrestres.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

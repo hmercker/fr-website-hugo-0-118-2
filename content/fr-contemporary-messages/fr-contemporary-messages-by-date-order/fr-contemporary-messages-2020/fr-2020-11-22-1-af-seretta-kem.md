@@ -26,3 +26,7 @@ Nous souhaitons que vous soyez forts, et nous souhaitons que vous soyez sages. N
 La maturité grandit en vous et il y a dans vos âmes une urgence d’accomplir son but, d’être ce canal d’amour brillant et éclatant, un instrument de la Volonté de Dieu dans le monde. Cela vient jour après jour, étape par étape. Cela vient avec vos prières sincères et dévouées. Cela vient avec vos actions guidées et votre service à l’humanité. Beaucoup de choses sont encore censées se produire, et se produiront sur ce chemin que vous empruntez. Ces efforts que vous faites assureront le déploiement de la volonté de Dieu. Soyez en harmonie ensemble. Soyez fidèles à votre chemin. Soyez fidèles à votre âme et venez à connaître Dieu plus profondément et pleinement en embrassant Son Amour, Sa Grande Âme, dans la communion et la prière.
 
 Dieu vous bénisse, âmes bien-aimées, je suis Seretta Kem et je continue à marcher avec vous sur ce grand voyage d’éveil. Mon amour est avec vous. Notre dévouement n’a pas cessé en ce qui concerne ces efforts. Au contraire, nous continuons à soutenir votre voyage individuel vers une plus grande lumière et harmonie et vers l’éveil de l’âme. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

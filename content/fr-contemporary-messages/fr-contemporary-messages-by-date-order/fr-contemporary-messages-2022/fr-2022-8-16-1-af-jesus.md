@@ -70,3 +70,7 @@ Ne sommes-nous pas vraiment bénis, mes bien-aimés, de savoir cela et de voyage
 Puissiez-vous être vraiment bénis, mes bien-aimés. Puissiez-vous vraiment parvenir à connaître ces choses dont j’ai parlé, car chaque cadeau est un cadeau de Dieu, qui vous donne le pouvoir et la possibilité d’avancer sur le chemin de la vérité, qui vous donne ce dont vous avez besoin pour vous éveiller au sein de votre âme, pour aller de l’avant avec joie, avec désir, avec une aspiration profonde qui sera satisfaite par le contact de son Esprit Saint, le cadeau de son amour qui vous est ainsi transmis.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis toujours avec vous. Mon amour pour vous et pour toute l’humanité est grand, car en eux se trouvent des potentiels et des dons, la possibilité d’expériences et de joies si merveilleuses. Ces choses que j’ai expérimentées et entretenues dans mon existence sont disponibles pour tous, un cadeau que Dieu a pour Ses enfants dont je suis simplement l’un. Que Dieu vous bénisse. Je suis votre frère et ami, Jésus, et je vous aime. Que Dieu vous bénisse, mes bien-aimés.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -36,3 +36,7 @@ Nous pouvons le faire pour vous, mais vous devez aligner votre âme avec Dieu po
 Ayez une attitude de prière, mes amis. Venez voir que c’est vraiment un voyage de changement, de transformation, alimenté par l’amour, alimenté par les bénédictions de Dieu sur nous tous. Puissions-nous continuer à voyager ensemble et nous trouverons notre chemin de manière surprenante, délicieuse, joyeuse et merveilleuse.
 
 Merci d’aller de l’avant et de permettre à ces efforts d’être faits sur vous et avec vous. Les récompenses seront grandes, mes amis. Le réveil sera vraiment merveilleux. Que Dieu nous bénisse tous alors que nous continuons à travailler ensemble. Que Dieu vous bénisse et vous garde dans Son Amour. Je suis Orion. Mon amour pour vous est grand. Mes frères et sœurs éloignés, c’est merveilleux d’être avec vous, d’apprendre à vous connaître, d’apprendre à apprécier la race humaine à travers vous. Que Dieu vous bénisse. Que Dieu vous bénisse tous, âmes bien-aimées.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -24,3 +24,7 @@ Le cher fils qui réside sur cette île apprécie que ses chers amis profitent d
 Il se peut que certains, à leur retour, ressentent, à un certain degré, un sentiment de déséquilibre qui, mes bien-aimés, en raison de la quantité d’Amour qui touche votre âme, peut-être perçu comme un re-calibrage et un équilibrage qui nécessitera un certain temps pour s’installer en vous. Il se peut également que certains passent par l’expiation, car comme vous le savez tous, c’est ce que l’on pourrait appeler un sous-produit de la réception de l’amour. Vous traversez des périodes de libération. Soyez indulgents avec vous-même. Si cela devait être le cas lorsque vous rentrez chez vous, permettez que votre corps et votre esprit passent par un degré d’expiation. Mais tout va bien, mes bien-aimés, car vous êtes portés par Dieu, nourris dans Son Amour et bercés dans Ses Bras. Permettez-vous donc de traverser tout cela avec un sentiment d’aisance et de bien-être, sachant qu’une fois que la libération aura eu lieu, une plus grande joie, une plus grande harmonie et une plus grande paix seront vôtres.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Keea Atta Kem rempli d’une grande joie en voyant la lumière, l’amour et l’harmonie qui existent entre vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

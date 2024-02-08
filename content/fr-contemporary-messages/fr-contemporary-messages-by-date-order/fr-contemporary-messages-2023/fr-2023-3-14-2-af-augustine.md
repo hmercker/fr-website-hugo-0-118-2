@@ -34,3 +34,7 @@ Vous êtes sur la bonne voie. Pourtant, il y a toujours des conditions, des situ
 Oui, le voyage est parfois difficile, mais pensez à toutes les récompenses, toutes les bénédictions, toute la lumière qui viennent de la grâce du Toucher de Dieu, de Son amour. Vous êtes entouré d’anges, vous avez toutes les opportunités de grandir et de donner. Votre vie est riche et belle au-delà de toute mesure. Vous êtes bénis, bien-aimés, profondément bénis par Dieu. Que Dieu continue de vous éveiller à la vérité, de vous amener à la vérité, de vous aider à exprimer la vérité dans votre vie. Vous êtes sur le chemin le plus élevé et vous avez appris la plus grande vérité.
 
 Puissiez-vous trouver votre chemin toujours plus haut sur cette pente vers une plus grande lumière. Il vous est donné gratuitement, âmes bien-aimées. Cela dépend simplement de votre volonté et de votre désir. Puissiez-vous continuer à grandir dans cette vérité et cet amour. Puissiez-vous être béni. Je suis votre enseignant, Augustin et je vous aime tant, mes élèves bien-aimés. Je vous aime tellement. Que Dieu vous bénisse. Que Dieu vous bénisse dans la vérité de l’Amour de Dieu. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

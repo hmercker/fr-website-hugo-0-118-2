@@ -9,7 +9,7 @@ weight:
 ---
 ### Bouclez votre ceinture
 
-Solomon - reçu par CC le 30 Juin 2003, New York, USA.
+Solomon<sup id="a1">[1](#f1)</sup> - reçu par CC le 30 Juin 2003, New York, USA.
 
 Je suis Salomon. Tu dois te réveiller. Prends les choses à bras le corps. Les moments sont courts, insignifiants à l’échelle de l’éternité. Fais de ton mieux. C’est tout ce qu’on te demande.
 
@@ -44,5 +44,11 @@ Je ne peux pas te le dire, comme je l’ai dit. Fais confiance au Père. Attends
 *[Serai-je heureux ?]*
 
 Oui, le bonheur viendra. Plus tôt que tu ne le penses. Bien plus que tu ne peux l’imaginer par toi-même. Accroche-toi. Nous allons suivre le déroulement des événements pour toi, car nous attendons aussi ton bonheur. Nous voulons te voir sourire à nouveau. Tu aimeras à nouveau beaucoup. Ta faiblesse te quittera. Attends et vois. Il ne reste plus beaucoup de temps pour s’accrocher. Le moment est venu. Nous t’aimons.
+<small>
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)
+1. <large id="f1"> Il est possible de lire les divers messages commuiqués par Salomon par l'intermédiaire de [ce lien](fr-contemporary-messages\6-3-fr-contemporary-messages-by-author\6-3-10-fr-historical-figures.md) :[↩](#a1)
+
+### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

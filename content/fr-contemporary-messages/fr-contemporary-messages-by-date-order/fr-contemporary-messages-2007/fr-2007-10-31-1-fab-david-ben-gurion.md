@@ -9,7 +9,7 @@ weight:
 ---
 ### Le Moyen-Orient et la vérité
 
-David Ben-Gurion - reçu par FAB le 31 Octobre 2007, Santa Cruz, Californie, USA.
+David Ben-Gurion <sup id="a1">[1](#f1)</sup>- reçu par FAB le 31 Octobre 2007, Santa Cruz, Californie, USA.
 
 C'est moi, David Ben-Gourion.
 
@@ -32,5 +32,16 @@ Il y a beaucoup d'esprits qui continuent à nier la vérité, même lorsqu'elle 
 Il y a beaucoup de gens maintenant au Moyen-Orient qui, comme vous, désirent obtenir la vérité sur l'histoire de cette région troublée. Mais même lorsque les gens nient la vérité dans une situation particulière, ils ne peuvent pas échapper aux conséquences des mauvaises actions qu'ils ont commises.
 
 Au fur et à mesure que l'histoire évolue, la vérité continuera à faire surface. Il a toujours été difficile pour les mortels d'être objectifs quant aux événements contemporains. Cela devient plus clair à mesure que le temps recule et que les passions cèdent la place à une enquête objective. J'ai simplement voulu que vous appliquiez votre connaissance de la vérité spirituelle à cette réalité difficile afin que vous ayez plus de clarté.
+<small>
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+1. <large id="f1"> David Ben Gourion s'est exprimé lors des messages suivants :[↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+David Ben-Gurion | [Le conflit Israelo-Palestinien](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-8-7-1-fab-david-ben-gurion/) | 7 Août 2006
+David Ben-Gurion | [Un dirigeant israélien complète son message précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-20-1-fab-david-ben-gurion/) | 20 Juillet 2007
+David Ben-Gurion | [Le Moyen-Orient et la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-10-31-1-fab-david-ben-gurion/) | 31 Octobre 2007
+
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

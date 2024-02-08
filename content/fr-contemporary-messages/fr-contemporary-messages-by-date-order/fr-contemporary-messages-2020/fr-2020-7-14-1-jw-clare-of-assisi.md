@@ -22,3 +22,7 @@ C’est ce que nous a appris notre cher frère François lorsqu’il nous a expl
 Que Ses bénédictions soient répandues sur chacun de vous afin que vous puissiez vivre et marcher dans ce monde dans la Grâce.
 
 Que Dieu vous bénisse. Je suis Claire.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

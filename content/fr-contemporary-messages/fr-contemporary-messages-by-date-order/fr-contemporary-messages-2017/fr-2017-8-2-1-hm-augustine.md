@@ -24,3 +24,7 @@ Faites confiance à Dieu, faites confiance à vous-même, faites confiance à ce
 Faites confiance à Dieu. Dieu sait. Dieu a un plan et nous faisons tous partie de ce plan. Vous aussi, ma chère protégée, vous aussi. Priez pour une plus grande compréhension, pour un plus grand désir de participer, pour un plus grand engagement, pour une plus grande confiance en vous-même, en vos dons, en votre contribution. Cela sera révélé avec le temps, comme vous l'avez expérimenté par petits bouts, et c'est là toute la beauté : Un pétale à la fois, la fleur s'épanouit, elle s'épanouit pleinement. Elle a besoin de temps et comme les rayons du soleil rayonnent de la fleur, l'Amour de Dieu vous touche en vous apportant chaleur et lumière.
 
 Mon cher enfant, je vous aime. C'est Augustin et je vous salue pour cette journée et je vous remercie de me laisser parler. Soyez béni mon cher enfant. Que Dieu vous bénisse puissamment. Nous vous aimons et nous marchons avec vous. Vous n'êtes jamais seul. Nous marchons avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

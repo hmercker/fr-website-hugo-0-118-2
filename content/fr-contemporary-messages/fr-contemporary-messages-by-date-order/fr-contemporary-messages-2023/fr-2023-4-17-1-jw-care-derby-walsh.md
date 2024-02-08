@@ -26,3 +26,7 @@ Je sais que parler de la vérité à ceux qui pourraient être les plus opposés
 Avec tout mon amour et la joie glorieuse de mon cœur, je vais reculer et me joindre à vous dans cette belle prière. Que Dieu vous bénisse tous par un grand afflux de son amour.
 
 Je suis Care.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

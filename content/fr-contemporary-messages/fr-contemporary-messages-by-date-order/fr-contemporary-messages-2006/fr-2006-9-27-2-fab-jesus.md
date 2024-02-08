@@ -25,5 +25,6 @@ Vous voyez donc que je n'étais pas aussi radical pour mon époque qu'on le croi
 
 Il est temps que ma vie et mes enseignements soient enfin considérés dans leur contexte. Je suis conscient qu'il y a eu un mouvement général de la part des Chrétiens païens pour comprendre leurs racines Juives, et pour cela, je me réjouis. Mais le processus doit aller jusqu'au bout, car il est impossible de comprendre correctement mon message sans comprendre également les différents courants de pensée de mon époque.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
 
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

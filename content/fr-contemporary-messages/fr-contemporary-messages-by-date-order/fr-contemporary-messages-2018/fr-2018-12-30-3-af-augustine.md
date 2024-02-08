@@ -36,3 +36,7 @@ C’est la grande aventure de la vie, âmes bien-aimées, la grande aventure de 
 Âmes bien-aimées, sachez que nous sommes avec vous, que vous êtes profondément aimés et, avec chaque jour qui passe, vous connaîtrez cet amour dans une plus grande mesure. Nous continuerons à faire de grands efforts pour vous aider dans votre croissance spirituelle, vos éveils d’âme et vos efforts pour apporter la lumière dans ce monde. Nous sommes avec vous et la main de Dieu est sur vous, âmes bien-aimées. Les ressources du Royaume Céleste continueront à couler et à aider l’humanité à venir à l’harmonie et à la lumière.
 
 Que les bénédictions de Dieu de Son Amour continuent à couler dans vos âmes, mes bien-aimés, et trouvent chaque faille et chaque brèche de votre âme afin que vous puissiez guérir et vous réveiller, pour faire vivre ce qui est en vous, les âmes aimées. Que les bénédictions de Dieu soient sur vous. Je suis votre enseignant Augustin et mon amour est avec vous. L’Amour de Dieu se déverse sur vous. La lumière, la belle lumière, vous entoure. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

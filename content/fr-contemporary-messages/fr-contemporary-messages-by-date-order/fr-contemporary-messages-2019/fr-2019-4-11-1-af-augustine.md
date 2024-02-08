@@ -34,3 +34,7 @@ Alors, mes chers et beaux amis, acceptez le chemin de l'individu, peu importe la
 Votre but commence, âmes bien-aimées, le réveil est en cours. L'amour au sein de votre âme insiste pour que l'âme soit reconnue, pour que l'âme ait sa place dans votre être, guidant et dirigeant vos vies. Écoutez, âmes bien-aimées, écoutez les battements de votre âme, les intuitions qui viennent de toutes ses myriades de façons, comme un kaléidoscope de couleurs qui atteignent votre moi conscient et s'expriment dans de nombreux, nombreux aspects de qui vous êtes. La vérité et la volonté de Dieu se manifesteront de plus en plus profondément à mesure que vous poursuivrez jour après jour vos prières et votre croissance spirituelle, vos efforts et votre être.
 
 Que Dieu vous bénisse, âmes bien-aimées, dans ce voyage. Je suis votre enseignant Augustin et je continue à vous aider sur ce voyage d'amour et d'éveil, où mon amour pour vous est grand, mon dévouement à votre élévation et à l'éveil de votre âme est une partie sincère et volontaire de ma vie et de mon être. Je vous aime mes bien-aimés, je vous aime profondément. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

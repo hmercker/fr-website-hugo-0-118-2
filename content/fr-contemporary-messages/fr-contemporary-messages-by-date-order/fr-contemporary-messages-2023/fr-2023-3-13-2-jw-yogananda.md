@@ -16,3 +16,7 @@ C’est moi, Yogananda. Je viens dans l’Amour de Dieu, votre frère en Christ.
 Lorsque des pensées surgissent, permettez à l’amour de dissoudre toute distance, tout doute. Laissez votre cœur s’ouvrir afin que vous puissiez vous épanouir dans la bénédiction de cet espace, ce cercle sacré, ce treillis de lumière, embrassant le monde, Envoyez de l’amour, soyez amour, parlez d’amour, chantez l’amour, marchez dans l’amour, travaillez dans l’amour, réjouissez-vous amoureux. Réveillez-vous dans la gratitude car ce grand cadeau est le vôtre, est le mien, est pour tous pour la demande. Soyez tranquille.
 
 Nous louons Dieu de qui découlent toutes les bénédictions. Je reculerai et serai avec vous dans Sa gloire. Je suis votre frère et ami éternel dans l’amour de Dieu. Je suis Yogananda. Que Dieu te bénisse.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

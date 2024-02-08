@@ -32,3 +32,7 @@ Ne doutez pas, âmes bien-aimées, que chacun a de grands dons. Chacun peut mett
 Comme je l’ai dit, lorsque l’âme et l’esprit sont de concert, la musique se déploie dans toute sa beauté. Puissiez-vous trouver votre chemin vers ces efforts créatifs qui apporteront de la joie à votre cœur, une compréhension plus profonde à votre âme et une plus grande expression de l’Amour de Dieu qui réside en vous et qui est une grande lumière qui motivera vos expressions. Chacun de vous est beau. Chacun d’entre vous est sur la route de la découverte de ce qu’est cette beauté et peut se manifester dans le monde.
 
 Bénédictions à vous, âmes bien-aimées. Puisse Dieu vous inspirer, vous élever avec son amour en vous apportant de nouvelles perspectives et capacités pour exprimer les merveilles de votre âme à travers l’instrument de votre esprit et de vos imaginations. Que Dieu vous bénisse, âmes bien-aimées. Je suis Flavius Josèphe. Je suis heureux de vous avoir parlé aujourd’hui des aspects magnifiques et édifiants de l’âme. Que Dieu vous bénisse. Mon amour est toujours avec vous. Je suis votre serviteur, Flavius Josèphe.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

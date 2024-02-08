@@ -33,11 +33,15 @@ Et si ma déclaration était tout simplement vraie ? Je sais que c’est une pen
 
 Je vais terminer ici. Si vous voulez, je continuerai cette discussion particulière dans de futures canalisations.
 
-Moïse s'est également exprimé lors des messages suivants :
+<u>Note</u> : Moïse s'est également exprimé lors des messages suivants :
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
- | <p align="center">**De 2002 à 2010**</p> |
+ | <p align="center">**De 1969 à 2010**</p> |
+Moïse | [Aucun d'entre nous n'est une île](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-33-1969-11-3-anonymous-moses/) | 3 Novembre 1969
+Moïse | [Symboles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-70-1969-anonymous-moses/) |   1969
+Moïse | [Nos enseignements sont simples](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-73-1969-anonymous-moses/) |   1969
+Moïse | [Vivre selon des vérités simples](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-171-1969-anonymous-moses/) |   1969
 Moïse | [Le peuple élu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-7-1-ar-moses/) | 7 Avril 2002
 Moïse | [Moïse partage ses expériences](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-12-30-1-fab-moses/) | 30 Décembre 2002
 Moïse | [Moïse dans le désert](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-8-1-fab-moses/) | 8 Janvier 2003
@@ -76,5 +80,10 @@ Jésus & Moïse & Elie | [Bénédictions de lumière pour le monde](/fr-contempo
 Moïse | [Vient nous soutenir et éclairer notre chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-31-2-af-moses/) | 31 Mai 2022
 Moïse | [Surmonter les exigences du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-2-1-af-moses/) | 2 Avril 2023
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
 

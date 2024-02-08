@@ -20,3 +20,7 @@ En ce sens, nous devenons tous enfants du Père de la manière la plus belle et 
 Vous n’avez pas besoin de penser que cela doit être formel, d’être à genoux, d’avoir des perles de prière ou un chapelet ou un mantra ou des mots particuliers. Je vous suggère de permettre aux intentions de vos âmes de se manifester au cours de votre journée par cette demande plus profonde : *« Cher Dieu, j’ai besoin de sentir Ton amour, s’il te plaît, touche mon âme, protège-moi de tout mal, de toute négativité, permets-moi d’être une bénédiction pour tous. »* On peut faire cela à n’importe quel moment de la journée et de la nuit et comme vos prières s’ouvrent pour recevoir la lumière et l’amour de notre Père céleste, cela sera à vous.
 
 Je suis votre frère et ami dans l’Amour de Dieu et un disciple du Maître dans les cieux Célestes. Que Dieu continue à vous embrasser dans son Amour et à vous changer pour que la grande Joie soit vôtre. Que Dieu vous bénisse. Je suis François.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

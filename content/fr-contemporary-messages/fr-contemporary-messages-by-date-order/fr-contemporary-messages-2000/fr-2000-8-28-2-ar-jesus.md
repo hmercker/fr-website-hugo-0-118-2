@@ -29,5 +29,8 @@ Je vous aime, mes disciples. Prenez courage et soyez joyeux car le jour vient et
 
 Je suis Jésus, votre frère et ami et participant à l’Amour Divin de notre Père Céleste.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+
+### [**Lien vers les messages des années 2000**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

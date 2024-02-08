@@ -18,3 +18,7 @@ Je suis André. Mon amour est avec vous, mes frères bien-aimés. Puissiez-vous 
 Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous élève et vous porte au-delà des mondanités de ce monde pour éveiller la connaissance de Dieu dans vos âmes. Ce n’est qu’une prière, un contact, alors que vous vous ouvrez et recherchez ce cadeau, apportant ce cadeau une partie à la fois dans vos âmes, relâchant ces conditions en vous, ces énergies sombres que chaque âme dans ce monde porte d’une vie vécue dans ce monde. Petit à petit, Dieu vous débarrasse de ces conditions en les remplaçant par Son Amour. En le respirant, ouvrez-vous à ce don qui s’infiltre dans tous les coins et recoins de votre âme, ces chambres qui ont tant besoin du toucher du Père.
 
 Ce don de grâce est pour vous, mes chers amis bien-aimés. Ce don de grâce vous élèvera, vous guérira et vous rapprochera toujours plus de Dieu. Puissiez-vous ressentir la Paix qui dépasse toute compréhension. Puissiez-vous connaître votre Créateur d’une manière personnelle, connaître vraiment Dieu, avoir cette relation profonde avec votre Créateur, personnelle, belle, sacrée. Marchez avec Dieu, mes bien-aimés, marchez avec Dieu. Que Dieu vous bénisse. Je suis André et je t’aime.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

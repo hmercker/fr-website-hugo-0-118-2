@@ -50,3 +50,7 @@ C’est notre enseignement, fille bien-aimée, que lorsque tu demandes vraiment 
 Oui, je dois y aller maintenant. Il est en effet difficile pour cet instrument de continuer à répondre à ces questions en ce moment, mais nous nous réunirons à nouveau et nous aurons ces conversations. Nous sommes heureux de pouvoir le faire et nous sommes heureux que cet instrument soit capable de maintenir cette condition pour que nous puissions le faire. Que Dieu vous bénisse dans Son Amour, âmes bien-aimées. Puissiez-vous arriver à connaître votre vrai moi. Que toutes ces conditions de la condition humaine se dissolvent dans cette Bénédiction d’Amour, afin que vous puissiez connaître la paix et la joie profondes, la sagesse et la Vérité profondes, l’Amour glorieux qui vient de Dieu. Toutes ces choses vous sont données avec cette seule Vérité de l’Amour de Dieu.
 
 Que Dieu vous bénisse, je suis votre maître Augustin. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

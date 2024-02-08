@@ -32,8 +32,8 @@ Je sens que votre esprit est tiraillé par vos devoirs. Il est l’heure de s’
 <u>Joseph</u> : Merci aussi à Geoff<sup id="a1">[1](#f1)</sup> pour sa question. J’aime jouer au ballon avec lui, pour ainsi dire. Adieu. (Joseph le jeune)
 <small>
 
-1. <large id="f1"> Il ss'agit de Geoff Cutler fondateur [du site Web](https://new-birth.net/) et [du site  Web](https://soultruth.ca/) [↩](#a1)
+1. <large id="f1"> Il s'agit de Geoff Cutler fondateur [du site Web](https://new-birth.net/) et [du site Web](https://soultruth.ca/) [↩](#a1)
 
+### [**Lien vers les messages des années 2004**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004)
-
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

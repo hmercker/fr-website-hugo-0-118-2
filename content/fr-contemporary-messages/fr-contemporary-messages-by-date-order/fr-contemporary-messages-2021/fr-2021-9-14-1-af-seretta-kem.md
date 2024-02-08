@@ -30,3 +30,7 @@ Dans le passé, nous avons mis l’accent et nous continuerons à mettre l’acc
 Vous verrez beaucoup de choses qui ont été un mystère pour vous. Vous apprendrez à connaître des aspects de vous-même qui ont été un mystère. En cela, vous éprouverez un sentiment d’accomplissement, de sagesse, de joie, car qui ne souhaite pas connaître la Vérité de la création de Dieu ? Si vous souhaitez vous cacher de la vérité, alors je vous dis que vous êtes sur un chemin qui révélera la vérité en profondeur, en beauté et en émerveillement, ce qui peut être un défi pour votre esprit mais affirmera la vérité de votre âme.
 
 Vos esprits sont très certainement une chose perplexe et contradictoire en vous. Votre esprit est le reflet d’éons de conditionnement ancestral qui se sont infiltrés jusque dans votre constitution génétique. Ainsi, en ce qui concerne ces choses dont je parle, il y a une réaction réflexe de doute et de rejet de ces expériences et perceptions. Pour contrecarrer cette condition inhérente en vous, il y a le grand pouvoir de l’Amour Divin dans votre âme. Les changements qui accompagnent ce don, la transformation qui continue à avoir ses effets sur vous, corrigeront avec le temps cette erreur profondément ancrée qui est un reflet du mental.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

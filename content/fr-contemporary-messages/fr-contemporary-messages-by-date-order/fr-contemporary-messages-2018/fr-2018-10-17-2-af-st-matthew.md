@@ -28,3 +28,7 @@ Tant de choses vont venir mes bien-aimés de ce temps ensemble, tant de bénédi
 Comme nous l’avons dit à maintes reprises, beaucoup de choses vous attendent, âmes bien-aimées, tellement de choses. Puissiez-vous continuer à vous éveiller, à connaître votre véritable moi et à être toujours avec Dieu dans le flux de Son Amour, si profond et pur, si puissant et nettoyant de vos inhibitions et conditions qui doivent tomber de vos âmes bien-aimées. Dieu s’approche de vous avec une telle puissance et un tel amour. Comme vous êtes vraiment bénis, comme votre chemin est beau, comme vous avez de la chance d’être sur ce voyage d’éveil. Tout cela parce que vous avez accepté la vérité et que vous vous êtes engagés dans cette voie. Tout cela parce que vous avez fait confiance à Dieu et pris la décision de vous tourner vers la lumière et de vous débarrasser de tout ce qui n’est pas de la lumière. Cela apporte une telle joie à Dieu, et cette joie brûlera également dans vos cœurs pour toute l’éternité.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Matthieu, je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

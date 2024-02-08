@@ -24,3 +24,7 @@ Que Dieu vous bénisse avec Son grand afflux d'Amour, mes frères et sœurs bien
 Je vous dis, mes bien-aimés, que lorsque ces perceptions et ces prises de conscience, ces visions et ces compréhensions vous parviendront, vous connaîtrez une joie si profonde, une félicité si profonde dans l'éveil de votre âme que la vie prendra une teinte et une compréhension entièrement différentes. Cela vient avec l'âme éveillée et cela viendra à chacun d'entre vous, âmes bien-aimées.
 
 Que Dieu vous bénisse et vous garde dans son amour. Je suis Augustin, votre enseignant. Je suis heureux que vous vous réunissiez pour discuter de ces sujets plus profonds. Il est important d'explorer et d'arriver aux réalisations que Dieu est désireux de donner et votre âme attend ces bénédictions. Que Dieu vous bénisse, mes bien-aimés. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

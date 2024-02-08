@@ -35,4 +35,6 @@ Ayez confiance en votre bonté. Ne doutez pas de l’efficacité de votre amour,
 
 Jean l’Apôtre et participant de l’Amour Divin de Dieu.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)
+### [**Lien vers les messages des années 2001**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

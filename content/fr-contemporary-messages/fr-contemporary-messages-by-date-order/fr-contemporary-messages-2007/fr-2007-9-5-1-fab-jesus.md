@@ -23,4 +23,7 @@ Ce que Gandhi et Martin Luther King, Jr. ont défendu est la véritable signific
 
 En tant que plus grandes créations de Dieu, nous devons absolument nous battre pour nos propres droits.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

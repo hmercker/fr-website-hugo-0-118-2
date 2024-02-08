@@ -46,3 +46,7 @@ Voyez votre vie comme un grand couloir de portes. Chaque porte est une opportuni
 Beaucoup de choses viennent à chacun de vous sous forme de cadeaux et d’opportunités. Sachez qui vous êtes dans votre âme. Ne laissez pas votre esprit éclipser votre âme et apporter des doutes, des peurs, et ces choses qui sont de la condition humaine. Soyez clair. Soyez résolus. Ayez une grande foi. Cherchez toujours l’Amour. De cette façon, les dons que vous portez se manifesteront invariablement de nombreuses façons merveilleuses. Soyez fidèles à vous-mêmes, mes amis. Soyez fidèles à Dieu. Cherchez Son Amour et tout le reste suivra.
 
 Je suis votre ami Judas et mon amour est avec vous tous, âmes courageuses et merveilleuses prêtes à voyager sur la route la moins fréquentée, à rechercher la vérité la moins comprise dans votre monde, à être les hérauts de la vérité. Même si beaucoup sont sourds et muets, certains entendront. Mais en effet, vous allez semer de nombreuses graines sur votre chemin. Que Dieu vous bénisse, mes amis bien-aimés. Que Dieu vous bénisse tous. Mon amour est avec vous.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

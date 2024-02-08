@@ -28,3 +28,7 @@ J’ai eu un voyage inhabituel en effet, mais une grande leçon est apprise par 
 Vous êtes très bénis de l’avoir comme l’une de vos lumières directrices, comme nous tous qui continuons à apprendre de ceux qui sont plus avancés que nous, de plus grandes lumières que nous, ceux d’entre nous qui continuent à lutter pour un Amour toujours plus grand et une expansion de nos âmes sur ce Chemin Divin, cette route vers Dieu.
 
 Que Dieu vous bénisse, mes amis. Je suis Ramsès II et je suis heureux de m’adresser à vous aujourd’hui. Que votre chemin soit rempli de Lumière. Que vos cœurs soient remplis de joie. Puissiez-vous apprendre à connaître l’humilité et la joie qui accompagnent le service et l’amour de vos frères et sœurs. Je suis heureux de vous parler et de partager mon histoire. Que Dieu vous bénisse et vous garde dans sa lumière. Je vous bénis.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

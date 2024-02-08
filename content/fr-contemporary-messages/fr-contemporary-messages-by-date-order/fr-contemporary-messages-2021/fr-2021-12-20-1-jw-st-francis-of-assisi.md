@@ -16,3 +16,7 @@ C’est moi, votre frère en Christ, François. Dans mes premiers jours sur Terr
 Chaque fois que vous êtes confronté à ce qui est moins que l’amour, envoyez cette demande, cette prière de protection, de grâce. Et lorsque vous faites cela, toute négativité qui vous entoure se dissipe, car l’Amour Divin entre en jeu et harmonise la situation. Alors oui, priez pour la Terre, priez pour le monde, envoyez cet amour que vous avez dans vos âmes, envoyez cette lumière, ce beau, comme vous dites, treillis de lumière. Laissez-la embrasser le monde et l’élever, comme elle vous élève au-dessus du monde, au-dessus de vos préoccupations et de vos problèmes, dans la joie, dans la grâce, dans la félicité de Dieu.
 
 Que tous ici reçoivent ce grand cadeau, cette pluie d’Amour. Je vais me retirer et être avec vous dans cette bénédiction, et je vous remercie. Je suis votre frère dans le Christ, François d’Assise, désormais ange Céleste et votre ami éternel sur ce chemin de l’Amour de Dieu. Allez en paix et que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -22,3 +22,7 @@ Dieu a impliqué toutes les puissances de l’univers pour s’assurer que Son p
 Je proclame ceci à votre monde ; que le monde sera guéri et réveillé et que la vie sera réveillée d’une manière qui n’a pas été réveillée dans le passé, que la lumière sera présente d’une manière qui n’a pas été présente dans le passé, que tout viendra à la gloire de Dieu, le Très Haut et Merveilleux Créateur.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis l’Archange Michael. Je n’ai pas parlé à travers cet instrument auparavant mais je viens avec ce message. Je vous exhorte à apporter ce message dans vos cœurs, vos âmes et vos esprits afin que vous puissiez vraiment croire. Que Dieu vous bénisse. Que Dieu vous bénisse tous.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

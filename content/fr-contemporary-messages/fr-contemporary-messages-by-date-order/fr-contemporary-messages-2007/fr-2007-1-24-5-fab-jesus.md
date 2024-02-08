@@ -23,4 +23,7 @@ Lorsque j'ai parlé de "réceptivité" dans le paragraphe précédent, je voulai
 
 C'est ainsi que les premiers disciples, qui, même après avoir entendu parler de l'Amour Divin, ne l'avaient pas compris et n'avaient donc pas pris les mesures appropriées pour l'acquérir, ont néanmoins fini par posséder cet Amour, lorsque le chagrin et la vulnérabilité, et particulièrement mon apparition après ma mort, les ont amenés à cet état d'âme qui leur a permis de comprendre enfin mon message.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

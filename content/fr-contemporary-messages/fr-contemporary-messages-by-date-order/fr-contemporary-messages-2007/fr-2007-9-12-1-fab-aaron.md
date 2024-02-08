@@ -23,4 +23,7 @@ Vous vous demandez pourquoi ces pouvoirs m'ont été donnés s'ils n'ont pas abo
 
 Sa fierté avait été érodée progressivement, chaque incident allant crescendo, jusqu'à ce que Dieu nous accorde la victoire. Mes pouvoirs l'ont forcé à admettre que mon Dieu était réel et puissant. Il ne restait plus qu'à déloger son orgueil.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

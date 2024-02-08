@@ -20,3 +20,7 @@ Ne réprimez pas vos émotions. Ne pensez pas que vous devez contrôler ces sent
 Puissiez-vous trouver votre chemin chaque jour et recevoir cette bénédiction de l’Amour qui ouvre la porte à toutes ces parties de votre âme qui aspirent à être exprimées, à être libérées de la tyrannie du mental et à avoir le champ libre dans votre expérience de la vie. Car avec cette profondeur vient une grande sagesse, une grande perception, une grande sensibilité. Ce sont les choses que vous désirez ardemment lorsque vous atteignez Dieu, lorsque vous désirez connaître vos anges amis. L’ouverture de vos sentiments est la clé de cette porte qui vous permettra une telle perspicacité et une telle connaissance.
 
 Sachez que vous êtes profondément aimés, et puissiez-vous aimer profondément. Puissiez-vous arriver à connaître les sentiments profonds de vos cœurs et de vos âmes, car c’est une manifestation de votre véritable moi. Dans les cadeaux que Dieu vous fait, ces choses vont émerger, grandir et fleurir dans votre expérience de la vie. Acceptez cela, sachez que cela fait partie des dons de Dieu, de la Création de Dieu en vous, et vous trouverez une libération, une exaltation, une beauté et une joie qui viendront avec l’éveil de votre cœur avec les grandes bénédictions d’Amour de Dieu.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

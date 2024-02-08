@@ -16,3 +16,7 @@ Je souhaite vous remercier tous pour votre service à Dieu, pour votre dévoueme
 Nous poursuivrons nos efforts pour vous unir, vous bénir, vous inspirer. En tant qu’anges de Dieu, instruments de lumière, nous sommes là pour vous accompagner dans vos voyages et vous préparer aux instruments que Dieu a prévus pour chacun de vous. Écoutez avec les oreilles de vos âmes. Comprenez depuis cet endroit profond en vous. Sachez que vous êtes guidés, que vous continuerez à grandir dans l’Amour, que nous continuerons à vous assister et à faire partie intégrante du plan de Dieu pour le salut de l’humanité et la guérison de ce monde et de tous les mondes dans l’Amour.
 
 Que Dieu vous bénisse et nous vous remercions. Nous sommes avec vous. Notre amour est avec vous. L’Amour de Dieu nous infuse tous dans cette grande lumière et compréhension. Je suis Keea. Dieu vous bénisse et bonne journée. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

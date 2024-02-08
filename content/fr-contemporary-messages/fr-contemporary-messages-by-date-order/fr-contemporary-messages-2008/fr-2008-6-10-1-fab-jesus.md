@@ -19,4 +19,6 @@ Et oui, certains membres du Congrès ont fait de bonnes choses. Comme à toutes 
 
 L'accent mis sur le profit financier ne peut pas continuer de la manière actuelle. Le changement a déjà eu lieu et va s'accélérer. Il y aura une transformation, qui sera basée sur la loi. Et ce changement se produira grâce à un changement de cœur de la part de beaucoup.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

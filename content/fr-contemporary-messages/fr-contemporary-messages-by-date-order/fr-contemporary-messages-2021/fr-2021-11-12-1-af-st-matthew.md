@@ -28,3 +28,7 @@ Lorsque cela est fait de manière à ce qu'il y ait de la lumière, des ouvertur
 Puissions-nous nous rassembler dans l'unité, en comprenant clairement que nous sommes ici pour être avec notre Créateur, notre Père Céleste, pour nous ouvrir à tout ce que Dieu a à nous donner, pour nous libérer de tout ce qui nous éloigne de Dieu. Ainsi, nous pourrons nous réjouir ensemble de ce lien et de cette expérience qu'est la bénédiction de Dieu sur nous. Soyez en paix, mes beaux amis. Sachez que vous êtes vraiment aimés et que nous prions ensemble dans ce grand but de libérer l'âme et de vous éveiller à toutes les gloires et à tous les émerveillements que Dieu offre à Ses enfants.
 
 Que Dieu vous bénisse, âmes bien-aimées, que Dieu vous bénisse dans Son Amour. Nous sommes ici maintenant dans la lumière de Sa Présence. Sentez Sa Grâce sur vous, âmes bien-aimées. Sentez Son contact sur votre âme, et sentez la grande joie qui jaillit de cette belle bénédiction. Que Dieu vous bénisse. Je suis Matthieu et mon amour est avec vous tous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

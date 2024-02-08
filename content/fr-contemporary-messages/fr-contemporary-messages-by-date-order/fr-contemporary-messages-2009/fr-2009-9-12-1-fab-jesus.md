@@ -19,4 +19,6 @@ Il a été annoncé la venue d'un événement dramatique dans votre pays orchest
 
 Nous allons donc assister à un processus qui est inévitable : la perception que les poursuites économiques doivent s'aligner sur les véritables besoins de l'humanité. Ce processus s'accompagne d'une faim croissante de vérité spirituelle, qui ne peut être niée. Nous avons été conscients de cette faim depuis le début, et nous aiderons à apporter à l'humanité le Pain de Vie.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

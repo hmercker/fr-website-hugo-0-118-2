@@ -30,3 +30,7 @@ Le pouvoir de l’Amour de Dieu, le pouvoir d’une âme rachetée dans l’Amou
 Puissiez-vous continuer à être bénis, mes amis bien-aimés. Je continuerai à m’avancer aux côtés de mes chers collègues pour travailler ensemble à l’éveil de vos âmes et à l’éveil de vos dons et de vos potentiels au service de l’humanité. Tout est donné dans l’amour. Tout est béni par Dieu. Comme vous êtes vraiment bénis, mes bien-aimés, comme vous êtes vraiment bénis.
 
 Dieu vous bénit. Je suis Seretta Kem. Mon amour est avec vous pour toujours. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -23,4 +23,6 @@ Mes frères et sœurs bien-aimés, c’est une grande joie pour moi de vous voir
 
 Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse dans la lumière et la vérité. Que Son Amour trouve un puissant afflux dans vos âmes et que vous arriviez à vous connaître comme un véritable enfant de Dieu. Que Dieu vous bénisse. Je vous aime tous et chacun d’entre vous. Nous connaîtrons l’Amour Divin pour toute l’éternité. Bien-aimés, bien-aimés, nous nous rassemblons dans la lumière. Que Dieu vous bénisse. Que Dieu vous bénisse.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023)
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

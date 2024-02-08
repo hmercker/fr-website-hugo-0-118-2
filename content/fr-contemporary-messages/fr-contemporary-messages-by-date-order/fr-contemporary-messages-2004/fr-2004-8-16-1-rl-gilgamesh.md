@@ -22,6 +22,8 @@ Vous vous asseyez simplement, observant le soleil et les ombres. Observant les o
 Je suis Gilgamesh. Oui, vous avez entendu correctement. Gilgamesh.
 <small>
 
-1. <large id="f1"> **Gilgamesh, Roi d'Uruk**, ville de l'ancienne Mésopotamie, dans l'actuelle l'Irak,aurait régné aux alentours de 2500 avant notre ère. II n'existe toutefois aucun vestige ni aucune trace historique attestant son existence. Gilgamesh est connu grâce à plusieurs récits légendaires dont le plus important est intitulé l'Épopée de Gilgamesh.  Gilgamesh aurait régné aux alentours de 2500 avant notre ère. Il est un modèle de roi, qui mène ses troupes au combat, et la tradition lui attribue la construction de l'impressionnante muraille d'Uruk. Si on se réfère à la Liste royale sumérienne, document datant de 1850 av. J.-C. Gilgamesh aurait été le cinquième souverain de la première dynastie d'Uruk. [↩](#a1)
+1. <large id="f1"> **Gilgamesh, Roi d'Uruk**, ville de l'ancienne Mésopotamie, dans l'actuelle l'Irak, aurait régné aux alentours de 2500 avant notre ère. II n'existe toutefois aucun vestige ni aucune trace historique attestant son existence. Gilgamesh est connu grâce à plusieurs récits légendaires dont le plus important est intitulé [l'Épopée de Gilgamesh](https://fr.wikipedia.org/wiki/%C3%89pop%C3%A9e_de_Gilgamesh). Il est un modèle de roi, qui mène ses troupes au combat, et la tradition lui attribue la construction de l'impressionnante muraille d'Uruk. Si on se réfère à la Liste royale sumérienne, document datant de 1850 av. J.-C., Gilgamesh aurait été le cinquième souverain de la première dynastie d'Uruk. [↩](#a1)
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004)
+### [**Lien vers les messages des années 2004**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -35,4 +35,6 @@ Ainsi, par exemple, il est arrivé à de nombreuses reprises que de vrais croyan
 
 Lorsqu'un mortel place les lois de Dieu au-dessus des pensées terrestres concernant l'argent, les lois supérieures travaillent pour assurer le bien-être matériel de cette personne. C'est ce que je voulais dire quand j'ai dit : *« Cherchez d'abord le Royaume de Dieu et sa justice, et toutes ces choses vous seront données par-dessus. »* [Matthieu 6:33](https://saintebible.com/matthew/6-33.htm).
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

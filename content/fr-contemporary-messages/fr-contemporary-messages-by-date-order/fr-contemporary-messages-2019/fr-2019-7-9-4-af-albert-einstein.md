@@ -36,3 +36,7 @@ C’est donc un voyage différent du mien lorsque j’étais sur Terre, mais les
 Cela fait partie de la volonté et du plan de Dieu et c’est puissant. Cela doit être fait. Car le monde a grand besoin d’être sauvé, mes amis. Tant de choses ont besoin d’être changées. Le monde ne peut plus être naïf et apathique, rempli de distractions et d’un besoin de satisfaire tous les appétits humains. Il est temps pour le monde de grandir, de devenir adulte, d’être responsable, de chercher quelque chose de mieux, de chercher l’amour.
 
 Puissiez-vous trouver votre chemin sur cette voie de la Vérité et être forts et droits dans vos efforts pour dire la Vérité et démontrer la Vérité. Que Dieu vous bénisse, âmes bien-aimées, je suis Albert Einstein. Je suis très heureux de vous parler ce soir. Que Dieu vous bénisse, mes amis bien-aimés. Que Dieu vous bénisse car vous vivez dans des temps fortuits et vous êtes bénis par une grande fortune de Vérité. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

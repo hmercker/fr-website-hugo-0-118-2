@@ -22,3 +22,7 @@ Il s’agit vraiment de se débarrasser de son mental, de sentir le centre de so
 Cela peut sembler gênant au début, mais c’est ce qui est nécessaire pour suivre ce contact intérieur, cette guidance intérieure, même si vous pensez que c’est stupide à travers l’expérience de votre mental. Votre mental vous jugera toujours, mais vous ne devez pas l’écouter. Vous devez faire un pas en avant et aller de l’avant avec l’inspiration que vous sentez que vous recevez au niveau de l’âme. Et c’est vraiment tout ce dont vous avez besoin pour faire confiance à votre être intérieur et suivre ses conseils.
 
 Je suis ravi de venir ici parmi vous et vous êtes tous bénis. Avancez dans le monde, mes amis. N’ayez pas peur de montrer votre lumière. C’est ce dont nous avons besoin et cela touchera d’autres personnes. Merci.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

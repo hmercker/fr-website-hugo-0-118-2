@@ -24,3 +24,7 @@ Tu as également composé des œuvres symphoniques dans ce sens et tu as senti l
 Je reviendrai bientôt pour transmettre davantage de ce que je souhaite dire non seulement à mes disciples sur terre, mais aussi à tous les enfants de Dieu. En attendant, mon cher ami, suis ton cœur, sache que je suis souvent avec toi, et prie. Priez pour l'amour de Dieu. Priez.
 
 Je t'aime avec tout l'amour d'un frère et d'un véritable ami en Dieu, Yogananda.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

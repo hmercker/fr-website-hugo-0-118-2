@@ -31,5 +31,7 @@ Que Dieu vous bénisse ainsi, mes amis. Que vous soyez remplis de son amour. Pui
 
 Que Dieu vous bénisse. Je suis Seretta Kem et je vous aime tendrement. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
 
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
 
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

@@ -27,4 +27,8 @@ C'est une question, comme on dit en anglais, de sémantique. L'existence du Roya
 
 Le problème (comme c'est souvent le cas) est la limitation du langage des mortels.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+

@@ -28,3 +28,7 @@ Soyez inspirés les uns par les autres, mes bien-aimés. Priez les uns pour les 
 Que Dieu vous bénisse puissamment, mes bien-aimées, mes âmes bien-aimées. Puissiez-vous continuer à marcher sur ce chemin d’amour et à partager vos voyages ensemble. Tant de choses vous attendent sur ce chemin, alors que vous vous aidez mutuellement à lever les barrières. Car ne comprenez-vous pas, qu’à partir de vos propres expériences et des luttes, que chacun doit traverser pour dégager ce chemin ? Dans cette compassion et cette conscience profondes réside une grande force sur laquelle vous pouvez compter les uns avec les autres. N’hésitez pas à être ouverts et vulnérables, clairs et sincères les uns envers les autres. Car cela engendre plus d’amour, plus de lumière.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant Augustin. Je vous aime, je vois votre lumière, je marque vos progrès et je continuerai à marcher avec vous pour toute l’éternité. Tel est mon engagement envers vous. Je serai votre ami, votre guide et votre enseignant pour toute l’éternité. Vous pouvez compter sur mes efforts et ma sagesse pour vous aider dans votre cheminement. Nous marchons tous vers l’unification avec Dieu. Que Dieu vous bénisse, mes bien-aimés, que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

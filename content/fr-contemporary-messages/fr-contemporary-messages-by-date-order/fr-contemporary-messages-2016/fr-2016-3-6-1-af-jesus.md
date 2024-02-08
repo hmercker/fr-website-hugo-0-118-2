@@ -16,3 +16,7 @@ C’est Jésus, je vous aime. Vous commencez à vous embarquer dans vos voyages 
 Vous serez les avant-gardes pour cela de bien des façons et vous vous joindrez à d’autres qui se joindront à d’autres pour apporter un grand et profond changement à ce monde alors que Dieu touche chaque âme qui montre la voie vers une plus grande paix et harmonie dans ce monde parmi tous ses enfants, parmi tout ce qui est sur ce monde. Le pouvoir du changement apporte la Lumière, mes bien-aimés, et le profond Toucher de Dieu apportera un changement réverbérant vague après vague et vous devez être forts, mes bien-aimés, et capables d’être libres de vos attachements et dans l’Amour de Dieu d’une manière pleine et fructueuse.
 
 Bien-aimés, marchez sur votre chemin avec confiance et soyez proches de Dieu. Tout ira bien. De puissantes bénédictions seront à vous et une grande joie. Dieu vous bénisse, je suis Jésus et je viens vous aimer et vous rappeler que vous êtes sous mon manteau, que vous êtes aimés de moi et que tout est béni de Dieu. Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -32,3 +32,7 @@ Tant de choses se produisent à votre insu et sans que vous vous en rendiez comp
 Je dis ces choses non pas pour susciter une grande fierté ou pour vous faire croire que vous êtes supérieurs aux autres dans les voies du monde. Non, mes bien-aimés, à mesure que l’on grandit dans l’amour de Dieu, le sens de l’humilité grandit aussi. Ainsi grandit un sentiment d’appréciation et de gratitude envers Dieu. Car toutes ces bénédictions, tous ces dons et tout ce que vous êtes ne sont-ils pas des bénédictions de Dieu ? Soyez humbles, âmes bien-aimées. Il y a de la sagesse dans l’humilité, il y a de la grâce dans l’humilité et il y a de la puissance dans l’humilité. Soyez un canal d’amour. Grandissez chaque jour dans l’amour de Dieu et sachez que vous êtes vraiment aimés et vraiment bénis, vraiment bénis.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Seretta Kem et je suis heureux d’être avec vous ce matin pour vos prières. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

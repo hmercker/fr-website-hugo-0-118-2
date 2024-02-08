@@ -31,5 +31,9 @@ Nous sommes toujours avec vous, ma famille, et je veux demander à chacun de vou
 
 Je vous aime, mes propres disciples, et je suis votre frère en Christ et Maître des Cieux Célestes, Jésus de la Bible.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+### [**Lien vers les messages des années 2000**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
 

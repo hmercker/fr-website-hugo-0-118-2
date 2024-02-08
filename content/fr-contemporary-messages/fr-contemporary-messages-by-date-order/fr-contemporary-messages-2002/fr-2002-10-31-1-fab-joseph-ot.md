@@ -25,4 +25,6 @@ Avant de faire l’expérience de la Nouvelle Naissance, j’avais déjà une gr
 
 J’ai décrit imparfaitement certaines de mes impressions de progression spirituelle. Dans de futurs messages, je développerai d’autres aspects de la vie spirituelle.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)
+### [**Lien vers les messages des années 2002**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

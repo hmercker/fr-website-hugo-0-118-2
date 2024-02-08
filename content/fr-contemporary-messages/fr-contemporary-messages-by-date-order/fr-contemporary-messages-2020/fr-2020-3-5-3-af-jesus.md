@@ -14,3 +14,8 @@ Jésus - reçu par Al Fike le 5 Mars 2020, Monroeville, PA, USA.
 Mes bien-aimés, je suis Jésus. Je viens parce que vous commencez à rassembler les âmes, à les aider sur leur chemin vers Dieu. En tant que tel, je vous bénis en tant que mes disciples qui apportent cette Vérité plus pleinement dans la réalisation et la compréhension de ceux que vous touchez dans ces Cercles de Lumière. Je viens parce que je vous aime, âmes bien-aimées. Je viens pour vous élever et vous fortifier dans votre corps, dans votre esprit, pour vous aider à éclairer votre âme dans la prière.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis avec vous. Sachez que je serai avec vous chaque jour alors que vous continuerez à vous rassembler dans la Lumière. Je suis avec vous. Mon amour est avec vous. Je viendrai et je parlerai à ceux qui se rassemblent. Que Dieu vous bénisse. Je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

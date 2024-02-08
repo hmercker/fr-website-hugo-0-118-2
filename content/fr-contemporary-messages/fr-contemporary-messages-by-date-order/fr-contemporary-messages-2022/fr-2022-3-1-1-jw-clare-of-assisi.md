@@ -18,3 +18,8 @@ C’est moi, Claire. Mes chères souris, je ressens vos beaux cœurs. Je ressens
 Lorsque la lumière brille avec une grande magnitude, ceux qui sont dans l’obscurité doivent reculer. Vous avez lu que la luminosité et l’atmosphère des royaumes supérieurs informent ceux qui sont dans l’obscurité qu’ils doivent s’éclairer pour entrer et se sentir chez eux. Alors, envoyez votre lumière, envoyez votre amour à tous ceux qui sont sur la terre et nous tous ici à ceux qui sont dans l’obscurité, à ceux dont le libre arbitre a causé tant de souffrance et de destruction, afin qu’ils soient touchés, et que la volonté de Dieu soit faite sur la terre comme au ciel.
 
 Soyez en paix. Que Dieu soit loué et que la paix règne. Tout mon amour et mes bénédictions à vous mes chers. Je suis Claire. Allez en paix.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

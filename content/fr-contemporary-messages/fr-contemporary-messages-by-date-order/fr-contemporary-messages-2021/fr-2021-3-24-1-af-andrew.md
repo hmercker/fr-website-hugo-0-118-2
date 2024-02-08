@@ -20,3 +20,7 @@ S’il vous plaît, assurez-vous que chaque fois que vous priez, que vous êtes 
 Beaucoup de choses attendent chaque enfant sur votre monde, étant donné leur capacité à s’éveiller au grand souffle de Dieu sur eux. Continuez à prier pour cette bénédiction et pour toutes les bénédictions sur l’humanité et sur vos âmes.
 
 Que Dieu vous bénisse, je suis André et je suis heureux d’être avec vous aujourd’hui dans la prière, dans l’amour, dans la lumière. Que Dieu vous bénisse, âmes bien-aimées, et qu’il vous garde dans son Amour, qui coule éternellement, toujours plus loin dans votre âme. Dieu vous bénisse, Dieu vous bénisse, âmes bien-aimées. Nous sommes avec vous dans la prière, pour ne jamais vous quitter, pour toujours vous rejoindre dans la bénédiction aimante de la Main de Dieu sur vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

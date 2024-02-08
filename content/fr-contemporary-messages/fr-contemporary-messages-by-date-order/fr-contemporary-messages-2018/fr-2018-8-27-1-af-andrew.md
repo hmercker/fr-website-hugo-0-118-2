@@ -21,3 +21,7 @@ Vous êtes dotés de nombreux potentiels, âmes bien-aimées. Beaucoup vient ave
 Âmes bénies, vous êtes élevées dans l’amour, douées dans l’amour, guéries dans l’amour, et beaucoup bénéficient de vos efforts. Continuez avec vos prières. Continuez à vous élever. Continuez à être forts dans votre foi et sincères dans vos désirs. Envoyez vos intentions à Dieu et Dieu répondra toujours pour le plus grand bien et les plus grandes bénédictions.
 
 Dieu vous bénit, âmes bien-aimées, et vous garde toujours dans cette Lumière. Dieu vous bénit et je vous aime. Je suis André. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

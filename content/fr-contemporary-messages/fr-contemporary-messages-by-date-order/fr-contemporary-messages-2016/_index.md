@@ -145,7 +145,7 @@ Jésus | [Réveillez-vous de votre sommeil](/fr-contemporary-messages/fr-contemp
 Tahlia | [Semer les graines de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-1-1-af-tahlia/) | 1 Décembre 2016
 Jean le Bien-Aimé | [S’éveiller à l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-1-2-af-john-the-beloved/) | 1 Décembre 2016
 Confucius | [Bienvenue dans ce cercle d’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-2-1-af-confucius/) | 2 Décembre 2016
-White Cloud | [Le monde a besoin de vos prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-2-2-af-white-cloud/) | 2 Décembre 2016
+Nuage Blanc | [Le monde a besoin de vos prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-2-2-af-white-cloud/) | 2 Décembre 2016
 Augustin | [Se tourner vers l’âme plutôt que vers l’esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-2-3-af-augustine/) | 2 Décembre 2016
 Jésus | [Une prière pour ceux qui sont sur le chemin de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-2-4-af-jesus/) | 2 Décembre 2016
 St Matthieu | [Ouvrez vos âmes à l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-3-1-af-st-matthew/) | 3 Décembre 2016
@@ -168,8 +168,6 @@ Jésus | [Je viens prendre vos fardeaux](/fr-contemporary-messages/fr-contempora
 Alec Gaunt | [Cherchez la vérité dans votre propre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-28-1-af-alec-gaunt/) | 28 Décembre 2016
 St Matthieu | [Il est temps d’accepter une nouvelle façon d’être](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-29-1-af-st-matthew/) | 29 Décembre 2016
 
-[Lien vers les messages de l’année 2017](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
-<br>
-<br>
-[Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
 
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -28,4 +28,6 @@ C’est tout ce que je souhaite dire maintenant. Je vous souhaite bonne chance d
 
 2. <large id="f2"> Il semble s’agir d’un idiome propre à l’Amérique du Nord. Il signifie dire la vérité à ceux qui sont au pouvoir.[↩](#a2)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)
+### [**Lien vers les messages des années 2013**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

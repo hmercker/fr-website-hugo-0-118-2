@@ -18,3 +18,7 @@ Soyez dans cet état de Grâce, cet état de Sainte Communion avec le Père Cél
 Mes amis, vous pouvez faire cela n’importe où. Je dirais que c’est plus facile dans la nature mais, cdans ce lieu, il y a beaucoup de lumière. De nombreuses prières ont été dites ici. Nous pouvons le sentir. Nous sommes donc ici pour vous soutenir et je vous dis de ne pas penser au doute, à la négativité, à peser ceci ou cela. Laissez votre âme être véritablement le centre de vos vies, afin que Dieu puisse ouvrir votre âme à un flux rayonnant de Son Amour. Voici le cadeau.
 
 Je suis reconnaissant d’être ici avec vous tous et que celui-ci me permette de passer, même s’il est réticent. Je suis François. Je vous aime tous. Que l’amour de Dieu soit avec vous tous et que ce Cercle de Lumière s’étende sur toute la Terre. Vous avez attiré beaucoup de personnes dans ce Cercle, visibles et invisibles. Nous sommes ici. Nous vous aimons. Dieu vous aime. Je suis François.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

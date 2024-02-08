@@ -24,3 +24,7 @@ Il y a beaucoup à faire et les ouvriers sont peu nombreux, mes amis, peu nombre
 Dieu vous bénira chaque jour, âmes bien-aimées, en continuant à consacrer votre vie à l’éveil de l’humanité, à l’éveil de vos âmes, à la guérison de ce monde, à la transformation de la réalité que l’humanité a créée et doit se transformer en celle qui est en harmonie avec sa création. Il y a beaucoup à faire, mes bien-aimés. Continuez vos efforts et vous savez très bien que je suis avec vous et beaucoup d’autres.
 
 Que Dieu vous bénisse. Votre maître Augustin est avec vous, toujours prêt à enseigner, à partager, à apporter la sagesse, à apporter son amour. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

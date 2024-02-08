@@ -34,3 +34,8 @@ Oui, notre libre arbitre, mes bien-aimés, est immense, il détermine tellement 
 Dieu a un plan et un but pour chacun d’entre vous. C’est à vous de le découvrir chaque but et chaque plan pour votre âme. Soyez dans la lumière. Sachez que lorsque vous vous réunissez et intensifiez la lumière, vous vous rapprochez de votre Père Céleste.
 
 Que Dieu vous bénisse, mes bien-aimés. Dieu met sa main sur votre âme et vous soulève, vous soulève mes bien-aimés. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

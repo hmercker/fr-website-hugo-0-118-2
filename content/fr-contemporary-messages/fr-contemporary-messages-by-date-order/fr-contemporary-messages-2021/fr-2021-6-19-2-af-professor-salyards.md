@@ -20,3 +20,7 @@ Avec l’attitude correcte et le désir profond d’être le serviteur de Dieu d
 Bien-aimées, bien-aimés et belles âmes, sachez que vous êtes continuellement bénis et guidés et que vous serez bénis et guidés. Il n’y a aucune raison de s’inquiéter et je ne vois aucune inquiétude parmi vous, seulement un désir d’avoir votre place assurée dans cet effort et cette opportunité de service. Et donc vous êtes en sécurité, âmes bien-aimées. Vous êtes en sécurité, bénis et guidés et il en sera ainsi maintenant et toujours. Comme vous cherchez à être avec Dieu, Dieu cherche à exprimer Son Amour à travers vous, à vous guider dans des directions qui aideront et élèveront beaucoup de gens dans la Lumière.
 
 Dieu vous bénisse, chères et belles âmes, je suis le Professeur Salyards. Je suis heureux que vous vous réunissiez dans votre sérieux, dans ce désir de servir, d’aimer, d’apporter une plus grande lumière et vérité. Nous sommes ensemble en cela, unis, et nous le serons dans le grand courant de l’Amour, de la Vérité et de l’intention de Dieu. A partir de maintenant jusqu’au jour où vous quitterez cette terre, ainsi vous serez guidés. Dieu vous bénit, mes amis, Dieu vous bénit et vous garde dans Son Amour. Je suis souvent avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

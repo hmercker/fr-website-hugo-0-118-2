@@ -30,3 +30,7 @@ Même si parfois les choses semblent différentes, quelque peu étranges, désor
 Que vos voyages soient rapides, mes bien-aimés. Que vos réveils soient joyeux. Que vos pas soient sûrs, que vos efforts soient clairs et que tout ce que vous êtes soit une expression parfaite de la glorieuse Création de Dieu, cet être unique qu’est vous. Que cela émerge dans toute sa gloire. Que Dieu vous bénisse, mes bien-aimés. Continuez dans vos prières et vos efforts et nous continuerons dans les nôtres.
 
 Nous travaillons tous ensemble pour servir Dieu, pour apporter la Vérité à l’humanité, pour apporter l’Amour à cet endroit et à tous les endroits sombres des Univers de Dieu. Que Dieu vous bénisse. Je suis Seretta Kem et je vous aime. Je vous aime tendrement. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

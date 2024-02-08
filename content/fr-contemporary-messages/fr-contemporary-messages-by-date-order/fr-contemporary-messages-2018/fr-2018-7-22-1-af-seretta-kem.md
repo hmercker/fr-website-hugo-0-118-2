@@ -44,3 +44,7 @@ En effet, avec ce simple exercice qui vous a été donné, vous voyez qu’il y 
 Puissiez-vous bien choisir, mes amis bien-aimés. Puissiez-vous choisir toujours la lumière, chercher toujours plus haut la vérité et vivre plus pleinement chaque jour cette Vérité d’Amour. Dieu et ses anges répondront en conséquence car votre choix est tout puissant. Vos intentions donnent ou enlèvent ces objectifs. Gardez toujours en vous les intentions les plus élevées, d’être un canal de l’Amour et de la Vérité de Dieu, de marcher sur le Chemin Divin et de chercher à servir vos frères et sœurs avec humilité et force, grâce et beauté, et cela se manifestera alors que vous continuerez à grandir dans Son Amour.
 
 Que Dieu vous bénisse toujours, mes amis bien-aimés, et vous garde sur ce chemin fermement, résolument, avec une profonde concentration sur ce qui doit venir et être en vous et ce qui doit venir et être exprimé et couler de vous et à travers vous. Que Dieu vous bénisse, mes chers amis. Je suis Seretta Kem et je vous aime profondément et je suis souvent avec vous. Alors que vous naviguez dans ce monde, sachez que les anges vous accompagnent toujours, que la main de Dieu repose sûrement sur vous. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

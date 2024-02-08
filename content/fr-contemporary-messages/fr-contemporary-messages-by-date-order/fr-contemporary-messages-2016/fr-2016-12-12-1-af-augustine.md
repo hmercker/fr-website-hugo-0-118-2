@@ -42,3 +42,7 @@ Vous continuez à patauger dans ce courant profond. Cela vient. Ayez la foi, mes
 Vous êtes bénis, mes bien-aimés, car vous portez la flamme de la vérité, vous êtes engagés, vous grandissez en force et continuez toujours, continuez à chercher Sa Volonté.
 
 Votre enseignant Augustin est toujours à vos côtés, il vous encourage et vous enseigne, tout comme de nombreux anges qui vous aiment et vous soutiennent. Vous n’êtes jamais seuls, mes bien-aimés, et nous ne vous quitterons jamais. Dieu vous bénisse, Dieu vous bénisse. Je vous aime.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

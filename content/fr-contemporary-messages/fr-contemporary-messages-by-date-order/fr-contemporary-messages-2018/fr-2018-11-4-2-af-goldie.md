@@ -16,3 +16,7 @@ Je veux que chacun d’entre vous sache que je suis venu vers chacun d’entre v
 Dieu vous fournit toujours un ange pour éclairer votre chemin, pour vous assister et vous réconforter sur votre chemin, et pour vous inspirer à une plus grande prière et à un plus grand éveil à Dieu. Vous êtes aimés, mes bien-aimés, chacun d’entre vous, chacun d’entre vous et vous n’êtes pas seuls. En fait, vous n’êtes jamais seuls, car Dieu est toujours là avec vous. Nous sommes toujours à vos côtés et vous continuerez à avoir cette lumière et cet amour et ce confort et ce soutien avec vous aussi longtemps que vous continuerez à désirer être dans cette Grâce de l’Amour de Dieu.
 
 Goldie vous aime. Goldie vous aime. Dieu vous bénit.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

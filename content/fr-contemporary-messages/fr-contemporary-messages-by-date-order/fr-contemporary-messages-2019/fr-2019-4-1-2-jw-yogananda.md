@@ -29,3 +29,7 @@ Il est temps maintenant pour moi de délivrer les enseignements plus larges à m
 <small>
 
 <large id=”f1”> La puja est un rite d'offrande et d'adoration de l'hindouisme, du bouddhisme et du jaïnisme. Sa signification et son déroulement sont différents dans ces trois traditions. (Source : Wikipédia).[↩](#a1)
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

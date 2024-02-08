@@ -30,3 +30,7 @@ C’est votre grand défi dans l’année à venir, âmes bien-aimées, d’appo
 Puissiez-vous marcher dans la Lumière de l’Amour de Dieu, mes amis. Puissiez-vous avoir un grand courage pour que toutes ces peurs et ces idées réticentes de l’esprit puissent fondre dans l’Amour du Père. Puissiez-vous marcher la tête haute, avec un cœur rayonnant d’Amour, avec la Vérité sur vos lèvres et un désir de servir l’humanité. Quelle que soit la manière dont Dieu vous présente, que vous acceptiez cette invitation à servir dans l’Amour et à donner de votre cœur, de votre temps, de vos efforts pour encourager la Lumière dans votre monde, pour encourager le service et l’amour pour vos frères et sœurs.
 
 Que Dieu vous bénisse dans ce voyage. Je suis votre enseignant Augustin et je continue à marcher avec vous, comme le font de nombreux anges. Nous continuerons à vous encourager, âmes bien-aimées, sur ce chemin du service, de votre propre éveil de l’âme, de la mise de côté de toutes ces barrières du mental afin que vous soyez vraiment libres et dans l’état de joie et d’ouverture que vous pouvez voir le monde à travers les yeux de vos âmes, bien-aimés et beaux enfants de Dieu. Que Dieu vous bénisse. Dieu vous bénisse, enfants bien-aimés. Augustin vous aime tendrement. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

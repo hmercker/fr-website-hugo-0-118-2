@@ -11,7 +11,7 @@ weight:
 
 James Padgett - reçu par Jimbeau Walsh le 10 Juin 2021, Punalu’u, Oahu, Hawaii, USA.
 
-C’est moi, votre frère et humble serviteur, James Padgett. J’ai écouté aujourd’hui les lectures et les discussions intenses sur le sujet *« Qui et qu’est-ce que Dieu ? »*, avec des extraits tirés des messages que j’ai reçus de Jésus et des esprits Célestes.
+C’est moi, votre frère et humble serviteur, James Padgett<sup id="a1">[1](#f1)</sup>. J’ai écouté aujourd’hui les lectures et les discussions intenses sur le sujet *« Qui et qu’est-ce que Dieu ? »*, avec des extraits tirés des messages que j’ai reçus de Jésus et des esprits Célestes.
 
 Je dirais que d’après ce que j’ai reçu, il n’est pas possible de comprendre le Créateur intellectuellement et le Maître lui-même a souligné le manque de mots pour pouvoir décrire Dieu et Ses attributs. Et pourtant, en lisant entre les lignes, il est possible de percevoir que lorsque l’âme, dans son désir de s’unir à son Créateur, reçoit l’Essence du Créateur, elle peut effectivement comprendre le Grand Être de Dieu.
 
@@ -22,3 +22,10 @@ Ainsi, tout ce qui a été dit aujourd’hui se résume à la connexion de votre
 Je souhaite vous remercier tous de vous être réunis pour étudier ce que j’ai reçu il y a si longtemps. Je suis honoré, et j’espère que ces messages que j’ai reçus, dont beaucoup étaient incompréhensibles pour mon mental, mais finalement transparents pour mon âme, vous seront bénéfiques à tous. Ils ne sont qu’un modèle, le reste dépend de vous, et de vos désirs, car Dieu répondra. C’est le chemin de la joie et du vrai bonheur au-dessus et au-delà du plan terrestre.
 
 Venez et rejoignez-nous dans l’amour de Dieu. Car nous sommes tous Ses enfants. Avec tout mon amour, ma gratitude et les bénédictions de tous ici, je vais me retirer. Je suis James Padgett. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> L'ensemble des messages communiqués par James Padgett  est disponible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-12-fr-family-and-friends-of-james-padgett/)[↩](#a1) 
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -20,3 +20,7 @@ Considérez ceci, mes amis bien-aimés, considérez comment, par votre être mê
 Vous ne pouvez pas voir ces complexités et ces subtilités, mais elles existent bel et bien et comme vous continuez à attirer vos amis anges, vos esprits brillants et d’autres parmi vous, vous devenez un point focal vital pour que la lumière s’épanouisse et pour que les forces de la lumière utilisent vos dons et votre présence dans le monde. Soyez de lumière, mes amis, soyez proches de Dieu, soyez en harmonie avec toute la création de Dieu et tout ce qui est censé être dans ce monde qui est le vôtre et vous constaterez que vos idées, vos expériences, la puissance de votre lumière parviendront à votre moi conscient plus clairement et plus puissamment. Vous vous retrouverez à marcher dans la lumière et la joie, dans l’amour et la paix. Vous y aspirez, le monde y aspire. Puissiez-vous être un exemple de cette vérité en continuant à rechercher les plus grandes bénédictions, le toucher de Dieu sur vous.
 
 Que Dieu vous bénisse, mes bien-aimés, je suis Mylora et je vous aime. Que Dieu vous bénisse, mes bien-aimés.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

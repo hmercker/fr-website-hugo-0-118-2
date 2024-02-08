@@ -24,3 +24,7 @@ C’est le pouvoir de l’Amour qui nous relie tous. C’est le pouvoir de l’A
 Prions-nous, âmes bien-aimées ? Ensemble, dans la prière, nous attirons l’influx puissant de Son Amour dans nos âmes.
 
 Que Dieu vous bénisse, vous élève, vous guérisse et vous réveille. Bien-aimés, bien-aimées, votre amie Mylora est avec vous aujourd’hui dans la prière. Que Dieu vous bénisse, mes bien-aimés.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

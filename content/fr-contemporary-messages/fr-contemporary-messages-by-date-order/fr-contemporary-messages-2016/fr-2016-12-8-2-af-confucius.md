@@ -9,7 +9,7 @@ weight:
 ---
 ### N’ayez pas peur d’exprimer ce qui est dans votre âme
 
-Confucius - reçu par Al Fike le 8 Décembre 2016, Oahu, Hawaii, USA.
+Confucius<sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 8 Décembre 2016, Oahu, Hawaii, USA.
 
 C’est Confucius. Dieu vous bénisse. Dieu vous bénisse, mes bien-aimés, et Dieu vous bénit en ce moment même alors que vous multipliez vos prières ensemble pour recevoir le grand amour de Dieu qui se déverse dans vos âmes en ce moment même.
 
@@ -36,3 +36,11 @@ Vous savez déjà tellement de choses, mes bien-aimés, vous êtes déjà forts,
 Ayez la foi, mes bien-aimés, ayez foi en ce qui se passe au fond de vous, comment la puissance de cet amour qui brûle en vous va percer. Vous allez vous libérer des vieilles restrictions et erreurs et sortir comme une belle, nouvelle créature d’amour qui brille, pleine de joie et d’enthousiasme pour que la volonté de Dieu soit faite dans ce monde à travers chacun de vous. Beaucoup, beaucoup de possibilités, de potentiels et d’occasions d’accomplir l’œuvre de Dieu attendent tous ceux qui sont disposés à le faire et qui ont franchi les barrières de leur propre condition humaine et accepté le pouvoir de ce qui se trouve en eux. Dans cette acceptation vient la connaissance de la volonté de Dieu, la connaissance de sa présence dans vos vies, dans vos âmes. Cela vient étape par étape et il y a beaucoup à suivre et cela viendra rapidement et vivement à mesure que vous prenez de l’élan dans la transformation de vos âmes, à mesure que vous êtes lentement libérés de votre propre condition humaine, mes bien-aimés, Dieu vous porte, il vous élève, il déverse son amour en vous.
 
 Vous arriverez à cet endroit dont je parle et vous serez surpris de ce que vous voyez en vous et de ce que vous exprimez à travers vos âmes. Continuez à prier pour que son amour vous amène à cet endroit. Et je vous apporte une bénédiction, mes bien-aimés, qui vous aidera dans votre voyage. Dieu déverse son amour sur vous, âmes bien-aimées, Soyez en paix. Confucius vous aime tendrement. Dieu vous bénit.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués  par Confucius sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a1)
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

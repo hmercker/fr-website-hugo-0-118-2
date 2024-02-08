@@ -11,7 +11,7 @@ weight:
 
 John Wesley - reçu par Al Fike le 20 Mai 2018, Gibsons, Colombie-Britannique, Canada.
 
-Que Dieu vous bénisse de Son Amour. Je suis John Wesley et je suis venu vous parler de la progression de l’humanité en ce qui concerne la compréhension de leurs âmes et comment cela se rapporte effectivement à vos efforts pour la voix directe. Vous avez été témoin d’un événement le lendemain (le jour précédent) qui vous a donné une idée de la façon dont tant d’individus voient le monde de l’esprit et comprennent leur propre vie de ce point de vue. Elle est de nature assez rudimentaire.
+Que Dieu vous bénisse de Son Amour. Je suis John Wesley<sup id="a1">[1](#f1)</sup> et je suis venu vous parler de la progression de l’humanité en ce qui concerne la compréhension de leurs âmes et comment cela se rapporte effectivement à vos efforts pour la voix directe. Vous avez été témoin d’un événement le lendemain (le jour précédent) qui vous a donné une idée de la façon dont tant d’individus voient le monde de l’esprit et comprennent leur propre vie de ce point de vue. Elle est de nature assez rudimentaire.
 
 Une si grande partie de l’humanité, un si grand nombre de vos frères et sœurs, manquent de perspicacité et de compréhension au-delà d’un simple désir d’être rassurés par leurs proches qui sont passés dans l’esprit. Ils recherchent de simples réconforts, de simples mots de réconfort, des preuves de la mort de ceux qu’ils aiment. J’ose dire que ce sont les âmes les plus sensibles et les plus éclairées de votre monde. Tant d’autres ne considèrent pas ces idées à un degré élevé. Elles marchent dans le monde aveugles et endormies, incapables de s’éveiller et de voir ce glorieux voyage de la vie pour ce qu’il est. Ainsi, ce monde reste dans l’obscurité de l’ignorance, du manque de compréhension, de la peur et de l’incapacité à voir au-delà des besoins et des désirs personnels. Ainsi, le monde se vautre dans ces conditions qui ne sont pas de la Lumière et il en a été ainsi pendant de nombreux, nombreux milliers d’années, mes bien-aimés.
 
@@ -34,3 +34,19 @@ Vous n’êtes jamais seuls. Nous vous voyons, mes chers amis, nous vous connais
 L’Amour est tout autour de vous mes bien-aimés, et l’Amour est ce que vous cherchez, alors continuez à le chercher de tous vos cœurs, à prier avec ferveur, à être ouvert à Dieu et à savoir que Dieu est avec vous et vous porte en avant.
 
 Que Dieu vous bénisse mes amis et merci de m’avoir écouté aujourd’hui. Je m’appelle John Wesley. Je suis un habitant du Royaume Céleste et je continue à travailler avec vous et avec d’autres pour apporter une plus grande Lumière à l’humanité. Que Dieu nous bénisse tous dans cette grande œuvre. Que Dieu vous bénisse, mes amis bien-aimés. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> John Wesley s'est également exprimé dans les messages suivants :  [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+John Wesley | [Toute vérité commence avec l’âme éveillée dans l’amour – Retraite F.U.S.C.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-9-2-af-john-wesley/) | 9 Juin 2018
+John Wesley | [Exprimez-vous pour la vérité et le changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-5-2-af-john-wesley/) | 5 Novembre 2018
+John Wesley | [Il est temps d’apporter la vérité à l’humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-22-1-af-john-wesley/) | 22 Août 2021
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+

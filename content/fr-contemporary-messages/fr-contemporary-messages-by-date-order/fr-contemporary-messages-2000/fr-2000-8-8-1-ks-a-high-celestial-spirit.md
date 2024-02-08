@@ -21,5 +21,8 @@ Chacun est responsable de ses propres actes d’amour ou de haine, de ses actes 
 
 Devenir une personne qui tend l’autre joue et qui est aimante et spirituelle est ce qui est nécessaire pour apporter l’amour et la paix dans le monde. Il est juste d’être aimant et d’accepter, en faisant de son mieux pour avoir un esprit ouvert et un cœur aimant. Vous avez entendu la déclaration suivante : *« Je ne suis peut-être pas d’accord avec ce que vous dites, mais je défendrai jusqu’à la mort votre droit de le dire. C’est une bonne attitude ; une attitude d’acceptation, de tolérance, de bonne volonté et la personne que vous libérez de la douleur des préjugés est vous-même… »*.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+
+### [**Lien vers les messages des années 2000**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

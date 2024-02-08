@@ -22,4 +22,7 @@ Comme vous l’avez appris, mon Évangile original s’est perdu, et beaucoup de
 
 Comment pouvait-on interpréter mon Évangile par rapport à la culture grecque, alors que cette culture m’était étrangère ? Non, mon Évangile a été écrit dans le contexte de la culture Juive, la seule culture que je connaissais.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

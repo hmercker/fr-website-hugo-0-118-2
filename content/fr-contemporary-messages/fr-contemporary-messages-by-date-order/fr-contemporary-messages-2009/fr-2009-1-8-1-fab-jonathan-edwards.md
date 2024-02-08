@@ -40,4 +40,9 @@ Voilà, je vous ai donné cette description assez longue de mon expérience pour
 
 1. <large id="f1"> **Jonathan Edwards** (5 Octobre 1703 - 22 Mars 1758) fut un prédicateur colonial Américain de la Congrégation, un théologien et un missionnaire auprès des Amérindiens. Jonathan Edwards est largement reconnu comme étant le théologien philosophique le plus important et le plus original d'Amérique. Il est connu comme l'un des plus grands et des plus profonds théologiens et réformateurs Américains. Son œuvre est très vaste, mais il est souvent associé à sa défense de la théologie Calviniste, de la métaphysique du déterminisme théologique et de l'héritage puritain. Son célèbre sermon *« Sinners in the Hands of an Angry God (Pécheurs aux mains d'un Dieu en colère) »* mettait l'accent sur la juste colère de Dieu contre le péché et la mettait en contraste avec la disposition de Dieu pour le salut. L'intensité de sa prédication entraînait parfois des évanouissements, des syncopes et d'autres réactions plus gênantes dans l'auditoire. Les évanouissements et autres comportements de son auditoire l'ont entraîné dans une controverse sur les « effets corporels » de la présence de l'Esprit Saint. (Source : Wikipedia)[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+2. <large id="f2"> Jonathan Edwards a complété son message [le 28 Février 2009](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-28-1-fab-jonathan- edwards/)[↩](#a2)
+
+
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

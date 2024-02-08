@@ -179,3 +179,7 @@ Mylora | [Nous avons tous de puissants dons de guérison](/fr-contemporary-messa
 Flavius Josèphe | [Bénédictions de Flavius Josèphe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-27-1-af-josephus/) | 27 Août 2023
 Michael Collier | [Préparation de la retraite de Laurelville](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-29-1-af-michael-collier/) | 29 Août 2023
 Augustin | [Nous implore tous de « nous élever au-dessus des conditions terrestres au service de Dieu »](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-9-12-1-af-augustine/) | 12 Septembre 2023
+
+### [**Lien vers les messages des années 2024**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-20242/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

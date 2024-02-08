@@ -45,4 +45,7 @@ Et l'un de nos objectifs est de libérer la religion, afin que la Vérité inté
 
 Les gens doivent apprendre, et apprendront, que la religion ne consiste pas à imposer sa volonté de manière agressive, mais qu'il s'agit d'amour, pur et simple. Et le plus grand amour est l'Amour Divin, qui conduit à la nouvelle naissance de l'âme.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

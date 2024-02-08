@@ -22,3 +22,7 @@ Si vous lisez entre les lignes, vous pouvez trouver ce désir d’amour du Créa
 Il y a beaucoup plus à découvrir au cours de votre voyage vers les Cieux Célestes mais une vérité essentielle qui supplante toutes les autres est de prier avec sincérité, de tout votre cœur, de toute votre âme, pour recevoir l’amour de votre Créateur. Ceci, mes chers amis, est la transformation de l’âme de la simple image, de la condition mortelle, à la renaissance en tant qu’ange céleste. C’est votre destinée, si vous le souhaitez.
 
 Je remercie James de m’avoir laissé parler aujourd’hui, car il a accepté mon message. C’est un honneur et un privilège pour moi d’être votre frère dans l’amour de Dieu. Nous tous ici présents vous souhaitons tout le bien et le cadeau parfait de la source de l’amour de Dieu. Qu’il soit le vôtre. Je vous aime. Je suis Yogananda. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

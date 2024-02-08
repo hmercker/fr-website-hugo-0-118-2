@@ -52,4 +52,6 @@ Avec mon amour pour vous, et l’amour du Père, je suis J. R. R. Tolkien.
 
 3. <large id="f3"> De toutes les malchances : mon stylo à bille était complètement sec vers la fin du message, et je n’avais pas d’autre instrument d’écriture.[↩](#a3)
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)
+### [**Lien vers les messages des années 2002**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

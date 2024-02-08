@@ -24,3 +24,7 @@ Oui, l’amour est toujours la réponse et la solution à ces conditions et vous
 Il y a de nombreuses possibilités mais il faut le faire en harmonie avec la Volonté de Dieu, connaître cette Volonté, être guidé par cette Volonté de Dieu pour la plus grande sagesse. Les bénédictions les plus puissantes seront données à travers vous lorsque vous êtes alignés avec Dieu. Ainsi, puissiez-vous connaître votre propre âme plus complètement et être conscient de la volonté de Dieu pour vous et puissiez-vous prier pour être utilisé comme Ses instruments, comme des canaux d’amour dans le monde, pour servir l’humanité. Il existe de nombreuses façons de le faire, âmes bien-aimées, de nombreuses opportunités et possibilités.
 
 Cette expression peut être très simple en effet. Vos mots peuvent en effet être aimables et simples. Votre amour peut couler intensément. Votre compassion peut toucher les autres. Il y a beaucoup de choses qui peuvent être données et bénies à l’individu. Mais en effet, s’il se détourne, si son choix est de se détourner, vous devez lui permettre de le faire. Merci. (Flavius Josèphe)
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

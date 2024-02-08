@@ -26,3 +26,7 @@ Puissiez-vous être puissamment bénis, âmes bien-aimées. Que Sa Lumière touc
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre frère et ami. Je suis Jésus, et je viens vous élever et vous encourager, âmes bien-aimées, qui cherchez, qui avez besoin de la Bénédiction du Père sur vous. Dieu vous bénit et vous garde dans Sa Lumière, bien-aimés et précieux, frères et sœurs tous. Sentez et connaissez le réveil de votre âme et vous serez en effet libérés des encombrements de la condition humaine.
 
 Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés. Je viens pour être avec vous dans la prière, et je vous aime. Que Dieu vous bénisse dans la paix, dans l’amour, dans la lumière.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

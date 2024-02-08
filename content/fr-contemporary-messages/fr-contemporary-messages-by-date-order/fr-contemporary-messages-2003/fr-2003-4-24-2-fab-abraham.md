@@ -11,7 +11,7 @@ weight:
 
 Abraham   - reçu par FAB le 24 Avril 2003, Santa Cruz, Californie, USA.
 
-Je suis Abraham.
+Je suis Abraham.<sup id="a1">[1](#f1)</sup>
 
 Je suis, comme le monde le sait, le père des Juifs. J’ai appris beaucoup de choses dans ce monde de l’esprit. La sainteté de ce que j’ai vécu est la pensée que je souhaite exprimer.
 
@@ -32,5 +32,15 @@ Vous voyez donc que j’ai toujours été fidèle à Dieu et que j’ai fait Sa 
 Je vous remercie de votre amabilité à recevoir ce message.
 
 Je suis Abraham.
+<small>
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)
+1. <large id="f1"> Abraham a également commmuniqué les messages suivants :[↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Abraham   | [La profession d’Abraham](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-6-11-1-fab-abraham/) | 11 Juin 2010
+Abraham   | [Abraham et la Chaldée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-2-19-1-fab-abraham/) | 19 Février 2011
+
+### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

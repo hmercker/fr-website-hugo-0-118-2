@@ -26,3 +26,7 @@ Ainsi, alors que cette chère âme franchit le seuil de ce bâtiment, très cons
 Que Dieu vous bénisse car votre but et vos missions sont grandement nécessaires et profondément bénis par Dieu. Nous, vos amis Célestes, sommes venus pour vous servir, pour vous aimer, pour vous guider et pour vous nourrir sur vos chemins uniques.
 
 Je suis Fleur de Lotus et mon amour est avec vous. N’oubliez pas de faire appel à moi car j’apporte le don de la guérison à chacun d’entre vous. Je désire servir chacun d’entre vous. Que Dieu vous bénisse. Je vous aime. Je suis Fleur de Lotus.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

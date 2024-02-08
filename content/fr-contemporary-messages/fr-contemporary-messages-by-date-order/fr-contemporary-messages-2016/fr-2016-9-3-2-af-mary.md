@@ -20,3 +20,7 @@ Il y aura toujours des défis, âmes bien-aimées, alors que vous atteignez beau
 Vous devez être les exemples. Vous devez marcher la tête haute, sans vous engager dans le jugement ou l’inquiétude, mais en faisant confiance à la volonté de Dieu, que sa volonté, son toucher, son influence, sauveront la journée et apporteront ce qui doit être. Cherchez toujours à atteindre le plus haut, mes bien-aimés. Sachez toujours que Dieu réparera ce qui n’est pas en harmonie lorsque les prières sont dites et que l’amour est exprimé dans la foi et la vérité. Dieu vous bénit, âmes bien-aimées. Continuez vos efforts avec ces belles âmes qui cherchent la vérité. Exprimez clairement votre vérité, soyez aimants à tout moment et permettez à Dieu de guérir ce qui n’est pas en harmonie.
 
 Que Dieu vous bénisse. Que Dieu vous bénisse, je suis Marie et je vous aime.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

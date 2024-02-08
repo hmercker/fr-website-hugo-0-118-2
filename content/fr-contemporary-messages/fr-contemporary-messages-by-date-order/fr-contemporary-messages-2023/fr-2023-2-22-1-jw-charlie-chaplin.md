@@ -21,4 +21,8 @@ Je ne souhaite pas vous remplir de mots, mais vous remplir d’espoir. L’espoi
 
 Je vous laisse maintenant dans un lieu de silence pour que votre cœur puisse parler à Dieu, et je vous y rejoindrai. Je vous remercie de m’avoir permis de venir. Avec un sourire large comme l’océan, une joie haute comme une montagne et un amour qui ne s’arrête jamais. Que Dieu vous bénisse.
 
- Je suis votre frère en Christ, Charlie Chaplin.
+Je suis votre frère en Christ, Charlie Chaplin.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

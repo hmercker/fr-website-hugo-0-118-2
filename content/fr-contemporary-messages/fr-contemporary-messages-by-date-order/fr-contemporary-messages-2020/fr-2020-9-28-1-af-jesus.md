@@ -22,3 +22,8 @@ Le désir de Dieu est que tous puissent connaître ces vérités, les vérités 
 Nous avons maintenant dans cet instrument un alignement si puissant de qualités de médiumnité, de qualités de l’âme, de qualités de désir et d’humilité que nous sommes capables de transmettre des vérités clairement et efficacement à travers lui. Nous devons donc consacrer ensemble un temps et un lieu pour le faire. Nous vous laisserons le soin de l’organiser, de l’intégrer dans vos activités et routines hebdomadaires. Nous vous remercions de votre considération et de la bénédiction dont vous bénéficiez tous deux dans ces efforts.
 
 Que Dieu vous bénisse. Je suis votre frère et ami Jésus. Je continuerai à établir un rapport plus profond avec cet instrument et avec vous deux. Au fil du temps, vous apprendrez à me connaître avec une telle familiarité que ce sera comme si j’étais avec vous dans la chair. Dans cette belle relation, ce lien d’amour que nous partagerons portera beaucoup de fruits et de bénédictions. Que Dieu vous bénisse, âmes bien-aimées, vous garde dans Son Amour, vous élève dans Son Amour. Je suis ici avec vous et mon amour est ici avec vous. Je suis Jésus.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

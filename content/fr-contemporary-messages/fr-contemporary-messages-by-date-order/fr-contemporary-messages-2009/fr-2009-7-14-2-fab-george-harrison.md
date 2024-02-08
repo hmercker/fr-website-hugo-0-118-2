@@ -11,7 +11,7 @@ weight:
 
 George Harrison - reçu par FAB le 14 Juillet 2009, Santa Cruz, Californie, USA.
 
-Je suis là, George Harrison.
+Je suis là, George Harrison.<sup id="a1">[1](#f1)</sup>
 
 Oui, je suis revenu à la maison. J'ai été accueilli par mes parents et Swami Bhaktivedanta.
 
@@ -22,5 +22,10 @@ Mon expérience ici peut se résumer en un mot : **soulagement**. Non pas que ce
 Ce système fou ne peut pas aller plus loin. Je le sais, car je vois tant d'esprits se mobiliser.
 
 Alors gardez l'espoir, et le salut viendra.
+<small>
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+1. <large id="f1"> George Harrison s'était précédemment exprimé [le 12 Juillet 2009](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-12-1-fab-george-harrison/)[↩](#a1)
+
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

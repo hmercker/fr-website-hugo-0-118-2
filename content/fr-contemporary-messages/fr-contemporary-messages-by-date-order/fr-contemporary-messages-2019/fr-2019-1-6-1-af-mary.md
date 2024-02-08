@@ -18,3 +18,7 @@ Bénis sont ceux qui portent la Vérité de l’Amour du Père dans le monde et 
 Dieu répondra à ces questions, âmes bien-aimées, en déversant Sa grâce sur chaque enfant, alors que le monde continue à avoir faim, alors que le monde continue à avoir faim et soif de vérité et d’amour. Vos efforts et vos prières aideront à soulager ce grand besoin de l’humanité. Marchez avec Dieu, âmes bien-aimées, et soyez dans Sa lumière et Ssa grâce et beaucoup de lumière et de bénédictions se déverseront sur vos frères et sœurs alors que vous cherchez à être les canaux d’amour de Dieu.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Marie et je suis aussi avec vous dans vos grands cheminements vers Dieu. Que Dieu vous bénisse. Je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

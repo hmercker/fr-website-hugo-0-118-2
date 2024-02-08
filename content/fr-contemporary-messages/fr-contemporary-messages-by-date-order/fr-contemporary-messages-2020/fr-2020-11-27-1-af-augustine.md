@@ -20,3 +20,7 @@ Certains ont accès à la sagesse de leur âme de manière claire, tandis que d�
 Mettez de côté vos soucis et vos préoccupations, ces soucis terrestres qui font partie de la vie quotidienne. Laissez vos pensées s’éloigner. Permettez-nous, qui sommes avec vous, de vous aider à libérer ces conditions. Dans cette libération et cette élévation, puissiez-vous vraiment connaître la grâce qu’est le toucher de Dieu, Son amour sur vos âmes, éveillant la lumière, atténuant l’obscurité, apportant une vérité claire et simple à votre moi conscient et expérimentant la gloire de Dieu. Ces choses sont à votre portée en ce moment même, à condition que vous soyez prêts à renoncer aux conditions qui vous en empêchent. C’est le cadeau de Dieu pour vous, la promesse de Dieu et notre promesse également, que tout travaille pour votre réveil, cette grande et belle expérience et bénédiction de Dieu. Ouvrez vos âmes, mes bien-aimés. Ouvrez vos cœurs et connaissez la joie qui vient avec le toucher de Dieu sur votre âme.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant, Augustin et je prie avec vous, comme beaucoup. Que Dieu vous bénisse et vous garde dans son amour.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

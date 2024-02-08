@@ -23,3 +23,7 @@ Donc, nous vous encourageons à partager vos histoires, à partager votre parcou
 <small>
 
 1. <large id=”f1”> Voir le livre [« Judas de Kérioth »](/fr-publications-and-downloads/fr-books/fr-conversations-avec-judas-iscariote.pdf).[↩](#a1)
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

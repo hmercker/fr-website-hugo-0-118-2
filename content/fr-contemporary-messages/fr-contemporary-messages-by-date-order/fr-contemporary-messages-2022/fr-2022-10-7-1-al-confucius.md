@@ -15,8 +15,15 @@ Oh précieux petits oiseaux, prenez votre envol dans l’amour, envolez-vous ver
 
 Et ainsi vous construisez un havre de paix en vous et autour de vous avec toutes les péripéties de la vie inconsciente de Dieu. Et vous apportez ici la lumière sacrée de Sa Présence pour vous soutenir et réchauffer vos âmes. Ne sommes-nous pas les instruments de Dieu pour aider à ancrer la réalité de Dieu sur Terre ? Et pour apporter la conscience à ceux qui sont inconscients des grandes bénédictions et des trésors que Dieu souhaite donner à chacun de ses enfants ? Bien-aimés, élevez-vous dans la lumière et apportez la lumière de Dieu à votre monde, dans la prière, dans votre [être même] sur le monde.
 
-Je suis Confucius. Je viens pour apporter, élever, et donner de la vitalité à chacun de vous. Que Son Amour continue à vous transformer, âmes bien-aimées, et à vous rapprocher toujours plus de votre Créateur.
+Je suis Confucius<sup id="a1">[1](#f1)</sup>. Je viens pour apporter, élever, et donner de la vitalité à chacun de vous. Que Son Amour continue à vous transformer, âmes bien-aimées, et à vous rapprocher toujours plus de votre Créateur.
 
 Âmes bien-aimées, âmes bien-aimées, vous êtes aimées au-delà de toute mesure. Puissante dans votre lumière. Vous êtes belles dans votre comportement. Oiseaux au plumage exquis, vous exprimez la merveilleuse volonté de Dieu sur cette Terre.
 
 Je viens pour vous soutenir. Je viens vous saluer, et je viens parce que je vous aime, mes beaux frères et sœurs.  Précieux pour Dieu, pour moi et pour tous les anges du ciel. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués  par Confucius sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a1)
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

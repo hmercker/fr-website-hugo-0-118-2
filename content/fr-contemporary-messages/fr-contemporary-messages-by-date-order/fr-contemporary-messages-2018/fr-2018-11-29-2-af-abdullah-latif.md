@@ -9,7 +9,7 @@ weight:
 ---
 ### Le pouvoir de la prière
 
-Abdullah Latif - reçu par Al Fike le 29 Novembre 2018, Fitzroy Falls, NSW, Australie.
+Abdullah Latif<sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 29 Novembre 2018, Fitzroy Falls, NSW, Australie.
 
 Je suis Abdullah et je suis un habitant du Royaume Céleste et j’ai vécu autrefois dans cette partie du monde d’où vous venez fille bien-aimée. Je veux vous dire que Dieu est partout. Ses bénédictions sont disponibles pour toute âme qui cherche ces bénédictions, mais Dieu ne peut pas contrevenir au don du libre arbitre et donc vous ne pouvez pas vous attendre à ce que Dieu orchestre chaque partie de votre vie et la vie de ceux qui vous entourent, ni la vie de ceux qui vivent dans divers pays de votre monde. Cela ne peut pas se faire. Ceci contrevient aux lois que Dieu a mises en place depuis le tout début des temps. Mais vous pouvez demander une intervention et prier pour que les bénédictions viennent à ceux pour qui vous priez et cela peut changer les événements du monde.
 
@@ -24,3 +24,17 @@ Alors, mes amis, vous pouvez prier pour le monde et je vous encourage à le fair
 Amis bien-aimés, il est bon que vous priiez. Il est bon que vous désiriez le plus haut et le plus grand bien de l’humanité. Le monde a besoin de plus de personnes qui sont prêtes à prier de cette façon. Car cela apportera lumière et réconfort, guérison, paix, amour, harmonie. Ainsi, continuez à vous engager pour Dieu par vos prières et vos actions et que Dieu vous guide ainsi. Que Dieu vous guide vers plus de Lumière et d’Amour afin que vous portiez une Lumière avec vous partout où vous allez afin d’être, en toute circonstance, un agent actif de Dieu, un canal de Son Amour. Cela peut être. Cela apportera le changement. Vous pouvez être utilisé pour répondre à la prière en tant qu’agent actif de Dieu. Il y a beaucoup de possibilités pour une âme qui est en harmonie avec Dieu et qui communie avec les cieux et peut recevoir ce don de l’Amour, l’Amour Divin qui entraînera l’éveil et l’ouvertures de l’âme et apportera ainsi une grande sagesse et des messages puissants à Dieu par la prière.
 
 Que Dieu vous bénisse, âmes bien-aimées, je suis Abdullah et je suis heureux d’être avec vous aujourd’hui. Abdullah Latif est mon nom et j’ai vécu au Moyen-Orient il y a bien des années. Je fus un philosophe, un enseignant, un mathématicien, et j’ai eu une certaine influence devant les tribunaux et les autorités qui sont dans ces pays. Que Dieu vous bénisse. Que Dieu vous bénisse. Mon amour est avec vous, mes amis bien-aimés. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> Abdullah Latif s'est également exprimé dans les messages suivants :[↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Abdullah Latif | [Le plus grand guérisseur de tous est notre créateur, Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-90-1970-anonymous-abdullah-latif/) |   1970
+Abdullah Latif | [Vous devez chaque jour communier avec le Grand Esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-153-1970-anonymous-abdullah-latif/) |   1970
+Abdullah Latif | [L’humanité a le pouvoir de créer sa propre réalité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-27-1-af-abdullah-latif/) | 27 Janvier 2019
+Abdullah Latif | [L’importance du treillis de lumière pour percer les ténèbres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-14-1-af-abdullah-latif/) | 14 Mars 2021
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -30,4 +30,6 @@ Sincèrement, Nietzsche.
 
 1. <large id="f1"> **Nietzsche** (15 Octobre 1844 – 25 Août 1900), philologue et philosophe allemand, a produit des critiques de la culture, de la religion et de la philosophie contemporaines centrées sur une question fondamentale concernant les attitudes positives et négatives envers la vie de divers systèmes de moralité. (Extrait de Wikipedia) Il est particulièrement ironique que l’une de ses célèbres citations soit : *« Au paradis, toutes les personnes intéressantes ont disparu. »* Mais on peut supposer que puisqu’il n’est pas heureux, il n’est pas encore vraiment au paradis.[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

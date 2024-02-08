@@ -46,3 +46,7 @@ Dieu continue à déverser Son Amour dans votre âme et Son intention est que vo
 Que Dieu vous bénisse de Son amour, mes amis bien-aimés. Puissiez-vous en effet forger votre propre façon de nous connaître, de communiquer avec nous. Car nous transmettons la Volonté de Dieu. Nous continuons à travailler en tant qu'intermédiaires entre Dieu et vous-même afin que vous puissiez, de manière consciente, connaître les étapes à suivre, le flux qui est voulu et béni par Dieu. Au fur et à mesure que vous vous éveillerez, vous vous rapprocherez non seulement de nous mais aussi du Père Céleste. Son être sera reconnu par les facultés de votre âme et la communion et le rapport plus profonds avec Dieu découleront de cet éveil.
 
 Que Dieu vous bénisse, mes bien-aimés. André vous aime. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -19,4 +19,6 @@ Ce que je voulais dire, c'est que la guerre a simplement été une réalité tou
 
 Je sais que c'est difficile à comprendre, mais chaque esprit est traité avec justice, en fonction de l'état de son âme.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

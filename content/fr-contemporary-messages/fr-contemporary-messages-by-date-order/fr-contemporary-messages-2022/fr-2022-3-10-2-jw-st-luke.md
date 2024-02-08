@@ -22,3 +22,7 @@ Ainsi, la vie spirituelle sur terre sera toujours une lutte car votre attention 
 Nous aimons souvent citer ce que le Maître a dit à propos de « celui qui gagne ou hérite du monde entier et qui pourtant perd son âme« . Nous en avons parlé à maintes reprises et de nombreuses façons, car c’est tellement important. Lorsque vous vous réunissez en prière, que vous vous ouvrez et que vous permettez à Dieu d’apporter Son grand amour dans vos âmes, et que vous ressentez cette harmonie, cette paix, cette félicité, puissiez-vous y rester un petit moment, puis un peu plus longtemps, jusqu’à ce que, je peux vous l’assurer, dans n’importe quel temps, long ou court, cela devienne votre état d’être : Un avec Dieu dans l’Amour Divin. Comme nous vous aimons, chers frères et sœurs, tous les enfants de Dieu.
 
 Alors, envoyez votre amour au monde entier car il n’y a pas de frontière dans l’Amour de Dieu. Attendez-vous à un miracle et soyez de bonne humeur. Ne vous inquiétez pas. Je suis votre frère en Christ, une âme rachetée depuis longtemps dans les Cieux Célestes et je vous aime. Je suis Luc. Allez en paix.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

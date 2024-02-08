@@ -30,3 +30,16 @@ Que Dieu vous bénisse dans votre voyage d’éveil. Que Dieu vous donne toutes 
 Que Dieu vous bénisse, mes amis, je suis Tahlia. Je vous apporterai ma force pour vous aider là où elle sera requise. Beaucoup, beaucoup, beaucoup, beaucoup d’autres qui résident dans les Cieux travailleront avec vous. Le plan de Dieu se déroule et le plan de Dieu est grand. Le plan de Dieu est insurmontable par la condition humaine. Il sera surmonté par l’Amour, par le toucher de Dieu, par le pouvoir de la Grâce, par le pouvoir du monde naturel de se redresser. Beaucoup, beaucoup d’éléments conspirent pour apporter le changement. Ce n’est pas une punition. C’est simplement une réponse à la volonté de Dieu, à vos prières et au besoin de guérison et d’équilibre. Dieu ne permet pas à ses créatures et à la création de dépasser les lois naturelles qu’il a mises en place. Il y a toujours une correction et un équilibre à venir afin de contourner le pouvoir de l’humanité qui a reçu le don du libre arbitre.
 
 Souvenez-vous du pouvoir de vos propres choix, mes amis. Souvenez-vous que tout ce que vous faites a des conséquences, que vous pouvez choisir avec sagesse et amour, que vous pouvez marcher dans la Grâce, que vos pas peuvent être doux, que vos actions peuvent être d’amour, et que vous pouvez suivre la Grâce, la Sagesse et la Vérité de la Création et de l’Amour de Dieu pour vous.
+<small>
+
+1. <large id="f1"> Tahlia s'est également exprimé dans les messages suivants :  [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Tahlia | [Semer les graines de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-1-1-af-tahlia/) | 1 Décembre 2016
+Tahlia | [Marcher dans la lumière à travers les bouleversements à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-2-1-af-tahlia/) | 2 Octobre 2017
+Tahlia | [Connaître Dieu dans son grand fleuve d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-17-2-af-tahlia/) | 17 Mars 2018
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

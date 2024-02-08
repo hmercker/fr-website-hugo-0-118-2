@@ -51,4 +51,6 @@ Je dis qu'il y a évidemment eu des personnes privilégiées qui ne se sont pas 
 
 Mais c'est une généralisation exacte que de dire, comme je l'ai fait plus tôt dans cette canalisation, que le système économique en place est déséquilibré. Il ne fait pas ce qu'il devrait faire, c'est-à-dire fournir à la population générale ce dont elle a besoin. Beaucoup ont sincèrement pensé qu'il le ferait, mais ce n'est pas du tout la réalité actuelle.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

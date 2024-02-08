@@ -24,3 +24,7 @@ Les changements bienvenus dans votre monde feront apparaître la force et les ca
 Et ainsi vous êtes prêts à apporter les mots de la vérité, le toucher de la guérison, l’étreinte de l’amour ; apportant les dons de votre âme pour accomplir l’étreinte de Dieu à tous ses enfants, atteignant chaque âme. Puisse le temps venir où chaque enfant sera conscient de ses choix, de ses grands potentiels, de la source du plus grand et du seul Amour qui apportera son salut, sa paix et sa joie, qui apportera sa liberté.
 
 Je suis André, je n’ai pas écrit auparavant mais vous avez reconnu ma présence et je reviendrai car je désire écrire davantage. Prenez part à un temps de prière régulier et vous verrez les merveilles d’une telle régularité. J’apporte mes bénédictions et mon amour chaque fois que vous souhaitez que je vienne prier avec vous. C’est André, je prie avec toi et Dieu te bénit, mon amour est avec toi.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -31,14 +31,14 @@ Augustin | [Conseils sur notre but et nos besoins](/fr-contemporary-messages/fr-
 Seretta Kem | [Soyez patient alors que l’Amour Divin grandit dans votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-20-1-af-seretta-kem/) | 20 Janvier 2019
 Augustin | [Dire les vérités de Dieu en termes simples et aimants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-20-2-af-augustine/) | 20 Janvier 2019
 St Luc | [La prière pour l'Amour Divin est le Noyau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2019-1-20-3-af-st-luke/) | 20 Janvier 2019
-Marthe | [Soyez ouverts et réceptifs à ce que nous faisons - Que chacun de vous puisse donner à chacun de vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2019-1-20-4-af-martha/) | 20 Janvier 2019
+Martha | [Soyez ouverts et réceptifs à ce que nous faisons - Que chacun de vous puisse donner à chacun de vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2019-1-20-4-af-martha/) | 20 Janvier 2019
 Augustin | [Que chacun de vous puisse donner à chacun de vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-21-1-af-augustine/) | 21 Janvier 2019
 Jésus | [Jésus apporte une bénédiction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-21-2-mc-jesus/) | 21 Janvier 2019
 Albert Einstein | [De nombreux scientifiques en esprit travaillent à l'établissement de meilleures communications entre les mondes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-25-1-af-albert-einstein/) | 25 Janvier 2019
 St Matthieu | [Quel est le désir de votre âme en termes de vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-25-2-af-st-matthew/) | 25 Janvier 2019
 Augustin | [Comment unifier des croyances diverses ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-26-1-af-augustine/) | 26 Janvier 2019
 André | [Tous ont une certaine capacité à communiquer avec les anges](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-26-2-af-andrew/) | 26 Janvier 2019
-Sri Yarisupta | [Réponses aux questions sur la guérison par l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-26-3-af-sri-yarisupta/) | 26 Janvier 2019
+Sri Yukteswar | [Réponses aux questions sur la guérison par l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-26-3-af-sri-yarisupta/) | 26 Janvier 2019
 Augustin | [Questions concernant les directives sur les changements terrestres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-26-4-af-augustine/) | 26 Janvier 2019
 Seretta Kem | [Mise en place de portails](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-26-5-af-seretta-kem/) | 26 Janvier 2019
 Abdullah Latif | [L’humanité a le pouvoir de créer sa propre réalité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-27-1-af-abdullah-latif/) | 27 Janvier 2019
@@ -161,7 +161,7 @@ Yogananda | [La porte de la lumière passe par le cœur](/fr-contemporary-messag
 Augustin | [Les enfants de vos enfants connaîtront un monde différent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-5-22-1-af-augustine/) | 22 Mai 2019
 Augustin | [Choisir de boire la subsistance de la vie de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-5-27-1-af-augustine/) | 27 Mai 2019
 Care Derby Walsh | [Ceux qui servent Dieu dans l'amour travaillent au niveau de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-5-28-1-jw-care-derby-walsh/) | 28 Mai 2019
-White Cloud | [Vous devez vous lever et dire la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-6-1-1-af-white-cloud/) | 1 Juin 2019
+Nuage Blanc | [Vous devez vous lever et dire la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-6-1-1-af-white-cloud/) | 1 Juin 2019
 St Matthieu | [Différences de perception entre le mental matériel et le mental de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-6-1-2-af-st-matthew/) | 1 Juin 2019
 Marie | [Les intentions de vos âmes apportent de nombreuses bénédictions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-6-2-1-af-mary/) | 2 Juin 2019
 St Matthieu | [Ne jugez pas les autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-6-3-1-af-st-matthew/) | 3 Juin 2019
@@ -340,7 +340,7 @@ Yogananda | [Vous êtes digne de Son amour](/fr-contemporary-messages/fr-contemp
 Augustin | [Venez à Dieu avec humilité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-16-3-af-augustine/) | 16 Novembre 2019
 St Luc | [Les conditions énergétiques de la Terre vous affectent tous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-17-1-af-st-luke/) | 17 Novembre 2019
 St François d'Assise | [Devenez les jardiniers de vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-17-2-jw-st-francis-of-assisi/) | 17 Novembre 2019
-Lotus Blossom | [Vos pensées ont un grand pouvoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-17-3-mc-lotus-blossom/) | 17 Novembre 2019
+Fleur de Lotus | [Vos pensées ont un grand pouvoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-17-3-mc-lotus-blossom/) | 17 Novembre 2019
 Michael Collier | [Vous êtes porteur d'une vérité particulière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-18-1-af-michael-collier/) | 18 Novembre 2019
 Augustin | [Marcher dans la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-19-1-af-augustine/) | 19 Novembre 2019
 Augustin | [Ne perdez pas un instant et ne prenez rien pour acquis](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-20-1-af-augustine/) | 20 Novembre 2019
@@ -396,8 +396,6 @@ Yogananda | [Priez !](/fr-contemporary-messages/fr-contemporary-messages-by-date
 André | [Dieu ne vous abandonne jamais](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-27-1-af-andrew/) | 27 Décembre 2019
 Augustin | [Partager la bonne nouvelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-29-1-af-augustine/) | 29 Décembre 2019
 
-[Lien vers les messages de l’année 2020](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
-<br>
-<br>
-[Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
 
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

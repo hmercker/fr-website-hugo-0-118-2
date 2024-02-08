@@ -32,4 +32,6 @@ Merci d’être un si bon ami. (Jean)
 
 1. <large id="f1"> **Ce message est intéressant, et d'autant plus quand on sait qu'il y a 2000 ans, les théologiens sont arrivés à cette conclusion eux aussi, mais malheureusement leur manque total de compréhension de la métaphysique les a amenés à élaborer au moins deux doctrines totalement en désaccord avec les lois spirituelles. Et ce sont bien sûr le "péché originel" et la « naissance virginale ». Tout cela parce qu'ils voulaient "prouver" que Jésus était différent de nous d'un point de vue spirituel, si ce n'est physique...**[↩](#a1)
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014)
+### [**Lien vers les messages des années 2014**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-20143/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

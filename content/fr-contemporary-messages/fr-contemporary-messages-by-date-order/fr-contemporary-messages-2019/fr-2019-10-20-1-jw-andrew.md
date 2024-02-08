@@ -18,3 +18,7 @@ Je dis à tous, où que vous soyez, si vous trouvez un endroit, que ce soit dans
 En ce moment sur Terre, je ne saurais trop insister, ou plutôt nous ne saurions trop insister, sur l’importance et l’impératif d’établir ces Cercles de Lumière, ces sanctuaires, ces lieux de refuge pour l’âme.
 
 Comme Dieu entend chacune de vos prières, nous sommes nous aussi attirés. Nous aussi, nous demandons la paix, la paix qui dépasse l’entendement, l’Amour qui change chaque âme du mortel à l’immortel. Vous, mes chers anges en attente, avez plus d’aide que vous ne pouvez l’imaginer. Nous sommes avec vous dans l’Amour et la Lumière de Dieu. Nous vous remercions pour vos efforts. Croyez-moi, ils ne resteront pas lettre morte et les récompenses sont au-delà de ma description. Nous sommes avec vous aujourd’hui et toujours dans la Lumière et l’Amour. Que Dieu nous bénisse tous. Allez en paix. Allez en paix. Je suis André.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -27,3 +27,8 @@ C'est le plan, c'est ce qui est prévu. Puissiez-vous venir à cet endroit, mes 
 <small>
 
 1. <large id="f1"> **Bertrand Arthur William Russell**, 3e comte Russell, né le 18 mai 1872 à Trellech (Monmouthshire, pays de Galles), et mort le 2 février 1970 près de Penrhyndeudraeth, au pays de Galles, est un mathématicien, logicien, philosophe, épistémologue, homme politique et moraliste britannique. Russell est considéré comme l'un des philosophes les plus importants du XXe siècle.[↩](#a1)
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

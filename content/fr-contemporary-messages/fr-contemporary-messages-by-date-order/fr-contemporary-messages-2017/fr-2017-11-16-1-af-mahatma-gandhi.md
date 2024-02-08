@@ -30,3 +30,8 @@ Vous êtes sur la bonne voie et beaucoup d'entre nous de mon côté de la vie so
 Continuez à faire progresser vos conditions vers la Lumière, à travailler diligemment pour apporter l'harmonie à vous-mêmes et la perspicacité dans les bénédictions de Dieu toujours, toujours. Allez vers Dieu, la source de tout, et Dieu répondra de façon merveilleuse. Ceci est une vérité. Car en cherchant, vous trouverez, en aimant, il y aura de l'amour dans vos vies, et vous serez assez forts pour retenir l'obscurité, la repousser et apporter la Vérité. C'est mon souhait pour vous mes amis. Apportez la Vérité et la Lumière dans l'obscurité et aidez tous ceux que vous pouvez à réaliser qu'ils sont aimés et que Dieu est Amour. Que Son Amour puisse effectivement venir dans leurs âmes et apporter beaucoup, beaucoup de bénéfices et de grands changements à l'intérieur.
 
 Dieu vous bénisse mes amis, je suis Mahatma Gandhi. J'apporte mon amour. Je vous embrasse tous comme mes vrais amis, mes vrais amis. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

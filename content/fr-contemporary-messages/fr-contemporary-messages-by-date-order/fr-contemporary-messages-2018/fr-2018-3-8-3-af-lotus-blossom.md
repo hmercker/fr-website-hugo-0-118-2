@@ -20,3 +20,7 @@ Alors que vous parvenez à connaître la Volonté de Dieu, Dieu vous guidera et 
 Chaque jour apporte une plus grande opportunité, une leçon, un aperçu, une révélation et une perception qui vous sont offerts par Dieu. Ouvrez vos yeux, mes bien-aimés, ouvrez vos cœurs et vos âmes et vos esprits à la grande générosité, ce banquet de la Vérité qui vous attend. Dieu vous donne tout ce dont vous avez besoin, tout ce que vous désirez qui est en harmonie avec Son Amour et chaque don, afin que vous puissiez servir Dieu avec une plus grande capacité et puissance pour apporter la Lumière. L’illumination de vos âmes vient avec l’éveil par l’Amour. L’un est toujours avec l’autre ensemble, Amour et Vérité, Amour et Vérité. Il sera reconnu par votre âme et utilisé par votre esprit. Cela vient. Vous avez déjà beaucoup à partager. Vous allez partager de nombreuses manières différentes dans ce monde.
 
 Soyez bénis, mes amis bien-aimés. Que Dieu vous garde toujours dans sa lumière et sa sollicitude. Je suis Fleur de Lotus et je vous aime. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

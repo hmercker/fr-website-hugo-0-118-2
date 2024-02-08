@@ -42,3 +42,7 @@ Nous serons avec vous au cours de ce voyage, mes chers et beaux amis. Nous seron
 Dieu vous bénisse, âmes bien-aimées, je suis votre enseignant, Augustin. Je dois dire que je n’ai pas pu résister à l’occasion de venir vous parler de cette manière. Je sais que je suis direct, et c’est ma façon de communiquer, et j’espère que vous êtes parvenus à une plus grande compréhension du processus et du chemin que chacun doit parcourir vers la vérité universelle. Bénédictions à vous, âmes bien-aimées, et sachez que moi aussi je vous assiste alors que vous avancez dans l’amour. Que Dieu vous bénisse. Dieu vous bénit vraiment, pleinement et profondément, avec Son Amour.
 
 Je vous aime tous et je comprends vos luttes, et ainsi nous sommes ensemble. Nous sommes donc ensemble sur le grand chemin de la vie, ce Chemin Divin qui mènera à l’union avec Dieu et à l’accomplissement de la vérité. Dieu vous bénit et vous garde dans son amour. Nous sommes vraiment frères et sœurs, famille de Dieu. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

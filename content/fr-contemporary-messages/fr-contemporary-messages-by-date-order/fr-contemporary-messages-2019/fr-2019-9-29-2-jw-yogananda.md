@@ -26,3 +26,7 @@ Nous sommes là, en cet instant, avec vous. Ne sentez-vous pas l’Amour du Pèr
 Je souhaite ajouter quelque chose, car je suis encore avec cet instrument et il souhaite que je le dise. Une chose que je souhaite que vous considériez. Les scientifiques examinent l’univers et son immensité et ils découvrent, année après année, qu’il est plus grand et plus merveilleux qu’ils n’auraient pu l’imaginer. Pourtant, ils découvrent aussi que dans le plus petit composant de l’atome, il y a la même merveille – la même vie miraculeuse.
 
 Ce voyage conduit à l’émerveillement et à la crainte et, espérons-le, pour ceux qui ont un esprit intellectuel, à l’ouverture de leur cœur et de leur âme dans la réalisation de la grandeur du Créateur et, en effet, Dieu est grand ! Je dis cela parce que si vous essayez de comprendre la merveille de l’immensité de l’univers ou simplement ce que vous devez faire en ce moment, comprenez, mes chers amis, que tout est un miracle. C’est une merveille. Tout est glorieux. Merci. Que Dieu vous bénisse. Je vous laisse maintenant dans l’amour et la paix.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -43,4 +43,6 @@ Je réalise qu'il s'agit d'une longue canalisation et je réalise que vous ne vo
 
 Mais plus la guérison se poursuit, plus le progrès spirituel s'accroît, et plus le progrès spirituel est grand, plus vite les Cieux célestes se produiront sur terre. Il y a un tournant maintenant. Le chemin est devant vous. La route se précise. Il y a autant de routes vers le Royaume Céleste qu'il y a d'individus sur terre. Et ce que je veux dire par là, c'est que bien que les mortels qui sont sur le chemin Divin aient un but similaire, leurs chemins devront être différents en fonction des différences de personnalités et de désirs, et chacun d'entre vous sait où se trouve son chemin. Il n'y a pas besoin de se sentir limité par votre groupe. Soyez audacieux, expérimentez, faites confiance à votre cœur, honorez les autres **** (croyances ?) du monde. Faites des changements radicaux dans votre vie. Voyez cela comme une grande aventure. Nous honorons le but de votre âme. Nous vous remercions pour tout ce que vous avez fait. Alors maintenant, je vais vous souhaiter une bonne nuit.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)
+### [**Lien vers les messages des années 2002**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

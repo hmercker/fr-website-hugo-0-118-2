@@ -45,5 +45,8 @@ Vous pouvez assurer à vos adeptes qu’ils ont des gardiens Célestes qui les g
 
 Je vous aime, chaque âme qui cherche à faire la Volonté de Dieu et désire servir d’exemples de Son Amour rendu manifeste dans un monde malheureux. Que Dieu vous bénisse. Je suis un ange Céleste élevé, qui se sent béni pour cette opportunité de servir mes semblables dans ce monde. Amen.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+
+### [**Lien vers les messages des années 2000**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

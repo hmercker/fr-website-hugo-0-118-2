@@ -19,11 +19,15 @@ J’ai montré à certains de ces esprits indigènes le chemin de la Nouvelle Na
 
 Les cloches de la liberté sonneront, et Miss Liberty allumera sa torche au monde entier et lui dira que l’Amérique représente la vraie liberté.
 
-Je vous écrirai davantage à l’avenir. Je sais que tu voulais en savoir plus, mais il est préférable que je m’arrête.
+Je vous écrirai davantage à l’avenir. Je sais que vous vouliez en savoir plus, mais il est préférable que je m’arrête.
 
-Votre ami, Roger Williams.
+Votre ami, Roger Williams.<sup id="a2">[2](#f2)</sup>
 <small>
 
 1. <large id="f1"> **Roger Williams** (21 Décembre 1603 – 1er Avril 1684) était un théologien anglo-américain, un partisan notable de la séparation de l’Église et de l’État, un défenseur des relations équitables avec les Amérindiens, fondateur de la ville de Providence, Rhode Island et cofondateur de Rhode Island. Roger Williams a échangé 7 perles contre Rhode Island. (Extrait de Wikipedia.)[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+2. <large id="f2"> Roger Williams a communiqué un second message le [23 Mars 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-23-1-fab-roger-williams/)[↩](#a2)
+
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

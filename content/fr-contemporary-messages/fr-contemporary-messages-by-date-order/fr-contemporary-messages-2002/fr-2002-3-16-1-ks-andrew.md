@@ -35,4 +35,6 @@ Je vais te laisser maintenant avec mon amour et mes bénédictions. Laisse-toi a
 
 Je suis ton ami et ton frère dans le Christ - l'Esprit de l'Amour de Dieu manifesté dans mon âme - André, l'apôtre de Jésus, et un véritable adepte de ses enseignements.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)
+### [**Lien vers les messages des années 2002**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

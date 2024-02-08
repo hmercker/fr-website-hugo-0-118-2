@@ -21,3 +21,7 @@ Ne voudriez-vous pas faire partie de quelque chose qui apporterait aux gens de t
 Que Dieu vous bénisse, âmes bien-aimées, bien-aimées. Je suis si heureuse de vous parler aujourd’hui. Oui, je suis très élevée dans le monde de l’esprit, près des Cieux Célestes, et je vais franchir cette porte très rapidement.
 
 Je me réjouis à cette perspective. Je suis heureux de venir vous parler aujourd’hui et d’être dans ce grand courant d’amour qui est le toucher de Dieu sur nous tous dans ces moments de prière. Je vous remercie de m’avoir écouté et je vais moi aussi prier pour vous tous. Dieu vous bénit, Dieu vous bénit. Je vous aime tous, belles lumières dans le monde. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

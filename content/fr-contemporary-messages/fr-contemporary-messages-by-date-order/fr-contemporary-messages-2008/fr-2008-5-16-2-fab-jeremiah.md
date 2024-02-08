@@ -13,7 +13,7 @@ Jérémie - reçu par FAB le 16 Mai 2008, Santa Cruz, Californie, USA.
 
 Je suis là, Jérémie.
 
-J'étais une personne qui avait une indignation vertueuse. Je voyais des choses qui n'étaient pas bonnes, et je voulais qu'elles soient meilleures.
+J'étais une personne qui avait une indignation vertueuse. Je voyais des choses qui n'étaient pas bonnes, et je voulais qu'elles soient meilleures.<sup id="a2">[2](#2)</sup>
 <small>
 
 1. <large id="f1"> Le sujet de l'indignation vertueuse a également été traitée dans les messages  suivants :[↩](#a1)
@@ -26,5 +26,8 @@ Jésus | [Jésus parle de l'indignation vertueuse](/fr-contemporary-messages/fr-
 Jésus | [Jésus parle de la juste indignation - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-6-13-1-fab-jesus/) | 13 Juin 2010
 Jésus | [Jésus parle de la juste indignation - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-7-29-2-fab-jesus/) | 29 Juillet 2010
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+2. <large id="f2"> Les différents messages communiqués  par Jérémie sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-fr-religious-figures/)[↩](#a2)
 
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

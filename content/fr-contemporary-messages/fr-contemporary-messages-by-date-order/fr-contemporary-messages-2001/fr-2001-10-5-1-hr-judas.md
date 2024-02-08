@@ -80,4 +80,6 @@ Judas.
 
 1. <large id="f1"> La destination d'Héliopolis a été mentionnée pour la première fois par le Dr Samuels [dans ce message](/fr-samuels-messages/fr-revelations/fr-rev-9-1955-1-10-samuels-jesus/).[↩](#a1)
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)
+### [**Lien vers les messages des années 2001**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

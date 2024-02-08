@@ -23,3 +23,6 @@ Puissiez-vous continuer sur cette voie du service et trouver facilement votre ch
 
 Que Dieu vous bénisse. Je suis André. Mon amour est avec vous tous. Que Dieu vous bénisse, mes amis bien-aimés.
 
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -37,4 +37,6 @@ Dieu vous bénira en fonction de votre ouverture et de votre foi. Vos anges gard
 
 Je vous aime, ainsi que tous les enfants de Dieu, et je travaille avec les âmes en quête sur terre depuis des siècles. Je suis votre ami et frère en Christ, Jacques, l’Apôtre de Jésus, appelé Jacques le Mineur (le frère de Jésus, pas le frère de Pierre).
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)
+### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

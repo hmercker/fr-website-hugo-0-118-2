@@ -29,3 +29,7 @@ J’observais avec Claire <sup id=”a2”>[2](#f2)</sup> et nous avons décidé
 1. <large id=”f1”> Le petit-fils de Care était présent.[↩](#a1)
 
 2. <large id=”f2”> Claire d’Assise.[↩](#a2)
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -52,3 +52,7 @@ J’espère que cela vous rassure sur le fait que vous contrôlez la situation e
 Nous allons maintenant mettre fin à cette session et je vous remercie d’avoir à nouveau fait l’effort de vous réunir dans ce Cercle de Lumière et d’être ensemble dans ce désir de comprendre votre véritable moi et de comprendre Dieu.
 
 Que Dieu vous bénisse dans ce voyage, mes bien-aimés. Que Dieu vous bénisse. Je suis Flavius Josèphe.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

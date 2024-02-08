@@ -18,3 +18,7 @@ Je suis Charles, votre frère sur le chemin de l'amour de Dieu. Je souhaite part
 Je lui demande, ainsi qu'aux autres, à vous tous, de faire la danse. C'est une comédie Divine. C'est une romance Divine. L'amour de l'âme dépasse de loin les affections naturelles. Je le sais maintenant. Laissez votre amour briller. Dansez dans la joie. Parlez avec votre cœur. Parlez de votre âme et n'oubliez pas d'agiter un peu votre moustache. Comme vous le savez, Dieu a un merveilleux sens de l'humour. Sinon, comment pourrions-nous être ici ?
 
 Que Dieu vous bénisse. Je vous aime. Je suis votre frère et ami, Charles, Charlie Chaplin.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

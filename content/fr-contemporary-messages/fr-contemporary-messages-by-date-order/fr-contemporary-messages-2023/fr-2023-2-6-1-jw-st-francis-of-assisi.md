@@ -24,3 +24,7 @@ Souvenez-vous qu’en mourant, nous naissons à la vie éternelle dans l’amour
 Nous vous aimons. Prenez courage, ayez la foi, ayez confiance en Dieu et en vos propres dons. Vous êtes tous une telle bénédiction pour le monde. Je vais prendre du recul et vous rejoindre en ce moment sacré, dans ce cercle de lumière, dans cette paix, avec tout mon amour, je suis votre ami dans l’amour de Dieu.
 
  Je suis François. Mes frères et sœurs, que Dieu vous bénisse !
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

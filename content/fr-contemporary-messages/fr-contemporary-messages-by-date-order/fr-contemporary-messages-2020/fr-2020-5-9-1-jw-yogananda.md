@@ -18,3 +18,7 @@ Je viens dans l’Amour de Dieu et je souhaite partager quelques propos avec ce 
 Le cher frère qui a mentionné le Maître (Greg.B.) et son ouverture des bras en don d’amour au-delà des mots, c’est en effet ce que chacun peut partager. Lorsque vous marchez dans la Grâce et dans l’Amour de Dieu, les mots ne sont souvent pas nécessaires. Mais si vous les prononcez, sachez qu’ils contiennent l’intention et la présence de vos âmes. Vous n’avez pas besoin de convaincre qui que ce soit que vous l’aimez lorsqu’il ressent votre amour. Ainsi, en parcourant ce monde avec amour, l’Amour de Dieu dans vos âmes, vous touchez beaucoup de personnes, vous bénissez beaucoup de personnes et vous apportez une présence de guérison.
 
 Puissiez-vous chacun continuer à savoir du plus profond de votre âme et de tout votre cœur que Dieu vous aime. Nous ne vous abandonnerons jamais. Si vous appelez, nous viendrons. Comme l’a dit le cher frère, *« il n’avait pas peur »* (Terry.A.). Alors, avancez dans l’amour. Ceux qui ont peur, vous leur apporterez la paix. Que la paix qui dépasse l’entendement soit avec chacun de vous. Que la gloire de Son Amour soit vôtre. Avec tout mon amour et mes bénédictions, je suis votre frère en Christ. Je suis Yogananda.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

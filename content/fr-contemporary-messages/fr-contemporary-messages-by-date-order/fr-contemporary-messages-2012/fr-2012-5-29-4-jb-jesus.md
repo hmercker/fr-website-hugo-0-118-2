@@ -36,4 +36,6 @@ Jésus avec toute la compagnie du ciel Céleste.
 
 1. <large id="f1"> Ce message, et les trois précédents communiqués par [Martin Luther](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-29-3-jb-martin-luther) et [Anne Rollins](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-29-2-jb-ann-rollins/), ont tous été reçus consécutivement. Ce jour-là, il s’agissait d’une méditation globale commune, et le destinataire avait médité pendant six heures avant de recevoir les quatre messages.[↩](#a1)
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

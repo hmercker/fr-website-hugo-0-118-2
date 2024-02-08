@@ -12,3 +12,7 @@ weight:
 Goldie - reçu par Al Fike le 6 Août 2017, Gibsons, Colombie-Britannique, Canada
 
 Oh, quand les saints entrent en marchant et qu'ils franchissent cette porte, remplissant la pièce, marchant dans le cercle de lumière et d'amour pour que tous les voient. Ne serez-vous pas heureux, mes chers, si vous faites partie de ce miracle ? Goldie vous aime et nous faisons tous partie de ce miracle. Que Dieu vous bénisse, mes chers amis. Je vous aime.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

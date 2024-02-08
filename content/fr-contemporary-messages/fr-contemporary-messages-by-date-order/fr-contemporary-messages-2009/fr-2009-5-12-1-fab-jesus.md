@@ -21,4 +21,7 @@ Je répète donc, en gardant tout cela à l'esprit, que le système doit s'harmo
 
 Peut-être le problème pour vous, une fois de plus, est-il les limites qu'apporte le langage humain.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

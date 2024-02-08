@@ -45,4 +45,6 @@ Mais même en tenant compte de tous ces enseignements mensongers, les rabbins ta
 
 L'humanité attend maintenant l'épanouissement du spiritualisme, qui voit les esprits communiquer directement avec la Terre. Et le couronnement de tout cela sera la nouvelle naissance de l'âme, où l'immortalité sera assurée.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

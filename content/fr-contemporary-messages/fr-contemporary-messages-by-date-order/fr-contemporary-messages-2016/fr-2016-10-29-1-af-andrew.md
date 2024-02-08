@@ -20,3 +20,7 @@ Si le monde entier était motivé par les désirs de son âme, par ce lieu de l�
 Continuez à danser avec Dieu de cette manière, à vous ouvrir, à ouvrir vos yeux, à savoir à travers vos âmes ce qui est vrai et ce qui est important dans vos vies et vous trouverez une joie profonde et durable qui ne peut être obtenue d’aucune autre manière que cette ouverture et cette plongée dans les profondeurs de vos âmes avec toute l’honnêteté et la véritable intention, le désir et l’envie.
 
 Soyez avec Dieu, mes bien-aimés, et sachez que vous êtes continuellement embrassés par Dieu et c’est à vous de le savoir, de le reconnaître, et de le désirer et vous découvrirez la Vérité, vous connaîtrez plus profondément chaque jour cette merveilleuse étreinte. Que Dieu vous bénisse. Je suis André et je vous aime.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

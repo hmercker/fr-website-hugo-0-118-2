@@ -50,3 +50,7 @@ Je suis désolé d’être si sérieux ce soir. En effet, notre désir est de vo
 Que la puissance de l’Amour de Dieu vous apporte une paix profonde, âmes bien-aimées, et une compréhension et une conscience fermes que tout se dirige vers l’harmonie et la lumière et qu’en temps voulu, tous seront sauvés, leur salut assuré, soit dans la lumière de l’amour naturel, soit dans la gloire de l’Amour Divin. Leurs âmes trouveront la lumière et s’éveilleront à la Vérité.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant Augustin. Je vous aime et me tiens toujours à vos côtés et vous aiderai à naviguer dans les changements du monde, les défis que vous avez dans vos vies, les luttes vers la lumière. Moi, et beaucoup d’autres anges, promettons de marcher avec vous et de vous garder en sécurité et de vous aider à grandir dans vos âmes. C’est notre promesse, à condition que vous le désiriez et que vous fassiez le plus grand effort pour être proches de Dieu. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées. Je vous aime.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

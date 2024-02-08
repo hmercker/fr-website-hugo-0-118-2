@@ -26,3 +26,7 @@ De nombreuses choses attendent chaque âme qui aspire à ce don, car c’est bie
 Chacun d’entre vous sait qu’il est sur la bonne voie et qu’il connaîtra un réveil puissant qui le changera et l’amènera à la Vérité et à Dieu. Ce cadeau et la puissance de ce cadeau le feront dans le temps, dans la foi, dans la prière, ainsi vous serez bénis, âmes bien-aimées.
 
 Je suis Keea Atta Kem et je vous bénis, mes bien-aimés. Je vous bénis dans la lumière et mon amour coule vers vous pour vous aider à alléger votre chemin et vous apporter une profonde compréhension et reconnaissance de votre âme. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés. Keea vous aime.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

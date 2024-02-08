@@ -28,3 +28,7 @@ En effet, ces moments de confusion et d’inquiétude s’atténueront en vous. 
 Vous devez prier pour l’Amour du Père à chaque respiration, car c’est dans cette bénédiction que tout se déroulera en harmonie et vous trouverez vos pas, votre stabilité, votre force et vous serez une fontaine d’amour dans le monde. Car dans ce lieu, si différent de tant de gens, vous serez un canal d’amour vers lequel beaucoup, beaucoup seront attirés. N’est-ce pas ce que chacun cherche, mes bien-aimés, être fermement ancrés dans l’Amour – exprimer l’amour d’une manière pure ? Être le canal d’Amour de Dieu, toucher l’autre et apporter une guérison et un réconfort – un sentiment qu’il est vu et reconnu ? Vous apporterez cela mes bien-aimés, vous apporterez cela en grandissant – en acceptant ce nouveau soi émergeant né de l’Amour et exprimé dans l’Amour.
 
 Que Dieu vous bénisse, mes bien-aimés. Votre enseignant Augustin continue à se tenir à vos côtés alors que vous émergez et devenez cette expression de lumière et d’amour dans le monde. Je vous aime tendrement et vous avez de nombreux participants – anges de lumière – qui sont avec vous dans ce processus de naissance et nous vous aimons tendrement. Dieu vous touche profondément. Dieu vous bénit, Augustin vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

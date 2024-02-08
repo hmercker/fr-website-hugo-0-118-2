@@ -23,4 +23,6 @@ Et puis, ici, j'ai remarqué certaines négativités en moi dont je n'avais pas 
 
 Donc, ce que j'ai canalisé à l'origine est tout à fait vrai, mais pas complètement, à cause des imperfections terrestres.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

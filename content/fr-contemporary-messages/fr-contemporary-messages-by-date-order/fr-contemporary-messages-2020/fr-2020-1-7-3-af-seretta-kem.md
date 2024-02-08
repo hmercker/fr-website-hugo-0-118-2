@@ -38,3 +38,7 @@ Cela ne compromet pas votre compréhension de la Vérité, mais c’est se joind
 Soyez assurés, mes amis, que vous marchez sur un chemin éclairé et profondément béni et que vous continuerez à le faire. Que Dieu vous bénisse sur ce chemin. Sachez que nous marchons avec vous dans la joie, dans la reconnaissance profonde de vos dédicaces, dans la reconnaissance affectueuse de vos belles âmes, et que nous marchons tous ensemble dans la Grâce de Dieu.
 
 Que Dieu vous bénisse, âmes bien-aimées. Seretta Kem vous aime tendrement. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -20,3 +20,7 @@ Ce n’est pas que vous êtes en grand danger, mais en effet, les conditions dan
 Nous vous remercions pour tous vos efforts et pour ce que vous êtes en tant que belles, brillantes et précieuses âmes. Continuez à tenir bon, à avoir la foi, à être forts en amour, et forts dans la vérité de l’amour de Dieu.
 
 Que Dieu vous bénisse. Je suis Keea Atta Kem et je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

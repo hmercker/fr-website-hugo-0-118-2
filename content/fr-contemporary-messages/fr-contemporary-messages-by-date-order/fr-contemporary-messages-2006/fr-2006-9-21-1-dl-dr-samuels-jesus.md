@@ -27,11 +27,11 @@ C’est une chose que « d’espérer » que votre travail sera d’une certaine
 
 Bien sûr, cela signifie que, pour vous tous qui travaillez dans la vigne du père, ce n’est en aucun cas une cessation de vos propres travaux. Mais maintenant, cela se fera avec des cœurs et âmes élargis en sachant que les graines que vous avez semées ont pris racine et sont maintenant toujours croissantes !
 
-Après être arrivé et avoir été capable de me réorienter à mon nouvel environnement et après avoir clairement compris que j’étais maintenant un esprit, beaucoup m’ont accueilli <sup id="a1">[1](#f1)</sup>.
+Après être arrivé et avoir été capable de me réorienter à mon nouvel environnement et après avoir clairement compris que j’étais maintenant un esprit, beaucoup m’ont accueilli<sup id="a1">[1](#f1)</sup>.
 
 Comme c’est le cas habituel, j’ai d’abord été accueilli par ma famille et des amis qui m’avaient précédé, la plupart d’entre eux étaient toujours orientés dans leurs croyances Juives.
 
-Peu après, j’ai rencontré Jésus, quelques-uns des disciples, M. et Mme Padgett, leurs parents et beaucoup d’autres personnes que vous ne connaissez pas. Lorsque Dr Georger, Eugène Morgan et, bien sûr, le Dr Stone sont venus me saluer, nous avons développé une merveilleuse amitié entre nous tous.
+Peu après, j’ai rencontré Jésus, quelques-uns des disciples, M. et Mme Padgett, leurs parents et beaucoup d’autres personnes que vous ne connaissez pas. Lorsque Dr Georger, Eugène Morgan et, bien entendu, le Dr Stone sont venus me saluer, nous avons développé une merveilleuse amitié entre nous tous.
 
 Oui, c’est vrai que je suis resté dans une obscurité relative depuis mon passage en matière de communication terrestre. Cela est dû en partie à l’accent mis sur le développement de mon âme et la volonté d’atteindre les Cieux Célestes, où je réside maintenant. Mais une plus grande partie de mon obscurité relative fut aussi dû à mon propre travail choisi ici dans le monde des esprits.
 
@@ -49,11 +49,11 @@ Alors, mes chers amis, prenez courage dans vos réalisations. Réjouissez-vous d
 
 En toute humilité et grande gratitude, je tiens à dire que, oui, je suis toujours avec vous et j’ai souvent, et particulièrement, visité et tenté d’encourager ceux qui ont été et travaillent toujours avec diligence et amour pour l’accomplissement du Royaume. Et surtout, je tiens à vous remercier personnellement, mon frère, d’avoir très bien capté l’essence de mon message.
 
-Je vous laisse maintenant, j’espère n’être plus un inconnu du passé, mais, maintenant et toujours, votre propre ami et frère consacré à l’Amour de Dieu, Daniel G. Samuels.
+Je vous laisse maintenant, j’espère n’être plus un inconnu du passé, mais, maintenant et toujours, votre propre ami et frère consacré à l’Amour de Dieu, Daniel G. Samuels.<sup id="a2">[2](#f2)</sup>
 
 *[Note : J’ai pensé que c’était la fin d’une communication plutôt étendue de l’esprit. Cependant, j’ai été incité intérieurement à comprendre que Jésus voulait ajouter un post-scriptum. Voici, ci-dessous, ce qu’il avait à dire.]*
 
-Oui, cher frère, c’est moi Jésus qui vous ai influencé pour me permettre d’ajouter un post-scriptum. Je veux affirmer tout d’abord que le message de Daniel était et est exact. Et puisque mon merveilleux frère, Daniel, m’a très bien servi en prenant les messages, nous avons estimé qu’il devrait être le seul à prendre la parole, pour nous, aujourd’hui. Bien sûr, le point de repère, ou cap dont il parle, est essentiellement « fluide » et non stationnaire. Comme la terre rassemble la pluie sur la terre, ce sont aussi des âmes aspirantes qui collectent de plus en plus l’Amour de Dieu qui est en elles. Et les « eaux » de l’Amour de Dieu vont ainsi se manifester de plus en plus sur la terre.
+**Oui, cher frère, c’est moi Jésus** qui vous ai influencé pour me permettre d’ajouter un post-scriptum. Je veux affirmer tout d’abord que le message de Daniel était et est exact. Et puisque mon merveilleux frère, Daniel, m’a très bien servi en prenant les messages, nous avons estimé qu’il devrait être le seul à prendre la parole, pour nous, aujourd’hui. Bien sûr, le point de repère, ou cap dont il parle, est essentiellement « fluide » et non stationnaire. Comme la terre rassemble la pluie sur la terre, ce sont aussi des âmes aspirantes qui collectent de plus en plus l’Amour de Dieu qui est en elles. Et les « eaux » de l’Amour de Dieu vont ainsi se manifester de plus en plus sur la terre.
 
 En prélude à ce message, par le biais de divers messages de transe reçus par plusieurs, j’ai souligné qu’il est temps, pour vous, de reconnaître la puissance et la gloire de l’Amour de Dieu en vous et d’aller maintenant manifester cela avec les autres. Le temps est maintenant propice à rassembler les âmes pour le Royaume sur un plan plus personnel. Notre information est bien établie dans nos nombreux et divers volumes, et cela va continuer à éveiller beaucoup d’âmes à la Vérité. Mais il n’y a rien de plus puissant que la touche personnelle, parce que cette touche fait beaucoup plus facilement son chemin, plus directement et plus rapidement dans les âmes de ceux qui sont exposés à la présence de l’Amour que possède une autre personne. L’Amour de Dieu resplendit de l’âme qui communique sans un mot et de manière invisible, mais il n’y a aucune meilleure communication que cet Amour dans toute la création.
 
@@ -64,5 +64,10 @@ Votre frère pour l’éternité, Jésus.
 
 1. <large id="f1"> Il semblerait, d'après les enregistrements de l'Index des décès de la Sécurité sociale détenus par Ancestry.com, que le Dr Samuels soit décédé en mars 1982, et comme il est né le 18 mai 1908, cela lui ferait 73 ans au moment de son décès.[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+2. <large id="f2"> Dr Asamuels a ultérieurement communiqué un second message [le 26 Février 2012](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-2-26-1-fab-daniel-samuels/)[↩](#a2) 
+
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
 

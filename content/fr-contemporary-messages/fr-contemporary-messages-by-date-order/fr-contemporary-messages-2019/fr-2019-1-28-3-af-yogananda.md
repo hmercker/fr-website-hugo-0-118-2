@@ -22,3 +22,7 @@ Vous y trouverez tant de réconfort, de paix, de joie, de calme et d’Amour. Ce
 Il y a une grande lumière dans cette pièce, mes bien-aimés, de belles âmes. Il y a un grand potentiel pour éveiller votre âme ici aujourd’hui. Buvez profondément, mes amis. Sachez que vous avez un don rare parmi vous, les bénédictions des forces angéliques, le Toucher de la Source Céleste. C’est à vous de demander, à vous toujours parce qu’il n’y a aucune restriction pour ceux qui désirent, au plus profond d’eux-mêmes, le toucher, l’éveil, l’expansion de leur âme dans l’Amour. C’est avec vous maintenant, mes amis. C’est avec vous maintenant. Alors allons-nous nous immerger ensemble dans ces eaux vivantes et ressentir la joie d’un cœur comblé d’Amour ?
 
 Que Dieu vous bénisse. Je suis Yogananda et mon amour et votre amour va à Dieu en reconnaissance de l’émerveillement de l’univers créé dans l’amour. Que Dieu vous bénisse profondément, mes amis.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

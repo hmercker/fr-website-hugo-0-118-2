@@ -18,3 +18,7 @@ Sentez en vous cette touche magnifique et inestimable que personne ne peut décr
 Dieu vous bénisse, âmes bien-aimées, cherchez cette vérité, cherchez cet amour et je vous assure que vous ouvrirez des portes d’émerveillement, des portes de beauté, des portes remplies de lumière. C’est votre choix, âmes bien-aimées, c’est un cadeau qui vous est offert et c’est notre fervent désir que vous saisissiez ce cadeau, que vous vous ouvriez à cette opportunité car c’est simple, cela prend peu de temps, cela ne demande qu’un effort sincère et cela changera effectivement votre vie, si vous avez suffisamment de cette bénédiction en vous.
 
 Que Dieu vous bénisse et merci de me permettre de parler. Je suis Matthieu, j’habite le Royaume Céleste et je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

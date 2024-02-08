@@ -20,3 +20,7 @@ Je souhaite dire quelque chose de personnel à mon bien aimé. Il y a beaucoup d
 Alors mon cher, décide de ce que tu veux faire, avec qui et quand, et si tu te sens dépassé, tu peux t’excuser. Car je sais que tu ne veux pas argumenter ou défendre ta position mais plutôt être dans la joie qui est dans ton âme et dans mon âme dans l’Amour de Dieu. Dirige toujours ta boussole dans cette direction et je serai avec toi.
 
 Que la bénédiction de l’Amour de Dieu soit avec vous et votre cher frère tout au long de ce jour et de la veille, et qu’elle vous apporte beaucoup de joie et de bonheur alors que vous permettez à vos âmes d’être remplies. Tout mon amour et mes bénédictions à vous deux, mes chers frères et mon bien-aimé. Je suis Care. Allez avec Dieu !
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

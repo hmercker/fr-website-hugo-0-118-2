@@ -31,4 +31,7 @@ Ce que je veux dire, c'est qu'un véritable acte d'amour sacrificiel devrait él
 
 Sans l'écran de fumée que le Christianisme Orthodoxe a érigé, vous pouvez voir comment un acte d'amour peut bénéficier à celui qui le donne en donnant à cette âme aimante un meilleur sentiment envers elle-même.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

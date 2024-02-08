@@ -11,7 +11,7 @@ weight:
 
 Confucius - reçu par Al Fike le 27 Novembre 2019, Sydney, Australie.
 
-Bénédictions à vous, âmes bien-aimées. Je suis Confucius. Les vents du changement et de l’opportunité continuent de souffler en votre sein, âmes bien-aimées, vous soufflant ici et là, vous amenant dans le giron de vos proches et de ceux qui souhaitent prier avec vous dans les Cercles de Lumière et d’Amour. Cherchez ces invitations, mes bien-aimés. Sachez que Dieu vous guidera sur les ailes de l’Amour.
+Bénédictions à vous, âmes bien-aimées. Je suis Confucius<sup id="a1">[1](#f1)</sup>. Les vents du changement et de l’opportunité continuent de souffler en votre sein, âmes bien-aimées, vous soufflant ici et là, vous amenant dans le giron de vos proches et de ceux qui souhaitent prier avec vous dans les Cercles de Lumière et d’Amour. Cherchez ces invitations, mes bien-aimés. Sachez que Dieu vous guidera sur les ailes de l’Amour.
 
 Alors que vous continuez à prier avec d’autres dans votre maison, dans ces Cercles, d’une manière qui vous rassemble dans l’Amour et la Lumière de Dieu, sachez que la Main de Dieu repose sur vous tous, tous ceux qui sont ici. Tous ceux qui sont ici, vous êtes bénis, âmes bien-aimées, portés, guidés, bénis encore et encore. Permettez à la Grâce de Dieu de se poser sur vous comme un chaud manteau d’Amour. Soyez assurés que vous serez guidés en avant, que les portes continueront à s’ouvrir, et que les dons continueront à couler et à se renforcer et à apporter des bénédictions aux autres.
 
@@ -22,3 +22,12 @@ Tant de choses sont données et continueront à couler, à vous éveiller et à 
 Les portails vont continuer à s’ouvrir. Les bénédictions continueront de couler. L’amour sera votre mantra, votre prière quotidienne. Il sera ce qui concerne votre esprit et votre âme et consumera tout dans l’harmonie et l’amour. Que les bénédictions de Dieu continuent à vous réveiller, âmes bien-aimées. Buvez profondément. Buvez profondément ces Eaux afin que vous puissiez vous élever et être toujours dans la Lumière.
 
 Que Dieu vous bénisse. Je suis avec vous, comme beaucoup, dans ce grand cadeau du toucher de Dieu sur vous. Que Dieu vous bénisse. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués  par Confucius sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a1)
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+

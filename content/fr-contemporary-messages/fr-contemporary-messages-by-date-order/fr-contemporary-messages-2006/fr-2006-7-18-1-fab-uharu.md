@@ -38,5 +38,7 @@ Uharu | [Une perspective amérindienne sur la société](/fr-contemporary-messag
 Uharu | [Préjugés contre les Amérindiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-9-7-1-fab-uharu/) | 7 Septembre 2007
 Uharu | [Les bons et les mauvais aspects de la culture Amérindienne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-12-23-1-fab-uharu/) | 23 Décembre 2007
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

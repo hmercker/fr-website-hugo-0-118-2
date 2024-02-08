@@ -20,3 +20,7 @@ Vous êtes tous porteurs de grands potentiels, mes bien-aimés. Vous aspirez tou
 Que Dieu vous bénisse, mes chers enfants bien-aimés. Sachez que vous êtes dans la Lumière. Sachez que Dieu a sa main sur vous, mes bien-aimés, et que vous êtes dans nos pensées, les pensées de nos âmes. Car lorsque nous prions, nous prions pour vous. Nous cherchons à faire la volonté de Dieu en votre nom, à apporter les bénédictions, à apporter la lumière à vous et à votre monde.
 
 Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse. Mon amour est avec vous. Je suis Marie et je suis avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

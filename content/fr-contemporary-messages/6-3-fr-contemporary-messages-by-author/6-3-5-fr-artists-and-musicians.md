@@ -80,6 +80,10 @@ Natalie Wood | [Expériences dans le monde des esprits d’une star de cinéma -
 Phil Ochs | [L'expérience d'un chanteur populaire américain dans le monde de l’esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-8-1-fab-phil-ochs/) | 8 Février 2008
 Phil Ochs | [Un Folksinger est heureux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-5-1-fab-phil-ochs/) | 5 Mars 2008
 Rembrandt Harmenszoon van Rijn | [Rembrandt n’était pas spirituel sur terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-3-16-1-fab-rembrandt-harmenszoon-van-rijn/) | 16 Mars 2003
+Richard Rodgers | [Rodgers et Hammerstein ont honoré Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-5-5-1-fab-richard-rodgers/) | 5 Mai 2003
+Richard Rodgers | [Les expériences de Richard Rodgers](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-10-13-1-fab-richard-rodgers/) | 13 Octobre 2009
+Richard Rodgers | [Une autre vision de l’Amérique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-7-30-1-fab-richard-rodgers/) | 30 Juillet 2013
+Richard Wagner | [Vos efforts seront récompensés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-21-9-af-richard-wagner/) | 21 Novembre 2017
 Rock Hudson | [La confusion d’une star de cinéma](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-10-9-1-fab-rock-hudson/) | 9 Octobre 2011
 Rock Hudson | [Nul besoin d'avoir honte de ce que vous êtes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-21-5-af-rock-hudson/) | 21 Novembre 2017
 Stephen Foster | [Maladie mentale et musique dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-1-9-1-fab-stephen-foster/) | 9 Janvier 2005

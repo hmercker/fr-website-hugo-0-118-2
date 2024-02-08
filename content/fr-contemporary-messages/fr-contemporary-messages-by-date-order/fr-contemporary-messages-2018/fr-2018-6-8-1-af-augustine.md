@@ -22,3 +22,7 @@ Dieu souhaite que vous soyez guéris, bénis et élevés, que la Lumière dans v
 Soyez en paix, mes bien-aimés. Chacun de vous est vraiment aimé de Dieu. Sur le chemin de votre vie, c’est à vous de réaliser l’étendue et la largeur de Son Amour pour vous. Ce simple désir et cette envie du plus profond de vous est la clé qui ouvre cette porte et permet à tout le bien et la Lumière, la beauté et la grâce, l’Amour et la joie d’entrer dans vos cœurs. En cela vous libérerez vos douleurs, vos doutes et tout ce qui est un poids pour votre vie pourra être libéré avec la bénédiction de l’Amour Divin. C’est une grande joie pour nous de vous voir entrer volontairement dans ce ventre de Lumière. Dieu déverse Sa bénédiction sur vous et sur nous. C’est la grâce et la vérité de l’Amour de Dieu qui s’exprime alors qu’il coule, guérit et enveloppe ces âmes bien-aimées qui viennent pour recevoir et donner.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant, Augustin et mon amour est avec vous. Je serai avec vous pour ce temps et d’autres anges vous accompagneront. Des bénédictions d’Amour et de Vérité, des paroles d’assurance et de sagesse seront données. Que Dieu vous bénisse. Dieu vous bénisse, âmes bien-aimées. Je vous aime.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

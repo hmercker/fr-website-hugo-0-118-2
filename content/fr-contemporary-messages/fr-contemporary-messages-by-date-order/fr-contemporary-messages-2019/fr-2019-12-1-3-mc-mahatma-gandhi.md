@@ -24,3 +24,8 @@ Nous avons grandement besoin de vous. Votre travail aide, aide vraiment à dissi
 J’espère donc que vous ressentez mon amour et ma force, mes encouragements pour chacun d’entre vous. Il est important de savoir que vous êtes soutenus, que vous êtes aimés, et que nous travaillons ensemble. Vous n’êtes jamais seuls et nous continuons à vous servir. Que Dieu bénisse chacun d’entre vous dans son union avec notre Père Céleste. C’est un chemin humble, un chemin vrai, un chemin direct et un chemin glorieux.
 
 Continuez à servir l’éveil de vos âmes en recevant ce beau cadeau de l’Amour Divin. Je suis le Mahatma Gandhi et mon amour est avec chacun d’entre vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

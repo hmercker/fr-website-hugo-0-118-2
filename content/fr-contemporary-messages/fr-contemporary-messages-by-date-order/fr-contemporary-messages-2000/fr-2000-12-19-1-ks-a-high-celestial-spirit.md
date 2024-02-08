@@ -35,5 +35,8 @@ Ne croyez pas tout ce que votre mental raisonneur vous dit, car il est extrêmem
 
 Je vous aime tous et chacun et je prie pour que certains dilemmes soient résolus grâce à ces conseils. Je suis un ange Céleste élevé qui vous laisse maintenant avec mes bénédictions, et je vous remercie pour le privilège que vous m’avez donné d’écrire. Amen
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+
+### [**Lien vers les messages des années 2000**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

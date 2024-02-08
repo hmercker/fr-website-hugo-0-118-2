@@ -32,3 +32,7 @@ C’est la Loi. C’est la Loi en action. Ainsi, l’Amour est gratuit pour tous
 C’est la seule délimitation. Elle est déterminée par chaque individu car les mécanismes de l’univers sont toujours présents et fonctionnent sans exclusion, sans délimitation, seulement ce qui est dans les Lois de la Création de Dieu. Ainsi, lorsque vous êtes en alignement avec ces lois, l’univers de Dieu s’ouvre à vous. Vous êtes habilités par votre compréhension, votre désir, votre ouverture et votre capacité à utiliser les lois telles qu’elles ont été enseignées. Ainsi, mes amis bien-aimés, pouvons-nous nous ouvrir à un grand afflux de l’Essence de Dieu dans nos âmes. Ouvrez-vous et éveillez-vous à cette vérité, et sachez que vous êtes profondément bénis, reconnus et aimés par votre Créateur.
 
 Que Dieu vous bénisse, amis de la lumière, enfants de la vérité, âmes de Dieu. Je suis Orion. Mon amour est avec vous, âmes bien-aimées.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

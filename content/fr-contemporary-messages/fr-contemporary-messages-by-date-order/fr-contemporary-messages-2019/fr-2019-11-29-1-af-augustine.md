@@ -18,3 +18,8 @@ Que l’amour du Père remplisse votre âme, chers et beaux amis. Alors que vous
 Les anges sont avec vous. De nombreux anges se rassemblent autour de vous avec un profond désir de vous aider dans votre guérison et votre éveil alors que vous voyagez vers Dieu. Ainsi, Dieu désire que tous les amis et les bénédictions, bons et bien-aimés, soient avec vous. Anges du ciel, anges du ciel sont à vos côtés, âmes bien-aimées.
 
 Bénédictions à vous. Amour pour vous. Paix à vous. L’élévation et la guérison à vous tous. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées, qu’il vous garde dans sa lumière. Augustin vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

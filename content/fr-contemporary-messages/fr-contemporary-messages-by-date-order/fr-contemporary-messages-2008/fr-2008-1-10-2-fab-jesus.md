@@ -19,4 +19,6 @@ Il a voulu utiliser le mot « moral » pour souligner qu'il y a effectivement un
 
 Dans les circonstances dans lesquelles l'humanité se trouve actuellement, il est nécessaire, comme lui et moi le croyons, que les gens aient foi en cette loi correctrice. Beaucoup le font déjà.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

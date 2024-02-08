@@ -24,3 +24,7 @@ Faites tout ce que vous pouvez pour vous éveiller aux voies de la lumière, de 
 Que Dieu vous bénisse dans ce voyage, âmes bien-aimées. Considérez ce qui vous est offert. Considérez qu’il vous est tant donné. C’est à vous d’accepter, d’embrasser, d’avoir une profonde gratitude et une grande joie pour ce que Dieu vous apporte, ce que l’amour vous donne, et tout ce que vous pouvez faire à mesure que vos dons s’ouvrent, que les facultés de votre âme s’éveillent, tout ce que vous pouvez faire à la gloire de l’amour, à la gloire de Dieu, à la gloire de la Vérité.
 
 Que Dieu vous bénisse, mes amis, je suis André. Je viens vous élever et vous dire que votre frère, Jésus, s’approche pour bénir chacun d’entre vous. Ouvrez-vous à ses bénédictions. Ouvrez-vous aux bénédictions de Dieu, et connaissez la joie et la liberté qui viennent dans ce beau temps de prière. Que Dieu vous bénisse. André vous aime tous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

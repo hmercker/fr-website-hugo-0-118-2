@@ -18,3 +18,7 @@ En parcourant ce monde, mes frères et sœurs, si vous pouviez dire une seule ch
 Nous comprenons les besoins de nourriture et d’abri, de pouvoir voyager et (dans votre cas), de répandre la parole de l’Amour de Dieu qui embrasse tout le monde. Pendant cette période, nous souhaitons également au monde une guérison et à tous les êtres humains de considérer non seulement ce qui est nécessaire dans votre monde, mais comme je l’ai déjà dit, ce que vous emporterez avec vous, et cela, bien sûr, c’est votre âme. Comme l’a dit le maître :  *« N’emmagasinez pas vos trésors sur la terre »* , mais recevez les richesses sans commune mesure de l’Amour de Dieu. Cela, vous le savez. Mes frères, je vous encourage à passer votre temps à être l’amour, à parler l’amour, à chanter l’amour, à partager l’amour. De cette façon, vous serez une bénédiction pour tous, comme vous le souhaitez. Comme nous vous aimons, tous les frères et sœurs sur ce beau chemin, quelles que soient leurs différences, nous les soutenons.
 
 Je vous embrasse chaleureusement, vous et les vôtres et tous. Que Dieu vous bénisse. Je suis votre frère et ami dans l’éternité, je suis François.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -16,3 +16,7 @@ Oh, vous êtes tous si sérieux. Vous travaillez si dur, vous êtes si assidus d
 Puissiez-vous trouver une légèreté dans votre démarche, pour danser dans la joie, pour rire, pour rire, car Dieu veut que Ses enfants soient joyeux et libres. C'est Son désir pour chacune de ses belles âmes. Laissez partir tout ce qui vous accable, mes bien-aimés. Soyez libres, libres de chanter de votre cœur, de danser, de sourire, de voir le monde tel qu'il est vraiment, beau, la belle Création de Dieu et de vous voir les uns les autres, quelles belles âmes vous êtes. Quelles belles âmes vous êtes.
 
 Que votre vision augmente, que vos yeux de l'âme s'ouvrent largement afin que vous puissiez embrasser la joie de Son Amour, l'émerveillement de Sa Création, la beauté qui est en chacun de vous. Que Dieu vous bénisse, mes bien-aimés. Je suis Goldie et je vous aime.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

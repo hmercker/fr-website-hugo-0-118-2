@@ -22,3 +22,7 @@ Je marche seul et pourtant je marche avec mon Père Céleste. Je marche avec mes
 Pourtant, comme vous le savez, je continue à grandir dans l’Amour du Père et à m’éveiller ainsi dans mon ministère et mes efforts dans ce monde et dans l’au-delà. Oui, je continue à grandir dans l’Amour comme vous tous. Je continue à tracer la voie pour vous tous. Je continue à vous aimer tous. Je suis votre frère, votre ami, et je marche sur le chemin que Dieu a choisi pour moi et que j’ai choisi avec Dieu pour atteindre durant mon existence.
 
 Que Dieu vous bénisse, mes bien-aimés. J’espère que cela répond à cette question de la composition de mon âme et du besoin d’une âme-sœur. Que Dieu vous bénisse et mon amour est avec vous, mes bien-aimés. Je suis avec vous dans tout ce que vous faites pour la Vérité et l’Amour. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

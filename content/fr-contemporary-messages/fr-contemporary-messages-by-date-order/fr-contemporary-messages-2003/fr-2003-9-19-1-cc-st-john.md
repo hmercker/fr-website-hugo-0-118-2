@@ -20,4 +20,6 @@ Mais Dieu ne se connectera pas à l’âme de l’homme à moins que celle-ci ne
 
 1. <large id="f1"> J’ai passé un peu de temps avec un groupe de spiritualistes. Ils se réunissent le dimanche. Une grande partie de leur service est un « cercle de messages », où 5 à 10 médiums transmettent à l’auditoire des messages de leurs proches et de leurs guides spirituels. Je me suis rapproché de l’un des médiums que je trouve sincère et aimant. Lorsque je lui ai dit au revoir après la réunion, elle m’a dit que je n’étais pas seul et que je ne devais pas me sentir seul. Je ne comprends pas pourquoi elle m’a dit cela. Je n’ai pas ressenti cette émotion. Tout au long de la journée, cette pensée est restée dans ma tête.[↩](#a1)
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)
+### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -40,3 +40,8 @@ Avec le temps, vous connaîtrez tous et travaillerez d’une manière consciente
 Continuez à prier pour le don de ces portails, âmes bien-aimées. Vous savez en vous-mêmes lorsque vous êtes dans la condition qui profite vraiment à ces portails et vous envoyez les prières sincères de votre âme pour que Dieu bénisse ces efforts. C’est tout ce qui est requis en ce moment, âmes bien-aimées. Gardez cela dans votre conscience, non pas comme une obsession ou une préoccupation profonde, mais dans la reconnaissance joyeuse d’un don et d’un désir d’être en harmonie et en alignement avec ce don. C’est simple. Nous ne vous demandons pas beaucoup, âmes bien-aimées. Nous demandons simplement votre coopération et de garder dans votre conscience cette réalité, l’existence de ces belles et magnifiques bénédictions de Dieu.
 
 Vous trouverez votre chemin, âmes bien-aimées. Vous trouverez votre chemin et que Dieu vous bénisse dans vos voyages. Que Dieu vous bénisse. Je suis Seretta Kem. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

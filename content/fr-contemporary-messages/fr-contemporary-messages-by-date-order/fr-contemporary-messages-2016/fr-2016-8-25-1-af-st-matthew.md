@@ -22,3 +22,9 @@ Mes frères, mes sœurs, cherchez le Royaume. Cherchez cet Amour et vous hérite
 Alors, mes âmes bien-aimées, je vous en conjure, je vous en supplie, je vous le demande, ouvrez vos âmes à l’afflux de cet Amour. Non, il ne réside pas en vous comme un attribut naturel de votre être. L’amour existe certainement dans chaque âme donnée par Dieu lors de votre création, mais cet amour, cette bénédiction spéciale est donnée par la prière, le désir et l’ouverture, la décision de l’âme de le recevoir, de le connaître, d’être bénie de cette façon.
 
 Que Dieu vous bénisse, âmes bien-aimées. Merci de m’avoir permis de parler. Reconnaissez la différence entre les niveaux de conscience du mental, ce royaume aqueux et celui de l’âme, cette aventure remplie de lumière, un éveil et de cette façon chacun de vous peut choisir ce qu’il désire, ce qui est important pour lui. Dieu souhaite vous donner tout ce que vous désirez. Il souhaite que vous vous développiez, que vous grandissiez et que vous exploitiez toutes les potentialités de votre être. Mais Il vous donne aussi l’opportunité d’aller au-delà de vos capacités naturelles vers un endroit qui est illimité dans ses potentiels et nous qui résidons dans les Cieux Célestes vous donnons une invitation. Ouvrez cette porte à Dieu au sein de votre âme et demandez à recevoir Son Amour. Vous connaîtrez ce dont je parle, cet Amour rédempteur, cet Amour guérisseur, cet Amour Divin et vous connaîtrez une grande joie, une grande joie dans cet éveil. Que Dieu vous bénisse. Que Dieu vous bénisse. Je suis Matthieu et je suis heureux de parler aujourd’hui de cette grande bénédiction. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+

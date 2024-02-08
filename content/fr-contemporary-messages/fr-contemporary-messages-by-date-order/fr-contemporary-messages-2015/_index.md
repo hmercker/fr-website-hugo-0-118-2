@@ -41,8 +41,6 @@ Simon | [Être un canal d’Amour](/fr-contemporary-messages/fr-contemporary-mes
 Augustin | [Commencez à connaître votre but](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-11-30-1-af-augustine/) | 30 Novembre 2015
 Augustin | [Libre arbitre contre Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-12-14-1-af-augustine/) | 14 Décembre 2015
 
-[Lien vers les messages de l’année 2016](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
-<br>
-<br>
-[Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
 
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

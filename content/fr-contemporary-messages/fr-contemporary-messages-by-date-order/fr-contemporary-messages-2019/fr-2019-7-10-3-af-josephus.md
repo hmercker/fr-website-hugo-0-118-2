@@ -40,3 +40,7 @@ Vous vous serrez les coudes et vous vous soutenez mutuellement, n’est-ce pas ?
 Oui, parfois ces conditions persistent, mais je vous le dis, ce n’est pas un état permanent. Vous trouverez la résolution et la guérison de ces parties de vous qui continuent à être coincées dans la condition humaine. Je vous le dis, âmes bien-aimées, cherchez Dieu dans tout ce que vous faites. Cherchez à être dans Son Amour. Cherchez à être dans Sa Vérité et tout viendra à la résolution et à la guérison et à la paix.
 
 Que Dieu vous bénisse. Je suis Flavius Joseph et il est temps de partir jusqu’à notre prochaine rencontre. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

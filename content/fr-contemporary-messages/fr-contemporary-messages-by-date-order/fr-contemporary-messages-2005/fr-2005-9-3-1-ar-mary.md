@@ -25,4 +25,6 @@ C’est ainsi que nous pouvons élever les autres à leur propre dignité en tan
 
 Je suis heureuse avec le message, ma sœur, et je vous remercie pour votre amour et votre prière d’être un récipient pour l’esprit de vérité. Je suis Marie, la mère de Jésus.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005)
+### [**Lien vers les messages des années 2005**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

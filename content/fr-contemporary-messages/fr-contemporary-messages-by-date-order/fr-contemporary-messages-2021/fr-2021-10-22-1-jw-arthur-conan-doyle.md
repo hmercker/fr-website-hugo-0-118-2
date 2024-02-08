@@ -11,7 +11,7 @@ weight:
 
 Arthur Conan Doyle - reçu par Jimbeau Walsh le 22 Octobre 2021, Gibsons, Colombie-Britannique, Canada.
 
-Je suis votre frère et ami, Arthur Conan Doyle. Je viens parce que j’ai un grand intérêt pour tout projet qui transmet la vérité à l’humanité et se connecte au monde Céleste et aux anges, que ce soit un livre ou une pièce de théâtre, une chanson, un film, ou même une danse. Il existe de nombreuses façons d’atteindre et de toucher le monde avec la vérité de l’Amour de Dieu.
+Je suis votre frère et ami, Arthur Conan Doyle<sup id="a1">[1](#f1)</sup>. Je viens parce que j’ai un grand intérêt pour tout projet qui transmet la vérité à l’humanité et se connecte au monde Céleste et aux anges, que ce soit un livre ou une pièce de théâtre, une chanson, un film, ou même une danse. Il existe de nombreuses façons d’atteindre et de toucher le monde avec la vérité de l’Amour de Dieu.
 
 Je sais que vous avez des projets en cours et je serai heureux de vous aider car, comme vous le savez, j’étais moi-même un peu écrivain. De plus, j’avais l’esprit d’un détective et j’ai mis cela dans mes personnages de Sherlock et de Dr. Watson dans mes écrits, pourtant, dans ma vie personnelle, j’étais profondément attiré et intéressé par le monde des esprits. Comme vous le savez peut-être, je me suis lié d’amitié avec le révérend Owen, j’ai soutenu son travail et je l’ai rejoint plus tard dans son voyage. À ce jour, nous sommes toujours frères en Christ.
 
@@ -20,3 +20,15 @@ Ces amitiés que vous créez avec les gens sur votre chemin d’Amour Divin, qui
 Il y a beaucoup de travail à faire pour chacun à sa manière et nous venons à vous pour vous apporter de l’énergie, des conseils, de l’inspiration et toute influence aimante que nous pouvons vous accorder tout en respectant votre libre arbitre. Alors, voyagez avec nous sur ce beau, sur ce beau chemin qui mène aux royaumes éternels de l’amour de Dieu.
 
 Avec tout mon amour et mes bénédictions et au nom de tous vos amis Célestes, frères et sœurs qui se réjouissent de votre travail, au nom du Royaume, Dieu vous bénisse. Je suis votre frère et ami dans l’amour de Dieu et votre guide, je suis Arthur Conan Doyle. Fais briller la lumière.
+<small>
+
+1. <large id="f1"> Arthur Conan Doyle s'est également exprimé dans les messages suivants :  [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Arthur Conan Doyle | [J'ai ressenti la grâce de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-15-1-jw-arthur-conan-doyle/) | 15 Décembre 2019
+Arthur Conan Doyle | [Deux spiritualistes britanniques sont sur le chemin de l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-18-1-jw-arthur-conan-doyle/) | 18 Juillet 2020
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

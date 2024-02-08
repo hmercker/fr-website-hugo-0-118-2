@@ -25,3 +25,7 @@ Que la grâce de Dieu soit avec vous tous et reste avec vous dans ce cercle de l
 1. <large id=”f1”> Judas m’a dit plus tard que c’est notre âme qui nous conduit à la vérité de l’Amour Divin, pas notre esprit.[↩](#a1)
 
 2. <large id=”f2”> Extrait du livre d’Eileen Caddy « Dieu m’a parlé ».[↩](#a2)
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

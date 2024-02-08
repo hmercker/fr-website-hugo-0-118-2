@@ -68,3 +68,8 @@ Reconnaissez-le plus pleinement et soyez en alignement avec lui, car il est temp
 Que Dieu vous bénisse dans ce voyage, mes amis bien-aimés. Je m'excuse de prendre autant de temps, mais je sens que ce discours clair et simple est important en ce moment pour vous aider à comprendre les luttes dans lesquelles vous êtes engagés et pour aider à clarifier certaines questions qui ont été soulevées dans vos discussions avec d'autres. La réalité humaine, aussi fascinante qu'elle soit, est entachée de tant de défauts et d'erreurs, que tout doit être guéri et transformé et recevoir une nouvelle lumière et un nouveau départ. Il en sera ainsi, mes amis, et il en sera ainsi.
 
 Que Dieu vous bénisse dans ce voyage. Nous continuerons ce voyage ensemble et chercherons à atteindre de plus grands sommets de conscience, une compréhension plus profonde de nous-mêmes, un plus grand amour pour tous, et un plus grand amour intérieur. Que Dieu vous bénisse. Je suis votre ami Orion. Mon amour pour vous est grand. En effet, si je dois vivre ici pour une période de temps, alors je le ferai, car si je peux vous aider et vous assister tous, alors je suis ici pour votre bénéfice et votre élévation, mes beaux amis. Que Dieu vous bénisse profondément, pleinement et complètement. Merci.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

@@ -20,3 +20,7 @@ C'est si simple, mes bien-aimés, si simple. Pourtant, pour beaucoup d'entre vou
 Cette puissante Lumière d'Amour, la belle Touche de Dieu qui est ici pour vous maintenant, mes bien-aimés. Buvez profondément, buvez profondément de ces eaux vivantes afin que vous puissiez vraiment connaître votre Père Céleste qui désire ardemment être connu de vous car il vous connaît bien. Il vous aime au-delà de toute mesure. Il est vraiment connecté à votre être. C'est à vous de le découvrir, de l'accepter et de le connaître avec chaque fibre de votre être, chaque aspect de votre conscience, au plus profond de votre âme. Nous nous joignons donc à vous dans la prière et continuons à vous exhorter à rechercher l'Amour de Dieu, cette bénédiction qu'il vous appartient de demander, de rechercher et de connaître. Puissiez-vous le faire avec humilité et grâce, avec foi et confiance en votre Père Céleste.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Augustin, évêque d'Hippone et votre maître. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -30,3 +30,7 @@ Beaucoup plus est à venir. Vous sentez la lumière vacillante poindre en vous e
 Vous regarderez en arrière sur ce temps avec une grande joie et gratitude pour ce que Dieu a créé en vous, dans la Lumière et l'Amour. Que Dieu vous bénisse, mes bien-aimés. Je suis Thomas d'Aquin. J'ai un grand Amour pour vous et moi aussi je me tiens près de vous, vous apportant mon Amour et ma chaleur alors que vous vous éveillez à un nouveau jour, un nouvel éveil de votre véritable moi.
 
 Que Dieu vous bénisse mes bien-aimés et je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -9,7 +9,7 @@ weight:
 ---
 ### Affirme la prophétie de ces temps
 
-Élie - reçu par Al Fike le 2 Juillet 2021, Gibsons, Colombie-Britannique, Canada.
+Élie<sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 2 Juillet 2021, Gibsons, Colombie-Britannique, Canada.
 
 Oui, comme mes deux frères ont parlé de moi, je suis venu. Cependant, la question est de savoir si je leur ai implanté l’idée de ma venue ou s’ils ont implanté l’idée de ma présence aujourd’hui auprès d’eux. En effet, vos âmes savent qu’au fur et à mesure que vous progressez sur ce Chemin Divin, vous invitez notre présence et nous vous apportons notre présence en ces temps où vous êtes en prière et en discussion sur les choses spirituelles.
 
@@ -32,3 +32,10 @@ L’amour sera le fondement de tout ce qui est et sera dans votre monde. Ensembl
 Vous êtes destinés à être dans la lumière, âmes bien-aimées. Vous êtes destinés à vivre une vie qui est en harmonie avec toute la création de Dieu. Vous trouverez votre chemin vers cet endroit, ce bel endroit où tout est en grande harmonie, paix et amour.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Élie et je viens à vous avec amour et avec le désir de vous assurer que le grand plan de Dieu pour l’humanité est en train d’être mis en œuvre en ce moment même et qu’il continuera à être exprimé de nombreuses, belles et merveilleuses manières. A travers vous et à travers beaucoup d’autres, le plan de Dieu sera accompli. Tout sera en harmonie. Que Dieu vous bénisse. Que Dieu vous bénisse tous.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués  par Élie sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-fr-religious-figures/)[↩](#a1)
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

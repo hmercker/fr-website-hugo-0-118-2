@@ -16,3 +16,7 @@ Mes bien-aimés, je suis Goldie. Ouvrez vos cœurs à la joie de l’amour. Ouvr
 Sentez vraiment cela dans vos cœurs, mes amis, et sachez que lorsque vous êtes vraiment avec Dieu, c’est une fête joyeuse ; vraiment joyeuse. Avec Son Amour qui se répand dans vos âmes, qui vous réveille et vous apporte le grand réveil et la connaissance de Sa belle Création, tout est joie ; tout est joie.
 
 Que Dieu vous bénisse, mes amis. Mon amour est avec vous. Mon amour est avec vous ; sentez-le dans vos cœurs et sachez que Goldie vous aime. Que Dieu vous bénisse, mes chers amis. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

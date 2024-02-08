@@ -22,3 +22,7 @@ Ensuite, il y a ce que j’appellerai le septième sens qui est une perception d
 C’est pourquoi nous, dans les royaumes Célestes, venons avec vous, pour vous guider, pour vous inciter à prier pour ce don, le plus grand de tous, l’Amour de Dieu, afin que vos dons puissent s’épanouir, s’éveiller et aider ce monde si dépourvu et qui a tant besoin de lumière et d’amour. Alors, priez, et puis priez encore et permettez à ce grand cadeau de s’épanouir afin que vous puissiez marcher dans ce monde dans l’Amour de Dieu et sachez que nous sommes avec vous.
 
 Je suis votre frère et ami dans le Christ, jadis d’Assise, maintenant habitant du Royaume Céleste, disciple du Maître et votre frère dans l’Amour Divin. Je suis François. Que Dieu vous bénisse. Que la paix soit sur vous.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

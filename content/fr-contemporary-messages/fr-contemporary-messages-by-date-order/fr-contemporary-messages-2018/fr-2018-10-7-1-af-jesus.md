@@ -18,3 +18,7 @@ Chacun d’entre vous le saura à sa manière et en fera l’expérience en son 
 Tant de choses vous attendent, mes bien-aimés. Tant de choses sont destinées à être données, qui vous rempliront, déborderont et toucheront les autres. Dans cette vie merveilleuse et cet être en Dieu, vous êtes vraiment Ses enfants, mes bien-aimés, et vous êtes vraiment aimés.
 
 Que Dieu vous bénisse. Je suis Jésus et oui, je suis avec vous. Dans le soin que vous apportez à vos âmes et dans ces moments de sainte communion, dans votre aspiration et vos efforts pour atteindre la liberté de l’âme éveillée, je suis avec vous. Que Dieu vous bénisse, mes bien-aimés. Je suis avec vous.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

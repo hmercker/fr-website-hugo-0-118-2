@@ -34,3 +34,7 @@ Continuez à prier ensemble, âmes bien-aimées, à travailler ensemble, à reco
 Combien il est important pour vous, âmes bien-aimées, de reconnaître le don d'Amour de Dieu dans votre âme et de l'exprimer dans tout ce que vous faites, tout ce que vous êtes. Tant de choses peuvent être accomplies lorsqu'elles sont fondées sur l'Amour, l'Amour du Père Céleste, l'Amour qui vient par la prière, par le contact saint de l'Esprit Saint. C'est l'Amour qui changera le monde, car c'est l'Amour qui changera chaque âme qui le désire, cette merveilleuse bénédiction, et qui l'exprime dans sa vie et découvre par cette expérience et cette communion avec Dieu ce grand dessein que Dieu a imprégné dans vos âmes.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Samuel et je suis heureux de vous parler. Je vous aime. Je continue à suivre vos progrès et à vous aider lorsque je le peux dans ce grand voyage d'éveil de l'âme. Je suis avec vous. Je suis avec vous. Que Dieu vous bénisse, mes bien-aimés.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

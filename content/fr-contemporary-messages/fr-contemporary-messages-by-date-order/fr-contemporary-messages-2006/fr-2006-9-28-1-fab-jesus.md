@@ -33,5 +33,7 @@ Je sais que je n'ai pas été trop précis dans ce message en faisant référenc
 
 Au fur et à mesure que le monde évolue vers une perception plus proche et plus précise de ma vie, les gens seront de plus en plus capables de soulever le Talmud comme l'une des influences majeures de ma vie qui a renforcé et encouragé mon message d'Amour Divin.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

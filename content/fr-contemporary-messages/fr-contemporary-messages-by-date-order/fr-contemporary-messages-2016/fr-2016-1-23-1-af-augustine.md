@@ -22,3 +22,7 @@ Oui, mes bien-aimés, c’est que la prière sincère, qu’elle soit exprimée 
 Bien-aimés, continuez dans vos prières, parvenant toujours plus haut, cherchant toujours plus de Vérité et d’Amour par vos prières. Dieu communique avec vous, mes bien-aimés, et, par vos prières, vous attirez, vers vous, les anges les plus élevés. La puissance de la prière, la puissance de la prière, mes bien-aimés, vous la recherchez, vous la reconnaissez et vous utilisez cette Vérité pour faire avancer votre propre croissance et apporter plus de Lumière dans ce monde et à ceux que vous aimez et auxquels vous êtes connectés, à de nombreuses autres âmes qui tirent profit de votre prière. Continuez, mes bien-aimés, à prier et à prier souvent et soyez sincères et vrais dans vos prières, mes bien-aimés.
 
 Que Dieu vous bénisse pleinement en vous ouvrant à ces bénédictions qui viendront dans de grands torrents et de petites gouttes, une pluie puissante d’Amour se déversant sur vous, bien-aimés, par vos prières, soyez comblés de multiples façons. Que Dieu vous bénisse, mes âmes bien-aimées. Je suis votre maître Augustin et je vous aime et j’aime écouter vos prières, si belles, si pures. Âmes bien-aimées, que Dieu vous bénisse puissamment dans vos efforts. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

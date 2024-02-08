@@ -24,4 +24,6 @@ Et d'une manière plus générale, il nous arrive aussi d'influencer les dirigea
 
 En ce qui concerne mon programme politique et économique, je veux que vous sachiez que nous ne soutenons pas les candidats politiques de la manière conventionnelle de votre société. Au lieu de cela, nous prenons des indices et des influences auprès de personnes influentes, ce qui permet d'effectuer des changements. Et ces personnes peuvent être des individus qui connaissent des dirigeants politiques, et pas nécessairement ces dirigeants politiques eux-mêmes, en particulier si ces derniers ont besoin d'aide pour se remettre d'un péché ou d'une erreur particulière. Nous ne nous alignons donc pas comme cela est présenté dans la société. Nous nous alignons en silence, dans les coulisses, et sans bruit, afin que la voie de Dieu devienne manifeste : la voie de la puissance douce et de l'amour, et non de la violence, de l'agression, du militarisme et de la guerre. Non, ces choses sont le problème même que nous nous efforçons de surmonter.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

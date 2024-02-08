@@ -26,3 +26,8 @@ Puissiez-vous continuer à prier, à aspirer et à reconnaître vos pas sur ce c
 Que Dieu vous bénisse sur ce chemin, âmes bien-aimées, et souvenez-vous que nous sommes avec vous. Les anges du ciel marchent avec vous sur ce chemin et continuent à vous élever et à vous soutenir alors que vous faites vos pas sur le chemin de l’éveil, le chemin de l’âme, le chemin de l’âme vers Dieu.
 
 Que Dieu vous bénisse, âmes bien-aimées, je suis Matthieu et je suis souvent avec vous. Vous tous, mes bien-aimés, vous avez reçu la visite d’un ange. Certains d’entre vous ne sont jamais sans ange et selon vos désirs et vos prières, il en sera ainsi. Car, chacun d’entre vous qui aspire vraiment à être sur le Chemin Divin et à exprimer son âme à Dieu dans l’humilité et la grâce, la beauté et la paix. Que Dieu vous bénisse, âmes bien-aimées. Je suis Matthieu et je suis avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

@@ -29,4 +29,8 @@ Lorsque le temps viendra pour vous d’aller de l’avant et d’utiliser ces do
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Fleur de Lotus et je continue à marcher avec vous. Je continue à vous assister physiquement, spirituellement, dans vos pensées et dans vos efforts pour être plus en harmonie avec votre propre création, votre propre être. Je vois l’émergence de nombreux dons, qui ne sont pas tout à fait en fleur mais qui bourgeonnent, arrivant à ce lieu de vraie beauté et de fruition. Cela vient, et cela vient rapidement, magnifiquement.
 
-Chacun d’entre vous partagera de nombreux dons, car c’est ce qui est prévu et vous devez donc vous soutenir mutuellement. Élevez-vous les uns les autres, âmes bien-aimées, priez les uns pour les autres, donnez de votre cœur, donnez de votre Amour. Que Dieu vous bénisse, mes bien-aimés. Fleur de Lotus vous aime. Que Dieu vous bénisse. Que Dieu vous bénisse.arbre
+Chacun d’entre vous partagera de nombreux dons, car c’est ce qui est prévu et vous devez donc vous soutenir mutuellement. Élevez-vous les uns les autres, âmes bien-aimées, priez les uns pour les autres, donnez de votre cœur, donnez de votre Amour. Que Dieu vous bénisse, mes bien-aimés. Fleur de Lotus vous aime. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

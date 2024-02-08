@@ -20,3 +20,7 @@ Nous continuons sur ce chemin progressif de l’éveil de l’âme. Et oui, vous
 Mais ici, nous célébrons les étapes que vous avez franchies ensemble, le fait que vous ayez pris la décision de vous réunir, d’être ensemble, de consacrer ce temps de vos vies à prier, à vous concentrer sur vos âmes et à être en communion avec Dieu. Nous vous félicitons pour vos efforts et pour ce que vous avez accompli ensemble. Oui, il ne s’agit pas d’une seule chose mais de plusieurs. Il ne s’agit pas d’un cadeau, mais de nombreux cadeaux. Il ne s’agit pas d’un pas, mais de plusieurs pas. Vous continuerez sur cette route, non pas avec un sentiment de fatigue mais avec un sentiment de joie, reconnaissant que vous traversez le chemin qui vous est destiné, qui nourrit votre âme, éveille votre être à une nouvelle vie, à de nouveaux commencements et à de nouveaux réveils.
 
 Que Dieu continue à vous bénir ainsi. Votre ami et compagnon de route Martin Luther est avec vous et je continuerai à vous aider, à prier avec vous, à éclairer le chemin pour vous. Mon amour est avec vous, mes frères et sœurs. Je marcherai toujours avec vous. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

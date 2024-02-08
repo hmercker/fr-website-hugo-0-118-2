@@ -20,3 +20,8 @@ Vous devez enseigner le pouvoir de chaque âme à aller vers Dieu, à connaître
 Il n’y a pas besoin de douter de Dieu, il y a seulement besoin d’être en prière chaque jour, et d’écouter avec votre cœur et votre âme les doux chuchotements de Dieu et d’agir selon les vérités et les conseils que vous recevez dans vos moments de prière et de communion avec Dieu. Beaucoup de vos questions recevront une réponse, mes bien-aimés. Elles viendront de temps en temps, lorsqu’il sera nécessaire que vous sachiez. Soyez patients mes bien-aimés, soyez fidèles et continuez à prier sincèrement pour que l’Amour du Père se déverse dans vos âmes à chaque moment de chaque respiration de chaque jour.
 
 Que Dieu vous bénisse, mes bien-aimés. Votre enseignant Augustin continue à marcher à vos côtés pour vous aider à comprendre les réveils de vos âmes, les bénédictions de Dieu et l’émerveillement de Sa Création. Mon amour continue d’être avec chacun de vous. Il vous accompagnera pour toujours, car mon amour est l’Amour de Dieu et l’Amour de Dieu est mon amour et ainsi nous nous unissons tous ensemble dans cette merveilleuse Lumière, cette belle bénédiction de Dieu. Il en sera ainsi pour toujours, mes bien-aimés. Dieu vous bénit et je vous aime. Votre maître Augustin est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

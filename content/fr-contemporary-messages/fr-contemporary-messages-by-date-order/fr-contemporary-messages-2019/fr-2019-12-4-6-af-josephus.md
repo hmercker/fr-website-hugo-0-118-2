@@ -28,3 +28,7 @@ Vous voyagerez vers ces lieux, âmes bien-aimées. Je sais qu’il est difficile
 Comme je l’ai dit, un grand plan est en place et se déroule en ce moment même. Votre place dans ce plan sera déterminée par vos efforts et votre engagement envers Dieu. Il y a beaucoup, beaucoup de potentiels et de possibilités pour vous d’atteindre les autres, étant donné le pouvoir de l’Amour de Dieu dans votre âme, le pouvoir des anges qui vous accompagnent, le pouvoir du toucher de Dieu sur vous. Ces éléments détermineront jusqu’où vos efforts et vos dons pourront atteindre d’autres âmes dans des lieux éloignés.
 
 Je vous le dis, mes amis, considérez que les possibilités de votre point de vue sont tout à fait illimitées et que la capacité de vos dons et votre aptitude à atteindre d’autres âmes sont profondes. Car c’est le pouvoir de votre âme qui continue à s’éveiller qui fera naître ces choses de nombreuses et surprenantes façons. Dans votre voyage, puissiez-vous en effet parvenir à réaliser ces potentiels et ces dons et voir par vous-même, l’émerveillement de ce que Dieu a créé dans votre être. Merci. (Flavius Josèphe)
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

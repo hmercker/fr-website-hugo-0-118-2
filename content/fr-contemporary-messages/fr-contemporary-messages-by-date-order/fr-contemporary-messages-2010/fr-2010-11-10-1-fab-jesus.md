@@ -17,4 +17,6 @@ Nous voyons exactement ce qu'ils font, et exactement ce qu'ils planifient. Alors
 
 Nous réussirons. Nous ne pouvons pas échouer. Et ils vont échouer. C'est décrété.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

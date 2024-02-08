@@ -32,3 +32,7 @@ Il en sera ainsi, vous avancerez en effet, âmes aimées et belles. Que vous ava
 Âmes bien-aimées, soyez ouvertes et réceptives. Soyez aimantes les unes envers les autres et suivez le chemin divin en vous réjouissant à l'avance que chaque jour apporte son lot de découvertes, de surprises et de bénédictions. Chaque jour mènera au suivant, qui mènera au suivant. Puissiez-vous connaître la véritable guidance de Dieu et vous éveiller à votre propre véritable potentiel en tant que ses serviteurs, en tant que canaux d'amour. Que Dieu continue à faire grandir votre âme avec son amour, de sorte que l'instrumentalité s'approfondisse, que les possibilités s'élargissent et que les surprises soient nombreuses.
 
 Que Dieu vous bénisse, âmes bien-aimées. Qu'il vous garde dans son amour. Gardez-vous dans sa proximité. Maintenez-vous dans la lumière et le flux de Sa volonté. Que Dieu vous bénisse, bien-aimés, je suis votre enseignant, Augustin, et vous savez que je vous aime profondément, chacun de vous, belles âmes, belles âmes. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

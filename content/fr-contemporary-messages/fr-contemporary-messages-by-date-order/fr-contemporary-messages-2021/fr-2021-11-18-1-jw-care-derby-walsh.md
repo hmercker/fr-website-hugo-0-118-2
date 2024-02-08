@@ -17,3 +17,7 @@ Que toutes vos prières soient exaucées. Car l’Univers conspire pour le plus 
 <small>
 
 1. <large id=”f1”> Fait référence à l’enregistrement de Care où elle prie la Prière Parfaite ou Prière d’Amour Divin que Jésus a donnée à James Padgett. On peut le trouver [ici](https://www.youtube.com/watch?v=m4WdGwt-X9).[↩](#a1)
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

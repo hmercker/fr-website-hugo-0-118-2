@@ -76,3 +76,7 @@ C’est une époque merveilleuse pour être en vie, mes amis bien-aimés. Vous a
 Que Dieu vous bénisse dans ce voyage, âmes bien-aimées, et vous garde inébranlables sur le chemin de l’Amour. Puissiez-vous savoir que vous n’êtes pas seuls, que vous êtes bien soignés, aimés et protégés et que ces choses grandiront dans la lumière. Comme vous continuez à chercher l’amour, la protection et les bénédictions de Dieu, il sera donné à Ses enfants qui sont fidèles, qui Le connaissent et Le cherchent.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre frère et ami, Jésus, et je suis avec vous dans l’amour. Je vous bénis dans l’amour et je prie pour ce monde, afin qu’il soit guéri et que tous ceux qui y vivent fassent l’expérience de cette guérison, des bénédictions que Dieu destine à ses enfants. Que Dieu vous bénisse, mes bien-aimés. Mon amour est toujours avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

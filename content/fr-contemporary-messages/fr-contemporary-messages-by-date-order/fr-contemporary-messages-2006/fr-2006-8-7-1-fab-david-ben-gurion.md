@@ -52,6 +52,15 @@ Pour votre confort et consolation, j’ai appris, par des esprits qui sont vos g
 Amour, David Ben-Gurion.
 <small>
 
-1. <large id="f1"> **David Ben-Gourion** (16 Octobre 1886 – 1er Décembre 1973) a été le premier premier ministre d’Israël. (Source : Wikipedia.) [Un message plus récent peut-être trouvé ici](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-20-1-fab-david-ben-gurion/).[↩](#a1)
+1. <large id="f1"> **David Ben-Gourion** (16 Octobre 1886 – 1er Décembre 1973) a été le premier premier ministre d’Israël. (Source : Wikipedia.)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+2. <large id="f2"> David Ben Gourion s'est également exprimé lors des messages suivants :[↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+David Ben-Gurion | [Un dirigeant israélien complète son message précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-20-1-fab-david-ben-gurion/) | 20 Juillet 2007
+David Ben-Gurion | [Le Moyen-Orient et la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-10-31-1-fab-david-ben-gurion/) | 31 Octobre 2007
+
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

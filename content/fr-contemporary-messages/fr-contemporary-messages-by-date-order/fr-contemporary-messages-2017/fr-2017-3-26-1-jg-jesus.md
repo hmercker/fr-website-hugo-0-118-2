@@ -20,3 +20,7 @@ Il y a de l'humilité dans la dévotion, une reconnaissance que l'on est moins q
 Lorsque vous priez, ne bougez pas. Soyez conscient de votre vrai moi, du vous qui survit au-delà de la vie physique. Lorsque vous êtes immobile, vous êtes capable d'entendre Dieu. L'amour que vous recherchez vous trouve. Dans ce lieu d'immobilité, vous et Dieu vous rencontrez. Là, vous pouvez exprimer les aspirations de votre âme les plus profondes, sachant que vos désirs seront satisfaits par une réponse qui honore l’importance de votre âme.
 
 La lumière en vous brille de façon plus intense que vous ne pouvez percevoir. Soyez en harmonie avec Dieu et elle brillera davantage. Il n'y a pas de limite, pas de fin à la progression que vous pouvez faire dans votre croissance vers Dieu. Le voyage est sans fin. Réjouissez-vous de la beauté de ce voyage d'amour sans fin. Réjouissez-vous de l'amour illimité que votre Créateur a pour vous. C'est à Lui que vous devez tout, et de Lui tout est donné.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

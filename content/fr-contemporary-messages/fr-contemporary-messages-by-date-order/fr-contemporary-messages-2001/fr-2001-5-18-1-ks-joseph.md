@@ -41,4 +41,6 @@ Je vous laisse maintenant avec mes bénédictions pour une journée harmonieuse.
 
 Que Dieu vous bénisse et vous garde dans les bras protecteurs de l’amour. Je suis ton ami et gardien, Joseph, le père de Jésus – le père terrestre ; Dieu est le Père de nos âmes, Celui que nous devons vénérer afin de réaliser notre potentiel spirituel. Je suis un véritable adepte des enseignements de Jésus et je suis né de nouveau dans la Grâce de l’Amour de Dieu.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)
+### [**Lien vers les messages des années 2001**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

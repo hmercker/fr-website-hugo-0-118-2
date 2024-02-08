@@ -9,7 +9,7 @@ weight:
 ---
 ### Recevoir l’amour
 
-Confucius - reçu par Al Fike le 17 Mai 2014, Caloundra, QLD, Australie.
+Confucius <sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 17 Mai 2014, Caloundra, QLD, Australie.
 
 Vous avez faim de l’Amour du Père et chaque âme dans ce monde est digne de recevoir l’Amour de Dieu – cette bénédiction intérieure, mes enfants. Chaque âme qui supplie le Père de recevoir ce cadeau le recevra si elle prie sincèrement et envoie ses désirs au Créateur pour recevoir ce cadeau qui apportera la guérison et la paix, la transformation intérieure, et la joie, une joie profonde et durable, mes enfants.
 
@@ -22,5 +22,11 @@ Car ces prises de conscience viennent avec l’afflux de Son Amour et les Vérit
 La simple prière apporte tellement, un désir sincère apporte le monde de Dieu à l’intérieur. Recevoir l’Amour Divin, c’est recevoir l’étincelle de vie qui vous mettra sur la voie de l’expiation avec Dieu. Et vous désirez tous cela, mes enfants, chaque âme dans ce monde désire connaître Dieu, mais très peu reconnaissent ce désir et n’agissent pas en fonction de ce désir. Pourtant, vous vous êtes réunis pour partager cela ensemble, dans une harmonie aimante et de cette façon, la Lumière de la présence de Dieu est avec vous, mes enfants, et vous guidera vers ce que vous recherchez. Elle réapprovisionnera vos âmes et vous apportera une paix et une joie profondes et satisfaisantes.
 
 Je suis Confucius et je vous aime, embellissez vos âmes, perles hors de prix mes enfants, chacune et chacun, perles hors de prix. Que Dieu vous bénisse. Vous êtes aimés, vous êtes aimés.
+<small>
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014)
+1. <large id="f1"> Les différents messages communiqués  par Confucius sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a1)
+
+### [**Lien vers les messages des années 2014**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

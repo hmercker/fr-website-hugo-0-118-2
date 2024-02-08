@@ -17,3 +17,7 @@ Ce que vous lisez dans les livres de Robert J. Lees <sup id=”a1”>[1](#f1)</s
 <small>
 
 1. <large id=”f1”> Une référence aux livres de Robert J. Lees : Through the Mists (A travers les Brumes), The Life Elysian (la vie Elyséenne) et The Gate of Heaven (la porte du Ciel).[↩](#a1)
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

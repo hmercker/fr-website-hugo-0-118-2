@@ -36,3 +36,7 @@ Dans la prière, ayez foi en Dieu et en la puissance du Toucher de Dieu, en ses 
 Marchez avec foi, âmes bien-aimées. Marchez avec la plus haute intention. Soyez dans la plus haute bénédiction qu’est Son Amour, et toutes choses répondront, car cela aussi est une loi. De même que vous êtes cette lumière, de même que vous attirez vers vous les grandes bénédictions de Dieu, de même tout ce qui vous entoure doit réagir en conséquence et, en effet, ils peuvent bénéficier de vos efforts. Mes amis bien-aimés et magnifiques, vous apprenez à être un canal d’amour, vous observez le monde avec des yeux différents, vous vous voyez de différentes manières. Comprendre les potentiels que vous portez, connaître les grands potentiels de Dieu et de Son Âme, et tout ce qui peut en découler.
 
 Chaque jour présente une bénédiction, une forme d’apprentissage et d’éveil. Ainsi, chacun de vous est porté, car vous avez la Main de Dieu sur vous et les anges du Ciel avec vous. Ainsi, le potentiel de choix du bien, de la lumière et de l’harmonie est bien plus grand que bien d’autres. Que Dieu vous bénisse, mes amis bien-aimés. Je suis votre enseignant, Augustin. Mon amour est avec vous. Mon amour est grand. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

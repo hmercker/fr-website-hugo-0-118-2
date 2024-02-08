@@ -24,3 +24,8 @@ Que tout don bon et parfait soit avec vous qui êtes tendrement aimés, profond�
 Merci. Allez avec Dieu. Je suis votre amie, votre sœur, votre grand-mère et votre bien-aimée. Je suis une âme rachetée dans les cieux célestes et je suis éternellement à vous,
 
 Je suis Care.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

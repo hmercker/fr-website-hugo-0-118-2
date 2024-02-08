@@ -20,3 +20,7 @@ Permettez à ce Don d’entrer en vous, mes âmes bien-aimées, permettez à Sa 
 Mon amour est avec vous et je continuerai à assister à vos Cercles de Lumière, ainsi que de nombreux anges qui ont un grand intérêt dans vos efforts, dans vos âmes en herbe, cherchant à s’épanouir dans l’Amour.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Étienne et je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

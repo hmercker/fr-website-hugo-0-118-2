@@ -27,4 +27,6 @@ De nombreux esclaves n'ont pas eu la même chance que moi et ont succombé à la
 
 Je vous remercie de la bienveillance dont vous faites preuve en acceptant ce message. Je sens que mon expérience terrestre est instructive dans le déroulement du beau Plan de Dieu pour l'Amérique et le monde.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -18,3 +18,7 @@ Cherchez la vérité. Cherchez-la de tout votre cœur, de toute votre âme et de
 Réveillez-vous, mes frères et sœurs bien-aimés. Réclamez la Vérité et marchez dans la Vérité à chaque instant et à chaque respiration et vous connaîtrez vraiment les grandes bénédictions et la Main de Dieu sur vous qui continuera à vous éveiller et à vous donner du pouvoir dans l'Amour et la Vérité.
 
 Je marche avec vous, âmes bien-aimées. Je suis Jésus et mon amour pour vous est grand. Je marche avec vous dans l'amour. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

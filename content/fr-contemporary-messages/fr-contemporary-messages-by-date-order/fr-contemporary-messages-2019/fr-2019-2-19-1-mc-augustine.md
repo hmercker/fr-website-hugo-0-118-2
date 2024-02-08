@@ -26,3 +26,7 @@ Votre monde matériel a beaucoup de distractions. Nous le comprenons, mais faite
 Il est bon que vous vous réunissiez ainsi pour prier, car cela vous aide à vous renforcer en tant que travailleurs de la lumière ici sur Terre. Nous sommes très heureux de voir comment ces Cercles de Lumière s’étendent et touchent de nombreuses personnes.
 
 Que Dieu bénisse chacun de vous, mes bien-aimés. Je suis Augustin votre enseignant et je me tiens à vos côtés, je vous guide, vous influence et vous enseigne. Mon amour est avec vous toujours plus, Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

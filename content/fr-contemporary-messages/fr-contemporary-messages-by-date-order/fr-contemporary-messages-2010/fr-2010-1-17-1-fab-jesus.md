@@ -17,5 +17,6 @@ C'est moi, Jésus.
 
 Je faisais simplement référence au fait qu'après des siècles de conflits fratricides, les pays européens ont appris à vivre ensemble dans l'unité. Mais je dirai que je suis d'accord avec vous pour dire qu'il y avait des motifs fallacieux de la part de ces Américains aux arrière-pensées de cupidité et de contrôle.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
 
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

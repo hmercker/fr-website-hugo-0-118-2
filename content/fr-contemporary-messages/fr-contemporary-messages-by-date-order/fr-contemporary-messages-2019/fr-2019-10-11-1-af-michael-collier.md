@@ -44,3 +44,7 @@ Dieu vous implorera et vous guidera au service de l’apport de la vérité à l
 Puissiez-vous faire partie de ce grand changement. Puissiez-vous ressentir dans votre cœur le désir de servir Dieu et de servir vos frères et sœurs avec amour et vérité, confort et guérison, joie et lumière.
 
 Que Dieu vous bénisse dans ce voyage, mes amis, et je vous remercie de m’avoir écouté. Je suis heureux d’être ici avec vous aujourd’hui. Je suis avec vous dans vos efforts pour aider à apporter ces contributions qui, avec le temps, changeront le monde. Que Dieu vous bénisse, chers amis, je suis Michael. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -34,3 +34,7 @@ Dieu vous guidera sur ce chemin de service au profit de l’humanité. Vous irez
 Cherchez à être dans la grâce de Dieu à chaque moment où vous êtes ensemble, mes bien-aimés, dans ce temps qui est court, de faire tous les efforts possibles pour le réveil de vos âmes, de redoubler vos efforts dans la prière, d’être alignés avec ce grand déversement et flux d’amour et de grâce. Il se déverse vers vous, mes bien-aimés, en soutien à ces efforts que vous faites pour marcher dans la lumière, et accompagnés par les anges des Cieux Célestes qui continuent à assister à la naissance de votre âme.
 
 Que Dieu vous bénisse, mes bien-aimés, et vous garde dans sa Grâce et son Amour, vous élevant, vous guérissant, vous apportant sagesse et force. Que Dieu vous bénisse. Je suis Matthieu. Mon amour est avec vous et je suis constamment avec vous dans ces efforts pour briser la condition humaine et trouver votre liberté avec Dieu. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

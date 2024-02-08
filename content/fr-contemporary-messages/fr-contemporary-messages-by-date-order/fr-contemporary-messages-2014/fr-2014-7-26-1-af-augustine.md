@@ -25,4 +25,6 @@ Je sais qu’il est difficile d’accepter tout ce qui se trouve dans vos vies. 
 
 Que Dieu vous bénisse. Votre maître Augustin est toujours à vos côtés et désire que vous appreniez chaque jour un peu plus de vérité, que vous vous rapprochiez chaque jour un peu plus de Dieu, que vous vous ouvriez un peu plus largement à Sa présence intérieure. Et c’est ce que vous ferez, tout cela, afin que vous soyez sur le chemin, les pieds fermement placés et qu’il vous soit donné tout ce dont vous avez besoin. Ne doutez pas de cela, mais réjouissez-vous de cela. Réjouissez-vous de chaque jour qui vous est donné, de chaque opportunité qui vous est offerte, de chaque parcelle de vie qui vous est offerte, le plus grand des cadeaux. Que Dieu vous bénisse. Que Dieu vous bénisse. Je vous aime.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014)
+### [**Lien vers les messages des années 2014**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

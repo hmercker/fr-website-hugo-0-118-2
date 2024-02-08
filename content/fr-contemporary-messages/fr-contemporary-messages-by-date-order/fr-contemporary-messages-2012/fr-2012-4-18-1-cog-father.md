@@ -36,4 +36,6 @@ Je t’aime dans mon cœur, Père.
 
 1. <large id="f1"> Le médium a confirmé que l’utilisation du mot « âme-sœur » ici n’était pas destinée à être interprétée littéralement comme le font les Messages de James Padgett. Il s’agit plutôt ici d’un « partenaire que vous aimez profondément ».[↩](#a1)
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

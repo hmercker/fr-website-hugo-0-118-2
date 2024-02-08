@@ -34,3 +34,7 @@ Je sais que vous êtes tous humains, que ces conditions existent en chacun de vo
 Cela ne vous encouragera pas beaucoup, mais votre présence robuste dans l’amour, dans la sagesse, dans la lumière, dans l’expérience aidera à dégager le chemin. Nous sommes tous des amis bien-aimés. Que Dieu nous bénisse tous dans ce voyage. Que Dieu apporte Ses dons et Ses bénédictions sur nous. Puissiez-vous vous éveiller à vos dons et à tout ce que Dieu a béni en vous. Puissiez-vous être en paix, âmes bien-aimées, et marcher dans la lumière et la joie. C’est ce qui est censé être, ce que nous vous encourageons à accepter et à absorber. Ne laissez pas ces petits problèmes du monde matériel éclipser ce que vous appelez la grande image de ce que vous faites.
 
 Soyez bénis, mes bien-aimés, soyez bénis dans Son Amour. Bénissez vous dans la paix. Bénissez vous dans la lumière. Bénissez vous dans la vérité. Je suis Seretta Kem. Je vous aime tous. Que Dieu vous bénisse, mes bien-aimés.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

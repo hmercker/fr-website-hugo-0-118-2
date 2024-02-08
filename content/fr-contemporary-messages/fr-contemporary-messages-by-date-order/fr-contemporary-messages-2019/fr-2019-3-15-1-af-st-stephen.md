@@ -32,3 +32,7 @@ Ainsi, plutôt que d’être le planificateur, l’architecte, vous êtes le ma�
 Âmes bien-aimées, sachez que vous êtes profondément bénies et que vos âmes continuent à s’éveiller dans ce grand flux d’amour qui continue à se déverser dans vos âmes. Avec le temps, vous verrez les intrications, les subtilités, les complexités de la mise en œuvre de la volonté de Dieu dans votre monde, mais pour l’instant mes amis, marchez dans la foi, dans l’humilité. Soyez fidèles à votre âme et à la volonté de Dieu et tout se déroulera comme il se doit. Ne vous inquiétez pas et ne vous tourmentez pas pour savoir comment cela va se passer. Réjouissez-vous simplement d’être un enfant de Dieu qui suit le chemin vers votre rédemption et la transformation de votre âme.
 
 Que Dieu continue à vous guider sur ce chemin, à vous protéger et à vous bénir profondément. Je suis votre ami, Étienne. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse profondément.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -26,3 +26,7 @@ Ce n’est pas aussi difficile que pour ceux qui s’engagent volontairement à 
 Âmes bien-aimées, c’est une nouvelle façon de penser et de faire. C’est la voie de l’âme, et vous devez trouver cette voie. Vous devez voir le pouvoir, la beauté et l’émerveillement de cette voie qui est la voie de l’âme, l’âme en accord avec Dieu, l’âme comme instrument de Dieu dans le monde. De cette façon, vous trouverez de nombreuses occasions de servir et beaucoup à faire dans le monde en tant qu’instrument de guérison, de paix et d’harmonie.
 
 Que Dieu vous bénisse, âmes bien-aimées, dans ce voyage. Je suis votre amie, je suis Mylora, et je vous aime. Je vous aime tous. Que Dieu vous bénisse, mes amis, que Dieu vous bénisse tous. Je vous aime.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

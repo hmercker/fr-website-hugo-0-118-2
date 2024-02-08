@@ -32,3 +32,7 @@ Ce sont toutes des leçons à apprendre, mes bien-aimés. Ce sont tous des défi
 Vous continuez à grandir dans cette sagesse, cette capacité de savoir, d’agir en conséquence, d’être dans ce flux qui est la volonté de Dieu. La clarté viendra, mes bien-aimés, comme beaucoup, beaucoup plus de bénédictions, beaucoup d’expériences et d’opportunités de servir, beaucoup de formes d’amour, beaucoup d’opportunités de grandir dans votre âme. Beaucoup de lumière est répandue sur votre chemin. Vous allez marcher dans cette lumière, âmes bien-aimées, protégées, pourvues, bénies et guidées. Permettez à toutes ces choses d’entrer dans votre vie. Ne laissez pas vos soucis et vos anxiétés interférer avec l’œuvre de Dieu. Soyez en paix, soyez de bonne foi, soyez dans la prière et dans la joie. Tout ira bien. Vous avez une armée d’anges à vos côtés, mes bien-aimés. Comment cela pourrait-il ne pas bien se dérouler alors que les ressources de la Terre et du Ciel se réunissent dans le service, l’amour et la mise en œuvre de la volonté de Dieu.
 
 Que Dieu vous bénisse, mes amis. Je suis votre enseignant Augustin et je vous aime, âmes précieuses, étudiants précieux. Je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

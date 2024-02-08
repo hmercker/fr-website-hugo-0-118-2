@@ -27,3 +27,7 @@ Bénédictions, bénédictions, enfants bien-aimés. Que Dieu vous bénisse. Je 
 <small>
 
 1. <large id="f1"> Ramsès II a vécu de 1279 à 1213 avant notre ère.[↩](#a1)
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

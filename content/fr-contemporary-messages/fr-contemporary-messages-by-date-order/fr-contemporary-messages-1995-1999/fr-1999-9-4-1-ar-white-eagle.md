@@ -15,7 +15,7 @@ Aigle Blanc - reçu par Amada Reza le 4 Septembre 1999, Aptos, Californie, USA.
 
 **Message d’Aigle blanc**
 
-Je suis Aigle Blanc, et votre frère dans le Christ qui aime et sert notre Maître, Jésus des Cieux Célestes. Je participe au Grand Amour Divin de Dieu et je suis un habitant des Sphères Célestes.
+Je suis Aigle Blanc<sup id="a1">[1](#f1)</sup>, et votre frère dans le Christ qui aime et sert notre Maître, Jésus des Cieux Célestes. Je participe au Grand Amour Divin de Dieu et je suis un habitant des Sphères Célestes.
 
 Je viens répondre à la question de T____ et je suis très heureux d’avoir l’occasion de partager mes réflexions avec elle sur ce sujet. Vous comprenez que dans les premiers temps de l’histoire de l’humanité, les animaux étaient considérés comme une partie vitale du cycle de vie et leurs esprits étaient vénérés et honorés comme l’était l’esprit de toute la création. Les animaux ne sont pas moins la manifestation de l’Esprit de Dieu, bon et pur dans son dessein, tout comme le sont les nombreuses créations qui vous entourent et apportent un tel accomplissement à vos vies sur terre.
 
@@ -35,9 +35,24 @@ Je suis heureux de pouvoir venir chez vous et d’écrire de telles réalités, 
 
 Considérez-vous comme faisant partie du grand cercle d’amour et soyez heureux de danser dans cette étreinte de fraternité. Vous êtes un avec nous et vous êtes un avec tous ceux qui participent à l’Amour Divin et qui connaissent la Vérité.
 
-Je suis votre ami et frère dans le Christ, Aigle Blanc.
+Je suis votre ami et frère dans le Christ, Aigle Blanc.<sup id="a2">[2](#f2)</sup>
+<small>
 
-[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+1. <large id="f1"> Aigle Blanc est un Indien puissant et a souvent utilisé ses grands pouvoirs de guérison pour restaurer la santé de M. James E. Padgett. Il écrivait souvent car il avait dans son âme un Amour Divin considérable qui faisait de lui un esprit lumineux et beau. Vous pouvez consulter un des messages qu'il a communiqué à travers James Padgett [le 15 Février 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-2-15-1-jep-white-eagle/)[↩](#a1)
+
+2. <large id="f2"> Aigle Blanc  s'est également exprimé dans les messages suivants :[↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+--|---|---
+Aigle Blanc | [Les animaux et l’amour naturel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-9-4-1-ar-white-eagle/) | 4 Septembre 1999
+Marie & White Eagle | [Le soleil bondissant de Fatima](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-9-19-2-ar-mary-white-eagle/) | 19 Septembre 1999
+Aigle Blanc | [La guérison par l’intermédiaire des guérisseurs spirituels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-3-1-ar-white-eagle/) | 3 Novembre 1999
+Aigle Blanc | [L’autre vision.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-2-11-1-ar-white-eagle/) | 11 Février 2001
+Aigle Blanc | [Aigle Blanc vient offrir la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-29-2-jw-white-eagle/) | 29 Mars 2020
+Aigle Blanc | [Nous sommes tous des peuples indigènes en tant qu'enfants de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-19-2-jw-white-eagle/) | 19 Avril 2020
+
+
+### [**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

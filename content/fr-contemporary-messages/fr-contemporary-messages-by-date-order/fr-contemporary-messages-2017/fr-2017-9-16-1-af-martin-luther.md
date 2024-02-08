@@ -32,3 +32,7 @@ Ainsi nos efforts, vos efforts ainsi que les efforts de Dieu sont concentrés à
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Martin Luther. Je suis heureux de m'adresser à vous aujourd'hui. En vous changeant vous-même, vous changez le monde goutte à goutte, pas à pas. Vous changez le monde. Que Dieu vous bénisse dans ce voyage afin que vous puissiez apporter une plus grande harmonie et une plus grande lumière, le pouvoir de l'Amour, afin que vous puissiez inspirer tant de personnes à faire de même, à suivre ce cours, ce chemin de l'Amour. Ainsi nous continuons, âmes bien-aimées, ce voyage, si merveilleux et impressionnant dans sa beauté et sa gloire et sa puissance et sa perfection.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je continuerai, comme beaucoup, à vous accompagner et à vous guider et à prier avec vous et pour vous. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

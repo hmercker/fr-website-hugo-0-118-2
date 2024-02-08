@@ -21,4 +21,9 @@ Ce beau cadeau vous apportera de nombreuses bénédictions, mes amis bien-aimés
 
 Attirez la lumière vers vous à chaque respiration. Permettez aux bénédictions de Dieu, qui sont grandes et abondantes, de couler vers vous. Laissez tomber votre garde et soyez cet enfant innocent qui est nourri par le Père et la Source de tout.
 
-Que Dieu vous bénisse, mes amis. Je suis Seretta Kem et j’ai aidé à l’établissement de ce portail et de ce cadeau pour vous. Permettez-moi de venir un autre jour et de vous parler de beaucoup de choses en ce qui concerne vos dons et ce qui peut couler à travers vous, âmes bien-aimées. Car vous avez beaucoup de dons, beaucoup de potentiels inconnus, beaucoup de choses dans votre âme à éveiller et c’est la responsabilité et la bénédiction de beaucoup d’entre nous d’aider à vous assister dans cet éveil de dons. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées. Seretta Kem est à votre service. Que Dieu vous bénis
+Que Dieu vous bénisse, mes amis. Je suis Seretta Kem et j’ai aidé à l’établissement de ce portail et de ce cadeau pour vous. Permettez-moi de venir un autre jour et de vous parler de beaucoup de choses en ce qui concerne vos dons et ce qui peut couler à travers vous, âmes bien-aimées. Car vous avez beaucoup de dons, beaucoup de potentiels inconnus, beaucoup de choses dans votre âme à éveiller et c’est la responsabilité et la bénédiction de beaucoup d’entre nous d’aider à vous assister dans cet éveil de dons. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées. Seretta Kem est à votre service. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

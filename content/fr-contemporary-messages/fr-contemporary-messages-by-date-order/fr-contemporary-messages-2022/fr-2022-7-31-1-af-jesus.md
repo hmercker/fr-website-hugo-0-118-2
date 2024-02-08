@@ -26,3 +26,7 @@ Puissiez-vous parvenir à trouver les véritables désirs de votre âme. Puissie
 Continuez votre voyage de l’âme, en cherchant la grande Âme de Dieu. Continuez à pratiquer la fraternité et à vous soutenir les uns les autres. Continuez à prier pour ce monde, pour vos proches et pour tous les habitants de ce monde. Car la prière est un instrument puissant qui incitera les lois de Dieu et apportera les bénédictions. Priez souvent, mes bien-aimés, priez sincèrement, et priez en ressentant et en connaissant l’Amour de Dieu et votre amour pour Dieu. En cela, tout viendra, tout sera à vous car Dieu cherche à réaliser les désirs de vos âmes et vos intentions de prière. Ainsi les bénédictions coulent. C’est ainsi que les choses se réalisent. Et ainsi, la lumière sera déversée sur votre Terre comme résultat de vos prières.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre frère, Jésus, Maître du Royaume Céleste et votre ami, pour être toujours avec vous, mes bien-aimés. Car nous sommes vraiment frères et sœurs sur ce chemin. Que Dieu vous bénisse. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

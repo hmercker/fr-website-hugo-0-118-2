@@ -22,3 +22,7 @@ Tant de choses dans le monde sont superflues et inutiles. Et précédemment, lor
 Alors, priez mes chers amis, priez encore et suivez vos conseils.
 
 Avec tout mon amour et mes bénédictions, et de la part de nous tous ici, nous vous apportons la paix et l’Amour de Dieu dans nos âmes et un souhait de transformation dans la bonté de l’amour de Dieu en cette nouvelle année. Que Dieu vous bénisse. Je suis votre frère dans le Christ et votre ami.Judas.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

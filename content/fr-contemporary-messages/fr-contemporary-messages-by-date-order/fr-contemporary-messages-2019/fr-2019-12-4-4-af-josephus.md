@@ -18,3 +18,7 @@ La meilleure façon d’enseigner l’Amour Divin aux enfants est d’être aima
 Vous pouvez lui donner des informations rudimentaires. Apprenez-leur à prier. Apprenez-leur à s’ouvrir aux bénédictions de Dieu. Soyez patient et aimable. Prenez soin de cet enfant comme Dieu le ferait, car si cet enfant vous est confié, Dieu vous a fait un grand cadeau et vous a donné l’occasion de montrer à cet enfant le chemin de Son Amour. Vos expressions d’amour, vos actions d’amour, votre exemple d’amour sont les plus grands enseignants de tous. Mais l’âme absorbe tout, mes amis, surtout l’âme des enfants. Ils absorbent tout ce qui les entoure. Tous ceux qui sont avec eux, ils sont ouverts à l’influence. Vous pouvez prier pour leur protection et les bénédictions des anges.
 
 Il y a beaucoup de choses à faire, mais ce n’est pas compliqué. C’est simple. De la manière la plus simple, il n’y a pas d’obligation pour l’enfant d’être d’une certaine manière, comme vous l’attendez. Au lieu de cela, vous permettez à l’enfant d’exprimer sa propre âme et sa beauté dans la vie et lui donner la liberté de s’exprimer de toutes ses belles manières est un tel cadeau d’amour. Merci.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

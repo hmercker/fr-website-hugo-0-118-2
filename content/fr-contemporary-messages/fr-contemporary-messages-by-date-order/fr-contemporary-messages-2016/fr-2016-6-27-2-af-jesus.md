@@ -18,3 +18,8 @@ Ma sœur, vous et moi venons de la même foi et je vous aime et nous apportons l
 Oui, mes bien-aimés, c’est pour vous d’entrer dans cette conscience naissante, cette Lumière pulsante croissante en vous et d’être dans ce lieu, d’être avec Dieu que vous suivrez votre chemin destiné en tant qu’instruments de Dieu dans ce monde. Et vous marcherez dans ce monde d’une manière tranquille, mais le pouvoir de ceci sera indubitable et provoquera des vagues de changement et beaucoup d’âmes répondront à votre contact, votre sourire et vos simples mots d’amour alors que vous embrasserez tous ceux que vous rencontrerez et serez l’émissaire de Dieu dans le monde.
 
 Je suis avec vous dans vos efforts, je suis avec vous dans mon cœur car mon cœur et vos cœurs battent à l’unisson dans ce grand flux d’Amour. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse. Je vous aime. Je vous aime.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

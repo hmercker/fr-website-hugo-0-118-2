@@ -44,3 +44,7 @@ Chacun de vous a une grande lumière. Votre âme renferme une grande lumière. Q
 Que Dieu vous bénisse dans ce voyage et vous garde toujours dans Son Amour. Nous sommes avec vous. Nous ne vous abandonnerons jamais, âmes bien-aimées, mais nous continuerons à voyager avec vous. Nous attendons vos choix, vos efforts, vos prières, vos désirs d’être en alignement avec Dieu plus pleinement et complètement.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem et je suis avec vous, toujours avec vous pour vous aider, pour vous guider, pour vous assister. Que Dieu vous bénisse, âmes bien-aimées.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -21,4 +21,6 @@ Vous pensez que vous vivrez pour voir l'accomplissement des années 1960, et je 
 
 Et l'obscurité se lèvera, pour révéler un pays qui trouve sa liberté et qui trouve sa naissance.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

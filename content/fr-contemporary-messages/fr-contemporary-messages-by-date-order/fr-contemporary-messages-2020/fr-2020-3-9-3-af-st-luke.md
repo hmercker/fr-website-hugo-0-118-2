@@ -28,3 +28,7 @@ Vous devez exprimer dans le monde la devise de l’amour, être cet exemple, ce 
 Que Dieu vous bénisse alors que vous continuez à vous trouver, à vous éveiller à ce véritable moi qu’est votre âme, et à être béni par l’Esprit Saint de Dieu qui transmet son amour à votre âme. Vous trouverez votre chemin et connaîtrez votre véritable moi dans toute sa merveille et sa gloire, sa beauté et son amour. Ceci est destiné à chacun d’entre vous. Continuez à considérer ce que j’ai dit. Continuez à reconnaître la véritable beauté de votre âme. Continuez à prier Dieu pour recevoir ces dons d’amour et ces bénédictions. Continuez à prier pour vos familles, vos proches, tous ceux qui font partie de votre vie. Vous verrez comment Dieu répond à vos prières et vous bénit abondamment dans la puissance et la gloire de son grand amour pour vous.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Luc et je vous remercie de m’avoir permis de parler aujourd’hui. Mon amour est avec vous. Mes prières sont avec vous. Les prières du Royaume Céleste sont avec vous. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

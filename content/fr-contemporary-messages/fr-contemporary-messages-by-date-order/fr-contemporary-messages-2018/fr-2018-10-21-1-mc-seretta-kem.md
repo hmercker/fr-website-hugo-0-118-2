@@ -22,3 +22,7 @@ Maintenant, alors que votre cercle est sur le point de se réunir à nouveau dem
 La semaine qui vient est très importante. Nous espérons que chacun de vos développements et l’éveil de votre âme atteindront une nouvelle profondeur, avec de nouvelles prises de conscience et une plus grande compréhension de votre âme avec une connexion profonde, afin que chacun d’entre vous puisse reconnaître son vrai moi à un degré beaucoup plus élevé que lorsque vous êtes arrivés ensemble. Bien-aimés, ce temps de la semaine à venir est important. Nous continuons de vous soutenir, de vous encourager, nous voyons votre dévouement envers vous-mêmes, envers Dieu, et nous voyons votre profonde appréciation pour vos amis anges. Nous sommes seulement heureux de servir. Nous nous réunirons donc à nouveau demain matin et nous aurons notre dernière partie de ce temps ensemble.
 
 Reposez-vous bien, mes bien-aimés. Que Dieu vous bénisse. Je suis Seretta Kem et je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -13,7 +13,7 @@ Abdullah Latif - reçu par Al Fike le 14 Mars 2021, Gibsons, Colombie-Britanniqu
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-angess11.jpg)
 
-Que le grand amour de Dieu continue d’entrer dans vos âmes, mes amis. Mon nom est Abdul Latif. J’ai déjà parlé à travers cet instrument auparavant. Pour ceux qui ne me connaissent pas, je fus un philosophe et un mathématicien dans le monde antique, le monde arabe d’autrefois. Je poursuis mon voyage vers la vérité, mon voyage vers Dieu, et mes efforts pour trouver intérieurement et extérieurement une harmonie, et je suis un habitant du Royaume Céleste.
+Que le grand amour de Dieu continue d’entrer dans vos âmes, mes amis. Mon nom est Abdul Latif <sup id="a1">[1](#f1)</sup>. J’ai déjà parlé à travers cet instrument auparavant. Pour ceux qui ne me connaissent pas, je fus un philosophe et un mathématicien dans le monde antique, le monde arabe d’autrefois. Je poursuis mon voyage vers la vérité, mon voyage vers Dieu, et mes efforts pour trouver intérieurement et extérieurement une harmonie, et je suis un habitant du Royaume Céleste.
 
 Je souhaite parler de la façon dont vous faites tous des efforts pour briser l’obscurité dans votre monde. Car, j’ai le regret de vous dire qu’il existe un grand treillis de ténèbres dans votre monde. Ce treillis est fragile mais solide, il est en place depuis des éons de temps, créé par l’homme et ses actions. Maintenant, vous priez pour que quelque chose de différent remplace ce treillis d’obscurité par un treillis de lumière, pour que, alors que vous continuez à forger vos connexions les uns avec les autres, vous forgiez ces brins de lumière ensemble, tissant ensemble ce grand treillis, de sorte qu’il neutralise cette forme sombre et aide à guérir le monde.
 
@@ -26,3 +26,17 @@ Comme la Grande Essence de Dieu continue de se déverser en vous, elle se déver
 C’est une tâche formidable, mes amis. Une tâche qui exige un dévouement et une foi profonds, de grands efforts et de l’amour ; l’amour pour l’humanité, l’amour pour vos frères et sœurs, l’amour pour votre propre moi – votre âme, l’amour pour Dieu. Ce sont ces choses qui vont ouvrir les possibilités de guérison pour votre monde. L’amour est le grand générateur, le grand guérisseur, le grand transformateur d’âmes. Que cela soit votre expérience dans la vie, votre expérience dans la prière, votre expérience avec Dieu, afin que Son Amour puisse transformer tout en vous et tout autour de vous en lumière. Ce cadeau est donné sans aucune condition, sans aucune restriction. Il est donné gratuitement, abondamment, et il est disponible pour chacun de vous à chaque instant de votre vie, à condition que vous vous ouvriez à ce Don.
 
 Puissiez-vous le faire souvent. Buvez à ces Eaux Vives qui rafraîchiront votre âme et réveilleront tout ce qui est lumière en vous. Que Dieu vous bénisse mes amis. Je suis Abdul Latif. Je suis heureux de venir vous parler aujourd’hui d’un sujet important. Pour neutraliser l’obscurité dans le monde, vous devez prier et vous rassembler comme une formidable force de lumière, et le faire avec unité, avec amour, avec la reconnaissance de la vérité, et une connexion profonde avec votre Créateur. Que Dieu vous bénisse, âmes bien-aimées, que Dieu vous bénisse profondément. Nous sommes tous avec vous dans la prière. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> Abdullah Latif s'est également exprimé dans les messages suivants :  [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Abdullah Latif | [Le plus grand guérisseur de tous est notre créateur, Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-90-1970-anonymous-abdullah-latif/) |   1970
+Abdullah Latif | [Vous devez chaque jour communier avec le Grand Esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-153-1970-anonymous-abdullah-latif/) |   1970
+Abdullah Latif | [Le pouvoir de la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-29-2-af-abdullah-latif/) | 29 Novembre 2018
+Abdullah Latif | [L’humanité a le pouvoir de créer sa propre réalité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-27-1-af-abdullah-latif/) | 27 Janvier 2019
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

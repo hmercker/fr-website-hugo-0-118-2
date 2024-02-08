@@ -11,7 +11,7 @@ weight:
 
 Marie Madeleine - reçu par Amada Reza le 4 Novembre 2001, Aptos, Californie, USA.
 
-Je suis ici maintenant. Je suis ta sœur en Christ, Marie-Madeleine, une vraie disciple de mon Maître, Jésus. Je voudrais profiter de cette occasion pour vous donner, à ceux qui ont choisi de suivre Jésus, dans le chemin de l’Amour Divin, mon encouragement.
+Je suis ici maintenant. Je suis ta sœur en Christ, Marie-Madeleine,<sup id="a1">[1](#f1)</sup> une vraie disciple de mon Maître, Jésus. Je voudrais profiter de cette occasion pour vous donner, à ceux qui ont choisi de suivre Jésus, dans le chemin de l’Amour Divin, mon encouragement.
 
 Ces temps dangereux auxquels vous êtes confrontés, où la peur du préjudice physique est souvent présente, peuvent être un catalyseur efficace pour votre prière et exercice de votre foi dans le pouvoir de l’Amour de Dieu de vous protéger et vous guider. C’est extraordinaire si tu réalises que ta nature spirituelle est ta vraie nature; tu ne seras pas autant affectée par le monde physique, toujours sujet à des changements, par rapport à celui qui place toute sa confiance dans les soi-disant réalités.
 
@@ -34,5 +34,22 @@ Je veux transmettre l’amour de mon Maître à chacun de vous. Il vous remercie
 Je vous aime ma famille. Je suis votre sœur qui a besoin de votre amour, et je suis reconnaissante pour la bonté que vous exprimez.
 
 Marie Madeleine.
+<small>
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)
+1. <large id="f1"> Marie-Madeleine s'est également exprimé lors des messages suivants [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+--|---|---
+Marie Madeleine | [L'Amour de Dieu au sein de vos âmes émane de vous et apporte aux autres la lumière et la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-53-1970-1-28-anonymous-mary-magdalene/) | 28 Janvier 1970
+Marie Madeleine | [Communication personnelle.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1992-7-9-1-dl-mary-magdalene/) | 9 Juillet 1992
+Marie Madeleine | [Différences entre les sexes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-19-2-ar-mary-magdalene/) | 19 Août 2001
+Marie-Madeleine | [Plus sur les esprits liés à la terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-7-19-1-rl-mary-magdalene/) | 19 Juillet 2004
+Marie-Madeleine & Jésus | [Observer l’âme humaine.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-1-1-ar-mary-magdalene-jesus/) | 1 Avril 2006
+Marie-Madeleine | [Portez la lumière de l'amour en vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-7-2-1-dl-mary-magdalene/) | 2 Juillet 2008
+Marie-Madeleine | [Marie-Madeleine n’est pas l’âme-soeur de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-29-2-af-mary-magdalene/) | 29 Janvier 2019
+Marie-Madeleine | [Permettez à la bénédiction de l'Amour de Dieu de venir dans votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-12-1-jw-mary-magdalene/) | 12 Juillet 2022
+Marie-Madeleine | [La lampe de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-4-1-af-mary-magdalene/) | 4 Septembre 2022
+
+### [**Lien vers les messages des années 2001**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

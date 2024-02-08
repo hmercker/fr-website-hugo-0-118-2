@@ -15,7 +15,7 @@ Je vous aime, mon cher frère en Christ, et je viens aujourd’hui, avec beaucou
 
 Et, bien sûr, mon Jésus bien-aimé vient souvent à vous et aux administrateurs pour vous offrir sa présence, son amour et son soutien dans tous vos efforts au nom du Royaume. Vous ne devez jamais sentir que l’un d’entre vous est seul et sans le soutien de ses anges gardiens et des esprits bons et aimants qui ne sont que trop disposés à vous servir dans vos efforts et votre merveilleux travail pour le Père. Je sais que vous en doutez parfois, en pensant que ces bons esprits doivent avoir un travail bien plus important à accomplir que de passer leur temps sur le plan terrestre à vous aider. Mais dans cette pensée, vous vous trompez lourdement. Vous devez certainement savoir qu’il n’y a pas de travail pour le Père qui soit considéré comme insignifiant ou sans importance. Et lorsque le travail entrepris implique quelque chose d’aussi important que le salut même de l’humanité, comment pourrions-nous jamais considérer que cela n’est pas digne de notre attention pleine et soutenue ?
 
-Je sais que, dans vos pensées, vous avez souvent pensé à moi par rapport à mon âme sœur, et vous avez senti que cela pourrait très bien servir la cause de la Vérité si j’apportais un message aux mortels, et un message déclarant en particulier que Jésus est mon âme sœur et n’est pas Dieu, le « Fils », « Il est assis à la droite du « Trône » du Père, mais n’est qu’un esprit comme moi (et vous en tant qu’enfants créés), bien que le plus grand esprit de tous les Cieux, et que nous suivons sans poser de questions pour tout ce qui concerne parfois les subtilités de la Volonté du Père.
+Je sais que, dans vos pensées, vous avez souvent pensé à moi par rapport à mon âme sœur, et vous avez senti que cela pourrait très bien servir la cause de la Vérité si j’apportais un message aux mortels, et un message déclarant en particulier que Jésus est mon âme sœur<sup id="a1">[1](#f1)</sup> et n’est pas Dieu, le « Fils », « Il est assis à la droite du « Trône » du Père, mais n’est qu’un esprit comme moi (et vous en tant qu’enfants créés), bien que le plus grand esprit de tous les Cieux, et que nous suivons sans poser de questions pour tout ce qui concerne parfois les subtilités de la Volonté du Père.
 
 Eh bien, je voudrais dire que je suis moi aussi très soucieuse que les soi-disant « Chrétiens » comprennent la vérité de la question, et cessent une fois pour toutes d’adorer mon bien-aimé qui lui-même abhorre cette pratique. Mais vous devez comprendre, cher D____ , que le monde n’est pas toujours prêt à recevoir certaines vérités, et aussi que certaines vérités sont plus importantes à communiquer avant que d’autres ne soient présentées.
 
@@ -35,15 +35,24 @@ Comme vous êtes un peu fatigué maintenant, je pense qu’il vaut mieux que nou
 
 Que le Père continue à répandre sur vous Son Amour en grande abondance.
 
-Votre sœur dans le Christ, Marie, autrefois enfant déchue mais jouissant maintenant de toute la béatitude d’une âme pleinement rachetée et de l’amour de la plus grande âme sœur de tous les Cieux de Dieu.
+Votre sœur dans le Christ, Marie, autrefois enfant déchue mais jouissant maintenant de toute la béatitude d’une âme pleinement rachetée et de l’amour de la plus grande âme sœur de tous les Cieux de Dieu.<sup id="a2">[2](#f2)</sup>
 
-**Note :** Commentaire de l’éditeur du site « new-birth.net » : Personnellement, je doute de l’exactitude de l’affirmation selon laquelle Marie Madeleine et Jésus sont des âmes sœurs. Nous laissons au lecteur le soin de discerner la vérité de cette conclusion.
+1. <large id="f1">  Personnellement, je doute de l’exactitude de l’affirmation selon laquelle Marie Madeleine et Jésus sont des âmes sœurs. Nous laissons au lecteur le soin de discerner la vérité de cette conclusion. Ce message est par ailleurs en totale contradiction avec le message communiqué par [Elie le 11 Février 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-11-1-na-elijah/) dans lequel il affirme que la véritable âme-soeur de Jésus est Dieu. Cette position a par ailleurs été confirmé par un message communiqué par Jésus et Marie Madeleine respectivement le 27 et le 29 Janvier 2019. (Geoff Cutler : diteur du site « new-birth.net »).[↩](#a1)
 
-Ce message est par ailleurs en totale contradiction avec le message communiqué par [Elie le 11 Février 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-11-1-na-elijah/) dans lequel il affirme que la véritable âme-soeur de Jésus est Dieu.
+2. <large id="f2"> Marie-Madeleine s'est également exprimé lors des messages suivants [↩](#a2)
 
-Cette position a par ailleurs été confirmé par un message communiqué par Jésus et Marie Madeleine respectivement le [27](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-27-2-af-jesus/) et [29](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-29-2-af-mary-magdalene/) Janvier 2019.
+**Auteur** | **Titre du message** | **Date du message**  
+--|---|---
+Marie Madeleine | [L'Amour de Dieu au sein de vos âmes émane de vous et apporte aux autres la lumière et la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-53-1970-1-28-anonymous-mary-magdalene/) | 28 Janvier 1970
+Marie Madeleine | [Différences entre les sexes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-19-2-ar-mary-magdalene/) | 19 Août 2001
+Marie Madeleine | [Le visage de l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-4-2-ar-mary-magdalene/) | 4 Novembre 2001
+Marie-Madeleine | [Plus sur les esprits liés à la terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-7-19-1-rl-mary-magdalene/) | 19 Juillet 2004
+Marie-Madeleine & Jésus | [Observer l’âme humaine.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-1-1-ar-mary-magdalene-jesus/) | 1 Avril 2006
+Marie-Madeleine | [Portez la lumière de l'amour en vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-7-2-1-dl-mary-magdalene/) | 2 Juillet 2008
+Marie-Madeleine | [Marie-Madeleine n’est pas l’âme-soeur de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-29-2-af-mary-magdalene/) | 29 Janvier 2019
+Marie-Madeleine | [Permettez à la bénédiction de l'Amour de Dieu de venir dans votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-12-1-jw-mary-magdalene/) | 12 Juillet 2022
+Marie-Madeleine | [La lampe de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-4-1-af-mary-magdalene/) | 4 Septembre 2022
 
-[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+### [**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

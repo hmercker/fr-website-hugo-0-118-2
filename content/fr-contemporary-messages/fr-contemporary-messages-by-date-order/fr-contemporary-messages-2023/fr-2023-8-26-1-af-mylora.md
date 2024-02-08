@@ -26,3 +26,7 @@ Soyez conscients de vos dons, mes amis bien-aimés. Soyez conscient que la manif
 Mes amis bien-aimés, considérez-vous comme ayant de nombreux dons, de nombreuses possibilités qui se manifestent à travers vous. Chacun sera unique dans ces expressions. Chaque âme est unique. Lorsque vous venez à Dieu, cette unicité, sa beauté, son émerveillement ressortent et resplendissent à la lumière du Toucher de Dieu. Puissiez-vous vous apprécier vous-mêmes et les uns les autres et constater que chaque âme est remplie de possibilités, de potentiels pour de nombreuses choses merveilleuses. De nombreuses bénédictions merveilleuses peuvent se manifester à travers eux, à condition que la situation, l’environnement et le développement soient adéquats. Vous développez. Vous grandissez. Ainsi, vos dons grandissent et s’éveillent.
 
 Puissiez-vous continuer à bénéficier des grandes bénédictions de l’Amour de Dieu. Continuez à avancer dans ce domaine. Continuez à explorer les nombreuses parties de vous-même. Tant de choses sont encore cachées, tant de choses restent à découvrir. Mes amis bien-aimés, puissiez-vous être bénis et pleinement bénis dans l’Amour de Dieu. Je m’appelle Mylora et je vous aime, amis bien-aimés. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

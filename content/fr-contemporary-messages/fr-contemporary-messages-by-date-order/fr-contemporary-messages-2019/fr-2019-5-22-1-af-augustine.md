@@ -22,3 +22,7 @@ Marchez dans la foi. Sachez que Dieu vous guide. Cherchez son amour. Cherchez la
 Bénis sont les artisans de la paix. Bénis sont ceux qui placent l'amour avant tout le reste. Bénis sont ceux qui désirent s'éveiller à la Vérité, l'enseigner et la vivre. Dieu vous bénira. Dieu vous a béni et il le fera toujours. Votre maître Augustin vous aime et est à vos côtés. Quoi qu'il arrive, sachez que je suis avec vous et que beaucoup sont là pour vous aider dans ce voyage, cet éveil, ces changements. Beaucoup de choses vont arriver. Ayez la foi, soyez forts dans votre âme et apprenez à connaître votre véritable moi, qui est votre âme.
 
 Que Dieu vous bénisse. Augustine vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -21,4 +21,7 @@ Il y aura un effet boule de neige de bonne volonté et, oui, une pression pour q
 
 Non, l'histoire est imprévisible et, comme vous le savez, elle est soumise aux choix humains. Avec des dirigeants intelligents et bienveillants, il n'y a pas de limite à tout le bien que l'on peut faire dans le monde. Le problème dans ces domaines est que le leadership a été trop axé sur le pouvoir égoïste et la cupidité. Cela va progressivement changer.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

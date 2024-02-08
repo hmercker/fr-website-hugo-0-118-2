@@ -31,4 +31,6 @@ Bon, maintenant vous connaissez les règles et comment jouer le jeu, alors c'est
 
 Je vous laisse maintenant avec mes bénédictions et je vous remercie d'avoir pris mon message. Je suis votre ami et frère en Christ, Pierre l'Apôtre de Jésus et un Esprit Ange Céleste.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

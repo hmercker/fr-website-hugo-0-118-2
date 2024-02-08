@@ -20,3 +20,7 @@ La connexion que vous avez les uns avec les autres est d’âme à âme. C’est
 Je tiens à dire que vous serez une grande bénédiction pour le cher frère qui vous attend là-bas, et pour tous vraiment. Alors, ne craignez rien. Tout est entre les mains de Dieu. Nous serons là, et nous donnerons à chacun de vous un signe pour vous rappeler notre présence.
 
 Avec tout mon amour et mes bénédictions dans le Père, je suis Care.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

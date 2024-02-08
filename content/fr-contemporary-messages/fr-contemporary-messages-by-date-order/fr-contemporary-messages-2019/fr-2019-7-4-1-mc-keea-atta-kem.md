@@ -22,3 +22,7 @@ Nous vous encourageons donc à vous ouvrir aussi souvent que vous le pouvez, en 
 Il y a beaucoup d’anges qui prient avec vous maintenant et vous entourent, apportant une profonde condition d’Amour et de Lumière au milieu de vous. De nombreuses énergies de guérison passent par ce portail de lumière qui existe dans ce bâtiment sacré, apportant la guérison, l’amour et la lumière.
 
 Puissiez-vous tendre la main de vos âmes vers Dieu et que cette Essence d’Amour Divin vous touche profondément alors que vous priez, vous asseyez et recevez. Que Dieu vous bénisse, âmes bien-aimées. Je suis Keea Atta Kem et je vous remercie d’avoir écouté mes paroles. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

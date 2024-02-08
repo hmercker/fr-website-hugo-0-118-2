@@ -25,4 +25,8 @@ Dès que ce changement dans mon esprit s'est produit, je me suis retrouvé avec 
 
 Naturellement, j'ai été très surpris. J'ai commencé à réévaluer ma vie, et dès que ce désir a surgi dans mon âme, un Ange est venu me voir et m'a expliqué comment progresser. Je l'ai fait, et ainsi j'ai fini par sortir de mon obscurité. La méthode que cet Ange m'a enseignée était de prier pour l'Amour Divin. J'ai donc réalisé qu'une autre approche était toujours à ma disposition, mais que j'étais aveugle à celle-ci. Pour moi, c'était donc comme si elle n'existait pas.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+

@@ -36,3 +36,7 @@ C’est la promesse qui est au plus profond de vos âmes, ce désir d’être en
 Le Père Céleste vous a clairement dans Sa main, âmes bien-aimées. Vous continuerez à enseigner, à guérir, à aimer beaucoup. C’est Son plan pour vous bien-aimés et il s’ouvrira d’une manière inattendue, dans des voyages encore non découverts, avec des âmes encore inconnues mais qui viennent. C’est un voyage magnifique, un voyage qui vous apportera une grande joie, un grand épanouissement des aspirations de votre âme. Cherchez l’Amour du Père et en effet toutes les choses viendront. Toutes les choses viendront.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant, St Augustin, et je vois vos Lumières et j’ai un grand amour pour vous. Je vois votre progrès et je suis avec vous au cours de votre voyage comme le sont beaucoup d’anges qui continuent à marcher avec vous. Nous suivons les pas de notre bien-aimé Maître Jésus qui nous montre le chemin à tous. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse dans votre voyage. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

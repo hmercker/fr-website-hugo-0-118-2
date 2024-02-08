@@ -21,3 +21,7 @@ Vous nous attirez, vous nous amenez dans votre cercle, et vous nous permettez de
 <small>
 
 1. <large id=”f1”> Ce commentaire sur une "arche" par Claire est probablement une simple erreur médiumnique, plutôt qu'une erreur de Claire, et Noé a confirmé dans le message lié qu'il n'a pas construit une arche telle que définie dans la bible mais un "vaisseau" beaucoup plus petit.[↩](#a1)
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

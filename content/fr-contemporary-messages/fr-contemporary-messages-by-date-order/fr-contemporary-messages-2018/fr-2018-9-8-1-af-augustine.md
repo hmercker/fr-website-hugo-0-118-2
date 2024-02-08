@@ -26,3 +26,7 @@ Ces choses sont importantes et ont besoin de votre attention si vous voulez gran
 Soyez humble, soyez fidèle à Dieu, soyez pratique dans votre quête spirituelle de Dieu et ne compliquez pas trop votre pensée. Absorbez les vérités que vous êtes capables d’absorber. Priez pour que l’Amour du Père ouvre davantage les chambres de vos âmes afin que vous puissiez avoir les facultés requises pour comprendre la vérité. Ne mettez pas la charrue avant les bœufs, comme vous dites, et en effet, un autre conseil que nous aimons vous donner, est de mettre un pas devant l’autre, un jour après l’autre, une vérité, jusqu’à ce qu’elle soit complètement absorbée et une autre et une autre jusqu’à ce que vous soyez prêts à être vraiment ouverts et capables de percevoir ces vérités plus complexes.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre enseignant Augustin et je sais que vous êtes curieux et que vous cherchez la vérité valable et nous nous efforçons de vous la donner. Beaucoup attend chaque âme sur son chemin de vérité et il en sera ainsi car Dieu vous nourrit et nourrit votre âme et éveille votre conscience dans l’Amour. Que Dieu vous bénisse, je suis votre enseignant Augustin et je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -18,3 +18,7 @@ Je serai bref, mais je souhaite partager dans ce cercle de lumière tant de pers
 J’offre aussi tout mon amour à mes trois gentilles souris car vous m’êtes chères. Quoi que vous souhaitiez accomplir, je vous aiderai et je vous donnerai de l’espoir. Je suis une sœur en Christ. Que l’amour de Dieu vous embrasse et soit avec vous tous.
 
 Je suis Claire d’Assise.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

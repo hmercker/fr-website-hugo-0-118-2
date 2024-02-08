@@ -29,4 +29,6 @@ Chaque jour apporte ses défis et ses opportunités et chaque jour où vous surm
 
 Mes bien-aimés, bénissez-vous. Sachez que vous êtes vraiment aimées et dans les soins de Dieu. Soyez en paix et sachez que ce que vous faites ici est une étape de plus dans la manifestation de la volonté de Dieu et réjouissez-vous en cela, mes bien-aimés. Réjouissez-vous en cela. Car celui qui sert Dieu est puissamment béni. Dans le don vient la réception. Dans cet apprentissage et cette croissance vient le renforcement. Dans l’amour vient la connaissance sûre de la Vérité et la réunion joyeuse avec votre Père céleste. Continuez, mes bien-aimés, continuez. Une grande route vous attend, beaucoup de choses à faire et de nombreuses bénédictions à recevoir pour vous et pour tant d’autres. Que Dieu vous bénisse, votre enseignant Augustin vous aime et est souvent avec vous dans vos efforts. Soyez bénis.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015)
+### [**Lien vers les messages des années 2015**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

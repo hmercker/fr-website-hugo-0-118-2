@@ -27,4 +27,10 @@ Frères bien-aimés, sachez que je suis avec vous, que je continuerai à marcher
 
 Âmes bien-aimées, vous êtes un cadeau dans ce monde, car vous apportez une lumière qui sera utilisée pour bénir beaucoup. Priez pour vos frères et sœurs. Priez pour ce monde et dans le pouvoir de vos prières viendront de profondes bénédictions et le flux de lumière et d’amour à travers vous à ceux que vous aimez et ceux qui sont proches et ceux dans le monde qui sont dans le besoin. Le pouvoir de la prière, mes bien-aimés, sincère et ardente de votre âme.
 
-C’est ce que vous devez faire. Je vous en conjure. Je vous implore de continuer à grandir dans la lumière et l’amour, de marcher dans ce monde comme un exemple et un canal d’amour et de vérité. Dieu vous bénira dans votre marche. Dieu vous portera et vous élèvera pendant que vous priez. Dieu sera toujours avec vous. Puissiez-vous être toujours avec Dieu, mes bien-aimés. Je vous accompagnerai dans ce voyage et vous garderai dans la lumière. Je vous embrasse tous, mes bien-aimés. Que Dieu vous bénisse. Que Dieu vous bénisse profondément. Je suis votre frère et votre ami. Je suis Jésus. Que Dieu vous bénisse.
+C’est ce que vous devez faire. Je vous en conjure. Je vous implore de continuer à grandir dans la lumière et l’amour, de marcher dans ce monde comme un exemple et un canal d’amour et de vérité. Dieu vous bénira dans votre marche. Dieu vous portera et vous élèvera pendant que vous priez. Dieu sera toujours avec vous. Puissiez-vous être toujours avec Dieu, mes bien-aimés. Je vous accompagnerai dans ce voyage et vous garderai dans la lumière. Je vous embrasse tous, mes bien-aimés. Que Dieu vous bénisse. Que Dieu vous bénisse profondément. Je suis votre frère et votre ami. Je suis Jésus. 
+
+Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

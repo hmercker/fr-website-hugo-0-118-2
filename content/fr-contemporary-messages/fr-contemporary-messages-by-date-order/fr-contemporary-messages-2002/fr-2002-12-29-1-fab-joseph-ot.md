@@ -31,4 +31,6 @@ Son expérience n’a pas été marquée par la souffrance et l’obscurité, bi
 
 Lorsque votre médiumnité sera plus forte, il viendra lui-même et écrira davantage sur ses expériences. Permettez-moi de conclure en disant que son expérience était inhabituelle et vraiment atypique.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)
+### [**Lien vers les messages des années 2002**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

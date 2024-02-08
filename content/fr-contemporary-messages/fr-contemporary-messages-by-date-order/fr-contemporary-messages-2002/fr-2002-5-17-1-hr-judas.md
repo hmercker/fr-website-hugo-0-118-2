@@ -21,7 +21,7 @@ L’information que nous transmettons se transforme en mots dans l’esprit du m
 
 Maintenant, pour illustrer ce que je viens de dire, je veux que tu colles les derniers messages reçus à Medjugorje.
 
-> Message du 25 Avril, 2002
+> <u>Message du 25 Avril, 2002</u> :
 <br>
 <br>
 > Chers enfants ! Chers enfants, réjouissez-vous avec moi en ce temps de printemps, tandis que toute la nature s’éveille et que vos cœurs languissent après un changement. Ouvrez-vous, petits-enfants, et priez ! N’oubliez pas que je suis avec vous et que je désire vous conduire tous à mon Fils afin qu’il vous fasse le don d’un amour sincère envers Dieu et envers tout ce qui vient de Lui.  Ouvrez-vous à la prière et demandez à Dieu la conversion de vos cœurs ; tout le reste, Il le voit et Il y pourvoit.  Je vous remercie d’avoir répondu à mon appel.
@@ -30,7 +30,7 @@ Très bien. Maintenant, je vais écrire une version possible, si toi ou tout aut
 
 Chers Frères et sœurs ! Réjouissez-vous avec moi en ce temps de printemps, tandis que toute la nature s’éveille et que vos cœurs se languissent après un changement. Ouvrez-vous, frères et sœurs, et priez. N’oubliez pas que je suis avec vous et que je désire tous vous conduire vers l’Amour de Dieu afin qu’Il vous fasse le don d’un amour sincère envers Dieu et de tout ce qui vient de Lui.  Ouvrez-vous à la prière et demandez à Dieu la Nouvelle Naissance dans vos cœurs ; tout le reste, il le voit et y pourvoie. Je vous remercie d’avoir répondu à mon appel.
 
-> Message du 25 Mars 2002
+> <u>Message du 25 Mars 2002</u> :
 <br>
 <br>
 > Chers enfants ! Aujourd’hui, je vous invite à vous unir à Jésus dans la prière. Ouvrez lui votre cœur et partagez tout ce qu’il y a dedans : les joies, les peines et les maladies. Que ceci soit un temps de grâce pour vous. Priez, petits enfants afin que chaque instant appartienne à Jésus. Je suis avec vous et j’intercède pour vous. Je vous remercie d’avoir répondu à mon appel.
@@ -39,48 +39,48 @@ A quoi ressemblerait ce message s’il était écrit par la plume d’un médium
 
 Chers Frères et sœurs ! Aujourd’hui, je vous invite à chercher l’union avec Dieu dans la prière. Ouvrez Lui votre cœur et partagez tout ce qu’il contient : les joies, les peines et les maladies. Que ceci soit un temps de grâce pour vous. Priez, mes frères et sœurs, afin que chaque instant appartienne à Dieu. Je suis avec vous, afin de vous guider. Je vous remercie d’avoir répondu à mon appel.
 
-> L’apparition :
+> *L’apparition* :
 <br>
 <br>
 > Chers Enfants ! En tant que mère, je vous en supplie, ouvrez votre cœur et offrez le moi, ne craignez rien. Je serai avec vous et je vous apprendrai à mettre Jésus à la première place. Je vais vous apprendre à L’aimer et à Lui appartenir totalement. Comprenez, chers enfants, que sans mon Fils il n’y a pas de salut. Vous devez prendre conscience qu’Il est votre début et votre fin. Seulement avec cette prise de conscience vous pouvez être heureux et mériter la vie éternelle. Comme votre mère je désire cela pour vous. Je vous remercie d’avoir répondu à mon appel.
 
-Maintenant, l’autre version :
+*Maintenant, l’autre version* :
 
 Chers Enfants ! En tant que mère, je vous en supplie, ouvrez votre cœur et offrez le à Dieu, et ne craignez rien. Je serai votre guide et je vous apprendrai à mettre Dieu à la première place. Je vais vous apprendre à L’aimer et à Lui appartenir totalement. Comprenez, chers enfants que, sans l’Amour du Père, il n’y a pas de salut. Vous devez prendre conscience qu’Il est votre début et votre fin. Seulement avec cette prise de conscience vous pouvez être heureux et hériter la vie éternelle. Comme votre mère je désire cela pour vous. Je vous remercie d’avoir répondu à mon appel.
 
-> Message du 25 Février, 2002
+> <u>Message du 25 Février, 2002</u> :
 <br>
 <br>
 > Chers enfants ! Dans ce temps de grâce, je vous invite à devenir des amis de Jésus. Priez pour la paix dans vos cœurs et travaillez pour votre conversion personnelle. Petits enfants, seulement de cette façon vous serez en mesure de devenir des témoins de la paix et de l’amour de Jésus dans le monde. Ouvrez-vous à la prière afin que la prière devienne une nécessité pour vous !  Convertissez-vous, petits-enfants, et travaillez afin que le plus grand nombre possible d’âmes puissent connaître Jésus et Son amour. Je suis proche de vous et Je vous bénis tous. Je vous remercie d’avoir répondu à mon appel.
 
-Et voici notre version:
+*Et voici notre version* :
 
 Chers Frères et sœurs ! Dans ce temps de grâce, je vous invite à devenir des amis de Jésus. Priez pour la paix dans vos cœurs et travaillez pour votre conversion personnelle. Frères et sœurs, seulement de cette façon vous serez en mesure de devenir des témoins de la paix et de l’Amour de Dieu dans le monde. Ouvrez-vous à la prière afin que la prière devienne une nécessité pour vous !  Recevez l’Amour de Dieu, mes frères et sœurs et travaillez afin que le plus grand nombre possible d’âmes puissent connaître Dieu et Son Amour. Je suis près de vous et je vous bénis tous. Je vous remercie d’avoir répondu à mon appel.
 
-> Message du 25 Janvier 2002
+> <u>Message du 25 Janvier 2002</u> :
 <br>
 <br>
 > Chers enfants ! Chers enfants, en ce temps, tandis que vous vous retournez encore sur l’année passée, je vous appelle, petits-enfants, à regarder profondément dans votre cœur et à vous décider à être plus près de Dieu et de la prière. Petits enfants, vous êtes encore attachés aux choses terrestres et peu à la vie spirituelle. Que mon appel aujourd’hui puisse être aussi une invitation à vous décider pour Dieu et pour la conversion quotidienne. Vous ne pouvez pas être converti, petits-enfants, si vous n’abandonnez vos péchés et ne vous décidez pour l’amour envers Dieu et envers votre prochain. Je vous remercie d’avoir répondu à mon appel.
 
-Encore une fois, la version modifiée:
+*Encore une fois, la version modifiée*:
 
 Chers frères et sœurs ! En ce temps, tandis que vous vous retournez encore sur l’année passée, je vous appelle, mes frères et sœurs, à regarder profondément dans votre cœur et à vous décider d’être plus près de Dieu et de la prière. Frères et sœurs, vous êtes encore attachés aux choses terrestres et peu à la vie spirituelle. Que mon appel aujourd’hui puisse être aussi une invitation à vous décider pour Dieu et pour recevoir quotidiennement son Amour. Vous ne pouvez pas recevoir Son Amour, frères et sœurs, si vous n’abandonnez vos péchés et si vous ne vous décidez pour l’Amour envers Dieu et envers le prochain. Je vous remercie d’avoir répondu à mon appel.
 
-> Message à Jacob Colo du 25 Décembre, 2001 :
+> <u>Message à Jacob Colo du 25 Décembre, 2001</u> :
 <br>
 <br>
 > Chers enfants, aujourd’hui, alors que Jésus est né de nouveau pour vous, je veux vous appeler particulièrement  à la conversion. Priez, priez, priez pour la conversion de votre cœur, de sorte que Jésus naisse à nouveau pour vous tous, habite en vous et règne sur tout votre être. Je vous remercie d’avoir répondu à mon appel.
 
-Maintenant, la « traduction » de ce message :
+*Maintenant, la « traduction » de ce message* :
 
 Chers frères et sœurs, aujourd’hui, alors que nous commémorons à nouveau l’effusion de l’Amour Divin en vous, je veux vous appeler particulièrement à le recevoir. Priez, priez, priez pour la conversion de votre cœur, de sorte que le Christ naisse à nouveau en vous tous, habite en vous et règne sur tout votre être. Je vous remercie d’avoir répondu à mon appel.
 
-> Message du 25 Décembre, 2001
+> <u>Message du 25 Décembre, 2001</u> :
 <br>
 <br>
 > Chers enfants ! Je vous appelle aujourd’hui et vous encourage à la prière pour la paix. Je vous invite particulièrement aujourd’hui, portant le nouveau-né Jésus dans mes bras pour vous, à pour unir avec Lui par la prière et à devenir un signe pour ce monde troublé. Encouragez-vous les uns les autres, petits-enfants, à la prière et à l’amour. Que votre foi soit un encouragement pour d’autres personnes à croire et à aimer davantage. Je vous bénis tous et vous invite à être plus près de mon cœur et du cœur du petit Jésus. Je vous remercie d’avoir répondu à mon appel.
 
-Et enfin, le message de Noël :
+> <u>Et enfin, le message de Noël</u> :
 
 > Chers Frères et sœurs ! Je vous appelle aujourd’hui et je vous encourage à la prière pour la paix. Je vous invite particulièrement aujourd’hui, portant le nouveau-né Jésus dans mes bras, pour vous, (un symbole catholique, se référant au Christ, c’est-à-dire à l’Amour Divin) à vous unir à lui par la prière et à devenir un exemple dans ce monde troublé. Encouragez-vous les uns les autres, chers frères et sœurs, à la prière et à l’amour. Que votre foi soit un encouragement pour d’autres personnes à croire et à aimer davantage. Je vous bénis tous et vous invite à être plus près de nous, vos guides Célestes et de l’Amour du Père. Je vous remercie d’avoir répondu à mon appel.
 
@@ -112,4 +112,6 @@ Passe un agréable  week-end et reçois la bénédiction du Père, ton frère en
 
 © Geoff Cutler 2013
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)
+### [**Lien vers les messages des années 2002**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -29,4 +29,6 @@ Mes bien-aimés, continuez dans vos prières et efforts pour être avec Dieu et 
 
 Soyez bénis, mes bien-aimés. Je suis Jean le Bien Aimé, je vous aime et je suis proche de vous. Soyez bénis, âmes bien-aimées, soyez bénis.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015)
+### [**Lien vers les messages des années 2015**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

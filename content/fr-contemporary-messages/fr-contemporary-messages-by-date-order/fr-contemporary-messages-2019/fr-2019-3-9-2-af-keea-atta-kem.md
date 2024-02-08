@@ -20,3 +20,7 @@ Avec chaque âme précieuse ici, vous venez ajouter votre force spirituelle, vot
 Nous sommes en effet très heureux et satisfaits d’être avec vous dans ce Cercle de Lumière et de travailler avec vous dans ces efforts pour vous élever et élever le monde. Gardez ces choses dans vos prières et vos pensées, car cela attire de nombreux anges vers vous et attire les bénédictions de Dieu sur vous. Puissiez-vous être profondément bénis, mes chers amis bien-aimés, et venir à connaître vos belles âmes. Je t’aime. Je vous aime tous et chacun, précieux, beaux, dans la lumière et l’amour.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Keea Atta Kem et je sers dans le flux et la grâce de Dieu pour vous assister, vous aimer et vous élever. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

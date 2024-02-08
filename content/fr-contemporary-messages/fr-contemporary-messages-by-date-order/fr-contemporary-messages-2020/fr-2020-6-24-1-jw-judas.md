@@ -21,3 +21,7 @@ Avec tout mon amour et dans la Grâce de Dieu, je viens à vous en tant qu'âme 
 <small>
 
 1. <large id=”f1”> BS est l'abbréviation pour le terme anglais "Bullshit" qui signifie bêtises.[↩](#a1)
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

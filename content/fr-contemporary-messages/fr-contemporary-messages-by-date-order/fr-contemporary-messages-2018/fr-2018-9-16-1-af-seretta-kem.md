@@ -28,3 +28,7 @@ Il est bon que vous écoutiez votre intuition, des conseils qui vous encouragent
 Oui, il y a beaucoup de travail à venir et vous continuez à vous préparer, à vous consacrer à la prière, à faire de grands efforts pour élever vos pensées, pour être aimants dans vos vies. Cela se voit, mes bien-aimés, par la lumière dans vos âmes. Ces efforts continuent à vous aider à vous aligner davantage avec tout ce qui est dans le flux de la Volonté de Dieu. Puissiez-vous continuer à être bénis, âmes bien-aimées. Puissiez-vous continuer à vous éveiller, à marcher dans la foi, à être les canaux bien-aimés de Dieu et de Sa volonté.
 
 Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse profondément, dans une paix profonde, dans des réveils puissants, dans des prises de conscience merveilleuses et joyeuses de la beauté de Son Amour. Que Dieu vous bénisse. Je suis Seretta Kem. Je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

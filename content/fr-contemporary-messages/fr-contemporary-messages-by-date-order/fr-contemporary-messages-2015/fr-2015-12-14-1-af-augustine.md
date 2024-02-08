@@ -29,4 +29,6 @@ Mes chères âmes bien-aimées, vous continuerez à grandir, à rechercher l’A
 
 Bien-aimés, nous nous réjouissons de ces changements, de cette croissance, de votre capacité à aimer et nous marchons avec vous, toujours à vos côtés, toujours dans le flux de l’Amour de Dieu. Bien-aimés, puissiez-vous continuer à marcher dans cette Lumière, il est si important que vous le fassiez, et que vous rassembliez les âmes qui cherchent et sont impatientes, et vous le ferez et les portes s’ouvriront. Oui, beaucoup viennent. Dieu vous bénisse, mes bien-aimés, votre enseignant Augustin vous aime tendrement. Merci de m’avoir écouté.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015)
+### [**Lien vers les messages des années 2015**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

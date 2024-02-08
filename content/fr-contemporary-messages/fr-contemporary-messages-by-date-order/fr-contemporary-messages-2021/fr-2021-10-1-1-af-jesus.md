@@ -64,3 +64,7 @@ Puissiez-vous être ces exemples lumineux et éclatants dans le monde. Puissiez-
 Avoir sur Terre des individus qui sont le reflet de cette vérité et qui vivent vraiment selon cette vérité sera une grande bénédiction pour beaucoup. Dieu a besoin de Ses instruments sur le monde, surtout en ce moment. Puissiez-vous en venir à réaliser les véritables potentiels de votre âme afin de pouvoir servir Dieu en tant que canal clair et robuste de Son Amour et de Sa Lumière. Que l’image devienne substance. Que la vérité naisse en vous. Que la véritable transformation vienne à vous et que vous soyez Ses instruments sur le monde.
 
 Je vous remercie d’avoir écouté ma dissertation. Je reviendrai pour parler des choses, d’un monde nouveau, de la naissance de l’âme dans l’Amour, du besoin de plus de lumière et de vérité. Que Dieu vous bénisse. Je suis votre frère et ami Jésus. Je viens une fois de plus pour parler, pour partager mes paroles de sagesse et de vérité à l’humanité. Que Dieu vous bénisse, âmes bien-aimées, que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -26,3 +26,7 @@ Cela vient toujours très lentement, comme une fleur dont les pétales se déplo
 Que Dieu vous bénisse dans ce voyage, âmes bien-aimées, et vous garde près de Lui, vos âmes bercées dans l’Amour, vos êtres ressentant la joie de cet éveil et le fait de savoir que vous êtes aimés. Dans cet Amour tout est possible, que vous puissiez attirer à vous la Vérité profonde et durable, les expressions belles et joyeuses de vos dons d’âme, et savoir que vous et Dieu êtes en alignement et que nous partageons aussi ce beau voyage et sommes toujours avec vous.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis André et mon amour est toujours avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

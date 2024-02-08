@@ -20,4 +20,6 @@ Certes, l'aide est toute proche. Il y a eu une mobilisation des bons esprits et 
 
 1. <large id="f1"> **Ida Minerva Tarbell** (6 Novembre 1857 - 6 Janvier 1944) fut une enseignante, auteur et journaliste américaine. Elle était connue comme l'une des principales « muckrakers(fouineuses)» de son époque, travail connu à l'époque moderne, dans l'ère progressiste, sous le nom de « journalisme d'investigation. » Elle a écrit de nombreuses séries de magazines et biographies remarquables. Elle est surtout connue pour son livre de 1904 intitulé « The History of the Standard Oil Company (l'histoire de la Standard Oil Company) », qui compte 654 pages et a été classé cinquième dans la liste des 100 meilleurs ouvrages de journalisme américain du XXe siècle établie par le New York Times en 1999. Elle a commencé son travail sur la Standard Oil Company après que ses rédacteurs en chef du magazine McClure's lui aient demandé un article sur l'un des Trusts. Elle pensait que le public serait ennuyé par l'histoire des régions pétrolières, même si son chef John D. Rockefeller, Sr. avait mis son père en faillite. (Source : Wikipedia)[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -30,3 +30,7 @@ Apprendre à amener votre esprit dans un état méditatif de calme et de paix es
 C’est un élément important pour aller de l’avant et être capable d’entendre la sagesse de votre âme dans son éveil. Cela se produira, mais il faut que vous choisissiez que cela se produise. Dieu éveillera vos âmes, mes bien-aimés, avec Son Amour mais vous êtes le conducteur de votre corps et de votre mental. C’est de votre propre volonté que vous pouvez choisir de vous aligner avec le corps, l’esprit et l’âme, permettant à votre âme d’être le conducteur de votre véhicule.
 
 Je vous remercie d’avoir écouté mes paroles. J’espère que je pourrai vous apporter une certaine forme d’inspiration et de compréhension afin d’apporter une grande harmonie avec ces trois aspects de qui vous êtes et les dons que vous utilisez pour vous conduire ici sur Terre. Je suis Matthieu. Que Dieu vous bénisse, âmes bien-aimées.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

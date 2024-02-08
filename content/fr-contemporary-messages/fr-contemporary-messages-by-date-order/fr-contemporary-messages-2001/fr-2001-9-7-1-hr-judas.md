@@ -53,7 +53,7 @@ Maintenant, alors que  je suis sur le point de te quitter, je tiens à te dire q
 
 ![title](/3-fr-judas-of-kerioth-messages/fr-judas.jpg)
 
-                    Judas de Kérioth
+                    # **Judas de Kérioth**
 
 Dis à M____ que l’ange qu’elle a dessiné n’est pas le produit d’un processus de *« dessin automatique »*, mais le résultat d’un dessin inspiré. Son ange gardien a vraiment imprimé en elle cette image, ce qui l’a beaucoup aidée, et continuera de l’aider à s’élever au niveau du monde des esprits et surtout de son ange. Nous pouvons nous présenter sous des formes diverses, et les ailes symbolisent notre agilité. Elle a dessiné le cœur rayonnant, l’âme transformée, et je veux juste lui dire que son ange gardien vit avec moi dans le Royaume Céleste.
 
@@ -67,4 +67,6 @@ Judas, un esprit né de nouveau dans l’Amour du Père Céleste.
 
 © Geoff Cutler 2013
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)
+### [**Lien vers les messages des années 2001**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

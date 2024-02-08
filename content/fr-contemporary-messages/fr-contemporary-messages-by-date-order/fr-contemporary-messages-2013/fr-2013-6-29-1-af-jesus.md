@@ -23,4 +23,6 @@ Nous prions pour que vous mettiez cela de côté, que vous choisissiez la lumiè
 
 Je suis Jésus et je vous aime. Chacun d’entre vous m’est précieux. Chacun de vous est beau et aimé, aimé de Dieu, d’une manière si grande et si puissante, que, si vous pouviez comprendre et expérimenter cet amour, vous seriez essoufflés, humbles et émerveillés de découvrir toute la force et puissance avec lesquelles Dieu vous aime. Que cet éveil se produise pour chaque âme ici. Il est fait pour vous. Que Dieu vous bénisse.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)
+### [**Lien vers les messages des années 2013**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

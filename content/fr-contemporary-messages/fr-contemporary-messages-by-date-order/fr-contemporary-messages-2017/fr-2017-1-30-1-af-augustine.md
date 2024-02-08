@@ -22,3 +22,7 @@ Une fois que vous aurez goûté à ces Eaux Vives, une fois que vous connaîtrez
 Ce ne sera jamais un lieu de routine ou d'ennui. Non, mes bien-aimés ! C'est exaltant d'être avec Dieu. C'est épanouissant. C'est une aventure et un voyage qui ne se termine jamais. Car l'Amour de Dieu est infini. Cette bénédiction n'est limitée que par votre propre effort et votre désir. Je vous en prie, âmes bien-aimées, priez pour l'ouverture de l'Amour de Dieu, afin qu'il se déverse dans vos âmes. Demandez et suppliez Dieu avec tout votre effort ; tout votre désir ; tout ce qui est en vous, pour dire : *« Cher Dieu, je souhaite être proche de Toi ; Te connaître ; recevoir ce grand Amour, et être guéri par lui ; réveillé par lui »*.
 
 Vous recevrez cette bénédiction, âmes bien-aimées, dans une toujours plus grande abondance. Vos âmes vont grandir et ressentir la grande joie qui accompagne cette bénédiction. Cherchez le royaume, mes bien-aimés. Tout le reste viendra à vous. Buvez profondément maintenant car cet Amour est là, attendant votre désir, votre prière, votre ouverture et votre compréhension. Que Dieu vous bénisse ! Je suis Augustin, et je vous aime.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

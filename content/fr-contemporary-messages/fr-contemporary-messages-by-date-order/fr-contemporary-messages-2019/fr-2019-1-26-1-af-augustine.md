@@ -34,3 +34,7 @@ Cela ne ressemble à rien de ce que vous avez déjà vécu, âmes bien-aimées. 
 De nombreuses bénédictions sont à venir, âmes bien-aimées. Vous continuez à aspirer aux réponses, aux réveils, aux manifestations, à toutes les bénédictions de Dieu. Dieu connaît vos pensées, vos désirs et vos motivations et Il vous guidera en fonction de vos choix et de votre capacité à avancer dans l’Amour, la Lumière et la paix. Beaucoup de choses se produiront. Beaucoup vous sera accordé, âmes bien-aimées, car si peu comprennent vraiment les raisons de ce qui vient et l’acceptent et sont prêts à marcher dans la direction du changement sans peur, sans confusion et sans résistance. Soyez vos âmes, mes bien-aimés. Marchez dans la lumière de vos propres âmes et de cette façon, Dieu informera chaque pas et guidera chaque jour.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre enseignant Augustin et j’apprécie vos curiosités et vos questions exprimant les désirs de votre âme. Dieu répondra à tout en temps voulu, âmes bien-aimées, et nous vous fournirons toutes les réponses possibles en ce moment pour vous soutenir dans votre voyage d’éveil de l’âme. Que Dieu vous bénisse. Dieu vous bénisse, belles, belles âmes. Mon amour est avec vous. Augustin vous aime. Dieu vous aime.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

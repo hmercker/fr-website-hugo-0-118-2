@@ -25,4 +25,7 @@ Maintenant, tu as une perception différente de ce sujet. Tout ce que nous semon
 
 Je suis heureuse que tu sois satisfait de ce que j'ai dit. Cela a clarifié une confusion pour toi.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -9,7 +9,7 @@ weight:
 ---
 ### Embrasser la diversité et l’autre dans l’acceptation et l’amour
 
-Leytergus - reçu par Al Fike le 23 Juillet 2020, Kootenay Bay, Colombie-Britannique, Canada.
+Leytergus<sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 23 Juillet 2020, Kootenay Bay, Colombie-Britannique, Canada.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-spiritualite4-1.jpg)
 
@@ -30,3 +30,20 @@ C’est ainsi que Dieu a voulu la vie, cette grande variété d’expression, de
 Puissiez-vous tous faire l’expérience et apprendre à connaître avec une conscience accrue et un grand Amour dans l’âme, un voyage de vie rempli de joie et d’émerveillement. Cherchez ce grand don, cette Essence de Dieu car c’est ce qui enflammera ces sensibilités, perceptions et appréciations plus fines de la vie. Alors que l’Amour de Dieu, l’Essence de son âme, se déverse sur vous tous, continue à grandir et à éveiller votre nature véritable, vous trouverez cette grande joie et cette appréciation. Elle grandira et grandira à mesure que votre vision s’approfondira. Quelle sera la profondeur de vos intuitions, de votre reconnaissance et de votre joie de vivre.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Leytergus. Je viens à vous en amour. Je suis un résident du Royaume Céleste où il y a une grande diversité. Il y a une grande beauté, un amour et une joie qui dépassent votre compréhension, mes beaux amis. Nous vous indiquons donc ce chemin car c’est ce que vos âmes recherchent. C’est ce que vous désirez vraiment et cela vous ouvrira les portes de la grande Vérité. Que Dieu vous bénisse. Mon amour vous embrasse tous. L’Amour de Dieu nous embrasse tous dans le grand firmament de cet Univers. Que Dieu vous bénisse, chers amis. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> Leytergus s'est également exprimé dans les messages suivants :  [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+--|---|---
+Leytergus | [Cet amour vous aidera à surmonter les obstacles sur votre chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-52-1970-1-26-anonymous-leytergus/) | 26 Janvier 1970
+Leytergus | [Relation entre le mental matériel et le mental de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-11-2-af-leytergus/) | 11 Septembre 2017
+Leytergus | [Les différences entre la Sixième Sphère et les Sphères Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-12-3-af-leytergus/) | 12 Septembre 2017
+Leytergus | [Ce que signifie vraiment la co-création avec Dieu. (Retraite Q&A Gibsons Juillet 2019)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-11-3-af-leytergus/) | 11 Juillet 2019
+Leytergus | [Embrasser la diversité et l’autre dans l’acceptation et l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-23-1-af-leytergus/) | 23 Juillet 2020
+Leytergus | [Prier avec intention](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-2-23-1-af-leytergus/) | 23 Février 2021
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

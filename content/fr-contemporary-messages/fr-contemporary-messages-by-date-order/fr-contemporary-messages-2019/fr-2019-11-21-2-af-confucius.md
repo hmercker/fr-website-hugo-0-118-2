@@ -11,7 +11,7 @@ weight:
 
 Confucius - reçu par Al Fike le 21 Novembre 2019, Ancient Gardens, Eudlo, QLD, Australie.
 
-C’est votre ami Confucius. Il semble que votre cher hôte (P) ne souhaite pas que vous vous reposiez mais que vous poursuiviez votre grand séjour pour voir son beau pays. Âmes bien-aimées, vous avez une mission que vous êtes sur le point d’entreprendre avec les âmes chères qui viennent pour la guérison, le confort et l’amour. Il est nécessaire pour vous d’apporter des énergies en vous pour vous soutenir et vous renforcer. Bénédictions de Dieu à chacun de vous afin que vous puissiez maintenir une condition élevée d’amour parmi vous dans ce Cercle dont vous ferez partie demain.
+C’est votre ami Confucius<sup id="a1">[1](#f1)</sup>. Il semble que votre cher hôte (P) ne souhaite pas que vous vous reposiez mais que vous poursuiviez votre grand séjour pour voir son beau pays. Âmes bien-aimées, vous avez une mission que vous êtes sur le point d’entreprendre avec les âmes chères qui viennent pour la guérison, le confort et l’amour. Il est nécessaire pour vous d’apporter des énergies en vous pour vous soutenir et vous renforcer. Bénédictions de Dieu à chacun de vous afin que vous puissiez maintenir une condition élevée d’amour parmi vous dans ce Cercle dont vous ferez partie demain.
 
 Comme c’est le cas dans votre monde, âmes bien-aimées, la force et les énergies, qu’elles soient spirituelles ou physiques, nécessitent un temps de repos et de régénération. Bien que nous puissions vous soutenir et que nous vous soutenions de nombreuses façons, vous devez également prendre des décisions sages pour vous soutenir vous-mêmes, pour aimer vos corps physiques, vos esprits, vos esprits et vos âmes, comme Dieu vous aime. Vous êtes les gardiens de vous-mêmes. Dieu vous a richement bénis. Il souhaite que vous soyez forts et capables dans ce monde qui exige parfois beaucoup. La sagesse est nécessaire, une sagesse profonde. Ne permettez pas aux distractions du monde de vous attirer au point de vous déséquilibrer et de vous empêcher d’être forts dans votre corps et votre spiritualité.
 
@@ -30,3 +30,12 @@ Nourrissez vos âmes, mes bien-aimés. C’est la clé, c’est la clé de tout.
 Puissiez-vous vous éveiller, âmes bien-aimées, vous éveiller à toute la gloire et l’émerveillement de la Lumière et de la joie et de l’Amour que Dieu a à vous donner. Je serai avec vous dans votre temps de prières dans les jours à venir. De nombreux anges seront avec vous, mes bien-aimés, au service des enfants perdus, au service de ceux qui ont faim et désirent la Vérité. Vous serez tous inspirés, élevés et dans la joie.
 
 Que Dieu vous bénisse, mes bien-aimés. Confucius vous aime. Je prends soin de mes petits oiseaux. Que leurs chants soient doux et que leur plumage soit brillant dans l’Amour et la Lumière. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués  par Confucius sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a1)
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+

@@ -26,3 +26,7 @@ Ce que cela deviendra est bien plus que ce que vous pouvez anticiper en ce momen
 Puissiez-vous vous élever, âmes bien-aimées, vous élever dans la lumière et accepter votre nouveau moi transformé et être joyeux dans cette libération et cette transformation. Vous êtes vraiment bénis, bien-aimés, vraiment, profondément bénis. Puissiez-vous continuer à permettre à la grande transformation d’avoir lieu et d’émerger avec tout votre désir et votre volonté pour devenir cette belle créature que vous êtes censés être.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Orion et je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

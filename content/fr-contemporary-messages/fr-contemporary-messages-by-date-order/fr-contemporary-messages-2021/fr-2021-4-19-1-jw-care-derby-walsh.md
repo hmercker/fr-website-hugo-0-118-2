@@ -20,3 +20,7 @@ Les premiers Chrétiens, dont beaucoup furent de martyrs, sont morts sans abando
 Au cours de mon voyage, je me suis souvent demandée, alors que j’avais passé tellement de temps à prier, à ressentir l’amour de Dieu, à parler avec les anges Célestes, à voir l’avenir même, si j’avais fait quelque chose de bien ? Et pourtant, celui qui est assis devant vous, presque 30 ans après mon passage en esprit, n’a jamais oublié, car l’Amour de Dieu a fait une impression indélébile sur son âme. Et il en est de même pour chacun de vous.
 
 La gloire de cet amour, le cercle de lumière, la Présence de Dieu et de ses anges, vous la recevez. Vous l’emportez avec vous dans le monde. D’après mon expérience, je vous suggère de ne pas passer de temps à vous préoccuper du résultat de ce que vous cherchez à apporter aux autres, qui est l’Amour de Dieu. Et croyez-moi, c’est entre les mains de Dieu. Tout ce que vous devez faire, si vous le souhaitez, c’est planter les graines. Soyez l’amour, soyez la Lumière, comme le dit la chanson, c’est le plaisir de Dieu. Et c’est à moi d’être ici avec vous. Je vais me retirer dans le beau silence de cette glorieuse prière. Merci. Que Dieu bénisse chacun d’entre vous. Je suis Care.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

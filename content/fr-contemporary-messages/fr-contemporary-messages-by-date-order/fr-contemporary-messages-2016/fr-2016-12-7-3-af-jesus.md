@@ -30,3 +30,7 @@ Cela demande de la foi. Cela demande une force profonde en vous et une compréhe
 Mes bien-aimés, je suis avec vous, je continue à marcher avec vous, à vous aimer comme mes propres frères, car vous êtes mes propres frères. La famille des enfants de Dieu qui cherchent à exprimer Son Amour. Marchez avec moi et sachez que vous êtes en sécurité, que vous êtes guidés et que vous êtes dans la lumière. Vous n’avez besoin de rien d’autre que de la nourriture, des eaux vives de l’Amour du Père. Tout le reste viendra avec cette grande et profonde bénédiction. Tout le reste découle de cet Amour et tu le sais. Soyez avec cet Amour, car cet Amour vient lorsque vous construisez la lumière en vous et parmi vous.
 
 Que Dieu vous bénisse, mes bien-aimés.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

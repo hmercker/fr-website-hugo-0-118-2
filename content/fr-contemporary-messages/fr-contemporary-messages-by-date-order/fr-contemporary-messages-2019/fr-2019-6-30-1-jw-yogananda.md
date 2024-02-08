@@ -18,3 +18,7 @@ Je vous encourage à tendre la main aux autres, quelles que soient leurs croyanc
 Je souhaite remercier chacun d'entre vous pour le travail que vous faites, pour permettre aux désirs dans vos âmes de laisser le Père les ouvrir à l'afflux de Son Amour. Vous êtes tous tellement bénis et je suis béni d'être avec vous. Je vous encourage, continuez à prier. Vous verrez la transformation de ce monde.
 
 Je suis Yogananda et j'aime chacun d'entre vous. Que Dieu vous bénisse et continue à déverser son amour sur vous, chacun d'entre vous. Que le monde soit béni dans l'Amour de Dieu.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

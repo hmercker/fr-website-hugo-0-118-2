@@ -22,3 +22,7 @@ Et vous, mes bien-aimés, ainsi que beaucoup d'autres que Dieu prépare dans ce 
 Alors que vos cœurs chantent de joie dans cette révélation continue et dans l'éveil de l'âme, puissiez-vous continuer à chercher, à vous interroger, à prier et à aspirer à la Vérité. Tout sera révélé en son temps, lorsque vous serez prêts et lorsque vous vous éveillerez. Tant de choses vous seront données et de nombreuses opportunités vous seront révélées, âmes bien-aimées, pour travailler ensemble, pour travailler pour l'humanité, pour apporter une plus grande Lumière afin que vous puissiez vraiment en bénéficier, vraiment grandir, vraiment approfondir votre conscience, à travers des perceptions avec de nombreuses facultés et dons de vos âmes, alors que l'Amour de Dieu éveille tout et vous montre le chemin. Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant Augustin et j'ai travaillé avec chacun d'entre vous. Bien que vous n'en ayez peut-être pas été conscients, vos âmes ont certainement été accordées et bénies de nombreuses façons.
 
 Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse. Je suis votre enseignant Augustin. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

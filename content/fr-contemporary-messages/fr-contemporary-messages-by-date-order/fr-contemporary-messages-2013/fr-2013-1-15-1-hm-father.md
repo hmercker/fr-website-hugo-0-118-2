@@ -17,8 +17,10 @@ Tu en es témoin et tu le vis à travers de vraies demandes et de vrais désirs.
 
 Saisissez les cœurs des vrais chercheurs, les chercheurs de vérité et d’amour. Libérez-vous des « egos » et unissez-vous par l’amour dans vos cœurs. La passion d’une âme qui s’enflamme – comme tu sens la chaleur dans ta poitrine – dépasse les murs de toute limitation. Reconnaissez l’immense amour qui existe.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)
-
 Tous ces beaux frères et sœurs avec tant d’amour en eux, Mes vrais enfants bien-aimés. Je veux que vous soyez tous proches de moi et que vous habitiez ensemble dans notre maison harmonieuse du véritable amour.
 
 Vous êtes Mes enfants, je vous aime profondément. C’est votre Père.
+
+### [**Lien vers les messages des années 2013**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

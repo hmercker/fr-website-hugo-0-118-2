@@ -17,4 +17,6 @@ Vous faites partie de mon troupeau et je vous envelopperai de mon amour, car nou
 
 Un grand amour pour vous mes enfants, je vous embrasse et je vous aime et je prie pour vous. Que Dieu vous bénisse.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014)
+### [**Lien vers les messages des années 2014**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

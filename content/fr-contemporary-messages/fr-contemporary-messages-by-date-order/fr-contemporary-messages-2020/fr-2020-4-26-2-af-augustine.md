@@ -46,3 +46,7 @@ Chacun de vous possède un grand potentiel pour aider à motiver et à travaille
 Ainsi, puissiez-vous considérer chaque jour comme une opportunité d'avancer, de progresser dans vos âmes, d'en venir à comprendre l'émerveillement de l'Amour et à exprimer vos grandes capacités d'amour.
 
 Dieu vous bénisse, mes enfants bien-aimés, et je vous remercie d'avoir écouté mon message aujourd'hui, car vous avez prié pour être guidés et instruits, et je vous donne donc ce que j'ai à partager dans ma sagesse et ma vérité. Que Dieu vous bénisse, âmes bien-aimées. Je suis Augustin, autrefois évêque d'Hippone sur Terre et maintenant je réside dans le Royaume Céleste, une âme transformée dans l'Amour, une âme éveillée par Dieu. Que Dieu vous bénisse. Mon amour est avec vous, âmes bien-aimées. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -31,4 +31,6 @@ En outre, ils étaient hostiles à mes opinions, qui tendaient à élargir leur 
 
 Puisque je n'ai jamais prétendu être Dieu, le point de vue orthodoxe selon lequel j'ai prétendu être Dieu, et donc encouru des accusations de blasphème, n'est pas vrai.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

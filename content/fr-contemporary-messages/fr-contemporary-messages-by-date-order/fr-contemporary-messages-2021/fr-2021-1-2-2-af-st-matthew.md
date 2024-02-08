@@ -28,3 +28,7 @@ Cherchez à vous trouver dans cet endroit, au-delà du mental, où tout est âme
 Et donc vous devez aller prier. Apprenez à connaître profondément, sûrement dans vos âmes, ce que Dieu souhaite que vous fassiez. Puisse Son Amour continuer à éveiller vos âmes et continuer à ouvrir les portes de la compréhension, continuer à être cette force directrice, cette lumière directrice, ce merveilleux sentiment d’amour et de joie qui vient avec Ses bénédictions intérieures.
 
 Dieu vous bénisse, âmes bien-aimées, je suis Matthieu, et nous continuons à vous élever, à vous soutenir, à vous guider dans ces efforts. Notre amour est avec vous tous. Que Dieu vous bénisse. Je suis Matthieu.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

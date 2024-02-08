@@ -30,6 +30,7 @@ Carl Jung | [L'expérience de Jung](/fr-contemporary-messages/fr-contemporary-me
 Emerson | [Emerson ne croit toujours pas à l’Amour Divin.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-15-1-fab-emerson/) | 15 Juillet 2006
 Erasmus | [Érasme et la Réforme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-17-2-fab-erasmus/) | 17 Février 2009
 Erich Maria Remarque | [Un auteur Allemand trouve la confirmation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-5-1-fab-erich-maria-remarque/) | 5 Septembre 2008
+Eschyle | [Un dramaturge de la Grèce antique a trouvé la voie Divine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-12-2-fab-aeschylus/) | 12 Août 2008
 Flavius Josèphe | [Facultés de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-1-1-af-josephus/) | 1 Février 2019
 Flavius Josèphe | [Q&R : La notion de mental intérieur n'est pas exacte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-9-1-af-josephus/) | 9 Juillet 2019
 Flavius Josèphe | [Q&R : S'éveiller grâce à l'Amour du Père permet d'accéder soi-même à la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-9-2-af-josephus/) | 9 Juillet 2019
@@ -39,8 +40,8 @@ Flavius Josèphe | [Q&R : Méditation guidée et prière](/fr-contemporary-messa
 Flavius Josèphe | [Se préparer spirituellement aux changements à venir dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-12-1-af-josephus/) | 12 Juillet 2019
 Flavius Josèphe | [Q&R : Questions diverses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-12-2-af-josephus/) | 12 Juillet 2019
 Flavius Josèphe | [Q&R : La loi de l'attraction et les attachements d'esprits sombres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-13-3-af-josephus/) | 13 Juillet 2019
-Flavius Josèphe | [Q&R : L'impact sur un mortel d'être pleinement 
-transformé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-13-4-af-josephus/) | 13 Juillet 2019
+Flavius Josèphe | [Q&R : La loi de l'attraction et les attachements d'esprits sombres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-13-3-af-josephus/) | 13 Juillet 2019
+Flavius Josèphe | [Q&R : L'impact sur un mortel d'être pleinement transformé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-13-4-af-josephus/) | 13 Juillet 2019
 Flavius Josèphe | [Q&R : Les anges Célestes souhaitent encourager et aider l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-14-1-af-josephus/) | 14 Juillet 2019
 Flavius Josèphe | [Q&R : Choisissez toujours la lumière et l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-15-2-af-josephus/) | 15 Juillet 2019
 Flavius Josèphe | [Les portails de lumière sont de puissants instruments de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-8-5-1-af-josephus/) | 5 Août 2019
@@ -131,7 +132,7 @@ Robert James Lees | [Mes livres sont vraiment approuvés](/fr-contemporary-messa
 Robert James Lees | [Le monde bénéficierait de ce que j'ai reçu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-19-2-jw-robert-james-lees/) | 19 Octobre 2021
 Robert James Lees | [Une chose à la fois](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-10-1-jw-robert-james-lees/) | 10 Novembre 2021
 Robert James Lees | [Tous sont dignes de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-11-2-jw-robert-james-lees/) | 11 Novembre 2021
-Robert James Lee | [Une synchronicite de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-1-1-jw-robert-james-lee/) | 1 Décembre 2022
+Robert James Lees | [Une synchronicite de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-1-1-jw-robert-james-lee/) | 1 Décembre 2022
 Robert Louis Stevenson | [Un auteur sur la nature du soi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-11-2-fab-robert-louis-stevenson/) | 11 Août 2008
 Rumi | [Rumi parle de la voix directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-15-3-af-rumi/) | 15 Novembre 2017
 Rumi | [La loi de Dieu est progressive](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-11-3-jw-rumi/) | 11 Septembre 2019

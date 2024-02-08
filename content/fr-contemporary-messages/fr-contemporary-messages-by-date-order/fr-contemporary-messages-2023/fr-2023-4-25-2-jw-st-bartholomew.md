@@ -33,4 +33,8 @@ Ne laissez pas la porte se fermer, mes amis bien-aimés, mais travaillez à l’
 
 Puissiez-vous être bénis, mes amis bien-aimés, profondément, pleinement, magnifiquement bénis par Son amour, par tout ce qui fait partie de Son amour et par tout ce qui viendra avec Son amour. Il est là pour vous. Il vous attend. Nous venons donc à la source de tout amour avec humilité, en demandant d’être pardonnés pour nos offenses, d’être éveillés à nos grands potentiels qui se trouvent à l’intérieur, de nous pardonner et d’être dans les qualités rédemptrices qui viennent avec l’essence de Dieu, apportée avec Son Esprit Saint pour percer votre âme, pour nettoyer votre âme, pour guérir votre âme et pour donner vie à tout ce qui est votre âme.
 
- Que Dieu vous bénisse, mes amis bien-aimés. Je suis Bartholomé et je suis heureux d’être avec vous aujourd’hui et pour mes amis qui sont proches, sachez que je suis proche. Je continue à vous guider et à être avec vous. Que Dieu vous bénisse. Mon amour est avec vous tous. Que Dieu vous bénisse.
+Que Dieu vous bénisse, mes amis bien-aimés. Je suis Bartholomé et je suis heureux d’être avec vous aujourd’hui et pour mes amis qui sont proches, sachez que je suis proche. Je continue à vous guider et à être avec vous. Que Dieu vous bénisse. Mon amour est avec vous tous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

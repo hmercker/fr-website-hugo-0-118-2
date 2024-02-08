@@ -21,4 +21,6 @@ Rassemblez-vous, mes enfants, rassemblez-vous dans une harmonie aimante et dans 
 
 Je vous fais mes adieux chaleureux alors que vous prenez votre chemin vers Dieu, je vous accompagnerai comme beaucoup d’autres et alors que vous faites vos voyages de retour à la maison, souvenez-vous de nos paroles. Prenez à cœur nos paroles et laissez-les reposer dans vos âmes afin que vous puissiez aller de l’avant avec le confort de savoir combien vous êtes vraiment aimés, combien vous êtes vraiment bénis. Merci mes enfants de nous écouter, de prier avec nous, de permettre à l’amour d’être votre pierre de touche, votre vérité, votre source de tout ce qui est bon et de la lumière. Dieu vous aime mes enfants, Dieu vous aime mes enfants Dieu vous aime et vous bénira pour toute l’éternité, âmes bénies. Merci. Je vous aime.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014)
+### [**Lien vers les messages des années 2014**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

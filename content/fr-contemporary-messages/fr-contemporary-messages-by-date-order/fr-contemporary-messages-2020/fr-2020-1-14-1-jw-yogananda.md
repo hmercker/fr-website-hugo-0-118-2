@@ -24,3 +24,7 @@ Mon intention aujourd’hui est donc de jeter un pont, de créer un pont entre l
 Je vous encourage à aller à l’intérieur et à être calme. Trouvez cette place dans votre cœur, dans votre âme où se trouve le bel amour naturel donné à tous. Permettez à votre esprit de se calmer, à votre cœur de s’ouvrir, à votre corps d’être en paix. Permettez aux désirs de vos âmes d’atteindre le Créateur dans l’humilité qui est requise dans la reconnaissance du Grand. Cela se transforme véritablement en conscience du Christ. Devenir oint de l’amour du Créateur. Être transformé en tant qu’âme de la simple image de Dieu à l’union avec la substance même de Dieu et de l’immortalité, la vie éternelle. C’est le don qui est offert par notre Créateur le plus aimant. Je vous encourage à demander, car vous recevrez vraiment.
 
 Je remercie celui-ci d’avoir pris le temps de recevoir ce message que j’ai tant souhaité donner à mes élèves et au monde. Que vous soyez tous bénis et transformés dans l’Amour de Dieu. Je vous aime et je vous remercie. Allez en paix. Je suis votre frère et votre ami dans les cieux Célestes, Yogananda. Je vous remercie. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

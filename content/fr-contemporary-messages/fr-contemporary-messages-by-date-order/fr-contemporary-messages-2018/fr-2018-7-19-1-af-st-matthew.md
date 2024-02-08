@@ -34,3 +34,7 @@ Gardez Dieu près de vous, mes bien-aimés. Recherchez Son Amour autant que poss
 Que Dieu vous bénisse à chaque instant et que vous soyez réceptifs à ces bénédictions qui viennent. Que Dieu vous bénisse, mes frères et sœurs bien-aimés. Puissiez-vous en venir à comprendre réellement mes mots, le pouvoir de l’amour, le pouvoir des bénédictions de Dieu sur vous et vous connaîtrez cette paix profonde et cette joie profonde qui accompagne l’âme éveillée.
 
 Que Dieu vous bénisse. Je suis Matthieu et je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

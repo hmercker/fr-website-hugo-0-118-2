@@ -18,3 +18,7 @@ La foi est le fondement de la prière et, à mesure que vous continuez à prier 
 Ces choses viennent avec l’exercice de votre foi, combiné avec le désir de votre âme, d’être avec Dieu. Et il en sera ainsi, enfants bien-aimés. Ainsi vous vous réunirez et ferez partie de la grande famille d’âmes de Dieu, cherchant toujours plus près l’unification, cherchant la transformation de l’âme, l’éveil de l’âme. Il vient et votre foi grandit, et vous devenez vraiment rachetés, transformés et guéris dans l’amour. Puissiez-vous continuer ce grand voyage, en sachant que nous sommes avec vous et en ayant la foi que Dieu vous protège, vous guide et pourvoit à vos besoins. Ces choses viennent alors que vous continuez à forger une relation avec votre créateur.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre maître Augustin et je suis heureux de vous voir tous réunis aujourd’hui avec l’amour dans vos cœurs, avec la foi dans votre âme, avec tout ce qui est de la bonté, tout ce qui est de Dieu, vous entourant, faisant partie de votre vie. Que Dieu vous bénisse, que Dieu vous bénisse profondément. Mon amour est avec vous tous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

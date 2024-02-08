@@ -36,3 +36,7 @@ Reconnaissez ces aspects de votre âme, mes bien-aimés. Permettez-leur de coule
 Que le Père continue à éveiller votre âme dans Son Amour. Que vous puissiez connaître toutes vos capacités, tout ce qui est en vous pour donner à l’autre alors que vous êtes continuellement préparés pour ce travail de service au nom de la vérité et de l’amour. Dieu attend votre réveil afin qu’il puisse vous envoyer en tant que canaux clairs et magnifiques d’amour, de guérison, de vérité et de compassion pour les autres.
 
 Vous êtes bénis, mes bien-aimés, et je continue à être avec vous, votre travail. Je suis Martin Luther et je vous aime. J’aime que vous souhaitiez donner, travailler et aimer au nom de Dieu. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -45,5 +45,8 @@ Je vous laisse maintenant, en espérant que cela suffise comme mot pour vous, no
 
 Je suis Leslie Stone… comme je suis James Padgett… et nous vous souhaitons une bonne journée.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+
+### [**Lien vers les messages des années 2000**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

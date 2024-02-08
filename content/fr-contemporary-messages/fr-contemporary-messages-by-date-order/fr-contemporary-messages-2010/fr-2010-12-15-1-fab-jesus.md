@@ -17,4 +17,6 @@ Eh bien, moi aussi, j'y crois beaucoup, et j'ai cru à ce genre de manifestation
 
 C'est une bonne chose de tirer un beau message édifiant d'une histoire biblique, ou de toute autre histoire. Mais la Bible m'attribue des choses que je n'ai jamais dites, et elle omet mon enseignement central, la Nouvelle Naissance de l'âme dans l'Amour Divin, sauf dans la très brève mention de la Nouvelle Naissance.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

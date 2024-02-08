@@ -36,3 +36,7 @@ Je sais que vous avez de grandes préoccupations, âmes bien-aimées. Je sais qu
 Puissiez-vous voir le rôle que Dieu a assigné à chacun de vous. Que cette vision et cette perception vous viennent clairement et puissamment afin que vous puissiez vous mouvoir à l’intérieur de la volonté de Dieu et agir en conséquence. Que Dieu vous bénisse, âmes bien-aimées, sur votre chemin. Que Dieu vous montre le chemin. Que Dieu vous renforce, vous guide et vous enseigne les voies de la Lumière et de l’Amour.
 
 Que Dieu vous bénisse, âmes bien-aimées. Votre enseignant Augustin est avec vous dans votre voyage et votre réveil. Que Dieu vous bénisse. Mon amour est avec vous.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

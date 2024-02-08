@@ -35,7 +35,6 @@ Il n'est pas facile de changer des pensées établies depuis longtemps, surtout 
 
 Cela devrait vous aider à voir que vous faites votre travail de service au Père dans l'amour, puisque vous ressentez cette élévation d'esprit et de joie, et parce que vous vous sentez particulièrement béni de pouvoir servir de cette manière en étant un canal pour mes pensées, et vous attendez avec impatience ce privilège chaque dimanche ; et même plus fréquemment quand le besoin s'en fait sentir. C'est l'attitude, l'espoir, l'amour et l'élévation que nous aimons voir présents chez nos travailleurs à tout moment. Et lorsqu'ils sont absents, nous préférons qu'ils fassent une pause, qu'ils prient et se reposent, et qu'ils ne reprennent leur vie de service que lorsqu'ils la considèrent comme un privilège et non comme un fardeau.
 
-[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+### [**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -20,3 +20,7 @@ Comment Dieu peut utiliser ceux d'entre vous qui sont prêts à tendre la main �
 Continuez à prier pour l'ouverture de votre âme afin de recevoir cette grande bénédiction. Continuez à vous ouvrir les uns aux autres dans l'amour. Permettez au toucher transformationnel de l'Amour de Dieu de s'étendre et de toucher les autres. Permettez à cette belle Lumière de vous lier pour toujours dans la progression éternelle vers l'unification avec Dieu. Dieu est avec vous, âmes bien-aimées. Dieu vous portera. Dieu vous montrera le chemin et vous amènera à ce lieu d'amour profond et d'acceptation de tous, rassemblant l'humanité en harmonie, afin que tout ce qui n'est pas de Dieu puisse tomber et que tout ce qui est en harmonie avec Dieu puisse s'épanouir.
 
 Que Dieu vous bénisse, âmes bien-aimées, je suis André et mon amour est avec vous, mes bien-aimés. Je suis toujours avec vous car je fais partie de votre famille et je vous aime tous. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

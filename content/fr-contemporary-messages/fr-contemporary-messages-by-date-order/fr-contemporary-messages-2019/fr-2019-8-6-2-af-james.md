@@ -26,3 +26,7 @@ Recherchez le don de l’Amour de Dieu, cette grande Bénédiction de l’Esprit
 Que Dieu vous bénisse, âmes bien-aimées, dans ce voyage. Je suis Jacques et je continuerai à aider tous ceux qui souhaitent ma présence, comme le feront beaucoup, beaucoup d’anges qui ont un profond désir et une grande capacité à élever et à soutenir tous les mortels sur Terre qui cherchent la lumière et qui cherchent la vérité. Il y a beaucoup de choses qui peuvent vous être données, âmes bien-aimées, beaucoup de choses qui attendent votre aspiration, vos prières, vos désirs et votre expression d’amour. Tout se mettra en place lorsque vous prierez et tendrez la main à Dieu et que vous marcherez sur ce chemin de lumière et d’amour, ainsi, vous trouverez votre chemin et vous trouverez un grand but, une grande joie et un grand amour.
 
 Que Dieu vous bénisse mes amis bien-aimés et qu’Il continue à vous montrer le chemin qu’Il a désigné pour chacun d’entre vous, un chemin unique vers Lui et l’union dans les grandes expressions de l’âme, dans la croissance et l’éveil de votre âme dans l’Amour. Que Dieu vous bénisse. Je suis Jacques. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

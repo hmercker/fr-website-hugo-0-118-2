@@ -9,7 +9,7 @@ weight:
 ---
 ### Bienvenue dans ce cercle d’Amour
 
-Confucius - reçu par Al Fike le 2 Décembre 2016, Oahu, Hawaii, USA.
+Confucius<sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 2 Décembre 2016, Oahu, Hawaii, USA.
 
 Âmes bien-aimées, c’est Confucius.
 
@@ -18,3 +18,10 @@ Vos cœurs se réjouissent en effet de se réunir. Mes beaux oiseaux, vous vous 
 Âmes bien-aimées, Dieu a appelé chacun de vous dans ce cercle et vous serez bénis en continuant à prier ensemble. Sa paix vous entoure, les anges sont avec vous. Buvez profondément et soyez en paix dans ces saints moments de silence.
 
 Confucius vous aime. Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués  par Confucius sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a1)
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

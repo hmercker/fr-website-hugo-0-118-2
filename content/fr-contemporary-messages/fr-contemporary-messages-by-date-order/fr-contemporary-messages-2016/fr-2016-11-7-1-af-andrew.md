@@ -22,6 +22,7 @@ Tant de choses dans le monde vous distraient et vous apportent le message que vo
 C’est si simple, mes bien-aimés, tellement simple et pourtant, lorsque vous vous tournez vers vous-mêmes, acceptez-vous vraiment cela ? Vous réjouissez-vous vraiment de cette reconnaissance et de cette compréhension de votre propre moi glorieux, enflammé, éveillé et nourri par ces eaux vivantes, le flux d’Amour de Dieu qui vous portera vers une vie accomplie, une vie pleine, riche et significative ?
 
 L’amour est la clé, mes bien-aimés, c’est le message que nous vous apportons encore et encore de connaître Dieu de cette façon. Se connaître de cette façon est ce qui ouvrira ces consciences et apportera un flot de joie, la reconnaissance joyeuse de votre propre création unique et belle et la reconnaissance joyeuse que vous faites partie d’une énorme famille de frères et sœurs dans ce monde. Comment pouvez-vous juger vos frères et sœurs si vous ressentez la joie et la reconnaissance de combien vous êtes tous aimés, combien vous êtes aimés ?
+
 Permettez aux barrières de votre mental de tomber. Les peurs qui viennent de vos blessures se dissipent et la force de savoir que l’Amour, calme, beau et puissant, qui est en vous, se manifeste de sorte qu’il brille dans vos yeux, qu’il est ressenti dans vos étreintes, qu’il fait partie de votre quotidien et de chaque moment de votre vie. Que tous ceux que vous rencontrez, y compris vous-même, soient touchés et ressentent la joie de l’Amour, la puissance de l’Amour, le confort de guérison qui vient avec l’Amour, cette paix qui dépasse toute compréhension alors que Dieu déverse Son Amour à travers vous vers les autres.
 
 C’est l’Amour, mes bien-aimés, qui sauvera le monde et apportera la paix. Sans lui, tout est perdu et avec lui, tout est gagné alors que vous continuez à découvrir, à accepter et à exprimer ce merveilleux amour qui brûle dans vos âmes. Oui, à mesure que vous changez, le monde change. Comme vous êtes touchés, une Lumière augmente dans ce monde parce qu’elle augmente en vous.
@@ -29,3 +30,7 @@ C’est l’Amour, mes bien-aimés, qui sauvera le monde et apportera la paix. S
 Continuez à prier pour cette bénédiction d’amour. Continuez à être ouverts pour la désirer intensément, pour offrir vos intentions et vos prières à votre Père Céleste afin que, de sa belle manière, vous soyez bénis avec l’essence de Dieu, l’Amour Divin.
 
 Merci, âmes bien-aimées. Que Dieu vous bénisse dans votre voyage. Nous sommes avec vous, nous ne vous quitterons jamais et Dieu est toujours présent. C’est à vous de le savoir et d’accepter que vous êtes vraiment aimés. Que Dieu vous bénisse, je suis André et je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

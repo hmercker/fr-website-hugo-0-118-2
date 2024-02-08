@@ -22,3 +22,7 @@ Il est important, bien sûr, de comprendre l’âme. Mais mes bien-aimés, lorsq
 L’être humain physique est un cadeau précieux, très précieux, de Dieu. Ainsi, en unifiant ces trois aspects de votre personne, le corps, l’esprit et l’âme, dans une plus grande compréhension, vous serez d’autant plus fort dans ce monde. Il ne s’agit pas de séparer l’esprit et le corps physique. Il s’agit de tout aligner, en permettant à cet amour qui remplit votre âme de s’exprimer avec grâce, humilité, intégrité et respect.
 
 Je vous invite donc à reprendre cette étude lorsque vous terminerez votre temps ici ensemble, un exercice de reconnaissance de l’harmonie dans laquelle ces trois aspects peuvent vivre. Que Dieu vous bénisse. Mon amour est avec vous. Je suis Keea Atta Kem et je vous aime.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

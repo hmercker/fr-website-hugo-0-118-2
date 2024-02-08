@@ -29,3 +29,7 @@ Je suis Keea Atta Kem, si heureuse de venir vous parler et de partager mon amour
 <small>
 
 1. <large id=”f1”> Une référence à un portail établi pour l’individu dont le travail l’appelle à voyager, une telle structure reste avec l’individu.[↩](#a1)
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

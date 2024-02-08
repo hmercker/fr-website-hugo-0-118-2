@@ -18,3 +18,7 @@ Alors comme je l’ai dit à un moment donné, oui, nos chemins semblent être d
 Il y a tant de choses qui nous attirent lorsque ce groupe est ici, lorsque vous êtes en harmonie et en condition, la lumière de vos âmes et les intentions, elles nous attirent. Je sais que parfois vous êtes conscients du nombre de personnes des royaumes Célestes qui sont ici. Je souhaite confirmer que oui, c’est vrai. Je viens donc avec vous pour être dans le Portail de Lumière, ce lieu d’amour, ce lieu des intentions les plus profondes de l’âme pour s’harmoniser avec notre Créateur. Nous sommes tous ici pour vous bénir et vous honorer. Nous vous protégerons au cours de vos voyages, car vous êtes une cargaison précieuse, non seulement pour Dieu, mais aussi pour nous.
 
 Mon amour et mes bénédictions à tous. Je suis votre ami et votre frère dans l’Amour de Dieu, Yogananda.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

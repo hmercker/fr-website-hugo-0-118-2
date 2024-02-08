@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous luttez mais vous faites des progrès
 
-Confucius - reçu par Al Fike le 29 Février 2016, Gibsons, Colombie-Britannique, Canada.
+Confucius<sup id="a1">[1](#f1)</sup>- reçu par Al Fike le 29 Février 2016, Gibsons, Colombie-Britannique, Canada.
 
 Mes enfants bien-aimés, c’est votre maître et ami Confucius. Je viens pour être avec vous dans vos prières. Oui, vous luttez, mes bien-aimés, parfois vous luttez, mais vous progressez aussi dans vos âmes. Parfois, le jaillissement de vos âmes est difficile et vous trouvez cela douloureux, déroutant. Mais je vous le dis, mes bien-aimés, lorsque vous permettez à ce nettoyage de vos âmes d’avoir lieu et que vous libérez en vous tous les fardeaux et que vous les remettez à Dieu, vous faites un pas de plus vers la joie et le bonheur dont parle notre frère Luc, et il devient plus facile pour vous de vous élever au-dessus des conditions de ce monde. Car oui, l’âme génère une grande énergie en vous et chaque âme dans ce monde génère une condition et cela peut être la Lumière ou les Ténèbres ou quelque chose entre les deux. Et c’est difficile parce que le pouvoir de ce que l’âme génère dans ce monde combiné avec le mental crée une réalité, une condition qui est difficile à naviguer, et aucun de vous n’est à l’abri de l’influence des conditions de ce monde.
 
@@ -20,3 +20,11 @@ Nous prenons soin de vous. Vous êtes précieux pour Dieu, aimés par Dieu et vo
 > Mon Père Céleste, Tu peux me guérir je le sais, je le sais du plus profond de mon être. Tu peux me guérir avec Ton Amour, toucher le centre même de mon être, ces endroits tendres et douloureux en moi et me guérir, apporter un soulagement, Ton Amour apaisant effaçant la douleur, et les larmes, les blessures et la peur. Apporte-moi la joie, cher Père, une joie sans limites, une joie éternelle. Rachète mon âme, amène-moi à l’unisson avec toi, Âme bien-aimée, mon Père, et que je connaisse la paix qui dépasse toute compréhension, ce puits profond de paix que je peux porter partout où je vais.
 
 Dieu vous bénisse, mes chers enfants. Soyez en paix et sachez que vous êtes aimés au-delà de toute mesure. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués  par Confucius sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a1)
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

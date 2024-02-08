@@ -17,4 +17,6 @@ Comme nous l’avons dit maintes fois par l’intermédiaire de M. Padgett, nous
 
 Ce qu’il faut maintenant, c’est de la patience, alors que Dieu se prépare à accomplir Son plan.
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/)
+### [**Lien vers les messages des années 2011**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

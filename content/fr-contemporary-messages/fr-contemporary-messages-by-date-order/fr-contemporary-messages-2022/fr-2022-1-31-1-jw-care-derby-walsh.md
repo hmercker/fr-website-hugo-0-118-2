@@ -22,3 +22,7 @@ Il est approprié que ces bénédictions et ces talents que vous possédez vienn
 Je peux vous dire que de toutes les choses de la terre que vous pouvez posséder, l'Amour de Dieu les surpasse toutes. Permettez à cet amour d'être votre centre magnétique attirant tous ceux qui le cherchent, même s'ils ne savent pas ce que c'est. Ils peuvent être inarticulés sur les questions de l'âme, mais leurs cœurs s'ouvriront aux bénédictions de l'Amour de Dieu que vous portez tous avec vous.
 
 Je suis ravie d'être ici avec mon petit-fils et mon cher Jimbeau. Je suis si heureuse qu'il ait fait appel à moi aujourd'hui. Je vous remercie. Je vais vous laisser maintenant pour être dans la gloire de votre prière dans la Grâce de Dieu. Je vous laisse avec tout mon amour et mes bénédictions. Je suis votre sœur dans le Christ et un ange Divin glorieusement heureuse. Je suis Care. Allez avec Dieu. Allez en paix.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -30,3 +30,7 @@ Vous marquez en effet vos progrès, âmes bien-aimées. Vous savez en effet, en 
 Continuez dans vos efforts, mes bien-aimés. Continuez à chercher, à grandir, à vous interroger et à grandir encore et à exprimer vos âmes, aussi rudimentaire que cela puisse être. Avancez, bien-aimés, et exprimez les conseils, les désirs, les bénédictions et les dons de votre âme, la beauté de votre âme dans votre vie, dans tout ce que vous faites. Dieu continuera à ouvrir ces voies et ces avenues pour que cette expression puisse croître, s'élargir et s'approfondir, afin que vous puissiez être utilisés pour toucher de nombreuses âmes, inspirer beaucoup de gens dans votre monde et dans notre monde, car beaucoup vous regardent. Beaucoup voient votre lumière et sont attirés. C'est un grand travail, un grand travail. Vous êtes préparés et vous trouverez votre chemin.
 
 Que Dieu vous bénisse au cours de ce voyage et vous garde à sa place et dans ses bénédictions. Mon amour est avec vous, âmes bien-aimées. Je suis Seretta Kem et je vous aime. Je vous aime tendrement. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

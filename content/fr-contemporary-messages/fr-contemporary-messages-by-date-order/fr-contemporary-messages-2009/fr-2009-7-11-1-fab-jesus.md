@@ -22,4 +22,7 @@ Ce que je pense, c'est que je veux que les mortels s'aiment les uns les autres. 
 
 1. <large id="f1"> Ceci est un résumé des préoccupations du médium, et se rapporte à un message que nous n'avons pas sur ce site. Jésus ne dit PAS qu'il a soutenu Barack Obama en tant que président, et il poursuit en clarifiant ce qu'il disait.[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

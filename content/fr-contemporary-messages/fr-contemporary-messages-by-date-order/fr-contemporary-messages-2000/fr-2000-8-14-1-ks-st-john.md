@@ -43,4 +43,8 @@ Je vous laisse pour le moment, mais je resterai avec vous en esprit, et je viend
 
 Je suis Jean, l’apôtre bien-aimé de Jésus et un adepte de ses enseignements.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+
+### [**Lien vers les messages des années 2000**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

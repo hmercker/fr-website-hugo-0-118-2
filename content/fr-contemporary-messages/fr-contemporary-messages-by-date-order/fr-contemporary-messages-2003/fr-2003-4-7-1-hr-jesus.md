@@ -53,6 +53,8 @@ Je te souhaite une bonne journée.
 
 Ton frère aîné, Jésus de Nazareth.
 
-© Geoff Cutler 2013
+© Geoff Cutler 
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)
+### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

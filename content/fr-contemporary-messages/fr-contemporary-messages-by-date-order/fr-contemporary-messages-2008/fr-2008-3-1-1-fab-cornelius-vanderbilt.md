@@ -26,4 +26,6 @@ J'ai besoin de votre aide. Vous dites que je dois prier pour l'Amour de Dieu. Ma
 
 1. <large id="f1"> **Cornelius Vanderbilt** (27 Mai 1794 - 4 Janvier 1877), également connu sous les sobriquets The Commodore ou Commodore Vanderbilt, était un entrepreneur américain qui a bâti sa fortune dans la navigation et les chemins de fer et était le patriarche de la famille Vanderbilt. Vanderbilt était le quatrième des neuf enfants de Cornelius Vanderbilt et Phebe Hand, une famille de condition modeste de Port Richmond sur Staten Island. (Source : Wikipedia)[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

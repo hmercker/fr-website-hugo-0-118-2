@@ -16,3 +16,7 @@ Je suis votre frère dans l’Amour de Dieu, Yogananda. Je souhaite parler du li
 Ce que je souhaite exprimer ici, c’est que pendant que vous vivez sur terre en nourrissant votre amour humain afin d’être un guérisseur, une bénédiction et un réconfort, avant tout, nourrissez votre âme. Si vous permettez à votre âme de s’ouvrir dans le désir, le Créateur répond. Dieu est omniprésent, toujours présent, toujours aimant. Et à ceux qui demandent, la bénédiction de Son amour est donnée.
 
 Alors mes chers amis, restez calmes et permettez à votre foi de surmonter vos peurs. Permettez à votre personne d’avoir confiance dans le grand Amour de Dieu. Je remercie mon frère d’avoir pris mon message ce soir et je vais me retirer pour être en prière avec vous dans ce beau cercle d’amour et de lumière. Que Dieu répande sa grâce sur tous. Je suis votre frère et ami éternel dans le royaume Céleste et un disciple du Maître. Je suis Yogananda, allez en paix.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

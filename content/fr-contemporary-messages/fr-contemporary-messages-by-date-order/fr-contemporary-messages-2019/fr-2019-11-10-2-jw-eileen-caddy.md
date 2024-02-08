@@ -20,3 +20,7 @@ Je suis donc venu ici pour partager avec vous cela et pour reconnaître tant de 
 Alors lorsque nous permettons à nos cœurs de s’ouvrir et que nous écoutons avec nos âmes, ce qui vient à nous en Amour dépasse le mental et bénit tout. Puissiez-vous tous devenir et être le Don d’Amour, oint de ce Don Glorieux, vivant dans la Lumière et l’Amour. Certainement, le monde tel que vous le connaissez, a besoin de vous, a besoin de votre don, a besoin de votre amour.
 
 J’ai été attiré par ce Cercle de Lumière, comme l’ont été de nombreux membres du Royaume Céleste. Nous souhaitons une bénédiction à chacun d’entre vous, une guérison et, surtout, l’afflux de l’Amour du Créateur. Mon amour et mes bénédictions à tous et que Dieu vous bénisse tous dans ce voyage. Nous sommes avec vous. Je vous aime. Je suis Eileen Caddy.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

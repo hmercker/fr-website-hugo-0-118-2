@@ -78,3 +78,7 @@ Oui, il s’agit d’un sujet différent et nous essaierons de prendre les dispo
 Mais pour l’instant, je dirai : Que Dieu vous bénisse, mes âmes bien-aimées. Puissiez-vous continuer à chercher et à rechercher la Vérité la plus haute, la plus grande des bénédictions, afin que l’Amour de Dieu continue à couler dans vos âmes, cette bénédiction sans fin qui continue à nourrir et à éveiller et à vous apporter une grande perspicacité et la Vérité, cet Amour. Que cet Amour vous embrasse et vous apporte paix et joie profondes, sagesse et vérité. Que Dieu vous bénisse. Je suis Jean et mon amour est avec vous.
 
 Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

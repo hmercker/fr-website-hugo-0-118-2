@@ -24,3 +24,7 @@ Al : Je ne sais pas tout ce qui s’est passé après cela sur la terrasse et en
 *[Jeanne : Je pensais qu’hier était plutôt…]*
 
 Al : Je ne veux pas perdre ce sentiment. Je veux garder tous les trucs matériels loin de moi. En tout cas, c’était mon expérience.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

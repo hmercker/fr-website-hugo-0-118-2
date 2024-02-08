@@ -15,4 +15,6 @@ C'est moi, Jésus.
 
 Permets-moi de développer ma canalisation "Différentes Armes" [du 13 Mai 2010](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-5-13-1-fab-jesus). Bien entendu, le contrôle politique et militaire est obtenu par l'économie.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

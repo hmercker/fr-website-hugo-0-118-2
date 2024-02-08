@@ -22,3 +22,7 @@ Puissiez-vous connaître cette relation profonde avec le Créateur et chercher c
 Buvez dans cette bénédiction, mes bien-aimés. Vous êtes dans la Lumière en ce moment. Buvez ces bénédictions, tout ce que Dieu a à vous donner, tout ce à quoi vous pouvez être réceptifs et capables de vraiment communier avec Dieu. C’est ce que vos âmes recherchent, mes bien-aimés. C’est la réponse aux désirs de vos âmes. Recevez et reconnaissez la Source de tout Amour.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Matthieu et je prie avec vous dans ce cercle de Lumière bien-aimé. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

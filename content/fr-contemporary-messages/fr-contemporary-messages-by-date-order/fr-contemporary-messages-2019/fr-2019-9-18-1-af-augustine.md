@@ -46,3 +46,7 @@ Soyez des canaux d’amour, mes chers et beaux étudiants. Soyez forts dans vos 
 Cela vient et c’est évidemment la Vérité, alors que vous continuez à servir dans le monde et que les portes continuent à s’ouvrir. Ne soyez pas trop inquiets si une porte se ferme, car, comme vous le dites dans votre monde, lorsqu’une porte se ferme, une autre s’ouvre, et ceci est également la Vérité. Beaucoup de choses sont à venir, nous ne perdons aucune opportunité, âmes bien-aimées. Il y a beaucoup de travail à faire, beaucoup de choses qui doivent se produire dans votre monde pour apporter les changements qui sont nécessaires.
 
 Ainsi, vous vous trouverez au milieu de nombreuses opportunités et souvent des opportunités difficiles. Pourtant, chacune de ces opportunités est un profond cadeau de Dieu, une grande bénédiction de Dieu, qui vous permet d’apprendre et de grandir, ainsi que d’être un instrument pour accomplir ce qui est nécessaire. Continuez à voir vos efforts de cette manière, mes bien-aimés. Continuez à marcher dans la lumière de Dieu, à vous élever et à vous soutenir dans cette lumière. Sachez qu’à chaque pas en avant, vous apportez la lumière, non seulement aux autres, mais à vous-même.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -18,3 +18,7 @@ Ainsi, nous marcherons dans la lumière, mes bien-aimés. Ainsi, nous marcherons
 Venez dans cette communion avec votre Père céleste. Soyez en paix, mes bien-aimés, et sachez que je marche avec vous. Sur tous les rivages, sur tous les chemins, sur tous les sentiers que vous parcourez, je suis toujours avec vous et nous avons un lien d’amour qui ne diminuera jamais mais qui se renforcera à jamais. Je suis avec vous et je ne vous quitterai jamais. Ainsi, vous n’êtes jamais seuls, mes bien-aimés, jamais seuls. Mais dans la grâce de Dieu, nous marchons ensemble.
 
 Que Dieu vous bénisse, mes bien-aimés. Que Sa Lumière vous infuse et vous élève. Que vos âmes s’ouvrent largement au grand cadeau qu’est Son Essence. Puissiez-vous parvenir à connaître votre véritable moi, en vous éveillant sans cesse, en étant toujours en Sa compagnie et en Sa présence. Que Dieu vous bénisse. Je suis avec vous. Je vous bénis. Mon amour est avec vous.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

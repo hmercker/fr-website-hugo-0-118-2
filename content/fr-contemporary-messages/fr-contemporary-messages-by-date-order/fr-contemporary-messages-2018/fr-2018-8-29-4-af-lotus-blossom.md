@@ -24,3 +24,7 @@ Alors oui, c’est une belle phrase *« soyez amis avec votre âme »* , soyez b
 Continuez donc à développer vos dons par la grâce de l’Amour de Dieu, car c’est alors qu’ils brilleront dans votre monde par la volonté du Créateur. Tout se déroule comme il se doit. Vous avez tous été attirés ici pour apprendre, pour aimer et pour vous développer. C’est un grand plaisir d’être témoin de votre temps ensemble. Soyez curieux, mes bien-aimés. Soyez très curieux de savoir qui vous êtes. Restez proches de votre Créateur bien-aimé. Vous êtes tous profondément aimés, guidés et surveillés. Vos anges amis seront près de vous, si vous le demandez. Nous ferons de notre mieux de notre côté de la vie pour vous aider à grandir. C’est un grand plaisir de venir vous parler. C’est un grand plaisir de voir le don de ma chère charge se nourrir de Dieu et sa volonté d’être ouverte, d’être utilisée et de servir Dieu avec la sincérité de servir ses frères et sœurs de la meilleure façon possible.
 
 Vous êtes tous profondément aimés. Que Dieu vous bénisse. Je suis Fleur de Lotus. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

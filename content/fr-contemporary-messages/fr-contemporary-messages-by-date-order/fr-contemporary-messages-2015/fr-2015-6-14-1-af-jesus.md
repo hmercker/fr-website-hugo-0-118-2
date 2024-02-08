@@ -21,4 +21,6 @@ Soyez en paix. Soyez en paix, belles âmes, et sachez que vous êtes mes frères
 
 Continuez à prier, continuez à désirer ce don. Et comme vous priez et désirez ardemment cela, les anges vous accompagneront, prieront avec vous, vous réconforteront et vous protégeront dans les conditions de ce monde, créant un lieu de lumière et de refuge où vous et Dieu marcherez main dans la main dans une sainte communion. Je vous bénis, mes bien-aimés. Je vous aime de tout mon cœur et vous êtes mes disciples de la vérité. Que Dieu vous bénisse. Que Dieu vous bénisse.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015)
+### [**Lien vers les messages des années 2015**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

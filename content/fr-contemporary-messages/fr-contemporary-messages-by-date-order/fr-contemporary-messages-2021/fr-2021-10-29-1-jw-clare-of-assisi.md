@@ -21,3 +21,7 @@ Je suis Claire. Que Dieu vous bénisse.
 <small>
 
 1. <large id=”f1”> La porte du ciel, chapitre 6 par Robert James Lees. (Le Verdict de la Révélation).[↩](#a1)
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

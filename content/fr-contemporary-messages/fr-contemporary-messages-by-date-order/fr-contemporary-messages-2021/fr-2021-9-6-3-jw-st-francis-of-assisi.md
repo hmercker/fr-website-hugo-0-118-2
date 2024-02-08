@@ -18,3 +18,7 @@ Lorsque l’on est préoccupé par la survie dans un sens, il est très difficil
 Dans Sa Grâce, dans Son Amour, il est impossible de ne pas embrasser tout le monde. Mes frères et moi, nous avons fait cela avec une grande joie. Nos vœux de pauvreté nous ont apporté les grandes richesses de l’Amour de Dieu, tout don bon et parfait, tous nos besoins satisfaits, beaucoup de personnes guéries, bénies, et ainsi de suite. Que vos dons s’éveillent pour le bien du monde, pour les enfants, et comme le dit la chanson de celui-ci, *« Car nous sommes tous les enfants de Dieu, et un dans Son Amour. »*
 
 Vous pouvez avoir l’impression d’être peu nombreux, mais vous ne l’êtes pas. Et pour chaque âme bénie, il y a un millier de personnes qui en bénéficient. Puissiez-vous tous porter cela dans votre marche vers tous. Je vous remercie. Je suis votre frère en Christ dans l’Amour éternel de Dieu, je suis François. Que l’Amour de Dieu soit avec vous.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -32,3 +32,7 @@ C'est une chose merveilleuse de voir des âmes bienheureuses se réunir de cette
 Au fur et à mesure que vos cercles grandissent et que la lumière dans votre âme grandit et que les dons se déploient, que vos âmes s'éveillent dans leurs perceptions, vous verrez que ce que j'ai décrit vous deviendra familier et vous comprendrez l'ampleur de vos efforts et de nos efforts combinés. qui apporteront la vérité à l'humanité. Nous sommes tous des enfants de Dieu travaillant ensemble pour apporter la lumière, la vérité, l'amour et la paix au monde. Puissiez-vous continuer à vous éveiller, mes chers amis, à repousser toutes les barrières et restrictions pour vivre votre vie en alignement avec Dieu, à exprimer votre vie dans le flux de Son Amour, à utiliser vos dons au profit de beaucoup, nous permettant de le royaume céleste de nous rapprocher et de travailler avec vous! Nous continuons notre travail ensemble et nous le faisons avec joie et une profonde gratitude envers Dieu qui ouvre les canaux de lumière qui nous profitent tous.
 
 Que Dieu vous bénisse, bien-aimés, je suis Keea Atta Kem. Dieu vous bénisse, je vous aime!
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

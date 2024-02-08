@@ -22,3 +22,7 @@ Il en sera de même pour ceux d’entre vous qui ont trouvé leur vrai moi, leur
 De grands changements, de grands réveils, de grands changements de compréhension, de grandes vagues d’Amour vous engloutiront tous et vous amèneront à ce lieu de douces connaissances de Dieu et de grande compassion pour l’humanité, instruments de Sa Volonté, canaux de Son Amour. Il en sera ainsi lorsque vous continuerez à prier et à grandir dans cette bénédiction. Il en sera de même lorsque vous trouverez votre place dans Son plan et que vous y trouverez votre but ; un réveil merveilleux et joyeux des grands joyaux de votre âme exprimés par la Volonté de Dieu et son plan pour l’humanité.
 
 Que Dieu vous bénisse dans ce voyage, vous transportant vers ce lieu de véritable compréhension et d’expression de vos âmes. Nous sommes là avec vous. Nous le serons toujours, et notre amour pour vous est grand. Que Dieu vous bénisse. Je suis votre enseignant Augustin. Que Dieu vous bénisse, âmes bien-aimées, que Son Amour brille sur vous pour l’éternité. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

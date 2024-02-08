@@ -26,3 +26,7 @@ Au fur et à mesure que cet Amour s'accumule dans votre âme, mes chers amis, vo
 Ainsi, âmes bien-aimées, alors que vous êtes assises en train d'ouvrir vos cœurs et d'ouvrir vos âmes pour recevoir cette grande bénédiction de l'Amour Divin qui vous est délivrée par l'Esprit Saint, son messager d'Amour, nous, vos Anges Célestes enseignants et guides, nous tenons avec vous.
 
 Je vous remercie d'avoir écouté mes paroles. Que Dieu vous bénisse profondément et que vous ressentiez un profond afflux de cet Amour dans vos âmes. Alors que vous êtes assis dans le silence, allez au fond de votre âme et invitez Dieu à souffler son souffle d'Amour sur vous. Que Dieu vous bénisse, je suis Keea Atta Kem et mon amour est avec vous.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -17,4 +17,6 @@ Oui, mon message était, et est, social et politique, et aussi économique, car 
 
 Ce ne sera plus très long maintenant avant que Dieu ne fasse une grande chose, et je voudrais que mes vrais disciples bien-aimés se préparent à cet événement glorieux.
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

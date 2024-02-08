@@ -22,3 +22,7 @@ Vos efforts ont de nombreux aspects, niveaux et expressions dans le monde, le mo
 Que Dieu vous bénisse dans vos voyages quotidiens vers Dieu et dans ces efforts hebdomadaires pour être ensemble dans l’amour. Je vous aime, âmes bien-aimées. Je continue à suivre vos effort, à aider et à inspirer chacun d’entre vous alors que vous poursuivez votre voyage d’amour.
 
 Que Dieu vous bénisse. Je suis Keea Atta Kem et je vous aime tous si tendrement, de si belles âmes, tant de lumière, de sérieux, d’intégrité, d’honnêteté et de grands efforts pour apporter la lumière dans vos vies et la lumière dans le monde. Soyez bénis, mes bien-aimés. Que Dieu bénisse vos âmes profondément, profondément. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

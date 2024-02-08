@@ -23,4 +23,6 @@ Il y aura un moment dans votre vie où ce sera la motivation et la conscience pr
 
 Buvez profondément, mes enfants, car l’Amour de Dieu se déverse sur vous en grande abondance en ce moment. Buvez profondément, ouvrez grand et acceptez ce cadeau afin qu’il puisse rapprocher votre âme de Dieu.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014)
+### [**Lien vers les messages des années 20143**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

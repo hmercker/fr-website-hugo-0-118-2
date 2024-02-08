@@ -19,9 +19,13 @@ Il est vrai que des changements sont en cours sur vous et votre monde ; vous et 
 
 Nous, dans les Cieux Célestes, nous vous aimons, vous et tous les merveilleux enfants de Dieu. Nous continuons à prier pour que vous grandissiez dans l’amour du Père. Son amour a de plus grands avantages que ceux que vous voyez ou expérimentez actuellement. Ne vous évanouissez pas et n’éteignez pas vos désirs d’une plus grande part de Son Amour. Restez ouverts, comme vous l’êtes maintenant.
 
-Bénédictions à vous et à tous ceux qui lisent ceci, Anne Rollins.
+Bénédictions à vous et à tous ceux qui lisent ceci, Anne Rollins.<sup id="a2">[2](#f2)</sup>
 <small>
 
 1. <large id="f1"> Ce message, [tout comme le précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-29-1-jb-martin-luther/) communiqué par Martin Luther et les deux suivants communiqués par d'une part [par Martin Luther](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-29-3-jb-martin-luther/) et d'autre part [par Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-29-4-jb-jesus/), ont tous été reçus consécutivement. Ce jour-là, il s’agissait d’une méditation globale commune, et le destinataire avait médité pendant six heures avant de recevoir les quatre messages.[↩](#a1)
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+2. <large id="f2"> L'ensemble des messages communiqués par Anne Rollins est disponible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-12-fr-family-and-friends-of-james-padgett/)[↩](#a2) 
+
+### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

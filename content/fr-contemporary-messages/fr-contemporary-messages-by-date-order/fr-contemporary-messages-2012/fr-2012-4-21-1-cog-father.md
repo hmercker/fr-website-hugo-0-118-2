@@ -42,4 +42,6 @@ Ton père.
 
 1. <large id="f1"> Ce message a été retenu initialement, en raison de la suggestion ci-dessus que Moïse n’a pas reçu le « texte » des Dix Commandements de Père. Nous avons tendance à penser que c’est possible, [et c’est ce qu’il a dit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-12-30-1-fab-moses/), mais que ce message fait plutôt référence au fait que les humains ont interprété ces commandements à leur convenance.[↩](#a1)
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

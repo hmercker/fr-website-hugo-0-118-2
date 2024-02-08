@@ -33,7 +33,8 @@ Ainsi, je vous demande d’utiliser les facultés que vous avez, qui ont été d
 
 J’espère que cela vous a donné une certaine orientation dans cette affaire et que vous continuez à chercher l’aide de Dieu et de ses anges pour comprendre comment vous pouvez mieux le servir et devenir son vrai fils. Je vous aime, comme moi aussi, mon cher frère – nous sommes Jean d’Amour et Marie, la mère de Jésus, qui sommes des Chrétiens de l’âme, de vrais disciples de notre Maître Jésus et des habitants des Cieux Célestes.
 
-[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+### [**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

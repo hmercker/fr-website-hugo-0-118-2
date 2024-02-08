@@ -22,3 +22,7 @@ Accepterez-vous l'appel de Dieu ? Allez-vous aider à la guérison de ce monde ?
 Prenez ce flambeau, âmes bien-aimées, marchez sur ce chemin de Lumière et nous vous accompagnerons, les anges vous entoureront et vous découvrirez que Dieu vous guidera de nombreuses façons, souvent surprenantes et délicieuses. Gardez vos oreilles et vos yeux ouverts mes bien-aimés. Marchez sur votre chemin de Vérité, soyez un canal d'Amour et il n'y a aucun moyen de savoir ce qui peut arriver dans votre avenir, car Dieu planifie votre destin et vous écoutez ses murmures et suivez sa guidance.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Augustin et je vous aime. Je suis avec vous. Je continuerai à vous guider et à vous soutenir sur votre chemin car je vous aime, chacune d'entre vous, âmes précieuses, lumières précieuses, aimées de Dieu. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -38,3 +38,7 @@ Puissiez-vous trouver votre chemin, âmes bien-aimées, chacune de vous est bell
 Puissiez-vous en venir à le voir dans toute sa merveille. Puissent vos yeux s’ouvrir à la Vérité, vos âmes se délecter de l’Amour, ressentir la joie, ressentir et connaître toutes les dimensions et tous les aspects de l’Amour. Que Dieu vous bénisse, âmes bien-aimées. Que vous puissiez apprendre à nous connaître et à connaître Dieu et à vous connaître vous-mêmes, car beaucoup de choses viendront au cours de vos voyages qui ne se termineront jamais sur ce chemin divin vers l’union avec Dieu.
 
 Que Dieu vous bénisse. Je suis Jésus, Maître des Cieux Célestes et je viens pour vous enseigner et vous assurer que chacun est digne et reçoit effectivement les grandes bénédictions de Dieu. Que Dieu vous bénisse. Mon amour, mon amour est avec vous tous. L’amour de Dieu vous englobe tous. Vous êtes bénis.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

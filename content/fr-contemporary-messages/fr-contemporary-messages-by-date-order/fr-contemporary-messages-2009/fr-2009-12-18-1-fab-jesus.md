@@ -19,4 +19,6 @@ La vérité, c'est qu'il y a maintenant un réseau mondial de pouvoir économiqu
 
 Mais la façon dont ce système a évolué n'est pas conforme à la volonté de Dieu. Nous avions besoin de dire cette vérité clairement. Vous ne voyez pas ce que nous voyons. C'est épouvantable. Mais aussi mauvais que cela soit devenu, aucun problème n'est trop grand pour Dieu, et Il aidera l'humanité. En effet, l'humanité attirera cette aide supérieure, car beaucoup, beaucoup de gens dans votre pays et ailleurs sont décents, bons et généreux, et veulent vraiment un monde meilleur.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

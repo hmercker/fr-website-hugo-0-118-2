@@ -72,3 +72,7 @@ Dieu ouvre les portes des possibilités. Il envoie ses anges pour aider à guide
 Tel est donc notre objectif et tel est le plan de Dieu pour la transformation de l’humanité et de ce monde. Cela se fera par à-coups, mais le grand élan est là et continuera de croître et d’apporter cette grande transformation. Nous serons avec vous alors que vous serez témoins en vous-mêmes de ce qui sera dans le monde, un changement puissant, un changement magnifique et une transformation alors que l’amour gouverne tout et s’exprime dans tous les aspects de votre être.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre frère et votre ami. Je suis Jésus du Royaume Céleste et je continuerai à vous parler de sujets d’amour, de vérité, de lumière, de guérison et de paix où la joie est une véritable partie de votre être. Que Dieu vous bénisse, âmes bien-aimées. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

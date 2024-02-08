@@ -20,3 +20,7 @@ Il y a aussi le grand égalisateur sur le chemin spirituel, et c’est l’Amour
 Alors, oui, il est important de donner librement, et dans votre communauté ici, vous pouvez commencer. Les biens matériels doivent être partagés, mais il est encore plus important de partager votre amour. Car, bien que vous ne puissiez pas donner l’Amour de Dieu à un autre et le mettre dans son âme, vous pouvez faire briller la lumière de Son Amour sur chaque être, de manière égale, en vous rappelant que nous sommes tous des enfants de Dieu et que, comme le dit la chanson de mon ami, *« Bénis soient les enfants, car nous sommes tous des enfants de Dieu »*.
 
 Je vais prendre du recul et être dans le calme, dans l’Amour de Dieu, dans cette prière, et je vous remercie comme toujours de m’accueillir. Un jour, je vous accueillerai. Nous vous embrasserons tous, dans l’Amour de Dieu, dans Son royaume. Allez en paix. Que l’Amour de Dieu remplisse vos âmes et vous guide dans votre marche. Je suis votre frère et ami dans le Christ. Je suis François, autrefois d’Assise, maintenant habitant du Royaume Céleste dans le Royaume du Père et je vous aime.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -18,3 +18,7 @@ Lorsque vous êtes désorientés et que vous avez besoin d’être guidés, prie
 Que Dieu vous bénisse, et moi aussi je vous aiderai sur ce chemin. Je suis Augustin et je viens vous encourager, chacun d’entre vous, alors que vous continuez à faire de grands efforts pour apporter la vérité de l’Amour de Dieu dans le monde.  Sachez que vos efforts ne sont pas vains et qu’ils seront récompensés.
 
 Soyez patients et prenez courage, mes amis.  Car vous êtes en train de connaître la Volonté de Dieu, d’exprimer cette volonté à travers tous vos beaux dons et d’être Vous êtes Son instrument de nombreuses manières différentes. Il en est ainsi, il en sera ainsi, et il en sera ainsi pour se développer et s’étendre de bien des manières. Les bénédictions de Dieu sont merveilleuses. Les possibilités qui accompagnent ces bénédictions sont trop nombreuses pour être comptées. C’est un voyage merveilleux, en effet, sur le chemin divin. Que Dieu vous bénisse. Que Dieu vous bénisse tous. Mon amour vous accompagne.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

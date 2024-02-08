@@ -18,3 +18,7 @@ Il est vrai qu’avoir un esprit calme et méditer, se retirer du monde, est une
 Que votre journée soit bénie. Nous veillerons sur vous. Il y a des anges et des esprits de guérison avec le cher frère à l’hôpital, selon votre demande. Beaucoup prient. Les bénédictions seront reçues. N’ayez aucun doute. Que l’Amour du Créateur coule en vous, réside dans vos âmes et les transforme.
 
 Je suis votre frère et ami, depuis les cieux Célestes. Je suis Yogananda. Que Dieu vous bénisse. Mon amour à tous.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

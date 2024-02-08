@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous marchez sur le chemin de l'amour
 
-Confucius - reçu par Al Fike le 18 Juillet 2018, Gibsons, Colombie-Britannique, Canada.
+Confucius <sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 18 Juillet 2018, Gibsons, Colombie-Britannique, Canada.
 
 Oh, mes précieux petits oiseaux. Comme vous aimez vous rassembler dans la Lumière de l’Amour du Père, entonner vos chants de vérité et exprimer votre amour les uns aux autres. Et ne voyez-vous pas que partout où vous allez, Dieu ouvre des portes, des opportunités pour parler de l’Amour de Dieu, pour parler de la vérité, pour parler de vos propres expériences ? S’exclamer au monde, je suis aimé, et voici comment je suis aimé, comment je vois et sais que je suis aimé dans le monde et c’est dans ces exclamations sincères de vérité et d’amour que le cœur des autres est touché, et eux aussi sont inspirés et cherchent cette bénédiction de Dieu.
 
@@ -28,3 +28,12 @@ Marchez toujours dans la Vérité de l’Amour du Père. Cherche Sa direction. A
 Tout est ouvert pour vous, mes bien-aimés. Car de bien des façons, vous avez surmonté les barrières, surmonté les obstacles que chaque âme doit affronter dans ce monde et maintenant Sa Lumière brille sur vous, mes bien-aimés, et vos ailes se déploient et votre joie et votre chant sont un chant magnifique qui plaît aux oreilles de Dieu. Vous êtes Ses enfants sur les ailes de l’Amour.
 
 Sa Grâce est sur vous, mes bien-aimés. La paix profonde de Sa Présence est avec vous. Je suis avec vous, âmes bien-aimées, alors que vous continuez à explorer le monde de l’amour et de la vérité. Dieu vous bénit. Confucius vous aime. Je suis souvent avec vous. Que Dieu vous bénisse, mes bien-aimés. Qu’il vous bénisse et vous garde dans sa lumière.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués  par Confucius sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a1)
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+

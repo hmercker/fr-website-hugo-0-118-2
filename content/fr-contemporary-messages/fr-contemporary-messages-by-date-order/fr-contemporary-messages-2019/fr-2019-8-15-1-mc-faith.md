@@ -27,3 +27,9 @@ Nous sommes très heureux du déroulement que nous voyons et nous anticipons bea
 Vous avez encore beaucoup à découvrir, mes bien-aimés. Notre plus grande appréciation et gratitude va à chacun d’entre vous car vos voyages sur le chemin Divin sont uniques mais ce qui les unit tous est l’Amour de Dieu et cet Amour est profond dans votre âme. La Lumière de votre âme s’étend et grandit. Vous ressentez cette Lumière, vous ressentez la révérence de l’Amour, et vous ressentez Dieu dans votre âme. C’est une chose magnifique, magnifique.
 
 Que Dieu vous bénisse, chacun d’entre vous. Mon amour est avec vous tous. Je suis Faith et j’apporte mes bénédictions d’amour, de joie et de lumière à chacun d’entre vous. Que Dieu vous bénisse, âmes bien-aimées, que Dieu vous bénisse. Je suis Faith.
+
+1. <large id="f1"> L'ensemble des messages communiqués par James Padgett  est disponible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-12-fr-family-and-friends-of-james-padgett/)[↩](#a1) 
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

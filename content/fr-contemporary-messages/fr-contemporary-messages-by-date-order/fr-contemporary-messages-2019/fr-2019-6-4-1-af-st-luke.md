@@ -26,3 +26,7 @@ C'est ce voyage d'éveil et de connaissance de votre vrai moi qui apportera tout
 Il y a beaucoup de réveils, d'innombrables réveils qui arrivent, âmes bien-aimées. Chaque jour a le potentiel de faire évoluer votre conscience et votre compréhension de plus en plus loin des conditions obscures du monde vers ce lieu d'âmes éveillées, proches de Dieu, en harmonie avec tout ce que Dieu a créé, en harmonie avec vous-même et tout ce qui vous entoure. Ceci est en train de se produire. Il émerge toujours si lentement, mais les efforts que vous faites vous rapprochent de vos âmes bien-aimées, vous rapprochent de la Vérité, de l'unité et de l'Amour.
 
 Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse. Je suis Luc et je vous aime, âmes bien-aimées.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

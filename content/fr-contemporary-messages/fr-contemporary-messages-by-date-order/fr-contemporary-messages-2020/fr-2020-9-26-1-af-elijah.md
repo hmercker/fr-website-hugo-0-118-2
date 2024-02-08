@@ -36,3 +36,12 @@ Ces autres facettes de la connaissance et de la croyance sont superficielles et 
 Vous en serez témoins, mes chers amis, et vous participerez activement à élever l’humanité vers un lieu de pensée et de lumière plus élevé. En un lieu où leurs âmes pourront s’éveiller plus facilement et où la connaissance de toutes les réalités spirituelles pourra venir et être donnée en abondance à l’humanité. En ce moment, c’est comme si vous vous arrêtiez avant la grande tempête du réveil. Utilisez ce temps à bon escient afin de vous éveiller plus facilement et plus pleinement à la lumière et à la vérité de Dieu et de Son Amour. Nous travaillons en coulisses dans de nombreux endroits avec de nombreuses âmes pour aider à préparer le terrain, pour aider à déclencher l’éveil à la vérité et à l’amour.
 
 Nous sommes avec vous tous, nous continuerons à travailler avec vous tous. Que Dieu vous bénisse, âmes bien-aimées. Je suis Élie. Mon amour est toujours avec vous, tout comme mes prières. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués  par Élie sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-fr-religious-figures/)[↩](#a1)
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+

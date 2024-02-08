@@ -31,4 +31,6 @@ Rappelez-vous cela, la prochaine fois que quelqu’un vous contrarie, la prochai
 
 Je tiens à vous remercier pour l’opportunité de vous parler. Soyez bénis mes amis. Soyez celui que vous devez être, celui que vous êtes. Bonne nuit.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014)
+### [**Lien vers les messages des années 2014**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

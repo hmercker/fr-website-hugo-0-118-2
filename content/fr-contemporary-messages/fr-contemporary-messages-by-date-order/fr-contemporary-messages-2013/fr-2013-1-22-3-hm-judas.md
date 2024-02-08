@@ -27,4 +27,6 @@ Garde les choses simples, profite de la vie, de tes progrès . Prie, médite et 
 
 Tu es ma sœur, je t’envoie de l’amour depuis les Cieux. Ton frère véritable et aimant, un disciple de Jésus, c’est Judas. Loue le jour et profite de lui, sors.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)
+### [**Lien vers les messages des années 2013**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

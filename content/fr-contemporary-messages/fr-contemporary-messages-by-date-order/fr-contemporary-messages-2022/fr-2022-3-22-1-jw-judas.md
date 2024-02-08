@@ -20,3 +20,7 @@ C’est maintenant un bon moment pour revoir non seulement les [messages que j�
 Donc, continuez à revisiter ce qui a été reçu. Restez dans l’espoir, restez dans la foi et non dans la peur. Restez dans la confiance, dans ce monde sceptique, afin que vous puissiez rester dans la lumière et dissiper l’obscurité, comme c’est votre vocation, comme c’est votre service, comme c’est vos vies. Nous vous remercions.
 
 Je vais maintenant me retirer dans le beau silence et l’immobilité en présence de Dieu Tout-Puissant et de Son Amour. Je vous aime. Je suis votre frère en Christ, une âme rachetée et un habitant des Cieux Célestes. Je suis Judas. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

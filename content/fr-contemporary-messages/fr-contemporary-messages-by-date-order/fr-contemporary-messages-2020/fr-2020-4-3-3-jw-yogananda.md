@@ -24,3 +24,7 @@ Mais si vous êtes sur le chemin de l’Amour de Dieu et que vous souhaitez êtr
 Lorsque votre cœur est brisé et que ce chakra et cet « ajna », ou le sixième chakra est ouvert entre les yeux, il y a une lumière qui descend. Nous l’appelons le chakra de la couronne, le septième, mais il vient de la couronne et d’en haut car il reçoit des cieux, donc « sahasrara ». Je vous dis donc tout cela et j’espère avoir été clair, car mon souhait pour vous tous est d’être en contact avec vos âmes, de recevoir une guidance qui soit Céleste. Je souhaite donc que vos cœurs soient ouverts, que vos âmes soient bénies, que le troisième œil soit ouvert à la communication et que Dieu, notre Créateur le plus aimant et le plus glorieux, vous comble tous de son Amour Divin.
 
 Mes frères reviendront et parleront. Que les Eaux Vives coulent en vous et à travers vous. Que vous puissiez boire l’Amour de Dieu. Je suis votre frère et votre ami et je vous aime. Je suis Yogananda.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

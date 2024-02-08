@@ -27,3 +27,7 @@ Que l’Amour du Père touche chacun de vous et reste avec vous sur votre chemin
 <small>
 
 1. <large id=”f1”> Judas nomme tous les enfants dans ce message du [08 Octobre 2001](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-8-1-hr-judas/), et ils sont : Jésus, Jacques, Simon, Juda, Joses, Thomas, Rachel et Léa. Huit en tout. Cela signifie que Jésus avait sept frères et sœurs.[↩](#a1)
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -18,3 +18,7 @@ Il suffit de quelques instants de prière sincère pour s’ouvrir à Dieu et se
 Soyez en paix, âmes bien-aimées. Sachez que vous êtes aimées. Sentez la joie qui se trouve dans ce savoir. Sentez la chaleur et la paix du toucher de Dieu dans votre âme. Le Souffle de Dieu est sur vous, mes bien-aimés. Respirez Son Souffle afin qu’il puisse embrasser votre âme et réveiller votre véritable moi.
 
 Que Dieu vous bénisse profondément, âmes bien-aimées. Je suis André et je continue à prier avec ce cercle et à répondre à vos besoins spirituels. Que Dieu vous bénisse et vous garde, âmes bien-aimées. Je vous aime tous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

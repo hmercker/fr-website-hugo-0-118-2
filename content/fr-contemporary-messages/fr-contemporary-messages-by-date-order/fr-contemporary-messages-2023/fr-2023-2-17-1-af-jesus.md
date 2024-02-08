@@ -26,3 +26,7 @@ Forgez votre relation avec Dieu, mes bien-aimés, et lorsque vous chercherez la 
 Que Dieu vous bénisse, je suis votre frère et ami, Jésus, et je viens prier avec vous. Je suis avec chacun d’entre vous. Ressentez mon amour, ressentez l’Amour de Dieu. Sentez la Lumière, l’élévation et la joie qui vous entourent, âmes bien-aimées. Que Dieu vous bénisse, que Dieu vous bénisse tous. Dans la vérité de l’Amour de Dieu, nous nous aventurerons et connaîtrons tout ce que Dieu est et a créé. Cela vient au compte-gouttes sur vous et en vous, et fera jaillir dans votre conscience de nombreuses vérités, beaucoup de sagesse et beaucoup de joie.
 
 Que Dieu vous bénisse, que Dieu vous bénisse tous dans Son Amour. Je vous aime et je vous aimerai toujours. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

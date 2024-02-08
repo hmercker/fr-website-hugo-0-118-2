@@ -59,4 +59,6 @@ Je vous laisse maintenant, à contrecœur, mais votre vie de mortel est dans un 
 
 Jusqu'à ce que nous nous asseyions et plions nos efforts ensemble à nouveau sur ce sujet ou sur tout autre, je suis votre ami et votre professeur, Jésus que tu connais par la Bible.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004)
+### [**Lien vers les messages des années 2004**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

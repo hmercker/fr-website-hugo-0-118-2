@@ -24,3 +24,7 @@ Oui, tout fonctionne en effet ensemble dans ce plan conçu pour vous aider tous,
 Les couches et les complexités de ce travail dont vous faites tous partie ne peuvent pas être vraiment comprises ou visualisées jusqu'à ce que vos âmes soient éveillées et capables de voir avec ces facultés. Je vous dis qu'il y a de nombreuses couches. Beaucoup de choses se passent à travers chacun d'entre vous dans ce flux magnifique et complexe de bénédictions pour le monde, une partie du plan de Dieu en effet et une grande bénédiction et une aubaine pour vous tous, âmes bien-aimées. Puissiez-vous continuer à grandir et à vous éveiller alors que vous priez pour que l'Amour du Père anime vos âmes. En retour, cela aide à animer ce grand réseau de Lumière. Continuez dans vos efforts, mes bien-aimés. Soyez bénis dans l'éveil de votre âme à Dieu.
 
 Dieu vous bénisse, je suis votre enseignant Augustin et je suis avec vous tous souvent et je continue à soutenir et à enseigner et à bénir et à être votre ange d'Amour pour vous aider dans ce monde. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

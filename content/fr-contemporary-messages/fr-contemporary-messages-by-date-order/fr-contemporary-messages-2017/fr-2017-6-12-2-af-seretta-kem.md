@@ -38,3 +38,7 @@ Puissiez-vous être rempli de la joie et de la connaissance que vous êtes vraim
 Vous êtes aimés, mes bien-aimés, vous connaissez l’amour, vous êtes l’amour. S’il vous plaît, soyez l’amour dans tout ce que vous faites et tout ce que vous pensez, tout ce que vous êtes. Permettez à cet amour dans votre âme d’infiltrer chaque partie de votre être afin qu’il puisse être exprimé dans toute sa puissance et sa gloire, sa beauté et sa lumière, et il en sera ainsi car Dieu vous a béni et Dieu continuera à vous remplir d’amour.
 
 Dieu vous bénit. Je suis Seretta Kem et je vous remercie de m’avoir écouté. Je continuerai à vous guider, à vous aider dans ce voyage de préparation. Rappelez-vous que même si vous pensez avoir beaucoup de temps, ce n’est pas le cas. Ce temps va passer très vite et ensuite vous serez ensemble. Glanez autant de lumière que vous le pouvez. Rassemblez les joyaux de vérité qui sont en vous. Soyez prêts car beaucoup de choses vont arriver, vraiment, vous n’avez aucune idée de ce qui est à venir. Soyez dans l’amour, mes bien-aimés. Que Dieu vous bénisse. Je suis Seretta Kem, je vous aime et je vous guide. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

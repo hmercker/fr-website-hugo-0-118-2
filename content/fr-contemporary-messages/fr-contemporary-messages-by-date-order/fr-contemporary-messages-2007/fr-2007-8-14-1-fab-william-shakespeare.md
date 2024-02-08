@@ -35,4 +35,8 @@ Nous nous sommes mariés dans l'église de Temple Grafton, et non dans l'église
 
 2. <large id="f2"> Les différents messages communiqués par William Shakespeare sont disponibles par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-8-fr-writers-and-philosophers/).[↩](#a2)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

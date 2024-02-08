@@ -21,3 +21,8 @@ Mon amour et mes bénédictions à vous tous, mes chers amis. Je vous aime. Je s
 <small>
 
 1. <large id=”f1”> Il y a plusieurs lieux où des prières régulières sont dites pour l’Amour Divin qui ont établi des portails énergétiques. Beaucoup d’entre eux sont assez puissants et peuvent être ressentis par des individus. Il nous a été dit que les portails atteignent le chemin à travers les sphères de l’Esprit jusqu’au Royaume de Dieu.[↩](#a1)
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

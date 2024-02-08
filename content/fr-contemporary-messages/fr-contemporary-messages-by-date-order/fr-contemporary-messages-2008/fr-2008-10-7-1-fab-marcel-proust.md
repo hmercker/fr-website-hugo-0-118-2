@@ -17,4 +17,6 @@ Oui, j'ai compris qui j'étais sur terre. Mon sens de moi-même était aiguisé 
 
 Mes guides me connaissaient et affirmaient ma vie d'une manière que je ne pouvais pas faire moi-même. C'était bon d'entendre parler de moi par des êtres qui pouvaient pénétrer dans ma façon de penser de telle sorte que je pouvais sentir le but divin de ma vie.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

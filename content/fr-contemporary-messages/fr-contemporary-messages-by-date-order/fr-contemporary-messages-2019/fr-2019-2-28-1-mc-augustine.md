@@ -28,3 +28,7 @@ Prenez le temps chaque jour de découvrir ce que votre Créateur souhaite vous a
 Continuez à vous ouvrir, mes chers amis, pour recevoir cet amour. Ressentez la présence, la chaleur, la sollicitude, le calme, la paix – la paix qui dépasse toute compréhension. Tout cela est donné gratuitement et ne demande que votre effort pour demander.
 
 Que Dieu vous bénisse mes amis, je suis votre enseignant Augustin. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

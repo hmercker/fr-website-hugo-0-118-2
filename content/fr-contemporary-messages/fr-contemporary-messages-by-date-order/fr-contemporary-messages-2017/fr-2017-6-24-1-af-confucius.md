@@ -9,7 +9,7 @@ weight:
 ---
 ### Les conseils du vieux sage
 
-Confucius - reçu par Al Fike le 24 Juin 2017, Gibsons, Colombie-Britannique, Canada
+Confucius<sup id="a1">[1](#f1)</sup>- reçu par Al Fike le 24 Juin 2017, Gibsons, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse, âmes bien-aimées, je suis Confucius. Je suis venu vous prêter mon amour et mes bénédictions, mes bien-aimés, alors que vous vous réunissez dans vos efforts pour vous rapprocher de Dieu et pour travailler ensemble à votre petite aventure dans ce monde. Je souhaite que vous sachiez que moi aussi, je suis impliqué dans cet effort et que j’aiderai à apporter la guérison et à mélanger les produits chimiques, à prendre soin de chacun d’entre vous alors que vous continuez à apporter plus d’harmonie à vos corps physiques, à votre esprit et à votre âme.
 
@@ -26,3 +26,11 @@ Il s’agit à bien des égards d’un effort qui nécessite la participation de
 Comme vous continuez à donner dans l’amour, les Anges vous soutiendront pleinement et vous donneront ce dont vous avez besoin pour remplir vos rôles dans cette aventure. Tout se déroulera en harmonie, mes bien-aimés, comme il est prévu par la volonté et le plan de Dieu. Permettez à Sa Volonté d’agir à travers vous dans votre vie. Permettez à Son Amour de toucher chaque aspect de votre être et de votre vie. Ne cachez rien à vous-même. Soyez honnête, soyez franc, avancez avec courage et soyez audacieux, assuré que vous marchez dans le courant de Dieu. Ce n’est pas le moment d’être timide ou timoré. Non. C’est le moment où vous vous déclarez les uns aux autres, à cette grande aventure et à Dieu.
 
 Quoi que vous ayez à l’esprit, mes bien-aimés, quelles que soient vos craintes ou vos préoccupations, quoi que ce soit qui vous trouble, mes bien-aimés, parlez, soyez entendus, permettez à Dieu de vous guérir afin que vous puissiez être libérés de toutes les barrières qui peuvent inhiber vos efforts ensemble. Car dans cette vulnérabilité se trouve une grande force. Dans cette libération et cette ouverture, vient une puissante guérison et une libération. Ainsi, vous permettrez une expression claire et belle de votre âme dans ce monde qui n’est pas encombré par les machinations de votre esprit. Reconnaissez ces chaînes qui vous lient, mes bien-aimés.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués  par Confucius sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a1)
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

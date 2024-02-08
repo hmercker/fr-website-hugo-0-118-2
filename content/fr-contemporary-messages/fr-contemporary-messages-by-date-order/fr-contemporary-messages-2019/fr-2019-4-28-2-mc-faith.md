@@ -24,3 +24,7 @@ Vous aurez également le désir de partager cet amour, cette paix et cette joie 
 Vous n'êtes pas ces corps physiques. Vous n'êtes pas votre mental. Vous êtes votre âme. Votre voyage sur cette Terre vous donne la grande opportunité de commencer l'éveil de votre âme et de réaliser le cadeau que vous êtes, la bénédiction que vous êtes. Il faut donc avoir la foi, mes chers amis, la foi de comprendre que de grandes choses vous arriveront grâce à votre connexion profonde avec le Créateur. Cette foi grandit dans votre âme et l'obligera à continuer à retourner dans les bras aimants de votre Créateur pour être nourrie, réconfortée et soignée de la seule manière dont Dieu peut le faire. Je vous laisse donc avec cela, mes chers amis, et j'espère que vos âmes ont été enflammées par cet Amour. Car c'est l'Essence de Dieu qui vous réveillera et vous amènera à votre véritable moi.
 
 Mon nom est Faith et je vous remercie d'avoir écouté mes paroles. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -24,3 +24,10 @@ Cherchez à ouvrir votre compréhension que votre vision, votre conscience de ce
 Vous verrez, mes bien-aimés, vous verrez la gloire de la vie, l'émerveillement de Dieu, le miracle qu'est chacun d'entre vous et votre beauté, votre beauté. Et vous saurez que vous êtes aimés, aimés au-delà de toute mesure, aimés pour toute l'éternité, âmes bien-aimées. Cherchez ce cadeau. Cherchez ce toucher et vous entrerez dans un voyage qui durera toute l'éternité, mes âmes bien-aimées, un voyage qui apportera joie sur joie, cadeaux sur cadeaux, bénédictions sur bénédictions, merveilleux, glorieux, beau.
 
 Mes âmes bien-aimées, vous êtes bénies, vous êtes vraiment bénies. Confucius vous aime. Confucius est avec vous dans ce voyage. Je serai toujours avec vous, comme le seront de nombreux représentants des royaumes du Ciel, je serai avec vous alors que vous voyagez sur ce monde, alors que Dieu touche vos âmes et vous éveille à la vraie vie dans l'Amour. Que Dieu vous bénisse. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués  par Confucius sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a1)
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

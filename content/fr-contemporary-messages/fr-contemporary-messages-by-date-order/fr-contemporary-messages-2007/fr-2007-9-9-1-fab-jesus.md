@@ -23,4 +23,7 @@ Ce à quoi je faisais référence dans la canalisation précédente, c'est à ce
 
 Votre pays, les États-Unis, va progressivement s'éloigner d'une mentalité de profit à court terme, pour évoluer vers une attitude plus durable basée sur les besoins humains.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

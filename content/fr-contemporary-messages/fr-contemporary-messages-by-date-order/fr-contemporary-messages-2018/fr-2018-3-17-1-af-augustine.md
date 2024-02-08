@@ -28,3 +28,7 @@ Alors que vous marchez jour après jour, que vos prières continuent à s’inte
 Tout cela vous attend, mes bien-aimés. Dieu attend votre choix. Dieu attend vos prières. Dieu vous aime toujours, quoi qu’il arrive. C’est à vous de découvrir l’émerveillement de Son Amour. Puisse la conscience naissante de vos âmes s’élever dans votre moi conscient et éclairer votre choix. Dieu attend et Dieu sait déjà, car Il vous connaît plus que vous ne vous connaissez vous-même. Soyez dans cette conscience de Dieu, cette conscience où l’Amour réside et où la Vérité apparaît clairement à la fois à votre esprit et à vos âmes. Tant de cadeaux vous attendent, mes bien-aimés, tant de bénédictions. C’est à vous de les demander.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant Augustin. Mon amour et mes bénédictions vous accompagnent tout au long de votre voyage. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

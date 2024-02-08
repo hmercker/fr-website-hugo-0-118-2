@@ -22,3 +22,7 @@ Nous continuons à prier pour le monde, et nous vous demandons de continuer à p
 Chers et beaux étudiants, vous êtes la lumière du monde. Puisse votre lumière se connecter avec d’autres lumières dans le monde et créer un puissant treillis de lumière qui encerclera le globe et influencera tous ceux qui y vivent, apportant la vérité, la guérison et la paix à un monde qui a tellement besoin de toutes ces choses, mais surtout d’apporter l’amour, d’apporter l’amour. Que Dieu vous bénisse, mes amis, étudiants de la vérité. Puissiez-vous continuer à grandir dans Son Amour et avoir l’expérience de l’âme éveillée à Son Amour, à Son univers, à Son Âme.
 
 Que Dieu vous bénisse, je suis votre enseignant, Augustin. Je vous souhaite joie et allégresse en ce temps passé ensemble dans le monde, en reconnaissant la naissance du Christ, en reconnaissant la Vérité de l’Amour, en reconnaissant la Lumière de Dieu et Sa grande bienfaisance sur vous, la générosité de Son Âme qui touche chacun de vous profondément et en profondeur, vous transformant et vous amenant à ne faire qu’un avec le grand Créateur de tout. Dieu vous bénisse, mes bien-aimés, mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

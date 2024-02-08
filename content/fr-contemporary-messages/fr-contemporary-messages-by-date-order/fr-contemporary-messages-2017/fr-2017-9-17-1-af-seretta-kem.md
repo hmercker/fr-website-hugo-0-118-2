@@ -36,3 +36,7 @@ Puissiez-vous continuer à grandir dans l'Amour et à placer la poursuite de l'A
 Que Dieu vous bénisse, âmes bien-aimées, dans tous vos efforts et toutes vos prières, dans toutes vos tentatives d'aimer, de vous aimer vous-même, de vous aimer les uns les autres et d'aimer ceux qui sont dans ce monde. En cela, Dieu est avec vous, en cela la Lumière s'épanouit et vous êtes profondément touchés lorsque vous continuez à aimer. Vous continuez donc à permettre à l'amour de s'écouler en vous et ainsi de suite. Pour l'éternité, cet amour continuera à s'épanouir à l'intérieur de vous, à croître et à s'étendre sur votre chemin vers l'unification, vers cette communion extatique, béate et impressionnante avec Dieu.
 
 Soyez bénis, mes bien-aimés. Je suis Seretta Kem et je vous aime. Vous commencez à aimer un peu plus chaque jour, et nous nous joindrons dans l'amour à cette grande entreprise, cette aventure et ce réveil. Que Dieu vous bénisse, mes bien-aimés.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

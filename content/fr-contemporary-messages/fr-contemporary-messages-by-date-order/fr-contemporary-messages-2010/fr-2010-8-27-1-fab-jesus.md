@@ -21,4 +21,6 @@ Et comme l'auteur le souligne avec justesse, parfois, la graine plantée ne germ
 
 En prolongeant ces idées, les questions de vie et de mort prennent une couleur et une signification totalement différentes. Pour la plupart des gens qui n'ont pas la foi, la mort physique est la tragédie finale, la fin de l'espoir. Mais pour une personne de foi véritable, la mort prend une relation plus bénigne et continue avec la vie précédente. La mort se fond ainsi dans la symphonie de l'être, et s'allie à la vie, au lieu d'en être l'ennemie.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

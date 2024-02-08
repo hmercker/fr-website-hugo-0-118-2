@@ -28,4 +28,15 @@ Amour, Cotton Mather.
 
 1. <large id="f1"> À proprement parler, [Père ne juge pas](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-2-25-1-jep-jesus/). Il a créé des lois spirituelles qui dispensent toute compensation nécessaire, et il ne nous juge pas dans un sens personnel. Il n’est pas certain qu’il ne s’agisse que d’un langage vague de Cotton Mather, ou qu’il n’ait pas encore appris cette Vérité. Ce qu’il dit clairement, c’est que malgré le fait que des personnes sont mortes en conséquence directe de ses actions personnelles, parce que ses motifs étaient purs, la compensation requise était inférieure à ce qu’elle aurait pu être. Cotton Mather a participé au procès des sorcières de Salem, et a été à l’origine de l’idée que les rêves (preuves spectrales) pouvaient être inscrits comme preuves dans le procès de sorcellerie. Dix-neuf hommes et femmes ont été pendus, un homme a été écrasé par des pierres et quatre autres sont morts en prison dans l’attente de leur procès entre juin et septembre 1692 dans le Massachusetts.[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+2. <large id="f2"> Cotton Mather s'est également exprimé par l'intermédiaire des messages suivants :[↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Cotton Mather | [Expériences d’un puritain colonial.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-5-20-1-fab-cotton-mather/) | 20 Mai 2006
+Cotton Mather | [Dieu et l'Amérique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-11-15-1-fab-cotton-mather/) | 15 Novembre 2007
+Cotton Mather | [La conscience dans le procès des sorcières de Salem](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-24-1-fab-cotton-mather/) | 24 Mars 2008
+Cotton Mather | [Réflexions sur la sorcellerie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-28-2-fab-cotton-mather/) | 28 Février 2009
+
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

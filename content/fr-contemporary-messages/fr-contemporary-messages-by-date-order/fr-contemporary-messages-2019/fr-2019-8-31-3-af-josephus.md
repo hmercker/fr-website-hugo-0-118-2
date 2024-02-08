@@ -30,3 +30,7 @@ Vous voyez donc, mes amis, rechercher l’amour, exprimer l’amour, c’est con
 Puissiez-vous bien choisir, mes beaux amis. Puissiez-vous en venir à comprendre le pouvoir que vous portez et qui peut créer la lumière, qui peut vous apporter de grandes bénédictions et une grande lumière. C’est votre choix. Dieu vous donne tant de cadeaux et le don du libre arbitre est en effet un cadeau puissant réservé à ses enfants qui possèdent une âme et dans cette âme, de grands potentiels et possibilités d’exprimer la lumière.
 
 Que Dieu vous bénisse, mes amis. Je suis Flavius Josèphe et je suis heureux de venir à vous une fois de plus pour parler dans l’espoir que vous puissiez recueillir quelques vérités et exprimer et mettre en œuvre ces vérités dans vos vies. Que Dieu vous bénisse. Que Dieu vous bénisse, mes amis.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

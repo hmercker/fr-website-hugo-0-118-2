@@ -27,4 +27,6 @@ Ton Père Céleste qui te ressent.
 
 Il est possible qu’une émotion ait plusieurs composantes. Par exemple, si vous éprouvez une forte aversion (pas tout à fait de la haine) pour quelqu’un, celle-ci peut avoir plusieurs composantes, comme la méfiance, qui peut être basée sur vos expériences passées avec cette personne ou simplement avec la vie en général. Elle peut aussi être basée sur une nature compétitive. Il est toujours utile d’examiner dans quelle mesure nos expériences passées peuvent jouer un rôle dans toute réponse émotionnelle que nous pouvons discerner. Peut-être pourrions-nous dire qu’une émotion peut être composée d’un certain nombre de sentiments ? Je ne suis pas sûr d’avoir vu une telle définition, mais l’idée n’est pas dénuée de sens.(Geoff Cutler)
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

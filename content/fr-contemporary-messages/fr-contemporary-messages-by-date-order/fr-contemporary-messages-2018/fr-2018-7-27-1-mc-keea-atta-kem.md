@@ -36,3 +36,7 @@ Il y a encore beaucoup à faire lorsque nous nous réunirons dans un temps très
 Mon amour est très profond pour vous et nous, votre groupe d’anges, le cercle des sept et beaucoup d’autres, le Royaume Céleste tout entier, sommes dévoués et engagés à faire avancer ce cadeau. Nous avons besoin de votre dévouement, mes frères et sœurs bien-aimés, nous avons besoin de votre dévouement. Bien qu’il y ait beaucoup de distractions dans cette vie terrestre, c’est quelque chose dans lequel vous vous êtes engagés, vous vous êtes engagés envers Dieu, envers les autres. Soyez loyaux mes amis, soyez loyaux envers Dieu et envers vos âmes.
 
 Que Dieu bénisse chacun d’entre vous et merci de prendre ces mots d’encouragement, d’amour et de clarté, merci de les prendre à cœur. Merci pour votre loyauté, votre engagement et votre dévouement. Je vous aime, que Dieu bénisse chacun d’entre vous. Je suis Keea Atta Kem, je vous aime.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

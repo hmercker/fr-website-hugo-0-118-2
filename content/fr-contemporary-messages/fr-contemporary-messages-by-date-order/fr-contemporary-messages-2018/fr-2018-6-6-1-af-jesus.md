@@ -20,3 +20,7 @@ Vous avez ressenti sa puissance. Il est avec vous depuis un certain temps mainte
 Continuez à prier pour la bénédiction de Son Amour, à chercher à vivre selon les lois de Son Amour et à servir dans un désir d’être un canal de Son Amour et ce don sera soutenu et renforcé avec chaque prière que vous faites, chaque effort pour servir les autres et pour exprimer l’Amour dans ce monde. Cette Lumière grandira, se renforcera et s’étendra, un cadeau de Dieu, mes bien-aimés, un cadeau puissant, qui vous aidera dans vos efforts pour la Lumière dans ce monde et vous protégera des conditions d’obscurité toujours plus fortes dans ce monde.
 
 Soyez en paix, mes bien-aimés, sachez que vous êtes vraiment aimés et que tous les bons et merveilleux cadeaux continueront à vous être accordés. Comme votre foi se renforce et que votre amour grandit, il en sera ainsi. Vous serez bénis. Que Dieu vous bénisse, mes bien-aimés. Je suis Jésus et je viens vous apporter la bonne nouvelle des bénédictions continues de Dieu sur vous. Dieu vous bénit et mon amour est avec vous, âmes précieuses dans la Lumière, âmes précieuses qui connaissent Dieu et Son Amour. Vous êtes bénis, puissamment bénis, mes bien-aimés. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

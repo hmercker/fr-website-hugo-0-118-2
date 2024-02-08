@@ -38,3 +38,7 @@ Vous êtes donc sur le point de le faire. Il y a encore des choses qui vous reti
 Puissiez-vous continuer, âmes bien-aimées, sur ce chemin, à patauger dans la rivière de Son Amour, à être avec beaucoup d'âmes et à construire cette grande communauté, cette merveilleuse famille d'Amour touchant beaucoup, beaucoup d'âmes alors que vous avancez. C'est un tel cadeau et une telle opportunité que vous avez acceptés avec empressement. Vous continuerez à voyager, vos yeux s'ouvriront, vos expériences s'élargiront, votre compréhension s'approfondira afin que vous puissiez connaître les intentions de Dieu pour vous, son plan pour vous. C'est un plan glorieux, âmes bien-aimées. Puissiez-vous le connaître intimement et l'accepter de tout cœur, car tout est dans l'Amour et l'harmonie.
 
 Soyez bénis dans votre voyage. Que Dieu vous garde bien dans Sa Lumière. Que Son Amour continue de couler dans vos âmes. Que vos yeux continuent à s'ouvrir et que la joie intérieure puisse jaillir et vous apporter une condition si merveilleuse de Lumière, d'excitation, d'acceptation et de force. Que Dieu vous bénisse. Je suis Judas. Moi aussi, je continue à être avec vous dans ce monde. Que Dieu vous bénisse, mes bien-aimés. Je vous aime.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

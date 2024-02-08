@@ -19,4 +19,6 @@ Vous avez l'impression que les forêts ont été détruites, et qu'elles sont pa
 
 Vous verrez qu'une fois que les systèmes destructeurs auront disparu, il sera facile de mettre en œuvre ces changements.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

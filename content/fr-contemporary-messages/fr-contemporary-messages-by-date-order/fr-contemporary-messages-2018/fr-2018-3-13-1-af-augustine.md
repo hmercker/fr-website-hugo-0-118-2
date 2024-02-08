@@ -22,3 +22,7 @@ Oui, je vous parle sérieusement, âmes bien-aimées, mais les temps sont graves
 Pour ces grands problèmes que vous voyez, ces grands défis qui sont devant vous, souvenez-vous que Dieu a un Plan. Cherchez à faire partie de ce plan, à être en harmonie avec la volonté de Dieu. Cela ne peut se faire que par l’éveil de vos âmes et l’harmonisation de votre esprit et de votre âme vers ce lieu où vous et Dieu êtes alignés dans la Vérité et l’Amour. Que ce soit votre prière quotidienne et que ce soit votre prière pour tous vos frères et sœurs, afin de réaliser l’alignement qui apportera l’harmonie à l’humanité.
 
 Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse et vous garde en sécurité dans les moments de turbulence. Il le fera. Il vous protégera et vous guidera sûrement, car Il a besoin de beaucoup de personnes qui sont dans la Lumière pour apporter la Lumière et éclairer les âmes perdues. Que Dieu vous bénisse. Je suis votre enseignant Augustin. Mon amour est vraiment avec vous tous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

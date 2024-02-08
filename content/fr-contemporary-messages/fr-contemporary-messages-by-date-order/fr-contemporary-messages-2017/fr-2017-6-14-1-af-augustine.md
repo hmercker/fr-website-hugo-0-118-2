@@ -26,3 +26,7 @@ Je ne suggère pas que vous vous écartez du Chemin Divin. Non, mes bien-aimés,
 Merci de m’avoir écouté. Vous êtes bénis d’avoir le bel esprit, ayant l’être Céleste Seretta Kem à vos côtés, vous conseillant et vous enseignant à cet égard et je continuerai à venir et à compléter ses enseignements avec mes encouragements et mon amour. D’autres le feront également, car nous sommes tous engagés, comme vous l’êtes, en tant que groupe, pour obtenir les résultats les plus élevés et les meilleurs. Il est important de réaliser ce qui doit venir en premier lieu dans vos vies. Dans cette vie, dans ces conditions matérielles, il est si souvent facile d’être distrait, d’être égaré dans une certaine mesure. Dieu vous remet toujours sur la bonne voie, à condition que vous soyez ouverts et disposés à être guidés, et je vois que vous l’êtes, et avec empressement. Ainsi, puissiez-vous continuer à marcher sur ce chemin Divin d’une manière droite et directe afin d’atteindre rapidement vos objectifs, que votre instrumentation soit efficace, puissante, belle et que tous soient touchés par l’amour.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant, Augustin. Je suis toujours à vos côtés et je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

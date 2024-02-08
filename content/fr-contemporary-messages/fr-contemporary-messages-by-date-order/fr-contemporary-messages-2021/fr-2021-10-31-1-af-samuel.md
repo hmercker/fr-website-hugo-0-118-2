@@ -28,3 +28,7 @@ Chacun d’entre vous continue à grandir, à évoluer, à se transformer, et ce
 Que Dieu vous bénisse, âmes bien-aimées, et vous garde dans Son étreinte, protégées et aimées, oh combien profondément aimées par Dieu, par Ses anges, par les esprits lumineux, par les uns les autres. Un grand réseau d’amour se trouve dans votre vie, âmes bien-aimées. Puissiez-vous en venir à voir votre vie sous cet angle, même lorsque vous êtes mis au défi. Puissiez-vous en venir à apprécier combien vous êtes aimées et combien votre âme est belle.
 
 Nous marchons ensemble, mes chers et beaux amis. Nous sommes ensemble sur ce chemin, marchant côte à côte dans la grâce et l’Amour de Dieu. Nous sommes donc Ses enfants. Dieu vous bénisse ; je suis Samuel, mon amour est avec vous tous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

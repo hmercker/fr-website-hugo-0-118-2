@@ -66,3 +66,7 @@ Cela vous attend, âmes bien-aimées, ainsi que toute âme qui vient à Dieu de 
 Rejoignez-moi sur cette route et nous connaîtrons ensemble les merveilles et les gloires de Dieu. Le don de Dieu pour vous est Son Amour. Ce don s’exprimera sous de nombreuses formes et manières, expressions, manifestations qui seront de lumière et de vérité. Puissiez-vous continuer à connaître la paix de la Présence de Dieu avec vous. Puissiez-vous continuer sur ce chemin, ce voyage. Je suis toujours avec vous comme vote frère et ami Jésus. Je continuerai à parler des merveilles de l’Amour transformateur de Dieu et comment cela vous apportera une grande joie.
 
 Que Dieu vous bénisse. Dieu vous bénisse, bien-aimés. Mon amour est avec vous.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

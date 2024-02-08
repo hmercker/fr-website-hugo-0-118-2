@@ -30,3 +30,7 @@ Encore une fois, c’est notre profonde gratitude pour le dévouement que vous a
 Je suis Seretta Kem et je vous remercie d’avoir revisité votre dévouement envers ce don, car le temps est très proche où votre cher cercle des sept se réunira une fois de plus, travaillant au développement de la voix directe.
 
 Que Dieu bénisse chacun d’entre vous. Mon amour est avec vous. Je suis Seretta Kem et je vous aime.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

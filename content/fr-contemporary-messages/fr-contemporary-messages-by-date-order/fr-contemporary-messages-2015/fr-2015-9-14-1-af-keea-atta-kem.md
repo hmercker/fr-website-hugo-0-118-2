@@ -21,4 +21,6 @@ Marchez dans le monde avec cette attitude qui est gracieuse et reconnaissante, a
 
 Bien-aimés, c’est si simple, cette grâce que vous portez avec vous et en vous, pour exprimer cela de manière simple et être vraiment vous-mêmes dans le monde, une belle âme qui aspire à vivre une vie en harmonie avec la création de Dieu et les lois de l’amour. Continuez, mes chers, continuez de cette manière et sachez que vous êtes vraiment aimés et que l’amour qui s’exprime dans votre vie est un choix, c’est toujours un choix. Permettez que ce choix soit une expression de vos belles âmes et du beau don de Dieu de Son amour. Merci, mes bien-aimés, je suis Keea et je vous aime, belles âmes, je vous aime. Que Dieu vous bénisse.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015)
+### [**Lien vers les messages des années 2015**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

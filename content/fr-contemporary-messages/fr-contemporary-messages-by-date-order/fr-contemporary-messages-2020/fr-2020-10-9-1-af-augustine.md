@@ -23,3 +23,7 @@ Que Dieu vous bénisse dans ce voyage et que nous puissions tous nous rassembler
 <small>
 
 1. <large id=”f1”> Jésus a abordé ce sujet dans ce message le 11 Mai 2017 : [Jésus parle de la Pentecôte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-11-1-af-jesus/).[↩](#a1)
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

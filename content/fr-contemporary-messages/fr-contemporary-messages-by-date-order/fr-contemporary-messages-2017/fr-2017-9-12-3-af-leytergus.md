@@ -11,7 +11,7 @@ weight:
 
 Leytergus - reçu par Al Fike le 12 Septembre 2017, Gibsons, Colombie-Britannique, Canada
 
-Je suis de retour. Je suis Leytergus. Vous avez demandé ma présence et je suis venu. Vous souhaitez connaître un peu de mon histoire. Oui, j'ai vécu dans ce que vous appelez le Moyen-Orient. J'étais arabe. J'ai aidé à fonder l'université de cette région et les débuts de telles études dans le monde. En effet, cette université était très différente de ce que vous reconnaissez comme une université de nos jours, mais les principes sont toujours là, le désir de rechercher la vérité, de discuter et de débattre de nos perceptions de la vérité et de la réalité de ce monde.
+Je suis de retour. Je suis Leytergus<sup id="a1">[1](#f1)</sup>. Vous avez demandé ma présence et je suis venu. Vous souhaitez connaître un peu de mon histoire. Oui, j'ai vécu dans ce que vous appelez le Moyen-Orient. J'étais arabe. J'ai aidé à fonder l'université de cette région et les débuts de telles études dans le monde. En effet, cette université était très différente de ce que vous reconnaissez comme une université de nos jours, mais les principes sont toujours là, le désir de rechercher la vérité, de discuter et de débattre de nos perceptions de la vérité et de la réalité de ce monde.
 
 J'étais un philosophe et un étudiant à cette époque. Je ne connaissais pas l'Amour Divin parce que le Maître bien-aimé n'a pas mis en avant cet enseignement jusqu'à de très nombreuses années plus tard et Dieu a ouvert les portes de Son Amour. J'étais dans la sixième sphère à l'époque et, en raison de ma curiosité innée, je me suis intéressée aux enseignements de Jésus, à ses efforts dans le monde et en esprit. J'ai appris à connaître cet enseignement comme étant vrai et j'ai commencé à prier pour l'Amour du Père et je l'ai reçu en grande abondance, car il n'est pas si difficile à recevoir quand on est dans ces sphères supérieures.
 
@@ -26,3 +26,20 @@ Je vous exhorte, âmes bien-aimées, à ne pas juger ceux qui recherchent la Vé
 Pourtant, j'ai connu les deux, les deux conditions, les deux réalités. Je dois dire que je ne regrette pas d'avoir suivi le chemin de l'Amour Divin et d'avoir cherché à être uni à Dieu de cette façon. Ce que j'ai glané en expérience, en vérité et en connaissance est bien plus grand que tout ce que j'ai vécu dans la sixième sphère. J'ai une joie tellement plus grande que mes compagnons esprits qui vivent dans l'amour naturel. J'ai une compréhension beaucoup plus profonde. Oui, j'ai une grande compassion pour tous les esprits et tous les peuples car cela vient avec l'Amour de Dieu. Nous ne nous sentons pas supérieurs aux autres. Ce n'est pas ainsi que nous pensons. Nous avons une connaissance et une compréhension qui nous permettent de ressentir un grand amour pour les autres, une véritable compréhension de l'âme et de Dieu. C'est la bénédiction qui vient avec l’Amour de Dieu.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je reviendrai et je parlerai. Que Dieu vous bénisse. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> Leytergus s'est également exprimé dans les messages suivants :  [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+--|---|---
+Leytergus | [Cet amour vous aidera à surmonter les obstacles sur votre chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-52-1970-1-26-anonymous-leytergus/) | 26 Janvier 1970
+Leytergus | [Relation entre le mental matériel et le mental de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-11-2-af-leytergus/) | 11 Septembre 2017
+Leytergus | [Les différences entre la Sixième Sphère et les Sphères Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-12-3-af-leytergus/) | 12 Septembre 2017
+Leytergus | [Ce que signifie vraiment la co-création avec Dieu. (Retraite Q&A Gibsons Juillet 2019)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-11-3-af-leytergus/) | 11 Juillet 2019
+Leytergus | [Embrasser la diversité et l’autre dans l’acceptation et l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-23-1-af-leytergus/) | 23 Juillet 2020
+Leytergus | [Prier avec intention](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-2-23-1-af-leytergus/) | 23 Février 2021
+
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

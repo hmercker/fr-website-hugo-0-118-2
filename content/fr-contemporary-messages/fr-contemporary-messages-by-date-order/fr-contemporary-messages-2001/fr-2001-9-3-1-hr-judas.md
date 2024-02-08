@@ -66,4 +66,6 @@ Bonne nuit, cher frère, Judas.
 
 1. <large id=”f1”> Mon opinion personnelle sur la question, c’est qu’il est impossible de répondre à cette question clairement et succinctement dans le cadre des notions limitées qui sont présentées dans les messages de James Padgett. Cependant, le Livre d’Urantia a une explication très simple pour cette question, basée sur l’abandon par leur Ajusteur de Pensée, d’une personne, qui ne désire pas la fusion. Que ceci se produise, est évident, selon ces sources, en raison de l’existence des Ajusteurs de Pensée qui ont guidé plus d’un mortel. Des communications reçues après cette série émise par Judas ont confirmé que le concept d’Ajusteur de Pensée et d’Amour Divin sont des concepts différents, les deux d’importance égale pour comprendre les processus qui se produisent.[↩](#a1)
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)
+### [**Lien vers les messages des années 2001**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -26,3 +26,7 @@ Nous continuons donc à vous inviter à vous ouvrir à ce saint toucher de Dieu 
 Âmes bien-aimées, vous vous êtes rassemblées pour chercher cette Lumière et vous l'avez reçue dans une certaine mesure. Continuez dans ces efforts, soutenez vous les uns les autres dans l'Amour, marchez sur ce Chemin Divin. Nous marcherons à vos côtés. Nous vous soutiendrons, nous vous protégerons et nous vous guiderons. Dieu assure que chaque âme qui a un vrai désir de cette bénédiction aura l'opportunité de la recevoir, sera bénie de nombreuses manières. Cela vient avec un simple désir. Tant de choses viennent lorsque vous êtes ouverts et volontaires, humbles et innocents.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Augustin, votre enseignant, et je vous aime. Je vous aime tendrement. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

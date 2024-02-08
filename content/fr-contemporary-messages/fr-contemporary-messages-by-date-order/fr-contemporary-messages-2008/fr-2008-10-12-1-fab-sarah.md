@@ -28,4 +28,6 @@ Je réside dans les Cieux Célestes, et Abraham est mon âme sœur.
 
 1. <large id="f1"> **Sarah** est l'épouse d'Abraham telle que décrite dans la Bible Hébraïque (le livre de la Genèse) et le Coran. En Hébreu, le nom Avram signifie "père exalté" ou, alternativement, "père d'Aram", le pays où Abraham est né. Saraï signifie "ma femme de haut rang", en référence à sa relation avec son mari. Désormais, leurs noms seraient Avraham, qui signifie "père d'un grand nombre", et Saraï, qui signifie "femme de haut rang". Dieu envoya trois anges sous l'apparence d'hommes pour informer le couple de la naissance imminente d'Isaac. Abraham rit de joie à cette nouvelle, car il aura 100 ans au moment de la naissance, mais Sarah rit de doute, car elle aura 90 ans et les voies des femmes ont depuis longtemps cessé pour elle (Source : Wikipedia).[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -16,3 +16,7 @@ Je m’appelle André. Je suis un ange, un membre du Royaume Céleste dont le Ma
 Vos voyages commencent en ce moment et ils sont très longs en effet mes bien-aimés, ils sont longs en effet. Construisez le fondement de la Vérité en vous et tout ce que vous cherchez et aspirez et tout ce à quoi vos âmes aspirent, viendra avec le contact de Dieu sur vous. Cet endroit est béni par de nombreuses choses, des énergies, des portails, des guérisons, des personnes douées, c’est un coffre au trésor de lumière dans votre monde. Puissiez-vous continuer à venir et être bénis et utiliser les ressources qui sont ici à votre disposition. Et de donner, mes bien-aimés, car nous ne sommes pas destinés à recevoir seulement, mais à donner. Donnez de votre cœur, donnez de vous-mêmes pour le bénéfice de vos frères et sœurs. Avec la bénédiction de l’Amour de Dieu dans votre âme, tous vos dons et tout ce dont vous êtes capables seront étendus et renforcés par l’amour.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis André et je suis heureux d’être avec vous pendant le temps que vous passez ensemble en prière et en communion. Mon amour est avec vous et de nombreux anges viennent partager cette expérience avec vous. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

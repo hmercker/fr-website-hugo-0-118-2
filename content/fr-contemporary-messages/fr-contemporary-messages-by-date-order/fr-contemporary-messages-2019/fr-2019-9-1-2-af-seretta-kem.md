@@ -28,3 +28,7 @@ Cherchez à poursuivre vos efforts pour grandir dans l’amour, pour développer
 Que Dieu vous bénisse, âmes bien-aimées, profondément dans vos âmes, puissamment dans vos vies, en donnant le don du bien-être physique et de l’harmonie. Ces choses, Dieu souhaite les donner à chacun d’entre vous. Ces choses sont disponibles pour vous, étant donné la bonne réponse à Dieu, le désir de l’âme, la foi et le travail vers ces objectifs qui vous apporteront les conditions dont je parle afin que vous soyez prêts et préparés pour ce que Dieu a en réserve pour vous en tant que Ses canaux et émissaires d’Amour.
 
 Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous garde dans Sa Lumière, Sa protection. Puissiez-vous vraiment parvenir à vous connaître vous-mêmes et à connaître toute la merveille qu’est votre âme et continuer à marcher sur le Chemin de la Lumière. Nous sommes avec vous. Nous sommes avec vous et notre amour est avec vous. Que Dieu vous bénisse. Je suis Seretta Kem. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

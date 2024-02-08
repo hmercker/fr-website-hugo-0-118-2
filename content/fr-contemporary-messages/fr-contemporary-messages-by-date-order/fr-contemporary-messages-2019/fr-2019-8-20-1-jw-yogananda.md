@@ -18,3 +18,7 @@ Ce voyage est sans fin mais il n’est pas sans commencement. Alors je vous le d
 C’est notre désir Céleste d’aider chacun d’entre vous. Ne manquez pas de faire appel à nous car nous sommes là pour vous. Nous ne pouvons pas résister à l’appel de votre âme lorsque vous avez besoin d’aide, lorsque vous avez besoin d’une guérison. Si vous êtes entouré d’esprits non harmonieux ou contrariés, faites appel à nous. Nous viendrons. Tendez la main à Dieu. Ces influences négatives, ces esprits ne peuvent pas être dans un endroit où se trouve l’Amour de Dieu et rester négatifs. Il en est ainsi pour chacun de vous. Une fois que vous vous ouvrez à cette Grâce, la négativité se dissout, l’amour entre. L’amour vous guérira, vous changera, vous transformera, vous éveillera. Alors, mes amis bien-aimés, comme toujours je vous exhorte, restez dans l’Amour. Priez souvent. C’est le yoga de l’Amour de Dieu.
 
 Mon amour à chacun d’entre vous. Vous êtes tellement bénis de vous avoir les uns les autres. Nous sommes avec vous. Nous vous aimons. Que Dieu vous bénisse, chacun d’entre vous, et vous transforme. Vous êtes des anges en attente. Je t’aime. Je suis Yogananda.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

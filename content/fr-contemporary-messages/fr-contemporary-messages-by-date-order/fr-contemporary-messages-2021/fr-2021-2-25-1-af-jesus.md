@@ -105,3 +105,8 @@ Jésus | [Message annuel en transe](/fr-contemporary-messages/fr-contemporary-me
 Jésus | [Sur le suicide.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-1-16-1-ar-jesus/) | 16 Janvier 2000
 Judas | [Aide au suicide et symboles chrétiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-5-2-hr-judas/) | 5 Octobre 2001
 
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+

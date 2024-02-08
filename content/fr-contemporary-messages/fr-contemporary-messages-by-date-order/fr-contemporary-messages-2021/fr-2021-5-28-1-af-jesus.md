@@ -103,3 +103,7 @@ Que Dieu vous bénisse, âmes bien-aimées. Puissions-nous tous parvenir à de p
 <small>
 
 1. <large id="f1"> Il s'agit très certainement d'une référence aux projets actuels de développement de [voix directe](/fr-direct-voice/).[↩](#a1)
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

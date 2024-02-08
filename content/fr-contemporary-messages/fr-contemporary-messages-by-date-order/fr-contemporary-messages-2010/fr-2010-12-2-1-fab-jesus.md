@@ -15,4 +15,6 @@ C'est moi, Jésus.
 
 À côté de toute la folie et de l'obscurité, vous voyez aussi beaucoup de lumière, des personnes du monde entier qui se soucient des autres et se lèvent. Eh bien, oui, nous voyons cela aussi. Et c'est précisément pour cela que nos efforts seront couronnés de succès.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

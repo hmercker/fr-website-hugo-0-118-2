@@ -92,3 +92,7 @@ Je vous encourage à continuer à prier pour que l’Amour Divin de Dieu réveil
 Il y a beaucoup à faire à chaque instant et chaque jour. Dieu met devant vous de nombreuses occasions d’exprimer la lumière, de servir l’humanité, d’être une lumière et un instrument de la Volonté de Dieu dans le monde. Puissiez-vous réaliser ces choses dans une mesure toujours plus grande en marchant sur le monde en tant qu’enfant de Dieu. Vous êtes profondément bénis, âmes bien-aimées, car tous ceux qui souhaitent suivre le chemin de l’amour seront profondément bénis et aideront Dieu à inaugurer cette nouvelle ère de paix, d’amour et de vérité et tout ce qui en découlera.
 
 Que Dieu vous bénisse, mes amis bien-aimés. Je suis votre frère et ami, Jésus. Mon amour est avec vous. Mon amour est avec vous tous alors que vous continuez ce voyage d’éveil vers la lumière, vers la paix, vers Dieu. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

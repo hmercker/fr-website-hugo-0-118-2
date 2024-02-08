@@ -50,3 +50,7 @@ Soyez à l’écoute de Dieu et à l’écoute de votre propre âme. Connaissez-
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Flavius Josèphe. Je suis heureux d’être venu vous donner ce message dans l’espoir qu’il clarifie, encourage et inspire vos efforts dans les jours, semaines, mois et années à venir, alors que la Terre change et devient ce qu’elle est censée être.
 
 Que Dieu vous bénisse. Je suis Flavius Josèphe. Mon amour est avec vous. L’amour des anges continue à vous entourer. L’amour de Dieu est à votre disposition à chaque instant. Que cette Grâce vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -9,7 +9,7 @@ weight:
 ---
 ### L'amour suscite des changements
 
-Jérémie et Salomon - reçu par CC le 28 Octobre 2004, New York, USA.
+Jérémie et Salomon <sup id="a1">[1](#f1)</sup>- reçu par CC le 28 Octobre 2004, New York, USA.
 
 Bonjour petit frère, nous sommes heureux que tu sois impatient de recevoir un petit mot de notre part. Il est bon pour toi de t'exercer à prendre des messages et à communier avec nous, à chaque occasion.
 
@@ -26,5 +26,10 @@ Nous voulons que vous voyiez l'Amour de Dieu dans vos âmes comme le grand insti
 Alors portez-vous bien, chers enfants, soyez en paix. Exercez votre confiance dans le Père et laissez vos doutes se dissiper. Croyez en Ses conseils, croyez en Son aide et croyez en Sa protection, ils sont aussi réels que la respiration que vous prenez. Nous vous aimons tendrement et sommes heureux de vous dire ces quelques mots, mais sachez que nous nous recueillons constamment dans vos cœurs et que vous nous écoutez. Nous sommes heureux de vous inspirer et de vous donner une validation dans vos vies. Nous vous laissons avec notre amour et notre dévotion. Appel à l'amour de Dieu jeunes frères.
 
 Jéremie, Salomon et tous vos Gardiens.
+<small>
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004)
+1. <large id="f1"> Il est possible de lire les divers messages commuiqués par Jérémie et Salomon par l'intermédiaire de [ce lien](fr-contemporary-messages\6-3-fr-contemporary-messages-by-author\6-3-10-fr-historical-figures.md) :[↩](#a1)
+
+### [**Lien vers les messages des années 2004**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

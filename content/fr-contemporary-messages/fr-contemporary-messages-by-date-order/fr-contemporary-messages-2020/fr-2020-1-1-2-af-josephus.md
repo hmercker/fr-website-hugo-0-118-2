@@ -54,3 +54,7 @@ Continuez dans vos efforts, âmes bien-aimées. Continuez à être patients, à 
 Que Dieu vous bénisse, mes amis. Nous sommes avec vous. Nous comprenons votre angoisse et votre souffrance, et pourtant le monde souffre d’angoisse et de désaccord depuis de nombreuses années. Il est temps que la guérison commence, et elle s’est déroulée et se déroulera dans le temps et l’harmonie de la volonté de Dieu. Que Dieu vous bénisse, mes chers. Que Son Amour continue d’éveiller votre âme à la Vérité, à la compréhension, à la compassion, à la patience et à l’Amour.
 
 Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées. Je suis Josèphe et je suis heureux de vous parler aujourd’hui. Dieu vous bénisse. Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

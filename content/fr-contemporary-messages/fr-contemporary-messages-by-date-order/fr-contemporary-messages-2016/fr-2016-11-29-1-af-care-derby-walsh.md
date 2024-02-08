@@ -28,3 +28,7 @@ Oh mes amis, si vous pouviez seulement voir avec les yeux de votre âme, tous vo
 Je vous aime, je suis avec vous. Je continuerai à être avec vous et je prie pour chacun d’entre vous, chaque jour. Je prie pour que vous continuiez à marcher dans la lumière de Son Amour et de la gloire de Sa Création et que vous soyez cette belle fleur que vous êtes destinés à être. Une rose, quel que soit son nom, reste une rose.
 
 Que Dieu vous bénisse, je vous aime, je vous aime, je vous aime tous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

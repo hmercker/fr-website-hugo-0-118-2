@@ -44,3 +44,7 @@ Reconnaissez-le, âmes bien-aimées. Ayez dans votre cœur une grande joie et de
 Vous êtes Ses enfants. Vous êtes bénis. Vous avez choisi cela et en choisissant, vous êtes choisis. Âmes bien-aimées, reconnaissez que vos âmes ont vraiment décidé, dans l’expression de leurs dons, de leur beauté et de leur dévouement à Dieu, de vivre une vie de service, d’humilité et de grâce. Cela vous apportera toute la joie et le sentiment extatique de compréhension de Dieu que vous pouvez désirer.
 
 Que Dieu vous bénisse dans ce voyage. Je suis Luc et je continue à vous aider, vous tous. Car c’est ma joie, mon service, d’être avec vous, d’aider à vous enseigner, d’aider à vous élever, d’être à vos côtés alors que vous voyagez dans cette vie, pleine de grandes bénédictions et de grandes dysharmonies. Sachez que nous sommes avec vous. Nous sommes vraiment avec vous et nous vous aimons, chacun d’entre vous. Nous vous aimons tendrement. Tous vos frères et sœurs du Royaume Céleste vous aiment tendrement, vous connaissent et continuent de prier pour votre réveil et votre illumination. Que Dieu vous bénisse. Je suis Luc et je vous aime.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

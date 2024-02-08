@@ -45,4 +45,6 @@ Un jour après l’autre, c’est un rythme aimant. Faites de votre mieux à cha
 
 Je vous laisse maintenant avec mes bénédictions, et je vous remercie de m’avoir donné l’occasion d’écrire. Je prie pour que mon message puisse apporter la paix et le réconfort à beaucoup de ceux qui ont ressenti de la détresse. Je vous aime tous d’un amour constant qui m’a été donné par Dieu. Vous aussi, vous gagnez en force dans cet Amour impressionnant, et un jour il sera si fort et si puissant dans votre vie que vous vous demanderez comment ou pourquoi vous avez jamais douté de sa capacité à vous relever de toute situation dévastatrice. Je suis un esprit Céleste élevé, proche de Jésus dans les Cieux Célestes.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)
+### [**Lien vers les messages des années 2001**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

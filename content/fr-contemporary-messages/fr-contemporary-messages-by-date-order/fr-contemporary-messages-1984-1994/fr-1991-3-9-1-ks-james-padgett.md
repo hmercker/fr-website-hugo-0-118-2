@@ -66,7 +66,6 @@ Je suis votre ami et votre frère dans le Christ, James E. Padgett, un vrai disc
 
 1. <large id="f1"> Malheureusement, une idée aussi simple que celle de permettre aux deux volumes de coexister au sein d’une même organisation n’était pas acceptable pour certains membres de la F.C.D.T. telle qu’elle existait à l’époque, et ils sont partis pour ressusciter la F.C.N.B. qui, à ce jour, n’autorise toujours aucune modification, même celles qui sont évidentes du point de vue typographique, et qui ne soutient pas non plus la médiumnité contemporaine. L'histoire de ces deux églises [peut être trouvée ici](/fr-james-padgett-messages/1-11-fr-churches-based-on-james-padgetts-messages/).[↩](#a1)
 
-[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+### [**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

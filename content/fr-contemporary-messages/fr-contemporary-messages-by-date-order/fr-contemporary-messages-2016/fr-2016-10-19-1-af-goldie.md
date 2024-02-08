@@ -16,3 +16,7 @@ Vous m’avez demandé de venir, je suis là. Qui aime les surprises ? J’adore
 Tant de surprises. Ne résistez pas à la volonté de Dieu, mais acceptez avec gratitude toutes les bénédictions qui vous parviennent, même si vous n’avez pas prévu ces grandes bénédictions et qu’elles vous surprennent. Tout est un cadeau. Tout est beau dans le flux du grand amour de Dieu pour vous et pour ce monde. Soyez heureux que cette vie, votre vie soit pleine de surprises, car ne serait-elle pas un endroit ennuyeux sans ces tournures intéressantes d’événements et ces bénédictions inattendues et toutes les belles âmes que vous rencontrez et que vous n’auriez jamais imaginé rencontrer dans tous ces endroits où vous voyagez, où vous n’auriez jamais imaginé aller et tous ces changements dans vos belles âmes alors que l’Amour de Dieu fait son travail en vous ?
 
 Beaucoup de bénédictions, mes bien-aimés, beaucoup de surprises à venir. Soyez ouverts. Soyez joyeux et sachez que ce qui vient avec chaque cadeau est destiné à être et est une bénédiction de Dieu. Dieu vous bénit. Je suis Goldie et je vous aime. Je vous aime.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

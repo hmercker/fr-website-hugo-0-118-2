@@ -34,3 +34,7 @@ Mes bien-aimés, mon amour est avec vous et je comprends. Moi aussi, j’ai ét�
 Vous trouverez l’accomplissement dans vos efforts, mes bien-aimés, et cet accomplissement sera celui de l’âme. Cela ne se manifestera peut-être pas comme vous l’aviez prévu, mais cela se manifestera bel et bien comme Dieu le veut. C’est cela l’humilité, accepter le plan de Dieu pour le salut de l’humanité afin que vous puissiez y trouver votre part, et ne pas dicter ce que cela pourrait être. Soyez patients, mes bien-aimés. Beaucoup de choses sont à venir, de nombreuses surprises, de belles intuitions et des expériences d’amour, beaucoup de choses sont à venir.
 
 Que Dieu vous bénisse, mes bien-aimés. Votre enseignant Augustin continue d’être avec vous, à vos côtés, alors que vous luttez et grandissez, émergeant des contraintes de ce plan terrestre vers quelque chose de beaucoup plus grand, plus beau. Cela continue. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -9,7 +9,7 @@ weight:
 ---
 ### Allez à l'intérieur
 
-Jérémie et Salomon - reçu par CC le 9 Juillet 2004, New York, USA.
+Jérémie et Salomon <sup id="a1">[1](#f1)</sup> - reçu par CC le 9 Juillet 2004, New York, USA.
 
 Bonjour CC. Si tu sens que tu es prêt, nous parlerons ? Nous voyons que tu l'es. Nous t'aimons aussi. Tu t'es bien préparé à recevoir à nouveau nos messages. Mais nous ajouterons que tu as été prêt depuis le début.
 
@@ -28,5 +28,10 @@ Imaginez la mouette lorsqu'elle prend son premier envol. Au début, elle bat des
 Ainsi, chers enfants, apprenez à voler et à vous laisser aller. Les lois aideront votre ascension, ses courants vous emmèneront vers un lieu qui vous attend. Allez à l'intérieur et commencez par battre des ailes et faites confiance à Dieu et à Son amour pour vous guider.
 
 Nous vous aimons, jeunes frères, Jérémie et Salomon.
+<small>
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004)
+1. <large id="f1"> Il est possible de lire les divers messages commuiqués par Jérémie et Salomon par l'intermédiaire de [ce lien](fr-contemporary-messages\6-3-fr-contemporary-messages-by-author\6-3-10-fr-historical-figures.md) :[↩](#a1)
+
+### [**Lien vers les messages des années 2004**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

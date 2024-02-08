@@ -18,3 +18,10 @@ Ne craignez pas vos cadeaux. N’ayez pas peur d’exprimer vos dons. Faites-le 
 Que Dieu enflamme en chacun de vous, âmes bien-aimées, la capacité, la perception, la sagesse, l’amour d’être Ses instruments dans le monde. De cette façon, de magnifiques reflets des bénédictions de Dieu se manifesteront à travers chacun de vous. Vous en connaîtrez une grande joie et vous serez fortifié par l’amour alors que tout se mettra en place au cours de votre voyage. Vous avez beaucoup de questions, je le sais. Mais vous devez rechercher la sagesse de votre âme pour obtenir des réponses. Cela viendra dans la prière, la contemplation, la recherche de la vérité.
 
 Que Dieu vous bénisse, enfants bien-aimés de Dieu. Je vous apporte une bénédiction pour vous soutenir et vous aider à vous éveiller à la vérité. Regardez vers Dieu pour toutes choses et ainsi, les réponses viennent avec Sa Touche sur vous. Que Dieu vous bénisse, bien-aimés. Je suis Confucius et je viens dans l’amour. Que Dieu vous bénisse.
+small>
+
+1. <large id="f1"> Les différents messages communiqués par Confucius sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a1)
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

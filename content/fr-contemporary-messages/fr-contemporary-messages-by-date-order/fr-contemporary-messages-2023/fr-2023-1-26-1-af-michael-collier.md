@@ -56,3 +56,7 @@ Vous devez laisser partir vos peurs et votre douleur, ces choses qui vous pèsen
 Nous faisons tous les efforts possibles pour vous soutenir dans ce processus, ce grand changement. En effet, c’est à vous de faire un grand effort aussi, car si nous pouvons nous rencontrer à mi-chemin, en effet les étincelles voleront et beaucoup sera accompli.
 
 Âmes bien-aimées, enfants de Dieu, soyez vraiment cet être que Dieu a créé. Il est magnifique et peut être rempli de grands trésors et de capacités qui reflètent l’amour de Dieu et sa merveilleuse création. Que Dieu vous bénisse dans ce voyage, mes amis. Puissiez-vous être inébranlables et fidèles à tout ce qui est de Dieu, tout ce qui est de l’amour, tout ce qui est de la lumière. Mes amis, je suis avec vous en cela, comme beaucoup. Mon amour est avec vous. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

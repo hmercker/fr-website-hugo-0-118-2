@@ -18,4 +18,8 @@ Vous ne voulez pas savoir les horreurs que j'endure maintenant. Les mots ne suff
 
 1. <large id="f1"> **Milton Friedman** (31 Juillet 1912 - 16 Novembre 2006) fut un économiste et intellectuel public américain, lauréat du prix Nobel. Il est surtout connu des universitaires pour ses recherches théoriques et empiriques, notamment l'analyse de la consommation, l'histoire et la théorie monétaires, et pour sa démonstration de la complexité de la politique de stabilisation. Un public mondial a suivi sa reformulation d'une philosophie politique libertaire qui insistait sur la minimisation du rôle du gouvernement en faveur du secteur privé. En tant que chef de file de l'école d'économie de Chicago, basée à l'université de Chicago, il a eu une grande influence sur l'élaboration du programme de recherche de toute la profession. Les nombreuses monographies, livres, articles savants, communications, chroniques de magazines, émissions de télévision, vidéos et conférences de Friedman couvrent un large éventail de sujets en microéconomie, macroéconomie, histoire économique et questions de politique publique. The Economist l'a salué comme « l'économiste le plus influent de la seconde moitié du XXe siècle... peut-être même de tout le siècle ». (Source : Wikipedia)[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+2. <large id="f2"> Milton Friedman a complété son message le [19 Août 2009](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-8-19-1-fab-milton-friedman/) [↩](#a1)
+
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

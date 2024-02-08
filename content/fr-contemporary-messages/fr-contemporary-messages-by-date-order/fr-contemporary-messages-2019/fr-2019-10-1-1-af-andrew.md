@@ -26,3 +26,7 @@ Ayez la foi, âmes bien-aimées. C’est le sens de la foi, de mettre en avant v
 Tout vient de vos efforts, de votre foi, de vos prières. Que cela soit votre guide et que les réponses qui vous viennent élèvent et réveillent votre âme. Car lorsque vous priez pour le don de l’Amour Divin, c’est donc pour cela que vous priez, âmes bien-aimées, pour être élevées, pour être guéries, pour être transformées et pour être guidées dans votre voyage spirituel, un voyage qui vous amène à l’union avec Dieu.
 
 Puissiez-vous continuer à être bénis, âmes bien-aimées. Je suis avec vous. Je suis André, un apôtre du Maître, à qui notre bien-aimé Maître Jésus a enseigné le grand don, l’art et la science de la prière. Que Dieu vous bénisse et que vous sachiez que notre Maître bien-aimé est avec vous tous et qu’il cherche à vous aider dans vos prières et vos efforts pour atteindre Dieu. Car telle est sa mission. Elle a été et sera toujours d’indiquer le chemin vers Dieu, d’indiquer le chemin de l’adoration par l’Amour. Vous êtes bénis, mes frères et sœurs bien-aimés. Vous êtes bénis. Que Dieu vous bénisse. Je suis André et je vous aime.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

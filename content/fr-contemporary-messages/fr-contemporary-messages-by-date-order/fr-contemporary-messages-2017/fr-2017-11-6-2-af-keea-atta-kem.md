@@ -18,3 +18,7 @@ Ceux qui sont en esprit et que vous aimez sont connectés à vous, âmes bien-ai
 Cherchez cette bénédiction, âmes bien-aimées. Cherchez à connaître véritablement votre Père Céleste, à être dans ce rapport et cette connexion profonds avec Dieu, car en cela, tout ce que vous aspirez à faire dans ce monde pour les autres se réalisera de façon merveilleuse. L'expression de votre âme dans la foi et le désir, la Vérité dans l'Amour, viendra avec vos prières et la compréhension de cette voie simple.
 
 Soyez dans cette Lumière, âmes bien-aimées, la Lumière du véritable Amour de Dieu pour vous. Elle est avec vous maintenant. Ouvrez-vous à cette bénédiction, en vérité ces cadeaux sont déversés sur vous. Je suis Keea Atta Kem. Je vous aime, âmes bien-aimées, belles, belles Lumières. Je suis avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -35,4 +35,8 @@ Je suis tellement heureux d’avoir pu transmettre tout cela, et oui, je veux qu
 
 1. <large id="f1"> **John Herbert Gleason** (26 Février 1916 – 24 Juin 1987) connu professionnellement comme Jackie Gleason fut un comique, acteur et musicien américain. Il fut connu pour son style de comédie visuelle et verbale effrontée, illustrée par son personnage Ralph Kramden dans The Honeymooners. Parmi ses rôles notables au cinéma, citons Minnesota Fats dans le drame The Hustler en 1961 (avec Paul Newman) et Buford T. Justice dans la série Smokey and the Bandit. (Source : Wikipedia)[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)
+2. <large id="f2"> Jackie Gleason s'est de nouveau exprimé dans un message communiqué [le 05 Avril 2013](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-5-1-fab-jackie-gleason/)[↩](#a2)
+
+### [**Lien vers les messages des années 2013**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

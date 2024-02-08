@@ -16,3 +16,7 @@ Je suis Francois, votre frère dans l’Amour de Dieu. Mes chers frères, je vou
 Dans l’Amour de Dieu, nous reconnaissons tous nos frères et nos sœurs, car tous sont Ses enfants. Comme il est dit, et comme vous le savez, Il ne fait aucun cas du fait que l’on soit riche ou pauvre, homme ou femme, ceci ou cela. Mes frères et moi avons travaillé avec de nombreuses âmes de toutes sortes ; les affamés, les sans-abris, les riches, les puissants, les hommes, les femmes, les enfants. Car nos prières ferventes ouvraient nos cœurs à tous dans l’Amour de Dieu.
 
 Alors, allez en paix, ne soyez pas troublés. Vous, mes frères, vous êtes bénis d’avoir la vérité et vous portez le grand cadeau dans vos âmes. Rien ne peut vous nuire car vos âmes ont plongé dans la vie éternelle dans l’Amour de Dieu. La paix, la paix, soit avec vous. Tout mon amour. Je suis votre ami éternel, François d’Assise, maintenant habitant des Cieux Célestes. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -22,3 +22,8 @@ Vos âmes ont la capacité d’embrasser l’univers de la création de Dieu, d�
 Ces choses vous sont promises, âmes bien-aimées, à condition que vous suiviez le chemin qui mène à la rédemption de l’âme. Ces choses sont données à ceux qui, par tout leur sérieux et leur désir, souhaitent avoir ce qui leur est offert. Cherchez et ce sera à vous, mes bien-aimés. Venez à être dans la Grâce de Dieu et toute la confusion et les préoccupations matérielles, les craintes et les erreurs se fondront dans le Grand Fleuve de l’Amour de Dieu. C’est la promesse que je vous fais et c’est le Don de Dieu pour vous. C’est le début d’un véritable réveil pour chacun de vous.
 
 Que Dieu vous bénisse dans ce voyage. Sachez que je suis avec vous, que je marche avec vous et que je le ferai toujours. Je suis votre frère et votre ami. Je suis Jésus et mon amour est avec vous pour toujours. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

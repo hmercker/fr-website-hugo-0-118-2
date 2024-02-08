@@ -18,3 +18,7 @@ Ainsi, vous êtes les agents actifs de Dieu en ce lieu et vous pouvez être les 
 Âmes bien-aimées, vous êtes la lumière, vous êtes la lumière, et vous êtes vraiment aimés. Dieu vous aime tendrement, pleinement. Ouvrez-vous à ce don de Son Amour. Soyez en paix. Mettez de côté vos attentes et marchez à chaque pas, dans le ravissement et la joie. En anticipant une bénédiction après l’autre, vous constaterez que Dieu vous bénira, vous amènera à ces lieux de bénédictions, ces occasions de servir, ces réveils qui viendront à chacun de vous alors que vous continuez à prier ensemble. Vous êtes vraiment bénis d’être ensemble. Vous êtes vraiment bénis par Dieu et vous êtes vraiment aimés.
 
 Âmes bien-aimées, soyez en paix, soyez en paix et baignez dans le toucher de Dieu en ouvrant vos âmes, chers bien-aimés, au toucher de Dieu. Que Dieu vous bénisse. Je suis Goldie et je serai avec vous pour vous chatouiller à l’occasion, pour aider à chatouiller les autres. Car sans joie, sans joie, comment la lumière peut-elle s’épanouir. Que Dieu vous bénisse, mes amis. Je t’aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

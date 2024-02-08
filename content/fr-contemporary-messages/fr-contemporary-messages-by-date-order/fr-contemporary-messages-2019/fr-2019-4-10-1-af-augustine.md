@@ -40,3 +40,7 @@ Si cela était possible sur votre plan terrestre, alors le destin de chaque âme
 Continuez à prier pour ce don de l'Amour Divin. Continuez à marcher sur le Chemin Divin. Continuez à écouter les conseils de Dieu, à rechercher la volonté de Dieu et l'expression volontaire de vos âmes dans la vie. De cette façon, vous apporterez lumière et harmonie. Vous serez en mesure de naviguer dans les grands tourbillons de ténèbres de ce monde et de travailler pour Dieu afin d'aider à disperser ces conditions.
 
 Que Dieu vous bénisse et vous renforce dans son amour. Que votre perspicacité et vos perceptions grandissent et que votre sagesse s'épanouisse afin que vous puissiez effectivement être un exemple, une belle lumière dans le monde. Que Dieu vous bénisse, âmes bien-aimées. Votre enseignant Augustin, est toujours avec vous, est toujours soucieux de votre bien-être et de votre édification de la vie. Que Dieu vous bénisse, âmes bien-aimées, que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -31,4 +31,15 @@ Ton frère dans le Ciel, Judas.
 
 © Geoff Cutler 2013
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)
+<small>
+
+1. <large id="f1"> Pablo Neruda s'est également exprimé par l'intermédiaire des messages suivants :[↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+
+Pablo Neruda | [Un poète inspiré et heureux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-5-2-fab-pablo-neruda/) | 5 Mars 2008
+Pablo Neruda | [Le voyage d’un poète vers la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-6-1-fab-pablo-neruda/) | 6 Mars 2008
+Pablo Neruda | [Communistes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-6-2-fab-pablo-neruda/) | 6 Mars 2008
+Pablo Neruda | [La tristesse d’un poète](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-7-1-fab-pablo-neruda/) | 7 Mars 2008
+Pablo Neruda | [Communistes – 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-5-2-fab-pablo-neruda/) | 5 Mai 2013

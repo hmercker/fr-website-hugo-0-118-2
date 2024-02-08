@@ -24,3 +24,8 @@ Ainsi ce travail continue, mes amis bien-aimés, dans de nombreux endroits, à t
 Comme vous êtes bénis, mes amis. Comme Dieu vous a donné un si grand cadeau qu’aucun autre ne peut être comparé à ce qui a été donné dans la Vérité de Son Amour. Que Dieu vous bénisse alors que vous vivez et marchez dans votre vie et que vous êtes ce beau phare, ce canal, cette âme brillante qui peut et va donner beaucoup de bénédictions en tant qu’instruments de Dieu dans le monde.
 
 Je vous remercie de m’avoir écouté. Je m’appelle Michael. Mon amour est avec vous. Je suis un habitant du Royaume Céleste et je suis heureux et béni et humble d’être votre serviteur dans ce monde. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

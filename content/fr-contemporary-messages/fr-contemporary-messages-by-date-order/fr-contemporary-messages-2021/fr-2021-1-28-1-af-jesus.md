@@ -80,3 +80,7 @@ Ayez la foi, âmes bien-aimées, que tout va bien dans le monde de Dieu et que l
 Il en sera ainsi, mes amis, il en sera ainsi. Nous attendons avec impatience. Nous continuons à vous informer, à vous guider et à vous aimer. La Main de Dieu est fermement sur ce monde. Les changements que Dieu apportera seront d’une grande sagesse et d’une grande vérité afin que la lumière l’emporte dans votre monde et que l’amour soit sa monnaie d’échange.
 
 Que Dieu vous bénisse alors que vous prenez davantage conscience du grand don que Dieu fait à l’humanité, des grandes bénédictions qui s’annoncent et qui sont déjà venues sur vous. Puissiez-vous connaître la joie de cette compréhension, de cette vérité et de cet épanouissement alors que votre âme s’éveille et en vient à connaître la gloire de Dieu. Mon amour est avec vous, âmes bien-aimées, mon amour est avec vous. Je suis avec vous. Je marche avec vous. Je prie avec vous et je vous aime. Que Dieu vous bénisse. Je suis Jésus, Maître des Cieux Célestes, gardien de la flamme de la vérité qu’est l’Amour Divin. Que Dieu vous bénisse. Que Dieu vous bénisse tous.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

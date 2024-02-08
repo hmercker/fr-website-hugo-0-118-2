@@ -34,5 +34,7 @@ Vous savez par expérience que la maladie et la souffrance font changer les gens
 
 1. <large id="f1"> John Wilkes Booth fut le meutrier d’Abraham Licoln.[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)
+### [**Lien vers les messages des années 2013**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

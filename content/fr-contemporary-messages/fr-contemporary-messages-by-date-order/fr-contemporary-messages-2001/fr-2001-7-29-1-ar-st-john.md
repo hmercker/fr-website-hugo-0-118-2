@@ -31,4 +31,6 @@ Vous avez maintenant l’opportunité d’enlever les œillères des limitations
 
 Je vous aime, mes chers frères et sœurs en Christ, et je suis Jean l’Apôtre de Jésus, qui est notre Maître et ami.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)
+### [**Lien vers les messages des années 2001**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

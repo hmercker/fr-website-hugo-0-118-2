@@ -23,4 +23,6 @@ Dès qu'un empire est en train d'être planifié, ce qui est également créé e
 
 Maintenant, nous planifions quelque chose de glorieux pour l'humanité, et le retour de bâton contre l'obscurité sera si puissant et si répandu que l'obscurité devra céder. Oui, c'est vrai, et c'est ce que nous mettons soigneusement en place pour que nos efforts soient couronnés de succès. Nous le ferons savoir, et nous aiderons l'humanité dans sa lutte pour la justice et la paix. Nous voyons la bonté dans chaque partie de la Terre, et nous voyons partout des gens prêts à tout risquer pour le bien de la vérité. Et tout comme le mal semé produit le mal récolté, le courage et la valeur récoltent les bénédictions de Dieu et le succès final.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

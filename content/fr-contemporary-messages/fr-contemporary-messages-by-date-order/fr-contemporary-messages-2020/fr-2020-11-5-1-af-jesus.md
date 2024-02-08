@@ -76,3 +76,7 @@ Je vous laisse avec ces pensées, mes chers et beaux frères et sœurs. Sachez q
 Que Dieu continue à vous bénir profondément, âmes bien-aimées, et à vous réveiller pleinement avec Son Amour afin que vous et moi, ainsi que tous les anges du Ciel et les esprits brillants qui cherchent à servir Dieu de cette façon, marchions ensemble dans l’unité, servions Dieu de façon remarquable et amenions beaucoup de gens à la Vérité de Son Amour. Cela a toujours été ma mission et je vous encourage à vous joindre à moi dans ce grand effort pour éveiller le monde à l’amour.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre frère, votre enseignant, votre ami. Je suis Jésus, Maître des Cieux Célestes et je suis heureux d’être venu aujourd’hui pour vous parler à tous. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés. Mon amour est avec vous.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

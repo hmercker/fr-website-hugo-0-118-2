@@ -30,3 +30,8 @@ Je suis Celui qui s’approchera de vous afin que vous puissiez entendre Ma voix
 Vous me plaisez lorsque vous désirez connaître la profondeur de qui vous êtes et m’invitez dans cette expérience d’amour et votre réveil. Il me plaît que vous désiriez aider l’humanité à s’éveiller. Il Me plaît que vous entendiez Mon appel. Nous nous éveillons dans l’Amour et dans l’union ensemble, alors que vous vous ouvrez pour recevoir cette bénédiction de l’Amour dans votre âme, vous me connaîtrez pleinement et complètement.
 
 Je suis l’Unique.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

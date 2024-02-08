@@ -20,3 +20,7 @@ En effet, vous êtes tous humains, âmes bien-aimées, et vous connaîtrez ces d
 Cela se produit quotidiennement, les changements progressifs qui font partie de ce Don, et vous en viendrez à vous connaître comme un individu qui est différent de celui d’il y a des années, un individu qui a changé sa perspective et libéré ses peurs, devenant plus aimant et confiant dans ses expressions d’amour dans le monde. Cela aussi est un reflet de l’éveil de votre âme. Elles aussi sont une affirmation du pouvoir de l’Amour de Dieu dans une âme. Rapprochez-vous de l’alignement, et en cela vous vous rapprochez des manifestations que vous désirez voir. C’est une démarche de foi, un effort pour changer et pour accepter les changements qui sont apportés par le grand cadeau de l’Amour de Dieu.
 
 Vous êtes toutes bénies, âmes bien-aimées, vous êtes toutes bénies dans un monde qui a grand besoin de vous et de votre lumière. Que Dieu vous bénisse. Je suis André, et je vous parle aujourd’hui pour vous aider à élever, à soutenir et à renforcer la Vérité qui vit en chacun de vous.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

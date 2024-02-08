@@ -72,4 +72,7 @@ Avec mon amour, ton frère, Judas.
 
 1. <large id="f1"> **Note de l’éditeur original :** Pour anticiper la réception les 12 images, j’avais créé une page web avec 12 emplacements. Je n’avais communiqué à personne ce fait. Judas apparemment avait regardé par-dessus mes épaules. Malheureusement toutes les images promises ne sont pas matérialisées, mais nous avons néanmoins les portraits de 9 apôtres plus celui de Pilate. Mon portrait favori est celui de Jacques parce qu’il ressemble beaucoup à Jésus.[↩](#a1)
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)
+### [**Lien vers les messages des années 2001**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

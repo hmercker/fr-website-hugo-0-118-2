@@ -26,3 +26,7 @@ Il y a une plénitude, une richesse dans vos actions, dans vos vies, alors que v
 Continuez dans votre service, dans vos prières, dans votre désir d’être proches de Dieu et dans votre désir de servir l’humanité dans l’amour et Dieu vous utilisera, âmes bien-aimées, vous emmènera dans un voyage miraculeux rempli de surprises, rempli de choses inimaginables, rempli de cœurs chaleureux s’ouvrant, s’épanouissant, au grand Amour de Dieu. Continuez, âmes bien-aimées, dans ces grands efforts. Vous ne pouvez pas imaginer les récompenses, les bénédictions, ce que vous créez dans votre âme par le service et l’amour, la prière et la foi. De grandes bénédictions, de grandes bénédictions qui vous porteront loin, non seulement dans ce monde mais aussi dans le prochain. Ames bien-aimées, nous sommes heureux de vos efforts, nous sommes très heureux. Nous vous aimons et continuerons à vous guider alors que vous marchez sur ce chemin de service, alors que vous êtes renforcés, alors que le canal en vous grandit et s’éclaircit, devient puissant et beau.
 
 Votre enseignant Augustin vous aime, continuera à être à vos côtés pour vous guider, vous enseigner et vous aimer. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées. Je vous aime.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

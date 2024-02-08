@@ -58,4 +58,6 @@ Judas.
 
 2. <large id="f2"> Ce  message fait suite à une série de suggestions relatives à l’usage d’un symbole. Aucun accord ne fut possible, probablement à cause de la difficulté de le différencier du symbole du poisson utilisé par les Chrétiens *« nés de nouveau »* cependant une image incorporant des mains et un cœur semblent avoir été utilisée sur au moins un site.  Il est intéressant de remarquer que Judas n’a pas mentionné que le symbole du poisson semble précéder, en tant que symbole de la renaissance, de façon significative, le Christianisme. Un des amis de l’éditeur original a même bénéficié d’une vision montrant que  celui-ci avait été utilisé, sur une autre planète, il y a fort longtemps.[↩](#a2)
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)
+### [**Lien vers les messages des années 2001**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

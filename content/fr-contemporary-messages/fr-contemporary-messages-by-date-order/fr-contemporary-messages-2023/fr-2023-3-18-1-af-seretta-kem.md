@@ -30,3 +30,7 @@ Continuez à grandir dans votre foi, votre confiance en Dieu, votre confiance le
 Un grand treillis de connexion, de conscience, de lumière, continue à se développer parmi vous. Cette chose sera importante. Cette bénédiction sera puissante et efficace pour soutenir chacun d’entre vous dans son travail, dans ce qu’il est destiné à faire dans le monde. Elle grandit, mes amis. Elle s’étend. Elle devient permanente et inébranlable dans votre conscience. Ces choses viendront. Ces choses sont établies, mais elles doivent grandir dans votre conscience. Elles doivent se manifester là où vous êtes conscients et où vous pouvez absorber les implications et les bénédictions qui en découlent.
 
 Puissiez-vous être bénis, mes amis, avec une connaissance, une conscience, des ouvertures et des bénédictions vraies et claires de l’amour de notre cher et bien-aimé Créateur pour vous, de l’amour de notre Créateur pour toutes les choses dans l’univers. Que Dieu vous bénisse, âmes bien-aimées. Je suis Seretta Kem. Mon amour est toujours avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

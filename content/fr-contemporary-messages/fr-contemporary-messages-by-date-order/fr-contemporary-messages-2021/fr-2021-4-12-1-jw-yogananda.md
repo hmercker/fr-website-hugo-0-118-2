@@ -18,3 +18,7 @@ La seule exigence, si je peux utiliser ce mot, est de permettre à votre cœur d
 Alors que vous êtes assis ici dans ce cercle de lumière, assisté par une multitude invisible, ressentez l’Amour, baignez-vous dans la lumière et la Grâce qui vous est offerte si vous la demandez. Chaque bien, chaque cadeau parfait, vient dans l’amour de Dieu. Chaque bénédiction sera la vôtre si vous le permettez. C’est votre libre arbitre. Être en harmonie avec la volonté de Dieu, c’est votre choix. N’ayez aucun regret alors que vous marchez vers un avenir glorieux sur le chemin Céleste, chacun étant un enfant précieux de Dieu, tellement aimé. Que chaque âme ici présente reçoive ce cadeau.
 
 Je vais prendre du recul et vous rejoindre dans cette paix qui dépasse vraiment l’entendement humain. Toute la gloire à Dieu. Je suis votre frère et ami, Yogananda. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

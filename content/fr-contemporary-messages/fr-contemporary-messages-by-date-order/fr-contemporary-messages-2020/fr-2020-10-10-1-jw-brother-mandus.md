@@ -15,9 +15,21 @@ Je suis votre frère Mandus. Je vous remercie de m’avoir appelé. J’étais a
 
 Ce que vous apportez au centre de guérison, c’est la présence de l’amour qui touche le cœur, qui ouvre l’âme dans le sentiment. Cela ouvrira la porte à l’œuvre plus grande que j’ai l’intention d’accomplir et que Dieu et tous les anges célestes souhaitent ainsi être. Puisse-t-il <sup id=”a2”>[2](#f2)</sup>. émaner de tous ceux qui s’y ouvrent, car le merveilleux portail du sanctuaire du centre sera entièrement restauré. Je le superviserai et au-delà, là où j’habite, dans les cieux les plus élevés, vous serez assistés. N’est-ce pas merveilleux ! Gardez cela dans votre coeur et sachez-le avec votre être.
 
-Et oui, je souhaite dire que la chaise où j’ai eu beaucoup de prières et de guérisons sera un merveilleux conduit pour ceux qui sont dans le besoin et elle devrait être utilisée et non pas cachée. Alors oui, cher frère, ta guidance était correcte. Je te remercie d’avoir reçu mon message. Je suis très heureux et, avec tout mon amour et mon soutien dans la grâce de Dieu, je suis ton frère Mandus. Va avec Dieu !
+Et oui, je souhaite dire que la chaise où j’ai eu beaucoup de prières et de guérisons sera un merveilleux conduit pour ceux qui sont dans le besoin et elle devrait être utilisée et non pas cachée. Alors oui, cher frère, ta guidance était correcte. Je te remercie d’avoir reçu mon message. Je suis très heureux et, avec tout mon amour et mon soutien dans la grâce de Dieu, je suis votre frère Mandus. Allez avec Dieu !<sup id="a3">[3](#f3)</sup>
 <small>
 
 1. <large id=”f1”> Centre mondial de guérison fondé par frère Mandus à Blackpool, en Angleterre.[↩](#a1)
 
 2. <large id=”f2”> Le sentiment de l’amour et de la présence de Dieu.[↩](#a2)
+
+3. <large id="f3"> Brother Mandus s'est également exprimé dans les messages suivants : [↩](#a3)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Frère Mandus Nyquist | [Vous allez remplir votre mandat de canal de l’Amour chez moi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-6-27-1-af-brother-mandus/) | 27 Juin 2016
+Frère Mandus Nyquist | [Une description de l’âme et de sa nature durable](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-8-27-1-af-brother-mandus/) | 27 Août 2016
+Frère Mandus Nyquist | [Continuez à prier pour que la volonté de Dieu prévale à WHC – Ne perdez pas espoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-9-2-af-brother-mandus/) | 9 Mai 2022
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

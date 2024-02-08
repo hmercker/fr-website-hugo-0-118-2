@@ -24,3 +24,7 @@ Tant de choses peuvent être données. Tant de choses sont données. Pourtant, t
 Cherchez la Vérité, l’expression et l’intention Divine dans votre vie et les grandes bénédictions de Dieu vous inonderont et entreront dans vos vies en grande abondance. Tout cela n’attend que votre désir, votre intention et votre décision. Puissiez-vous parvenir à connaître ce désir profond au sein de vos âmes et être bénis par la véritable compréhension, la clarté, la force, la compassion et l’amour. Ce sont les choses de Dieu. Ce sont les choses de votre moi supérieur. Ce sont les aspects de votre âme qui aspirent à être réalisés et ouverts.
 
 Que l’Amour de Dieu vous réveille tous. Merci de m’avoir écouté, âmes bien-aimées. Comme j’ai parlé, ainsi vous avez été bénis par de nombreux anges qui travaillent et assistent chacun d’entre vous. Que Dieu vous bénisse. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

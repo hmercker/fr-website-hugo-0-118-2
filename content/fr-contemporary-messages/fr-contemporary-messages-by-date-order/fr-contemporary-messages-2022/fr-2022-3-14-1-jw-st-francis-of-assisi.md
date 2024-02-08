@@ -21,3 +21,7 @@ Comme Moïse l’a souligné <sup id=”a1”>[1](#f1)</sup>, vos besoins matér
 <small>
 
 1. <large id=”f1”> Se référant à ce message lu précédemment par le groupe de prière : [Nous sommes pourvus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-4-10-2-jw-moses/).[↩](#a1)
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -23,7 +23,21 @@ Vous connaissez tous la différence entre ce que l’on ressent quand on est en 
 
 Je vous souhaite toute harmonie, toute guérison et toute élévation, dans l’amour de Dieu.
 
-Je suis votre frère en chanson, votre ami musicien, Inayat Khan. Que la paix de Dieu soit sur vous et que son amour remplisse vos âmes.
+Je suis votre frère en chanson, votre ami musicien, Inayat Khan.sup id="a2">[2](#f2)</sup> Que la paix de Dieu soit sur vous et que son amour remplisse vos âmes.
 <small>
 
 1. <large id=”f1”> Un frère de l’Amour Divin qui était très malade à l’hôpital.[↩](#a1)
+
+2. <large id="f2"> Hazrat Inayat Khan s'est également exprimé lors des messages suivants [↩](#a21)
+
+**Auteur** | **Titre du message** | **Date du message**  
+--|---|---
+Hazrat Inayat Khan | [Gardez une chanson dans votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-9-1-jw-hazrat-inayat-khan/) | 9 Novembre 2021
+Hazrat Inayat Khan | [Le chant du cœur et la danse de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-2-1-jw-inayat-khan/) | 2 Mai 2022
+Hazrat Inayat Khan | [Amants et bien-aimés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-9-2-jw-inayat-khan/) | 9 Septembre 2022
+Inayat Khan  | [Le chant et la danse Divins](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-20-1-jw-inayat-khan/) | 20 Février 2023
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

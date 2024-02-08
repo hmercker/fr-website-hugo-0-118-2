@@ -16,3 +16,7 @@ Je viens ; je suis Jésus. Je viens vous assurer que notre ami bien-aimé est bi
 Tant de choses viendront nous aider. Le pouvoir de la prière ne va pas seulement à Dieu, mais il se répercute dans l’univers, et de nombreuses âmes qui sont en harmonie et dont les âmes sont éveillées, entendent ces prières et ces appels à l’aide et à la lumière, et elles sont ainsi attirées. Nous sommes extrêmement bénis d’avoir ces amis et d’autres viendront. Âmes bien-aimées, puissions-nous tous être unifiés avec le grand désir et le souhait d’avoir l’harmonie sur la Terre, que l’amour règne en maître dans chaque âme et que la vérité et l’harmonie puissent être vraiment exprimées sur ce plan terrestre.
 
 Que Dieu vous bénisse dans vos efforts pour y parvenir, bien-aimés, bien-aimés frères et sœurs. Je suis toujours avec vous. Dans tout cela, je suis avec vous. Que Dieu vous bénisse, âmes bien-aimées, mon amour est toujours avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

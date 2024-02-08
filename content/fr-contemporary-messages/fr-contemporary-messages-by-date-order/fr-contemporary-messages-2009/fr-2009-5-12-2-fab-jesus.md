@@ -36,6 +36,7 @@ Vous savez que je crois, et que j'enseigne, la plus grande importance des besoin
 Ce que je veux dire, c'est que Dieu se préoccupe beaucoup d'un estomac vide, même si son plus grand intérêt est l'âme.
 
 Et dans cette optique, Dieu est profondément préoccupé par les attitudes qui tuent l'âme et qui ont créé cette disparité, par des individus qui renient leur cœur afin d'amasser de plus grandes richesses.
+
 Mais toute accumulation de richesse n'entre pas dans cette catégorie. Par exemple, si un livre devient un best-seller, ou si une star de cinéma connaît le succès, dans la plupart des cas, il n'y a pas de disparité morale.
 
 Je fais référence aux sociétés et aux individus qui n'ont aucune considération pour la vie humaine dans leur quête incessante de toujours plus de profit. Vous reconnaissez vous-même que ce comportement est pathologique, et c'est exactement ce à quoi je fais référence. Nous sommes donc d'accord.
@@ -50,4 +51,7 @@ Une fois cette attitude en place, le Créateur travaillera par l'intermédiaire 
 
 Le désir d'honorer la vérité attirera les puissances supérieures, qui apporteront alors la connaissance et les conseils à ces âmes sincères.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

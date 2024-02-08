@@ -20,3 +20,7 @@ De cette manière, la Lumière au sein de vos âmes se développera, et les gran
 Vous commencez à exploiter les Lois que Dieu a établies et vous verrez plus clairement ce que cela peut apporter, les fruits de vos travaux, les fruits de votre connaissance, les fruits qui viennent avec l'Amour. Ces choses vous profitent maintenant et vous profiteront grandement à l'avenir. Puissiez-vous considérer vos efforts comme un dévouement d'amour à votre Créateur et à toute l'humanité. Car avec cela en tête, vous atteignez beaucoup et beaucoup en bénéficient.
 
 Dieu vous bénisse, âmes bien-aimées, je suis Seretta Kem. Mon amour est avec vous. Il y a un ange avec chacun d'entre vous et ensemble nous travaillons à l'expansion de ce grand réseau de Lumière et de ces Portails de Lumière qui sont établis dans le monde. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées. Mon amour est avec vous.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

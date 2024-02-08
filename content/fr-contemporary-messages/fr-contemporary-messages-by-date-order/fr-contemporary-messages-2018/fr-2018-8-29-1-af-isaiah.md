@@ -26,3 +26,7 @@ Les anges de Dieu sont avec vous, âmes bien-aimées. La Vérité est évidente 
 **Note du médium :** Ce message était une puissante déclaration d’Isaïe. La puissance spirituelle dans la salle était extraordinaire et les personnes présentes l’ont ressentie vivement. J’espère que le lecteur ressentira également la puissance et la beauté de cette déclaration pour la fin de l’ère des ténèbres provoquée par notre inhumanité les uns envers les autres.
 
 Que vous Dieu bénisse Al Fike.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

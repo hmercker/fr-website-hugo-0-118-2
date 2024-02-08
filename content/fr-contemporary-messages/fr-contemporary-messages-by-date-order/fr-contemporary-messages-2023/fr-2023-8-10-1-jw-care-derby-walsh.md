@@ -24,3 +24,7 @@ Que Dieu vous bénisse. Je suis Care.
 
 1. <large id=”f1”> En référence à Robert J Lees (Gate of Heaven – Les portes du Ciel) et au livre Judas de Kerioth (reçu par H.R)
 .[↩](#a1)
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

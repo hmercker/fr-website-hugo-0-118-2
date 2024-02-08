@@ -33,4 +33,6 @@ Quelle est l’importance de ce don ? Et combien il est nécessaire que vous com
 
 Oui, la vie n’est pas facile. Il y a beaucoup, beaucoup d’aspects de la vie qui défient chacun d’entre vous, et il y a beaucoup de gens autour de vous qui vous défient, et il y a beaucoup de besoins dans ce monde, un grand besoin et un désir de puiser en vous. Mes frères, mes frères et sœurs, écoutez mes paroles et comprenez que vous êtes vraiment aimés. Vous êtes vraiment aimés. Dans la grâce, dans la beauté, dans la paix de l’Amour de Dieu. Que Dieu vous bénisse.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015)
+### [**Lien vers les messages des années 2015**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -11,7 +11,7 @@ weight:
 
 James Padgett - reçu par Al Fike le 4 Octobre 2022, Menifee, CA, USA.
 
-Je suis James Padgett. J’étais avec vous lorsque vous parliez de la Vérité de Dieu et de l’Amour divin, et que vous souhaitiez ardemment que le monde connaisse ces vérités. Mais en effet, avec le temps, le monde saura, et chacun de nous a été un maillon de cette chaîne, une partie du plan de Dieu pour le salut de l’humanité.
+Je suis James Padgett.<sup id="a1">[1](#f1)</sup> J’étais avec vous lorsque vous parliez de la Vérité de Dieu et de l’Amour divin, et que vous souhaitiez ardemment que le monde connaisse ces vérités. Mais en effet, avec le temps, le monde saura, et chacun de nous a été un maillon de cette chaîne, une partie du plan de Dieu pour le salut de l’humanité.
 
 Nous avons fait notre part, n’est-ce pas ?  Bien et conformément à la Volonté de Dieu, vous et moi et beaucoup d’autres continueront ce voyage, ce grand effort pour ouvrir la porte de la vérité à l’humanité.
 
@@ -46,3 +46,10 @@ Que Dieu nous bénisse tous dans ce grand voyage d’amour et d’éveil et de g
 Que Dieu vous bénisse, mes amis. Je vous reconnais pour vos efforts, votre beauté et vos dons, et ils vont croître et s’étendre. Vous serez surpris de ce qui pourrait venir de vous et à travers vous dans les années à venir. Que Dieu vous bénisse et vous aide à surmonter tous les obstacles à cela, afin que vous puissiez vraiment rechercher la vérité sans être encombrés par la condition humaine. Soyez clairs, vrais et lumineux en vous-mêmes afin que vos âmes puissent s’épanouir dans l’amour.
 
 Que Dieu vous bénisse, mes amis. Je suis James Padgett. Mon amour pour chacun de vous est si fort, et pour ces belles âmes qui sont vos hôtes, mon amour est grand, et sachez que je suis proche, tout comme Helen. Nous sommes proches de vous, âmes bien-aimées. Ne doutez jamais de cela, mais ayez la foi qu’un jour vous aurez un rapport très étroit avec nous, de sorte qu’en effet, il n’y ait pas d’hésitation ou de doute, mais un grand but et une concentration sur le service de Dieu. Que Dieu vous bénisse. Mon amour est avec vous tous. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> L'ensemble des messages communiqués par James Padgett  est disponible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-12-fr-family-and-friends-of-james-padgett/)[↩](#a1) 
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

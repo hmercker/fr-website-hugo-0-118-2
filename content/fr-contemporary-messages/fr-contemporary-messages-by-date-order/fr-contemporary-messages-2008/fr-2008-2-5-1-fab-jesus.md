@@ -36,4 +36,6 @@ St Luc | [Luc s’exprime sur la déchéance et l’évolution de l’homme – 
 
 Ce sujet concernant l'évolution est complexe et fait l'objet [d'une section séparée](/9-fr-topical-subjects/9-6-fr-evolution-or-creation/).
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

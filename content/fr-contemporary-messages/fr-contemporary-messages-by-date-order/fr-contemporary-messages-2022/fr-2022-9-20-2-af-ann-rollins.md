@@ -24,3 +24,10 @@ Je vous exhorte, mes amis bien-aimés, à parler à vos frères et sœurs et à 
 Comme nous sommes bénis, mes amis, dans ce voyage si magnifique. Comme nous serons bénis alors que ce voyage nous transporte à travers toute l’éternité, grandissant dans la joie, grandissant dans l’amour, grandissant dans la vérité, grandissant dans toutes les choses qui sont de Dieu. Ainsi nous continuerons ensemble, la grande famille de la Vérité et de l’Amour de Dieu. Nous sommes donc frères et sœurs dans ce voyage.
 
 Que Dieu nous bénisse tous profondément avec ce cadeau. Puissions-nous continuer à partager notre joie et notre vérité avec les autres et être dans la grâce de Dieu, toujours. Mes amis bien-aimés, sachez que je prie pour vous et que parfois je marche avec vous, et que je continuerai à faire tous les efforts possibles pour alléger votre charge et vous aider sur le chemin vers une plus grande lumière, une plus grande vérité et un plus grand amour. Je suis votre amie, je suis avec vous, je suis Anne Rollins et je vous aime. Chacun d’entre eux est une âme précieuse sur le chemin de l’union avec Dieu. Que Dieu vous bénisse, mes amis bien-aimés, que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> L'ensemble des messages communiqués par Anne Rollins est disponible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-12-fr-family-and-friends-of-james-padgett/)[↩](#a1) 
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -27,3 +27,7 @@ Avec tout mon amour et mes bénédictions, je suis votre frère et ami éternel 
 1. <large id=”f1”> Rosh Hashanah est le Nouvel An Juif.[↩](#a1)
 
 2. <large id=”f2”> Egalement appelé « High Holy Days ».[↩](#a2)
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

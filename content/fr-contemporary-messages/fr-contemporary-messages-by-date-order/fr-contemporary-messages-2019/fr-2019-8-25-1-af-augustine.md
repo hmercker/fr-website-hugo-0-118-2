@@ -20,3 +20,7 @@ C’est un cadeau qui vient et vous apporte une connaissance complète et vraie.
 Vous devez aller de l’avant, âmes bien-aimées. Allez de l’avant avec vos efforts, vos désirs et vos prières afin que ces avenues puissent être ouvertes, afin que vous puissiez comprendre les complexités de la Création de Dieu et être guidées par la Sagesse et la Volonté de Dieu. De cette façon, Dieu pourra vous utiliser de nombreuses façons pour bénir l’humanité, pour être une vraie et belle Lumière dans ce monde. Recherchez ce don d’Amour et tout suivra à sa place et vous serez profondément béni. Vous ressentirez une grande joie. Vous saurez au-delà de la connaissance. Vous verrez au-delà de la vision et vous aimerez énormément. Comme un grand océan, cet amour se déversera et coulera à travers vous.
 
 Que Dieu vous bénisse dans ce voyage, âmes bien-aimées. Puissiez-vous en venir à réaliser ces choses que je vous implore de faire et d’être comme Dieu nous bénit tous dans ce voyage d’éveil de l’âme. Que Dieu vous bénisse. Je suis votre professeur Augustin et mon amour est avec vous tous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

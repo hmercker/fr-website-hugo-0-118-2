@@ -15,4 +15,7 @@ C’est moi, Jésus.
 
 Ce que nous avons dit par l’intermédiaire de M. Padgett, nous vous l’avons dit maintes fois, et nous le répétons aujourd’hui : nous formons une armée puissante contre les forces des ténèbres, et nous réussirons. Rien ne peut nous résister.
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/)
+### [**Lien vers les messages des années 2011**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

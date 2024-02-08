@@ -32,3 +32,7 @@ Dans le cœur de chaque âme, il y a un désir de Lumière. Vous devez continuer
 **Jésus :**
 
 Puissiez-vous continuer à trouver votre chemin dans la Lumière, mes bien-aimés. L'obscurité n'éteindra pas la Lumière. Vous serez portés et guidés, toujours protégés. Ne craignez pas les puissances du mal, mais avancez dans la foi et la prière, la Lumière et l'Amour, alors que Dieu continue à vous réveiller, et que Sa Lumière continue à briller. Vous êtes accompagnés par les anges qui marchent avec vous. Vous continuez à voir plus clairement les vérités et à vous débarrasser de vos erreurs, de vos esprits et de vos âmes. C'est la puissance de l'Amour de Dieu qui vous portera en avant. Que Dieu vous bénisse puissamment, mes bien-aimés, et vous transporte dans la lumière du jour où tout est clair et où l'amour abonde. Que Dieu vous bénisse. Je suis Jésus, que Dieu vous bénisse. (Jésus)
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

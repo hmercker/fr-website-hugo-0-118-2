@@ -30,3 +30,7 @@ Nous devons tous prier pour le monde et travailler ensemble comme des lumières,
 Vous pouvez être utilisés comme un canal pour que ces énergies soient dispersées dans le monde. De bien des façons, vous pouvez être des canaux d’amour, des instruments de la volonté de Dieu. Ce n’est ni difficile ni compliqué. Cela demande simplement que vous continuiez à être élevés et bénis et en alignement avec les forces de la lumière, que vos âmes puissent grandir dans l’amour, que vous puissiez marcher dans la paix et la joie, dans la vérité et dans la lumière. Puissiez-vous vivre une vie aussi simple, une vie centrée sur la lumière, une vie qui donne dans l’amour.
 
 Que Dieu vous bénisse. Je suis votre ami André et je vous aime. Mes prières sont avec vous. Que Dieu vous bénisse. Que Dieu vous bénisse tous.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

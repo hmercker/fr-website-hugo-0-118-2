@@ -20,3 +20,7 @@ Comme je l’ai dit dans mon dernier message, à travers celui-ci, faites du mon
 Je vous encourage tous à en faire la priorité dans votre vie et à vous souvenir de ce que le Maître Jésus a dit : *« Cherchez d’abord le Royaume des Cieux et tout le reste vous sera donné. »* Comme c’est vrai. Gardez cela dans vos cœurs. Permettez à vos âmes de recevoir l’amour de Dieu dans tout ce que vous faites. De cette façon, vous serez une bénédiction pour tous, où que vous soyez, quoi que vous fassiez, avec qui que ce soit. Les mots ne sont pas nécessaires lorsque vous êtes en communion avec le Père Céleste. Laissez sa lumière et son amour briller à travers votre âme. Je vous le dis, soyez un cadeau, soyez un cadeau pour tous, soyez un cadeau les uns pour les autres comme vous êtes en ce moment. Comme Dieu vous donne le don de l’Amour, l’Amour de Dieu dans votre âme, que ce soit votre don à Dieu et au monde.
 
 Nous sommes avec vous dans ce voyage. Oui, il y a beaucoup de lumière dans ce lieu. Quelle bénédiction. Nous allons rester un peu plus longtemps avec vous aujourd’hui et nous serons avec vous plus tard dans la prière avec vos amis. Nous vous aimons. Que Dieu vous bénisse. Je suis Yogananda. Je vous aime. Dieu vous aime.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

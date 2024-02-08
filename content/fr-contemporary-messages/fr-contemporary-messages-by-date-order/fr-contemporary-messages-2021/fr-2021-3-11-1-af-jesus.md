@@ -90,3 +90,7 @@ Les enfants de Dieu sont pris en charge, guidés et conduits sur un chemin vers 
 Que Dieu vous bénisse dans ce voyage, âmes bien-aimées. Il vous sera donné toutes les opportunités de marcher avec la Volonté et le plan de Dieu. Il sera pourvu à vos besoins. Il sera pourvu aux besoins de vos familles et de vos proches. Vous connaîtrez la paix au milieu du chaos. Vous aurez la sagesse nécessaire pour suivre la route que Dieu a tracée. Vous aurez la perspicacité, la force et la compassion nécessaires pour diriger vos frères et sœurs et leur enseigner Sa Vérité. Tout viendra au moment et dans le flux de Sa volonté pour l'humanité.
 
 Nous sommes avec vous, âmes bien-aimées. Nous sommes vraiment avec vous. Nous nous rapprocherons de plus en plus, selon les besoins. Beaucoup sera donné à ceux qui souhaitent suivre le chemin de la transformation, du changement, de la vérité, de l'harmonie, de l'amour. Que Dieu vous bénisse, mes bien-aimés. Je suis votre frère et votre ami, Jésus. Que Dieu vous bénisse. Passez une bonne journée.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -16,3 +16,7 @@ Je m’appelle Goldie. *[chantant]* Y a-t-il du soleil dans votre âme aujourd�
 Ce soleil vous réchauffe où que vous alliez et Dieu vous apporte de la joie avec Son Amour. Il y a du soleil ici dans votre cercle et vous le mettez au monde. Assurez-vous de laisser votre âme briller. Assurez-vous que vous savez qu’en vous se trouve une grande joie, une belle Lumière pour être plus brillante et plus belle demain et le lendemain et le suivant. Avec cette joie et cette Lumière, quelles que soient les conditions que vous rencontrerez, vous connaîtrez un si beau sentiment de plénitude et de joie. Le soleil, mes amis, est en vous. Qu’il en soit toujours ainsi.
 
 Je vous aime et j’aime chanter avec vous. Que Dieu vous bénisse. Je suis Goldie.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

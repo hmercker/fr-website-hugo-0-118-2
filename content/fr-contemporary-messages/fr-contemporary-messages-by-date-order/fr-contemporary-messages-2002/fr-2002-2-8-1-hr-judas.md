@@ -71,8 +71,10 @@ Ton frère Céleste, Judas.
 
 ![title](/3-fr-judas-of-kerioth-messages/fr-simon_small.jpg)
 
-    Simon
+    # **Simon**
 
 © Geoff Cutler 2013
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)
+### [**Lien vers les messages des années 2002**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

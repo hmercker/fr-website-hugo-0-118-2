@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous allez remplir votre mandat de canal de l’Amour chez moi
 
-Frère Mandus Nyquist - reçu par Al Fike le 27 Juin 2016, Gibsons, Colombie-Britannique, Canada.
+Frère Mandus Nyquist<sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 27 Juin 2016, Gibsons, Colombie-Britannique, Canada.
 
 Je suis le Frère Mandus et je viens à cause de ma fille, de votre service à ma maison et à cause de toutes vos connexions et désirs de servir à travers ce canal dans cet endroit lointain. Et je viens pour vous rassurer que la porte reste toujours ouverte pour que Dieu travaille à travers vous tous pour apporter la Lumière à mon pays, pour apporter la Vérité de l’Amour de Dieu dans les salles et les couloirs de cet endroit. Oui, la porte reste ouverte bien que dans vos têtes vous voyez beaucoup d’obstacles et de jugements dirigés vers vous, vers vous tous. Je dirais que le temps approche rapidement où les tables seront retournées et cette porte qui est ouverte vous permettra de passer à travers et d’y faire le travail de Dieu.
 
@@ -28,3 +28,18 @@ Mes amis, je suis heureux. Je vois les possibilités. Je comprends maintenant be
 Merci de m’avoir permis de parler. Je suis heureux que cet instrument ait su que je souhaitais le faire avant que vous ne vous réunissiez pour prier. Nous continuerons à forger ces liens et oui, ma fille, toi et moi avons eu de nombreuses conversations en esprit concernant l’avenir, tout comme cet instrument et vous tous. Ne vous sentez-vous pas tous poussés, avec le sentiment que vous serez là, dans cette grande maison, à travailler pour la Lumière ? Je vous le dis, ce n’est pas une simple fantaisie. C’est et ce sera la vérité. Ne sous-estimez pas le pouvoir de la volonté de Dieu. Ressentez dans vos âmes la joie de le savoir et ne laissez pas vos esprits contrecarrer et contredire ce que vos âmes savent. Soyez patients et humbles, priants, sachant que la volonté de Dieu se manifestera en temps voulu.
 
 Dieu vous bénisse, je suis Mandus Nyquist et je suis un habitant des Royaumes Célestes et je suis tellement heureux que de si belles âmes souhaitent franchir le seuil et faire ce travail, le poursuivre dans l’avenir, un avenir plein de promesses, de changements et de Lumière. Que Dieu vous bénisse. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> Frère Mandus Nyquist s'est également exprimé dans les messages suivants : [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Frère Mandus Nyquist | [Une description de l’âme et de sa nature durable](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-8-27-1-af-brother-mandus/) | 27 Août 2016
+Frère Mandus Nyquist | [La porte de la grâce de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-10-1-jw-brother-mandus/) | 10 Octobre 2020
+Frère Mandus Nyquist | [Continuez à prier pour que la volonté de Dieu prévale à WHC – Ne perdez pas espoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-9-2-af-brother-mandus/) | 9 Mai 2022
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+

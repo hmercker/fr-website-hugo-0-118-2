@@ -28,3 +28,7 @@ Priez et priez encore. Faites-en l’effort de votre vie, pour vous rapprocher t
 Vous êtes aimés. Vous êtes guidés, et vous servirez, vous servirez Dieu de façon merveilleuse. Que Dieu vous bénisse, âmes bien-aimées. Je suis Andrew et je vous aime, précieuses, belles âmes. Je vous aime.
 
 Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -25,3 +25,7 @@ Que Dieu vous bénisse, âmes bien-aimées. Je suis Augustin, jadis évêque d�
 <small>
 
 1. <large id=”f1”> Il s’agit d’un portail temporaire. Normalement, nous traitons des portails permanents, c’est donc une occasion à noter.[↩](#a1)
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

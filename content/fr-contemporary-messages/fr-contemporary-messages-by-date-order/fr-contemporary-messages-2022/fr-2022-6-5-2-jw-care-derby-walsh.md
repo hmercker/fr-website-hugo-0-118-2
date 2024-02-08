@@ -22,3 +22,7 @@ Nous voyons vos âmes s’épanouir à chaque prière, alors que vous marchez da
 Alors, ayez la foi et la confiance que toutes ces choses que vous avez demandées seront réalisées au temps de Dieu. Que tous vos rêves deviennent réalité sur ce chemin d’Amour Divin que nous sommes avec vous.
 
 Je vous remercie de m’avoir permis de passer et je remercie mes bien-aimés d’avoir accepté ce message. J’embrasse chacun d’entre vous avec tout l’amour de mon cœur et de mon âme. Je suis votre ami éternel dans l’amour de Dieu. Je suis Care.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

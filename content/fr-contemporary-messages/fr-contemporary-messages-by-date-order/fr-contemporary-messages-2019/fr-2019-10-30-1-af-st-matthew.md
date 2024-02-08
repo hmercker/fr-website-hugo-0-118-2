@@ -40,3 +40,7 @@ Tant de choses vous attendent, mes chers frères et sœurs. Tant de choses sont 
 Ce don révèle tout. Cette bénédiction enlève tout ce qui n’est pas en harmonie avec Dieu et amène l’âme à Dieu dans une joyeuse réunion et communion avec le Créateur de tout, la Source de tout, la grande Source de l’Amour. Vous avez donc un voyage devant vous, comme vous le savez bien, mais chaque âme qui s’embarque dans ce voyage avec foi, qui cherche ce grand don d’Amour, qui persiste et continue à permettre aux qualités transformatrices de cet Amour de dissoudre tout ce qui n’est pas de l’amour, trouvera son chemin et découvrira les aspects merveilleux de sa propre âme étincelant dans la Lumière de Dieu, un beau joyau de la Couronne de Dieu, une belle fleur de Son jardin. Cet Amour fera naître toutes vos qualités uniques, toute la beauté et l’émerveillement de votre âme.
 
 Que Dieu vous bénisse, âmes bien-aimées, dans ce voyage. Nous continuons à vous accompagner. Quel plaisir nous avons à voir vos âmes émerger et sa lumière et sa luminosité étinceler dans le firmament de Dieu. Que Dieu vous bénisse profondément, âmes bien-aimées, et vous réveille pleinement. Que Dieu vous bénisse. Je suis Matthieu.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

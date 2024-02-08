@@ -28,4 +28,7 @@ Il y avait déjà eu des tentatives pour mettre en évidence les incohérences d
 
 1. <large id="f1"> Très malheureusement, Mark s’est retiré de tout contact public et, à notre connaissance, son livre n’a jamais été terminé. Personne n’est en contact avec lui à ma connaissance. Il a laissé son nom de domaine expirer et son site web a disparu.[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

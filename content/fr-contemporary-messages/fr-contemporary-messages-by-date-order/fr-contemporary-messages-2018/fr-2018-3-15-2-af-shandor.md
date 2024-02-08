@@ -36,3 +36,7 @@ Beaucoup travaillent pour vous aider, mes amis. Vous n’êtes pas surpris que c
 Puissiez-vous être forts sur votre chemin, mes amis. Puissiez-vous avoir la perspicacité et l’Amour en vous pour aider à réaliser cette joyeuse révolution de l’âme. Le monde a besoin de vous, mes amis, et le monde a besoin de beaucoup plus comme vous. N’abandonnez pas la lutte, mais continuez avec des intentions claires. Soyez forts dans la Lumière et sachez que Dieu est sûrement avec vous, car Dieu est avec tous ceux qui s’efforcent d’apporter la Lumière et de vivre dans la Lumière.
 
 Que Dieu vous bénisse, âmes bien-aimées. Ensemble vous êtes une belle Lumière, une Lumière qui perce dans l’univers et qui est vue. Vos efforts sont vus, et reconnus, et donnent de l’espoir à tous ceux qui sont conscients de vos luttes dans ce monde. Nous continuerons à vous soutenir et à travailler avec vous pour être en plus grande harmonie et Lumière. Que Dieu vous bénisse. Je suis Shandor, un ami de la Terre. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

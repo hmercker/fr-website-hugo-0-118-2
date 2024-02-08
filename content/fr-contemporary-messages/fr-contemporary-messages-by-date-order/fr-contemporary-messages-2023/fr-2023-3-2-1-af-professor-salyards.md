@@ -20,3 +20,7 @@ Je vous invite à continuer à approfondir et à rechercher les conseils de Dieu
 Que Dieu vous bénisse dans ces efforts. Puissiez-vous parvenir à connaître votre rôle au sein de ces efforts et à être véritablement en harmonie avec la Volonté de Dieu, car c’est là que la joie viendra, c’est là que les idées afflueront, c’est là que les ressources s’ouvriront à vous et que les fenêtres d’opportunité seront abondantes et abondamment claires.
 
 Que Dieu vous bénisse, âmes bien-aimées, avec l’afflux de Son grand Amour qui est l’étincelle qui enflamme tout ce dont je parle. Et puissiez-vous continuer à vous éveiller à ces choses, âmes bien-aimées, à vous éveiller vraiment. Que Dieu vous bénisse. Je suis le Professeur Salyards, mon amour est avec vous, mon cœur est avec vous, mes prières sont avec vous. Que Dieu vous bénisse. Que Dieu vous bénisse, mes amis, toujours dans la lumière de l’Amour de Dieu, toujours à la recherche de la vérité, toujours à la recherche de servir Dieu dans la vérité de Son Amour, dans la Lumière de Sa Volonté. Que Dieu vous bénisse. Que Dieu vous bénisse tous. Mon amour est avec vous. Mon amour est avec vous.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

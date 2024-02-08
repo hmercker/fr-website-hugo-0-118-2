@@ -84,3 +84,7 @@ Puissiez-vous vivre une vie remplie d’amour. Puissiez-vous connaître la grand
 Ayez foi en vous, mes chers. Ayez une véritable compréhension de votre nature, de qui et de ce que vous êtes. Apprenez à connaître Dieu. Venez voir Dieu comme le grand Père aimant qu’il est, qui vient chaque jour pour vous soutenir, vous élever, vous nourrir et vous guider dans ce voyage d’éveil, d’adoration, d’expression véritable des potentiels qui ont été mis en vous depuis le début.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je vous remercie d’avoir écouté mes paroles, d’être avec moi sur ce voyage que nous avons entrepris ensemble, d’être au sein de ce grand flux de lumière, d’amour et de vérité. Puissions-nous nous rencontrer à nouveau, mes bien-aimés, et vraiment communier et considérer les voies de Dieu. Que Dieu vous bénisse, mes chers. Je suis avec vous pour toujours. Je ne vous quitterai jamais. Vous êtes mon frère. vous êtes ma sœur. Nous sommes ensemble dans le voyage vers l’union avec Dieu. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

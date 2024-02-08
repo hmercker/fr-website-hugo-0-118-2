@@ -19,4 +19,6 @@ Pour nous, Anges Célestes, nous ne mettons pas un nom ou une étiquette sur les
 
 La clarté viendra à la suite d'une meilleure compréhension du plan de Dieu.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

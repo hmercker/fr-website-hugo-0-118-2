@@ -30,3 +30,7 @@ Ainsi, âmes bien-aimées, votre amie et enseignante, Fleur de Lotus, continuera
 Lumière - éclatante - qui brille. Amour - pur - apportant chaleur et confort à ce monde. Vérité - claire - apportant une voie à travers les dilemmes de ce monde. La force - puissante - qui vous permet d'aller de l'avant et de réaliser votre objectif dans ce monde. La grâce - belle - pour que vous puissiez circuler avec aisance dans les conditions de ce monde. La paix - profonde - pour que ces conditions ne vous gênent pas lorsque vous agissez dans l'amour.
 
 Dieu est avec vous, mes bien-aimés, Dieu est avec vous. Cherchez-le à chaque respiration, soyez avec lui à chaque pas, reconnaissez-le à chaque pensée et rendez-lui hommage en vous aimant vous-mêmes et en aimant tout ce qui existe dans ce monde. Dieu vous bénit, Fleur de Lotus vous aime, Fleur de Lotus vous aime vraiment. Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

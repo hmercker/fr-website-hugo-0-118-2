@@ -11,7 +11,7 @@ weight:
 
 John Wesley - reçu par Al Fike le 5 Novembre 2018, Gibsons, Colombie-Britannique, Canada.
 
-Je suis John Wesley et je suis heureux que cet individu ait accepté ma présence et soit capable de prononcer les mots que je souhaite transmettre. Je suis maintenant un habitant du Royaume Céleste. Cependant, pour y parvenir, j’ai dû changer beaucoup de mes attitudes et de mes idées et les reconstruire dans la Vérité de l’Amour Divin. Cela arrive à beaucoup d’entre nous qui passent en esprit. Nous devons tout repenser car les plans spirituels sont si différents, et les options et les possibilités de la vie sont considérablement élargies dans ces plans d’existence supérieurs.
+Je suis John Wesley<sup id="a1">[1](#f1)</sup> et je suis heureux que cet individu ait accepté ma présence et soit capable de prononcer les mots que je souhaite transmettre. Je suis maintenant un habitant du Royaume Céleste. Cependant, pour y parvenir, j’ai dû changer beaucoup de mes attitudes et de mes idées et les reconstruire dans la Vérité de l’Amour Divin. Cela arrive à beaucoup d’entre nous qui passent en esprit. Nous devons tout repenser car les plans spirituels sont si différents, et les options et les possibilités de la vie sont considérablement élargies dans ces plans d’existence supérieurs.
 
 J’avais une grande ambition, de fortes opinions et un grand désir de conduire mes frères vers une plus grande vérité et compréhension de la Bible, de Jésus et de Dieu. Mais hélas, mon plus grand effort et mon plus grand succès ont consisté à créer de nombreux édits et idées morales pour un mode de vie correct dans votre monde. Ce n’est pas tout à fait un échec, car j’ai influencé de nombreuses personnes qui ont adhéré au mouvement méthodiste et les ont amenées à un comportement correct dans ce monde. Moi aussi, j’ai été influencé par les anges, par Dieu, par mes prières et mes efforts pour vraiment comprendre.
 
@@ -40,3 +40,12 @@ Mes amis, vous avez de nombreux amis dans le ciel, vous êtes observés par beau
 Puissiez-vous aller de l’avant mes amis et continuer à servir Dieu comme vous l’avez fait et continuer à le faire avec un plus grand engagement et une plus grande intensité, afin que vous puissiez affecter le changement dans ce monde qui aura ses effets durables et ses conséquences pour apporter une plus grande lumière. Vous détenez un grand pouvoir en vous et une grande vérité. Puissiez-vous partager cette richesse avec vos frères et sœurs et marcher dans la grâce, l’amour et la joie avec une certitude et une clarté, une force et une humilité qui vous vaudront le respect et l’écoute des autres pour ce que vous avez à dire.
 
 Que Dieu vous bénisse, mes amis. Je suis John Wesley et je continuerai à être avec vous, à vous soutenir de toutes les manières possibles, car en tant qu’habitant du Royaume céleste, j’ai la bénédiction et le privilège de servir l’humanité dans sa lutte pour s’élever et être pure dans la lumière des lois et de l’amour de Dieu. Je vous sers donc, mes amis, et je sers tous ceux qui sont prêts à travailler à ces fins. Que Dieu vous bénisse. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> John Wesley s'est également exprimé dans les messages suivants :  [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+John Wesley | [Le rôle de la voix directe dans l'éveil de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-20-1-af-john-wesley/) | 20 Mai 2018
+John Wesley | [Toute vérité commence avec l’âme éveillée dans l’amour – Retraite F.U.S.C.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-9-2-af-john-wesley/) | 9 Juin 2018
+John Wesley | [Il est temps d’apporter la vérité à l’humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-22-1-af-john-wesley/) | 22 Août 2021

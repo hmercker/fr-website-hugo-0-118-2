@@ -48,3 +48,7 @@ Mes amis bien-aimés, qui êtes vraiment impatients, puissiez-vous connaître un
 Mon amour est avec vous, mes amis. Je suis Michael Collier. Je continue à m’intéresser à vos efforts et à vos désirs de servir Dieu. Ainsi, je suis venu pour aider à élucider ce pour quoi vous priez et ce que vous devez devenir, afin de vraiment accomplir votre but et votre désir de l’âme. Que Dieu vous bénisse, mes amis. Que Son Amour trouve un afflux constant dans vos âmes. Puissiez-vous rechercher ce don à chaque respiration.
 
 Ainsi le voyage continue et l’éveil se déroule dans l’amour et la lumière, la beauté de la vérité, la puissance et la force des bénédictions de Dieu à travers vous. Il en sera ainsi conformément à vos désirs, un reflet de vos efforts, un déploiement de votre âme grandissant dans l’Amour. Que Dieu vous bénisse, mes amis. Que Dieu vous bénisse. Mon amour est avec vous, ma prière est constante. Sachez que vous êtes toujours aimés. Merci.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

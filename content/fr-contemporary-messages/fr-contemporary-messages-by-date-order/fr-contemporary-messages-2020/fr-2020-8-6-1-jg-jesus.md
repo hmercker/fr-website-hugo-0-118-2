@@ -28,3 +28,7 @@ Il y a de l’amour qui attend chacun. Un amour sacré. Un amour du plus haut ni
 Venez à Dieu, vous tous. Tournez-vous vers la Lumière. Demandez Ses bénédictions. Demandez-lui de vous pardonner. Demandez à être montré le chemin de la rédemption de votre âme. Demandez et recevez. C’est la loi.
 
 Je suis Yeshua et je connais le chemin.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

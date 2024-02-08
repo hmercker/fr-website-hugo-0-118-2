@@ -39,4 +39,6 @@ De votre point de vue, cela prend beaucoup de temps. Mais nous pouvons voir que 
 
 Je t’aime et apprécie l’opportunité d’exprimer mes pensées de cette façon. Je suis ton ami et ton frère dans l’Esprit de l’Amour de Dieu, Jean de l’Amour, Apôtre de Jésus, et un adepte de ses enseignements.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)
+### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

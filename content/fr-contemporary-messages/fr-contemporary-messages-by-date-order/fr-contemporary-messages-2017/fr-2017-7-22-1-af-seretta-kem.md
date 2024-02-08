@@ -43,3 +43,7 @@ Alors, mes bien-aimés, j'ai assez parlé. Que Dieu vous bénisse, mes âmes bie
 <small>
 
 1. <large id="f1"> Être indifférent à.[↩](#a1)
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

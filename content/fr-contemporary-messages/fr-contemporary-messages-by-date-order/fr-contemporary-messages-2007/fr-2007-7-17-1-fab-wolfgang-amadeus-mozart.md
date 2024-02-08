@@ -21,4 +21,6 @@ Ce que j’ai voulu dire, c’est qu’il s’agissait d’une distorsion, d’u
 
 Puisque j’étais à ma manière dévot, je sentais qu’une certaine qualité réservée de savoir-vivre était appropriée dans de nombreuses situations sociales. Je pouvais donc être timide et extraverti, selon la situation. Par « timide », j’ai voulu dire, me retenant.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

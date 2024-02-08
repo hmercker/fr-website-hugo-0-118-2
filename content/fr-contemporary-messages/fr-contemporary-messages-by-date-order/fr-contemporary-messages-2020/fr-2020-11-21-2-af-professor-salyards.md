@@ -24,3 +24,7 @@ Soyez en paix, mes amis bien-aimés, soyez en paix et sachez que tout se déroul
 Ainsi, le déroulement de votre parcours n’est pas à planifier, mais plutôt à répondre par la reconnaissance et le désir de faire partie du parcours voulu par Dieu plutôt que par vous. Bien qu’il soit toujours nécessaire de planifier et d’exposer vos intentions dans ce monde matériel, n’oubliez pas que sous le placage de ces choses se trouve une grande et puissante force qui vous fera avancer et vous amènera là où vous êtes censé être et que les expressions de vos efforts seront en accord avec la volonté de Dieu.
 
 Que Dieu vous bénisse, âmes bien-aimées, dans ce beau voyage de la vie, afin que vous en veniez à connaître des choses merveilleuses, que vos âmes connaissent la joie d’être vraiment aimées de Dieu, reconnues par Dieu, que vos âmes soient l’accomplissement du grand don de Dieu qu’est votre âme. La grande intention de Dieu qui est l’éveil de votre âme, la transformation de votre âme, la réalisation du pouvoir de votre âme d’aimer, d’être aimée, et d’être dans la vérité de l’amour. Que Dieu vous bénisse, mes chers. Je suis votre professeur Salyards et je suis très satisfait de vos efforts, très satisfait en effet. Que Dieu vous bénisse. Que Dieu vous bénisse, mes amis.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

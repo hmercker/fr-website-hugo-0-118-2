@@ -15,4 +15,8 @@ C’est moi, Claire. Je viens dans ce cercle de lumière, et je ne souhaite pas 
 
 Tous ceux qui souhaitent s’élever sur l’échelle de l’amour sont élevés. Ce cercle de lumière est un joyau dans la couronne de la prière. Alors que les désirs de vos âmes se tendent comme autant de bras levés vers les cieux, permettez à vos cœurs de s’ouvrir. Permettez à vos âmes de recevoir. Comme le dit le proverbe *« cherchez d’abord le royaume des cieux et tout vous sera donné. »* Même si vous avez des vies bien remplies, avec de nombreux centres d’intérêt et toutes sortes de choses matérielles dont il faut s’occuper, lorsque vous venez prier, lorsque vous vous réunissez, je vous demande de vous souvenir de ces mots.
 
-Que l’Amour de Dieu soit avec vous sur ce chemin que nous parcourons ensemble. Je suis avec vous, comme beaucoup d’autres, et je vous aime. Je suis votre sœur, votre amie et votre guide dans les cieux célestes, une âme transformée dans le Christ. Je suis Claire d’Assise.
+Que l’Amour de Dieu soit avec vous sur ce chemin que nous parcourons ensemble. Je suis avec vous, comme beaucoup d’autres, et je vous aime. Je suis votre sœur, votre amie et votre guide dans les cieux Célestes, une âme transformée dans le Christ. Je suis Claire d’Assise.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

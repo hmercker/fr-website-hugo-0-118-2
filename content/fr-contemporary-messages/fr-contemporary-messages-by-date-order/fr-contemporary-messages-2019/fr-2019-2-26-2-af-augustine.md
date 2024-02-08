@@ -22,3 +22,7 @@ Il y a beaucoup à faire pour chacun d’entre vous et chacun d’entre vous doi
 A bien des égards, vos instruments viennent juste de commencer, sont juste ouverts. Dans cette ouverture, il y aura beaucoup plus qui viendra. Vous venez de briser et de fissurer la coquille de la chrysalide, émergeant comme de magnifiques papillons. Ceci, nous et Dieu, l’avons attendu pendant de nombreuses années. Nous sommes exaltés de voir quels beaux motifs émergent sur vos ailes, comment vous voltigez magnifiquement dans la lumière de l’Amour de Dieu et la lumière sur beaucoup, les touchant avec la magie de votre belle âme et le flux d’Amour de Dieu à travers vous.
 
 Que Dieu vous bénisse, mes bien-aimés, et vous garde toujours dans Sa Lumière. Nous sommes avec vous. Que Dieu vous bénisse. Je suis votre maître et votre ami, Augustin, évêque d’Hippone, ami de tous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

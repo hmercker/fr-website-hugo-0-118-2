@@ -38,3 +38,7 @@ Ainsi, âmes bien-aimées, ceci peut être votre destin, étant donné votre cho
 Je vous dis donc, mes amis, que Dieu vous bénisse profondément de son amour. Puissiez-vous porter haut la flamme de la vérité en déclarant à l’humanité : « Voici l’avenir. C’est ce qui doit être dans notre monde. Le pouvoir de l’amour fera avancer l’humanité. » Puissiez-vous vraiment savoir cela au sein de vos âmes, mes amis, et en venir à reconnaître que vous êtes arrivés sur la plus haute et la plus puissante des vérités qui apportera des résultats qui sont difficiles à imaginer pour vous en ce moment, mais qui arrivent. Cela va vraiment venir. Cela doit venir. Car l’humanité en a grand besoin. L’humanité doit se tourner vers la lumière et tous les efforts du ciel sont dirigés vers ceux qui sont prêts à tourner leur visage vers la lumière et vers leur créateur.
 
 Vous êtes profondément bénis, mes amis, profondément bénis. Puissiez-vous continuer à être ouverts, à recevoir ces grandes bénédictions et ces cadeaux d’en haut. Que Dieu vous bénisse, mes amis. Je suis Seretta Kem. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -20,3 +20,7 @@ Vos âmes cherchent cela, mes bien-aimés. Vos âmes cherchent à être dans le 
 Chacun de vous suit un chemin différent. Chacun de vous voit le monde différemment, mais ensemble vous avez une grande vision et une profonde conscience, et cela s’approfondira et se renforcera à mesure que vous continuerez à grandir dans vos âmes et à vous éveiller à cette partie de vous qui continue à désirer grandir et à se former dans l’Amour. Écoutez vos cœurs, âmes bien-aimées et sachez que Dieu entend vos prières et vos désirs. Vous serez bénies et ceux que vous aimez seront bénis et ceux qui viennent seront bénis. Dieu touchera tous ceux qui désirent être dans la Lumière.
 
 Que Dieu vous bénisse. Je suis Jean le Bien-Aimé et je vous aime. Je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

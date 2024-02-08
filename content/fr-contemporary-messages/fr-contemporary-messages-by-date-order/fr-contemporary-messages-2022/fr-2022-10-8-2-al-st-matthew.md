@@ -22,3 +22,7 @@ Nous sommes maintenant réunis dans ce Cercle de Lumière. Que chacun d’entre 
 Je suis Matthieu. Je suis avec vous dans la prière, et ainsi nous nous unissons. Une île de lumière dans ce qui est souvent un endroit sombre. Un sanctuaire dans un monde qui a tourné le dos à Dieu. Un lieu de guérison et de rafraîchissement où Ses eaux vives se déversent sur vous. Sachez et ressentez l’élévation de vos amis anges proches.  Sachez et ressentez les désirs ardents de votre âme alors que Dieu vous appelle dans une étreinte aimante, dans la puissance de Son flux d’amour pour chacun de vous.
 
 Nous sommes ici, mes bien-aimés, pour être avec Dieu. Et ainsi nous serons dans Sa Grâce, dans Son Amour, dans Sa Paix, dans les bénédictions de Ses ministères de guérison sur chacun de vous. Ainsi, nous sommes ici ensemble, nous éveillant, nous éveillant à la vérité et dans la grâce de Dieu, ainsi tout sera. Dieu vous bénisse, mes amis, je suis Matthieu, et je vous aime.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

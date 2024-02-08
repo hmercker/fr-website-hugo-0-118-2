@@ -21,3 +21,7 @@ Ce que je souhaite, c’est que vous vous souveniez de ce qui vous a amenés à 
  <small>
 
 1. <large id=”f1”> Le groupe d’étude avait mentionné plus tôt que François avait fait allusion au fait qu’il était « un jeune homme gâté ».[↩](#a1)
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -31,4 +31,6 @@ Sa compassion pour les autres était une source d'inspiration car la paix et l'h
 
 Laissez tomber, mes enfants, votre besoin "d'être quelqu'un" et soyez simplement l'amour, un exemple vivant de l'Amour de Dieu pour vous et pour le monde. Je vous aime, mes chers frères et sœurs, et je suis avec vous dans l'Esprit d'Amour du Christ, manifesté dans mon âme et dans la vôtre, Jean l'Apôtre.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)
+### [**Lien vers les messages des années 2001**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -24,4 +24,13 @@ Oui, je suis encore un radical, mais j’ai été purifié.
 
 1. <large id="f1"> **John Winston Lennon**, MBE (9 Octobre 1940 – 8 Décembre 1980) était un musicien et chanteur-compositeur qui a connu la gloire dans le monde entier comme l’un des membres fondateurs des Beatles, un des faits les plus commercialement réussis et acclamés par la critique dans l’histoire de la musique populaire. Avec son camarade Beattle Paul McCartney, il a formé un des groupes les  plus renommés de la chanson au XXe siècle. Né et élevé à Liverpool, John Lennon s’est impliqué comme un adolescent à l’engouement de la manie skiffle ; son premier groupe, The Quarrymen, s’est transformé en  *« The Beatles »* en 1960. Alors que le groupe se désintégrait vers la fin de la décennie, John Lennon s’est lancé dans une carrière solo et a produit des albums acclamés par la critique, John Lennon/Plastic Ono Band et Imagine et d’autres chansons emblématiques tels que *« Give Peace a Chance »* et *« Imagine »*. Après son mariage avec Yoko Ono en 1969, il a changé son nom en John Ono Lennon. John Lennon s’est désengagé du business de la musique en 1975 afin de se consacrer à son fils Sean, mais il a refait surface en 1980 avec un nouvel album, Double Fantasy. Il fut assassiné trois semaines après sa sortie. (Source : Wikipédia)[↩](#a1)
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/)
+2. <large id="f2"> John Lennon a également commmuniqué les messages suivants :[↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+John Lennon | [John Lennon est toujours un bohémien](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-16-1-fab-john-lennon/) | 16 Février 2003
+John Lennon | [Tout ce dont vous avez besoin est l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-16-6-af-john-lennon/) | 16 Novembre 2017
+
+### [**Lien vers les messages des années 2011**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

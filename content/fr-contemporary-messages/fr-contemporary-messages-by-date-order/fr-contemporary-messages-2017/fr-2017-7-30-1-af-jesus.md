@@ -16,3 +16,7 @@ Que la Grâce de Dieu soit avec vous, mes bien-aimés….
 Où que vous marchiez, que Sa Lumière brille sur votre chemin. Lorsque vous parlez, que la Lumière de la Vérité passe par vos lèvres. Que vos âmes brillent de l'Amour du Père, que cet Amour coule en grande abondance et que cette bénédiction d'Amour soit un afflux constant dans vos âmes, mes bien-aimés. Puissiez-vous être utilisés pour bénir beaucoup d'autres personnes comme vous avez été bénis. Que ces bénédictions jaillissent de vous - des lumières qui touchent des lumières, des lumières qui apportent du réconfort aux ténèbres de ce monde. Bénis soient les artisans de la paix, bénis soient les gardiens de la lumière, bénis soient ceux qui cherchent la Vérité par-dessus tout. Vous êtes bénis, mes bien-aimés, vous êtes bénis dans la Lumière.
 
 Que Dieu vous bénisse. Je suis Jésus.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

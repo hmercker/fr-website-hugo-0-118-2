@@ -11,7 +11,7 @@ weight:
 
 Guru Nanak - reçu par Maureen Cardoso le 7 Avril 2020, Abbotsford, Colombie-Britannique, Canada.
 
-Je suis le gourou Nanak. Je suis un habitant du Royaume Céleste et le fondateur de la tradition Sikh. Lorsque j’étais enfant, les membres de ma famille savaient que j’avais quelque chose d’unique. C’est devenu plus évident pour eux lorsque je suis devenu un jeune garçon. À cette époque en Inde, il y avait de nombreuses religions comme la religion Hindoue et la religion Islamique. Il y avait aussi le système de castes en place, avec une énorme discrimination basée sur la lignée dans laquelle vous êtes né.
+Je suis le gourou Nanak.<sup id="a1">[1](#f1)</sup> Je suis un habitant du Royaume Céleste et le fondateur de la tradition Sikh. Lorsque j’étais enfant, les membres de ma famille savaient que j’avais quelque chose d’unique. C’est devenu plus évident pour eux lorsque je suis devenu un jeune garçon. À cette époque en Inde, il y avait de nombreuses religions comme la religion Hindoue et la religion Islamique. Il y avait aussi le système de castes en place, avec une énorme discrimination basée sur la lignée dans laquelle vous êtes né.
 
 À l’âge de 11 ans, il y a une cérémonie dans l’Hindouisme où une ficelle rouge est attachée autour du poignet de l’enfant, comme un rituel ou pour afficher et indiquer que vous êtes de la religion Hindoue. Lorsque j’ai eu 11 ans, ma famille a perçu plus profondément mon caractère unique. Car j’ai toujours su en moi que la discrimination entre la religion et le système de castes n’était pas de Dieu. C’était celle de l’homme. J’ai donc refusé de porter cette ficelle rouge attachée autour de mon poignet.
 
@@ -38,3 +38,18 @@ J’espère qu’il y a une façon consciente de recevoir l’enseignement de l�
 Nous sommes nombreux à avoir été, lorsque nous avons parcouru la Terre, des leaders de différentes confessions et enseignements, et nous nous réunissons aujourd’hui. Nous travaillons à apporter la Vérité dans toutes les religions, et la Vérité de l’Amour de Dieu dans toutes les religions. Notre travail se poursuit, bien-aimés, il n’est jamais terminé. Nous aspirons tous à partager les vérités de l’amour de Dieu et notre âme est imprégnée de cet amour. Nous sommes des Anges Célestes au service de l’Amour et de la Vérité pour l’humanité.
 
 Je vous remercie d’avoir écouté mes paroles. Je vous remercie d’avoir embrassé l’humanité tout entière sur un pied d’égalité. Chacun de vous est profondément aimé par la Grâce de Dieu. Je suis Guru Nanak. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> Guru Nanak s'est également exprimé dans les messages suivants :  [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Guru Nanak | [Marcher dans la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-16-7-af-guru-nanak/) | 16 Novembre 2017
+Guru Nanak | [Guru Nanak, le fondateur de la religion Sikh](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-9-1-af-guru-nanak/) | 9 Décembre 2017
+Guru Nanak | [Chaque âme parcourt son propre chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-8-4-1-mc-guru-nanak/) | 4 Août 2019
+Guru Nanak | [Bénédiction de réconfort et d'amour sur votre parcours](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-19-1-af-guru-nanak/) | 19 Décembre 2019
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

@@ -20,3 +20,7 @@ Lorsque l’on prie, la vraie prière, du cœur, de l’âme, vous ouvrez un can
 Je souhaite également ajouter que la plupart des mortels ne savent pas qu’il est toujours possible de communiquer d’âme à âme. Pas seulement avec les esprits, mais avec d’autres mortels. Car si vous n’aviez pas ce médium, si vous n’aviez pas cette communication par internet ou par téléphone, vous pourriez toujours communiquer les uns avec les autres, intuitivement oui, mais plus important encore sur ce chemin, d’âme à âme. Et vous avez peut-être remarqué qu’il n’est pas inhabituel que des personnes dans ce cercle et dans les nombreux cercles de prière aient la même pensée, le même sentiment au même moment. Donc, comme vous envoyez à chaque instant, envoyez de l’amour. Cet Amour de Dieu que vous avez, envoyez-le. Soyez attentifs à ce que vous recevez, prenez l’amour et la lumière afin que tous soient bénis. Libérez les ondes. Soyez dans la grâce.
 
 Je vous remercie. Je suis votre frère et ami dans l’éternité dans l’Amour de Dieu. Je suis Judas de Kerioth. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

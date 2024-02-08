@@ -17,7 +17,9 @@ L’esprit (le mental) aime la connaissance et pourtant le cœur aspire à l’a
 
 Dans mes poèmes, d’abord dédiés à mon maître Shams, puis au grand Attar <sup id=”a2”>[2](#f2)</sup>, l’auteur de la Conférence des oiseaux, et à Hakim Sanai <sup id=”a3”>[3](#f3)</sup>, le grand soufi, il y avait un amalgame de mon orthodoxie religieuse passée et de mon âme qui désirait maintenant l’unité avec Dieu au-delà des livres, au-delà de la connaissance. Mes poèmes sont encore largement lus aujourd’hui, et je dois répéter, comme je l’ai déjà dit, que je ne suis plus le même que lorsque je vivais sur terre au 13ème siècle. Ainsi, lorsque je communique ma poésie aujourd’hui à travers divers canaux, elle est toujours complètement immergée dans l’Amour Divin. Donc, quoi que vous désiriez apprendre et expérimenter, rappelez-vous ce que j’ai dit et écrit : *« J’ai cherché Dieu dans la mosquée, mais il n’était pas là, j’ai cherché dans le temple et l’église et je ne l’ai pas trouvé …. et puis j’ai regardé dans mon cœur, je l’ai ouvert et, « Ah, il était là ».*
 
-Quelle que soit la tradition dont vous êtes issu ou même si vous ne venez d’aucune tradition spirituelle, sachez que la véritable pratique spirituelle vient du cœur. Le cœur soufi avec des ailes exprime l’ouverture complète de votre cœur à Dieu afin que Dieu puisse vous donner des ailes et vous élever dans les royaumes de la félicité Céleste. Et comme je l’ai écrit, « La blessure est l’endroit où la lumière entre »… alors offrez à Dieu vos blessures et permettez à l’Amour de Dieu de dissoudre ces barrières que vous avez construites et de ne faire qu’Un avec notre Glorieux Créateur. Chantez des chants de louange et si vous êtes émus, dansez. Soyez de la joie dans ce monde de malheur, apportez votre joie, apportez votre félicité, dans l’amour de Dieu, à tous. Je connais ce frère depuis longtemps, et je suis heureux de ce qu’il a reçu de moi. Avec toutes mes bénédictions et dans l’Amour de Dieu, je vous rejoins maintenant dans la prière. Je suis Rumi. Jalalal’din Rumi . Que Dieu vous bénisse.
+Quelle que soit la tradition dont vous êtes issu ou même si vous ne venez d’aucune tradition spirituelle, sachez que la véritable pratique spirituelle vient du cœur. Le cœur soufi avec des ailes exprime l’ouverture complète de votre cœur à Dieu afin que Dieu puisse vous donner des ailes et vous élever dans les royaumes de la félicité Céleste. Et comme je l’ai écrit, « La blessure est l’endroit où la lumière entre »… alors offrez à Dieu vos blessures et permettez à l’Amour de Dieu de dissoudre ces barrières que vous avez construites et de ne faire qu’Un avec notre Glorieux Créateur. Chantez des chants de louange et si vous êtes émus, dansez. Soyez de la joie dans ce monde de malheur, apportez votre joie, apportez votre félicité, dans l’amour de Dieu, à tous. Je connais ce frère depuis longtemps, et je suis heureux de ce qu’il a reçu de moi. Avec toutes mes bénédictions et dans l’Amour de Dieu, je vous rejoins maintenant dans la prière. Je suis Rumi. Jalalal’din Rumi . 
+
+Que Dieu vous bénisse.<sup id="a4">[4](#41)</sup>
 <small>
 
 1. <large id=”f1”> Sultan Walad, fils de Rumi.[↩](#a1)
@@ -25,3 +27,14 @@ Quelle que soit la tradition dont vous êtes issu ou même si vous ne venez d’
 2. <large id=”f2”> Attar de Nishapur auteur de « La conférence des oiseaux » et « Le livre du Divin ».[↩](#a2)
 
 3. <large id=”f3”> Hakim Sanai auteur de « The Walled Garden of Truth (le jardin de la vérité) » (il y a une référence à la poésie de Hakim Sanai vers la fin du film « The Shape of Water (la forme de l'eau) » de Guillermo del Toro en 2017.[↩](#a3)
+
+4. <large id="f4"> Rumi s'est également exprimé dans les messages suivants :[↩](#a4)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Rumi | [Rumi parle de la voix directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-15-3-af-rumi/) | 15 Novembre 2017
+Rumi | [La loi de Dieu est progressive](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-11-3-jw-rumi/) | 11 Septembre 2019
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

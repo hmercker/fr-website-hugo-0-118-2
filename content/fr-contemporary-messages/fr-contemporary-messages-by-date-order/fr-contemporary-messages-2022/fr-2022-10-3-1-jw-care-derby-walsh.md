@@ -18,3 +18,7 @@ Lorsque vous recevez ce grand cadeau de l’Amour du Père, ces flux et reflux d
 Je me rends compte que ce sont de belles paroles à entendre, mais dans la pratique, elles peuvent sembler lointaines, alors je veux vous donner cette assurance, qu’alors que vous priez sur Terre, avec toutes ses difficultés, avec toute la violence, les traumatismes et la négativité, alors que cet amour entre dans vos âmes en une abondance de plus en plus grande, vous êtes élevés au-dessus des flux et reflux, même sur Terre. Votre cœur s’ouvre dans une compassion et une empathie totales. Le conflit devient compassion. La peur devient la foi. La vengeance devient le pardon. Et la vérité vous est donnée à chaque instant pour que vous l’exprimiez de la manière qui résonne avec votre âme.
 
 Ainsi, prenez courage en ces temps troublés, car il y a toujours la lumière de Dieu disponible et Son grand amour pour vous recevoir et vous changer. Vous êtes de si belles âmes, et nous vous aimons tendrement. Croyez-moi, nous vous aimons. Avec tout mon amour et mes bénédictions, dans l’Amour de Dieu, je vais prendre du recul et vous rejoindre dans Sa lumière et Son amour. Je suis votre sœur dans les Cieux Célestes, une âme rachetée dans l’Amour de Dieu. Je suis Care. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

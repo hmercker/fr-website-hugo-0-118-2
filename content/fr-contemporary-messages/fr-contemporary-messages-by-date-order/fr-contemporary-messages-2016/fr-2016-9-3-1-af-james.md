@@ -24,3 +24,7 @@ C’est ce que vous devez faire. C’est tellement important et venez ensemble, 
 Bien-aimés, soyez forts. Concentrez-vous sur l’Amour et la Lumière. Concentrez-vous sur le fait d’être un canal d’Amour et de Lumière et Dieu vous utilisera d’une manière encore inattendue, des opportunités se présenteront à vous afin que vous puissiez être un agent de changement dans le monde et apporter davantage de Lumière, de paix, de changement et d’Amour. Les opportunités abondent. C’est à vous de voir et d’agir, de mettre l’amour en action, de mettre la sagesse en application, de mettre la Vérité dans chaque respiration que vous prenez.
 
 Merci, âmes bien-aimées. Je suis Jacques et je vous aime.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

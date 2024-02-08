@@ -43,3 +43,7 @@ Je suis avec vous, mes chers amis bien-aimés. Je continue à regarder chaque pe
 Que le Père céleste continue à toucher votre âme profondément, enflammant ces chambres sombres à l’intérieur. Que la chaleur de la lumière de Son Amour puisse créer un tel sentiment de joie, de connaissance et d’amour que ces changements dont je parle puissent être aussi réels et palpables que vous sentiez votre propre corps charnel, que tous puissent être unis dans l’amour.
 
 Que Dieu vous bénisse, mes bien-aimés. Votre maître Augustin vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

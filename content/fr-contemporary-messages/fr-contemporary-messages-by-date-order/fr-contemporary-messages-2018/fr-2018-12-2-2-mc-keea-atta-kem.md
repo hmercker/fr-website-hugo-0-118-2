@@ -48,3 +48,7 @@ Mes bien-aimés, pour ceux d’entre vous qui êtes parents, vous comprenez qu�
 Je vous remercie d’avoir écouté ce message et j’espère qu’il vous a apporté de l’inspiration, qu’il vous a élevé et éduqué sur l’importance pour votre esprit d’être discipliné et de s’aligner avec vos âmes. Vous êtes des âmes très gracieuses, impatientes, désireuses de grandir, désireuses d’apprendre. Je vous laisse maintenant avec mon amour et mes grandes bénédictions.
 
 Que Dieu vous bénisse et que vos âmes continuent à aspirer à cette grande bénédiction de l’Amour de Dieu qui met tout en harmonie. Que Dieu vous bénisse, mes âmes bien-aimées. Je suis Keea Atta Kem et mon amour vous accompagne. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

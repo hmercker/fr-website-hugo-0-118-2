@@ -28,3 +28,8 @@ Puissiez-vous porter cette bannière avec vous partout où vous allez, même si 
 Oui, il existe de nombreuses conditions difficiles dans le monde, mais Dieu vous guidera autour de ces conditions et à travers le labyrinthe de la condition humaine afin que ces âmes qui attendent avec impatience votre reconnaissance, votre toucher et votre amour vous trouvent comme vous les trouvez. Alors que vous marchez sur le chemin de votre vie et que vous priez pour être utilisé comme ses instruments de lumière et d’amour, cela se déroulera comme un voyage, un chemin, un plan qui mène vers le salut de l’humanité. De ces conditions sombres, ce salut est la reconnaissance de l’amour, la reconnaissance de l’autre, la reconnaissance que tous sont aimés et que l’amour peut et sera exprimé à tous.
 
 Que Dieu vous bénisse sur ce chemin, âmes bien-aimées. Je suis Matthieu et je prie avec vous et je marche avec vous tout comme le font de nombreux anges alors que vous continuez à chercher votre mode de service au fur et à mesure que vos dons se dévoilent et que votre vrai moi est reconnu et éveillé.  Amoureux. Que Dieu vous bénisse mes amis. L’Amour de Dieu est avec vous. L’amour de Dieu est avec nous tous. Que Dieu vous bénisse, âmes bien-aimées.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

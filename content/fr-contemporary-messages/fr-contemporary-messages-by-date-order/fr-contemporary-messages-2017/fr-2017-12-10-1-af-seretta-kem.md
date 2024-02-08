@@ -36,3 +36,7 @@ Et ainsi nous commençons cette nouvelle semaine avec une vigueur et un désir r
 Vous savez que vous êtes aimés et quoi que vous décidiez, quoi que vous fassiez, quel que soit le résultat de ces efforts, cet Amour ne change jamais. Ces bénédictions continuent à être les vôtres, bien que ce que vous désirez en ce moment déterminera les résultats de ce qui est à venir. Alors, que vous puissiez réussir, mes bien-aimés, que nous puissions tous réussir dans ces efforts. Et que l'émerveillement de ce cadeau soit vraiment établi parmi vous. Une véritable bénédiction donnée par Dieu dans l'amour.
 
 Puissions-nous tous trouver nos chemins vers une Lumière plus élevée, un plus grand Amour et une véritable unification dans ce merveilleux projet que nous partageons ensemble. Que Dieu nous bénisse puissamment. Que vous soyez ouverts aux grandes bénédictions que Dieu désire vous donner, mes bien-aimés, et que l'Amour entre dans chaque partie de vous-mêmes et dans chaque aspect de cette entreprise. Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem et je vous aime tendrement et je continue à vous servir, à vous assister dans ce grand et merveilleux effort. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

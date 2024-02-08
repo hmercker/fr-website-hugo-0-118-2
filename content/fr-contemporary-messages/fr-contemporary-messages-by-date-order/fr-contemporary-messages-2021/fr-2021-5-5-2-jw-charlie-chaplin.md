@@ -16,3 +16,7 @@ C’est moi, Charles. Mes chers amis sur ce chemin de l’Amour Divin. Vous qui 
 Ce qui est requis est d’être en harmonie avec la condition humaine et d’être élevé dans l’Amour de Dieu comme vous le désirez. Quel genre de danse cela serait-il ? Quelle sorte de chant serait-il entonné ? Vous le savez. Votre âme vous en informera et ce sera toujours gracieux, joyeux, entraînant et souvent humoristique. Car mettre un sourire dans le cœur est un grand cadeau. Faire passer l’âme du désespoir et de l’obscurité à l’espoir, à la foi et à la confiance est une grande œuvre. On ne peut jamais donner assez. Et dans ce monde séculaire si dépourvu de joie véritable, il y a beaucoup à donner, beaucoup que vous pouvez co-créer avec nous.
 
 Nous sommes là pour vous, et vous avez mon amour et mon soutien, ainsi que les encouragements et l’aide de nombreuses, nombreuses âmes bénies. Allez dans la joie, la paix et l’amour. Que Dieu vous bénisse. Je suis ton frère et ami Charles.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

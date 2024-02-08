@@ -16,3 +16,7 @@ Je suis Frédéric Chopin. Je souhaite moi aussi apporter ma musique à l'humani
 Je souhaite avoir l'opportunité de révéler le don de la musique inspirante à tous vos frères et sœurs dans ce monde. Bonne chance dans vos efforts, âmes bien-aimées. Beaucoup d'entre nous attendent dans les coulisses pour se manifester de cette manière à travers ce don. Il y aura une telle variété de beaux esprits qui exprimeront de merveilleuses révélations à l'humanité. Lorsque ces vannes s'ouvriront, tant de choses pourront être données, tant de choses seront données en cadeaux et bénédictions surprenants, beaux, glorieux et créatifs au monde.
 
 Que Dieu continue à vous bénir, chers amis, et à nous bénir tous dans ce grand effort pour élever l'humanité et éveiller les âmes de beaucoup. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

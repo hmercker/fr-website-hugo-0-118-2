@@ -39,9 +39,22 @@ Je t'aime, mon cher frère, A____. Nous sommes toujours avec toi. De nombreux an
 
 S'il te plaît, reste avec nous dans ton amour et ta foi. Tu ne douteras pas de la miséricorde que Dieu te montre, car tu es dans Sa Grâce.
 
-Je suis Aigle Blanc, ton frère et ami dans la Vue Divine.
+Je suis Aigle Blanc, ton frère et ami dans la Vue Divine.<sup id="a2">[2](#f2)</sup>
 <small>
 
-1. <large id="f1"> Aigle Blanc est un Indien puissant et a souvent utilisé ses grands pouvoirs de guérison pour restaurer la santé de M. James E. Padgett. Il écrivait souvent car il avait dans son âme un Amour Divin considérable qui faisait de lui un esprit lumineux et beau. Vous pouvez consulter un des messages qu'il a communiqué à travers James Padgett [le 15 Février 2001](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-2-15-1-jep-white-eagle/)[↩](#a1)
+1. <large id="f1"> Aigle Blanc est un Indien puissant et a souvent utilisé ses grands pouvoirs de guérison pour restaurer la santé de M. James E. Padgett. Il écrivait souvent car il avait dans son âme un Amour Divin considérable qui faisait de lui un esprit lumineux et beau. Vous pouvez consulter un des messages qu'il a communiqué à travers James Padgett [le 15 Février 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-2-15-1-jep-white-eagle/)[↩](#a1)
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)
+2. <large id="f2"> Aigle Blanc  s'est également exprimé dans les messages suivants :[↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+--|---|---
+Aigle Blanc | [Les animaux et l’amour naturel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-9-4-1-ar-white-eagle/) | 4 Septembre 1999
+Marie & White Eagle | [Le soleil bondissant de Fatima](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-9-19-2-ar-mary-white-eagle/) | 19 Septembre 1999
+Aigle Blanc | [La guérison par l’intermédiaire des guérisseurs spirituels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-3-1-ar-white-eagle/) | 3 Novembre 1999
+Aigle Blanc | [L’autre vision.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-2-11-1-ar-white-eagle/) | 11 Février 2001
+Aigle Blanc | [Aigle Blanc vient offrir la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-29-2-jw-white-eagle/) | 29 Mars 2020
+Aigle Blanc | [Nous sommes tous des peuples indigènes en tant qu'enfants de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-19-2-jw-white-eagle/) | 19 Avril 2020
+
+### [**Lien vers les messages des années 2001**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

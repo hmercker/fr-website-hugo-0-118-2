@@ -32,3 +32,7 @@ Le mode de vie simple est le meilleur. Il nourrit l’âme, bien qu’il soit so
 Ayez de la joie. Car c’est la joie qui réveillera tant de choses en vous. C’est la joie qui dissipe les ténèbres, l’anxiété et les peurs. C’est la joie qui jaillit de l’âme qui reconnaît la touche de Dieu et les révélations que Dieu a à donner à chacun de vous.
 
 Mes chers étudiants, il est bon que vous soyez ensemble. Il est bon que vous parliez et réfléchissiez à de nombreuses choses, questions et idées, mais avant tout, vous devez prier pour que les réponses viennent de cette manière. Les réponses viennent avec l’amour, l’Amour de Dieu. Je vous remercie de m’avoir écouté aujourd’hui, chers étudiants, et nous continuerons à parler des choses de l’âme et de la façon dont votre vie se rapporte à l’âme émergente et à votre relation croissante avec Dieu. Mon amour est avec vous. Et je vous aime. Je vous aime tendrement, mes précieux, précieux pour Dieu, précieux pour nous dans le Royaume Céleste, précieux pour le monde. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés. Je suis Augustin, votre professeur. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

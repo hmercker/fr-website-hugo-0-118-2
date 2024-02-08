@@ -26,3 +26,7 @@ Ces simples mots ne décrivent pas adéquatement l’émerveillement de cette re
 Puissiez-vous être vraiment cet enfant qui peut embrasser Dieu dans toute son innocence et son amour. Puissiez-vous connaître la paix profonde de cette union. Puissiez-vous ressentir la chaleur et l’élévation du toucher de Dieu et que toutes vos préoccupations et tous vos désirs et conditions terrestres s’éloignent de vous, mes amis, s’éloignent pour vous permettre d’entrer dans la glorieuse Lumière de la Présence de Dieu. Elle est là pour vous en ce moment, alors que vous êtes tous réunis dans ce lieu saint. Absorbez, acceptez, réveillez-vous et soyez présents dans les grandes bénédictions que Dieu a à donner à chacun d’entre vous.
 
 Que Dieu vous bénisse, âmes bien-aimées, dans la grande gloire de Son Amour. Je suis avec vous dans vos prières. Mon amour est avec vous. Je suis Joseph et que Dieu vous bénisse profondément. Je vous remercie et vous bénis.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

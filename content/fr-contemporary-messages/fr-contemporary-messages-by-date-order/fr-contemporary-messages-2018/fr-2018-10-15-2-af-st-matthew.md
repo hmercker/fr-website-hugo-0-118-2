@@ -20,3 +20,7 @@ Bien-aimés, chacun d’entre vous porte ce feu. Chacun d’entre vous aspire à
 Âmes bien-aimées, soyez réconfortées par la certitude que la main de Dieu repose fermement sur vous, que vous êtes en train de connaître votre vrai moi, que vos âmes s’éveillent en effet dans ce beau voyage de la vie. Puissiez-vous continuer à forger votre relation avec le Créateur et marcher dans la lumière, marcher dans la lumière, mes bien-aimés. Cherchez à être en harmonie, à permettre à l’Amour de circuler, qu’il puisse s’infiltrer dans chaque cellule de votre être, chaque pensée de votre esprit, chaque chambre de votre âme, que ce beau cadeau puisse éveiller chaque partie de vous.
 
 Que Dieu vous bénisse, âmes bien-aimées, je suis Matthieu. Je continue à être avec vous pour assister à votre réveil et pour vous aider de toutes les manières possibles à vous éveiller et à vous adapter à cette nouvelle voie, cette nouvelle conscience de Dieu, de votre âme, de la vie, dans cette réalité de Dieu. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

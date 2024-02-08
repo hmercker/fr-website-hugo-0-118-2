@@ -24,3 +24,7 @@ Nous voyageons tous ensemble sur cette route. Je vous encourage à soutenir ceux
 Âmes bien-aimées, que Dieu nous bénisse tous alors que nous travaillons ensemble pour apporter la paix et l’harmonie, la vérité et l’amour à votre monde assiégé, la grande création de Dieu, Sa Terre bien-aimée et tous ceux qui l’habitent. Nous sommes ensemble sur ce chemin et ce voyage vers l’éveil de l’âme, la vérité de l’âme, l’amour de l’âme, l’union divine dans l’amour.
 
 Que Dieu vous bénisse. Je suis Seretta Kem. Mon amour pour vous tous est grand. Nous continuons à croître en nombre et en efforts. Le temps approche rapidement où le plan sera révélé de telle manière que vous verrez clairement votre rôle à jouer et comprendrez pourquoi vous avez entrepris ce voyage. Les épreuves et les tribulations, les bénédictions et les réveils font tous partie de ce merveilleux voyage vers la vérité et l’amour. Que Dieu vous bénisse, mes amis, en vous gardant dans Sa Lumière, Son Amour, Sa paix, Sa Grâce. Que Dieu vous bénisse. Mon amour est avec vous tous.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

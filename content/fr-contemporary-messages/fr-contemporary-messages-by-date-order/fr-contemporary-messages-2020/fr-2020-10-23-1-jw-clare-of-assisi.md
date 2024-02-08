@@ -20,3 +20,7 @@ Je mentionne cela parce qu’à mon époque, il y avait aussi beaucoup d’écol
 Ainsi, lorsque vous priez pour recevoir l’Amour de Dieu, Son essence, vous transcendez une grande partie de ce que vous considériez comme important, comme la vérité dans les croyances, parce que votre âme est activée dans l’Amour de Dieu. Vous êtes devenu la bénédiction. Le porteur du don. C’est un cercle complet de la fonctionnalité de votre vie de prière. Elle devient substantielle, ou devrais-je dire une réalité, dans votre cheminement.
 
 Que vos prières apportent l’Amour de Dieu dans vos âmes en vous changeant pour toujours et en vous apportant ce grand bonheur, cette joie et cette transformation que Dieu souhaite pour vous. C’est aussi mon souhait. Je suis votre sœur dans l’amour de Dieu et je vous aime. Je suis Claire. Allez avec Dieu.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

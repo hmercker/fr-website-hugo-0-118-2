@@ -9,7 +9,7 @@ weight:
 ---
 ### L'Amour de Dieu au sein de vos âmes émane de vous et apporte aux autres la lumière et la paix
 
-Marie Madeleine - reçu le 28 Janvier 1970, Vancouver, Colombie-Britannique, Canada.
+Marie Madeleine <sup id="a1">[1](#f1)</sup> - reçu le 28 Janvier 1970, Vancouver, Colombie-Britannique, Canada.
 
 Je suis si heureuse de venir vous saluer depuis les sphères Célestes de l'Esprit. Cela me fait plaisir de vous voir rassemblés et de savoir que vous avez le désir de servir Dieu. Marie, la mère de Jésus, est ici avec moi ce soir, ainsi que tant d'autres chers vieux amis. Je suis Marie-Madeleine. J'aime venir et être avec vous, et vous apporter toute l'aide que je peux. Je sais que vous attendez la Voix Directe et je voulais venir vous encourager. Je sais que vous appréciez que nous venions vous parler et que cela nous fait plaisir de venir vous parler et vous encourager. Nous devons travailler ensemble, tous ensemble, vous en tant que groupe joint à nous dans l'amour et l'harmonie. Nous faisons partie de votre groupe.
 
@@ -20,9 +20,21 @@ Vous ne vous rendez pas compte de l'utilité pour les autres du fait même que l
 Le saviez-vous, mes amis ? Le saviez-vous ? Que vous aidez ceux avec qui vous entrez en contact même si vous ne leur dites pas un mot. Vous nous avez entendu dire que votre lumière brillera dans l'Univers. Cette lumière dont nous parlons est une force vivante et une force vitale, une force pénétrante. C'est la lumière de Dieu qui éclaire le monde à travers vous mes amis et vous trouverez des gens qui désirent être proches de vous. Ils ne comprennent pas pourquoi. Ils désirent être en votre compagnie ou simplement entrer en contact avec vous et ni vous ni eux n'en comprennent la raison. Mais la raison est qu'ils ressentent les émanations qui viennent de vous. L'Amour de Dieu dans vos âmes qui vient de vous, l'Amour de Dieu dans vos âmes émane de vous et apporte aux autres la lumière et la paix. Alors mes chers, continuez dans votre progression et pensez aussi à prier pour nous qui vous aimons et vous guidons afin que nous puissions avoir un rapport étroit et travailler étroitement et avec amour les uns avec les autres.
 
 Que Dieu vous bénisse mes amis, que Dieu soit avec vous et que vous soyez conscients de Son amour qui coule dans vos âmes chaque jour, tout au long de la journée, pensez à l'Amour de Dieu qui coule dans vos âmes. Bonne nuit mes amis.
+<small>
 
+1. <large id="f1"> Marie-Madeleine s'est également exprimé lors des messages suivants [↩](#a1)
 
-
+**Auteur** | **Titre du message** | **Date du message**  
+--|---|---
+Marie Madeleine | [Communication personnelle.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1992-7-9-1-dl-mary-magdalene/) | 9 Juillet 1992
+Marie Madeleine | [Différences entre les sexes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-19-2-ar-mary-magdalene/) | 19 Août 2001
+Marie Madeleine | [Le visage de l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-4-2-ar-mary-magdalene/) | 4 Novembre 2001
+Marie-Madeleine | [Plus sur les esprits liés à la terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-7-19-1-rl-mary-magdalene/) | 19 Juillet 2004
+Marie-Madeleine & Jésus | [Observer l’âme humaine.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-1-1-ar-mary-magdalene-jesus/) | 1 Avril 2006
+Marie-Madeleine | [Portez la lumière de l'amour en vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-7-2-1-dl-mary-magdalene/) | 2 Juillet 2008
+Marie-Madeleine | [Marie-Madeleine n’est pas l’âme-soeur de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-29-2-af-mary-magdalene/) | 29 Janvier 2019
+Marie-Madeleine | [Permettez à la bénédiction de l'Amour de Dieu de venir dans votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-12-1-jw-mary-magdalene/) | 12 Juillet 2022
+Marie-Madeleine | [La lampe de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-4-1-af-mary-magdalene/) | 4 Septembre 2022
 
 ### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
 

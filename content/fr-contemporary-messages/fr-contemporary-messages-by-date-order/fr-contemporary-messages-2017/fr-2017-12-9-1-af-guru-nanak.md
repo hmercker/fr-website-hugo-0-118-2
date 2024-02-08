@@ -16,3 +16,18 @@ Je suis le Guru Nanak. Mon fils, le Seigneur brille sur toi dans tes efforts. Tu
 Et pour tous ceux qui sont ici, recherchez toujours la Vérité et apportez l'Amour dans tout ce que vous faites. N'imposez pas vos idées aux autres. Partagez simplement votre expérience, votre vérité depuis votre cœur. Donnez votre vie et votre amour à Dieu et Dieu vous guidera ainsi. Dieu vous montrera le chemin pour élever votre lumière, votre présence à Dieu et vous amènera à ce lieu de grande paix et de simple Vérité.
 
 Vous êtes bénis en ce moment et vous continuerez à être bénis alors que vous cherchez la Lumière. Allez avec Dieu. Sat Nam. Sat Nam.
+<small>
+
+1. <large id="f1"> Guru Nanak s'est également exprimé dans les messages suivants :  [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Guru Nanak | [Marcher dans la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-16-7-af-guru-nanak/) | 16 Novembre 2017
+Guru Nanak | [Chaque âme parcourt son propre chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-8-4-1-mc-guru-nanak/) | 4 Août 2019
+Guru Nanak | [Bénédiction de réconfort et d'amour sur votre parcours](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-19-1-af-guru-nanak/) | 19 Décembre 2019
+Guru Nanak | [Voyage pour apporter l'égalité et l'amour à l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-7-1-mc-guru-nanak/) | 7 Avril 2020
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

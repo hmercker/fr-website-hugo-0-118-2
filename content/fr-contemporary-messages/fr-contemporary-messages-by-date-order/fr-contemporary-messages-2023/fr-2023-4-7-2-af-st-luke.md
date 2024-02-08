@@ -18,3 +18,7 @@ De nombreux endroits dans le monde se régénéreront, de nombreuses espèces re
 Vous verrez, mes amis bien-aimés, la puissance de l’œuvre de Dieu, les bénédictions de Dieu sur le monde, et vous verrez de grands changements, une grande guérison et une grande paix. Soyez assurées, âmes bien-aimées, que chacun d’entre vous qui adhère à la vérité de l’Amour de Dieu et qui continue à s’efforcer de réaliser cet amour à travers vous et en vous, fera partie de ce nouveau monde, de ce nouveau commencement avec sa transformation en lumière. Que Dieu vous bénisse, âmes bien-aimées. Puissiez-vous être en alignement avec la volonté de Dieu et l’expression de la volonté de Dieu dans ce monde afin que vous connaissiez la paix et la joie. Une plus grande sagesse vous sera donnée. Vous en viendrez à réaliser le but de cette transformation, le chemin qu’elle doit prendre et vous apprécierez la puissance de la touche de Dieu sur le monde et sur vous.
 
 Que Dieu vous bénisse, âmes bien-aimées. Que vos yeux s’ouvrent. Que l’amour abonde en vous et que vous soyez en paix, mes bien-aimés, en paix profonde avec la réalisation que la volonté de Dieu sera faite sur cette Terre comme elle l’est au ciel. Que Dieu vous bénisse. Je suis Luc. Mon amour est avec vous, âmes bien-aimées.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

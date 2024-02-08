@@ -46,3 +46,7 @@ Il en est ainsi pour chaque âme engagée dans le service de Dieu, pour avoir la
 Puissiez-vous parvenir à connaître véritablement vos âmes, mes bien-aimés. Ne permettez pas aux machinations de votre esprit d'interférer avec la vraie connaissance de votre âme, permettez-vous d'aller à cet endroit de vraie connaissance et de compréhension, d'être proche de Dieu et de faire confiance chaque jour à Sa volonté pour vous et de cette façon vous pouvez servir comme Dieu le désire dans ce monde.
 
 Que Dieu vous bénisse, âmes bien-aimées. Que de nombreuses, nombreuses âmes désirent servir notre Père Céleste et voient à quel point il est crucial d'apporter la Lumière et l'Amour à ce monde et de l'exprimer avec chaque respiration que vous prenez, afin d'être en harmonie avec les vérités de l'Amour et la volonté de Dieu. Que Dieu vous bénisse. Je suis Augustin, votre enseignant. Je suis heureux de vous parler aujourd'hui des possibilités de servir notre Père céleste. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

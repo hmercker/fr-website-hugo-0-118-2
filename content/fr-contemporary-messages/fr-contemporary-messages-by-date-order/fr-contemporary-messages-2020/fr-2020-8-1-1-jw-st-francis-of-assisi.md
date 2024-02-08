@@ -16,3 +16,8 @@ C’est moi, François, votre frère et ami dans la Grâce de Dieu. Lorsque j’
 Nous avons donc vécu en harmonie dans le naturel et le Divin. La condition humaine recherche l’harmonie et la paix, la fraternité et la solidarité, l’égalité et la durabilité. Ce sont de belles aspirations et nous prions pour que la Terre puisse être dans cette harmonie comme vous le faites. Ceux d’entre nous qui sont en esprit et plus particulièrement ceux qui sont dans les royaumes Célestes, connaissant votre avenir, nous venons nous joindre à vous dans vos prières pour recevoir le grand Amour du Créateur qui transforme l’âme. Vous vous tenez sur ce pont entre le Ciel et la Terre et l’Amour relie les deux. Il y a les cieux naturels, les beaux royaumes, les beaux royaumes de l’âme purifiée et les cieux Célestes – au-delà des mots de l’âme transformée, du mortel à l’ange Divin.
 
 Que la paix règne sur la Terre. Que tout le monde ici dans ce cercle et au-delà soit en harmonie sans jugement car il n’y a vraiment qu’un seul chemin et c’est l’Amour. Nous venons vous embrasser sur ce chemin dans la Grâce de Dieu. Que chacun soit béni dans Son amour. Je suis votre frère et ami en Christ, je suis François. Allez avec Dieu.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

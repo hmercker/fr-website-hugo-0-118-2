@@ -22,4 +22,6 @@ Je vois très clairement comment le type de mentalité que je représentais ruin
 
 1. <large id="f1"> **Jason "Jay" Gould** (27 Mai 1836 - 2 Décembre 1892) était un financier américain qui est devenu un important promoteur et spéculateur de chemins de fer américains. Longtemps vilipendé comme un « baron voleur » stéréotypé, les historiens modernes ont écarté divers mythes à son sujet et évalué sa carrière de façon plus positive. (Source : Wikipedia)[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

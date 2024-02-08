@@ -26,4 +26,6 @@ Et il en sera de même à votre époque.
 
 1. <large id="f1"> **Simon Bolivar** (24 Juillet 1783 -le 17 Décembre 1830) a été, avec Jose de San Martin, l’un des plus importants leaders de la lutte réussie de l’Amérique hispanique pour l’indépendance de l’Espagne, collectivement connue comme la guerre de Simon Bolivar. Après le triomphe sur la monarchie espagnole, Bolivar a participé à la fondation de la Grande Colombie, une nation formant les colonies espagnoles libérées. Simon Bolivar est devenu président de la Grande Colombie de 1821 à 1830, président du Pérou de 1824 à 1826 et président de la Bolivie de 1825 à 1826. Après la mort de Simon Bolivar en 1830 et la dissolution ultérieure de la Grande Colombie en 1831, l’héritage de Simon Bolivar a contribué de manière décisive à l’indépendance des pays actuels que sont la Bolivie, la Colombie, l’Équateur, le Panama, le Pérou et le Venezuela. (Source : Wikipedia)[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

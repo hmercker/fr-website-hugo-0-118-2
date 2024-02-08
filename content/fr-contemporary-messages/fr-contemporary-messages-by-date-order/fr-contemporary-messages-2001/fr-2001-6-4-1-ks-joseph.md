@@ -39,4 +39,6 @@ Je vous laisse maintenant et je tiens à vous remercier d’avoir été un canal
 
 Je t’aime, et je suis l’un de tes anges gardiens, Joseph, le père terrestre de Jésus et un adepte de ses enseignements. Amen.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)
+### [**Lien vers les messages des années 2001**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

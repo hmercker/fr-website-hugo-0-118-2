@@ -21,4 +21,6 @@ Les énergies de ton âme (émotions et sentiments) expriment la vérité. Elles
 
 C’est pourquoi ton langage n’est pas à la hauteur de ce que nous nous efforçons d’expliquer. Il y a aussi d’autres raisons pour cela, qu’il n’est pas nécessaire de discuter ici pour nos objectifs. Mais comme tu l’as deviné, l’Amour est le meilleur moyen de t’exprimer nos pensées (énergies de l’âme). Car, comme tu le sais peut-être ou peut-être pas, le développement de l’âme permet le meilleur type de communication. Nous avons constaté que lorsqu’une âme mortelle se développe avec l’Amour de Dieu qui coule dans son âme, l’information qui est transmise, par nous, porte avec elle le plus grand potentiel de porter des fruits pour les audiences (chercheurs de vérité).
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)
+### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

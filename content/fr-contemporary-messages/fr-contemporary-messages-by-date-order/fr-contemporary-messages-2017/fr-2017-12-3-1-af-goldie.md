@@ -16,3 +16,7 @@ C’est moi Goldie ! J’ai répandu de la poussière de lutin sur vous avec des
 Nous vous donnerons tout ce que nous pouvons, mes âmes bien-aimées. Puissiez-vous être ouvertes à ces cadeaux et vous tourner vers Dieu pour tout ce qu’il a à donner. Car vous êtes maintenant profondément bénies et transportées dans la Lumière avec un profond et Saint Amour touchant vos âmes. Puissiez-vous continuer à être dans cette glorieuse Lumière, bien au-dessus des conditions du monde. Accrochez-vous à cette Lumière, mes amis. Accrochez-vous et soyez avec nous dans ce lieu glorieux d’Amour.
 
 Vous serez portés pendant ces quelques semaines et nourris et touchés profondément. Tout est à votre disposition. Puissiez-vous être profondément bénis, mes amis bien-aimés, et connaître la grande joie de Dieu, l’Amour du Père. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

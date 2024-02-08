@@ -26,3 +26,7 @@ Vous êtes venus jusqu'ici en étant aidés à chaque étape du chemin, en étan
 Oh, comme je vous aime, et comme nous veillons sur chacun d'entre vous. Dans la mesure où vous êtes capables d'être dans vos âmes, nous sommes capables de vous influencer, de vous inspirer, de vous protéger et de vous guider. Il en sera toujours ainsi, pour tous vos jours.
 
 Allez dans la Grâce de l'Amour de Dieu. Soyez dans le flux. Je suis votre frère, et disciple du Maître et ami éternel. Je suis Judas. Que Dieu vous bénisse !
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

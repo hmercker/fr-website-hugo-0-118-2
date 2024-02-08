@@ -28,7 +28,6 @@ J’ai maintenant une vision plus élevée de la vie, et le bonheur est venu à 
 
 2. <large id="f2"> Judy Garland s'est également exprimé dans les messages ci-dessous indiqués :[↩](#a2)
 
-
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Judy Garland | [Une grande interprète partage son cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-19-1-fab-judy-garland/) | 19 Septembre 2008
@@ -38,4 +37,6 @@ Judy Garland | [Judy Garland partage son cœur - 3](/fr-contemporary-messages/fr
 Judy Garland | [Judy Garland et le spectacle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-3-2-1-fab-judy-garland/) | 2 Mars 2009
 Judy Garland | [Judy Garland ajoute à son channeling](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-19-2-fab-judy-garland/) | 19 Janvier 2013
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

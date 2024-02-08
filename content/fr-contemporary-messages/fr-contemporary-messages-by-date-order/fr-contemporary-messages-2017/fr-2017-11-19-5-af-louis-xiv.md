@@ -9,7 +9,7 @@ weight:
 ---
 ### Il y a tant de choses à dire
 
-Louis XIV - reçu par Al Fike le 19 Novembre 2017, Gibsons, Colombie-Britannique, Canada
+Louis XIV<sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 19 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Je vous bénis, mes amis, je suis Louis XIV. Je souhaite raconter mon histoire avec votre don de Voix Directe au monde car j'ai dû lutter depuis les enfers jusqu'à un lieu de Lumière. Je ne suis pas dans les Cieux Célestes mais je connais l'Amour du Père et je continue à prier pour être racheté par ce don de Dieu.
 
@@ -22,3 +22,11 @@ Je ne comprenais pas l'humanité lorsque je marchais sur cette terre. J'ai vécu
 Il y a tant de possibilités de ce don, mes amis, tant de portes ouvertes pour que la communication entre nous et vous soit claire, définitive et pleine de Vérité. Je serai donc à vos côtés, mes amis. Beaucoup sont mes côtés qui prieront pour vous dans l'espoir d'apporter la Vérité à l'humanité et dans l'espoir que beaucoup changeront leurs habitudes et chercheront à marcher dans la Lumière, à suivre cette règle d'or pour apporter plus de justice et d'harmonie à ce monde, l'égalité pour tous, assez pour que tous puissent vivre une vie voulue par Dieu.
 
 Que Dieu vous bénisse, mes amis. Merci de m'avoir écouté. Je reviendrai certainement vers ce médium pour dire mes mots dans ma propre langue à mon propre peuple. Que Dieu vous bénisse, que Dieu vous bénisse. Je suis Louis XIV. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> Louis XIV  s'était exprimé antérieurement dans un message communiqué [le 12 Juillet 2005](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-7-12-1-fab-louis-xiv/)[↩](#a1)
+
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

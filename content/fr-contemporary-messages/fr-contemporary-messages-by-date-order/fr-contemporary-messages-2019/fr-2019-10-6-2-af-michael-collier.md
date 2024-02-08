@@ -29,3 +29,7 @@ Que Dieu vous bénisse, âmes bien-aimées, je suis Michel. Je suis heureux d’
 <small>
 
 1. <large id=”f1”> Bien que non enregistré, il s’agit probablement de Michael Collier.[↩](#a1)
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

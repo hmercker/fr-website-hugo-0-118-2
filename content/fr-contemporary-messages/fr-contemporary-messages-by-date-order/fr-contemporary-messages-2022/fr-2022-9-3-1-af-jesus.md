@@ -38,3 +38,7 @@ Vous trouverez votre chemin, âmes bien-aimées. Vous trouvez votre chemin sur l
 Que Son Amour continue à se déverser en vous. Puissiez-vous vous ouvrir largement, anticipant et désirant pleinement ce cadeau. Soyez dans la vérité de Son Amour. Marchez dans la vérité de l’amour. Soyez cette lumière, mes bien-aimés, la lumière qui est si nécessaire dans le monde, une lumière qui sera un puissant agent de transformation dans le monde.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre frère et votre ami et je suis avec vous. Je suis Jésus et je vous aime tellement, âmes bien-aimées et belles. Je vous aime tellement, mes vrais frères et sœurs dans le monde, disciples de la vérité, lumières de Dieu. Que Dieu vous bénisse. Dieu vous bénisse, mes bien-aimés. Que la paix soit sur vous. Mon amour est avec vous.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

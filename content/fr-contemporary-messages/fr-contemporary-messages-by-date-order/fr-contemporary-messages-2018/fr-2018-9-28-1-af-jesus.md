@@ -24,3 +24,7 @@ Bien-aimés, vous êtes vraiment bénis et vous continuerez ce voyage guidé par
 La Lumière du Père Céleste se déverse sur vous en ce moment. Buvez profondément Ses eaux vives. La bénédiction de Sa main puissante est sur vous. Le Saint-Esprit apporte Son message et Sa bénédiction à votre âme. Ouvrez-vous largement, mes bien-aimés, et ressentez ce cadeau qui apportera un changement puissant dans votre âme, une grande bénédiction et un réveil.
 
 Que Dieu vous bénisse mes bien-aimés. Je vous aime.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

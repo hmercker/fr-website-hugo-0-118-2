@@ -15,7 +15,7 @@ André | [Vous vous éveillez](/fr-contemporary-messages/fr-contemporary-message
 Augustin | [Vous entrez dans une nouvelle phase de service](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-1-2-af-augustine/) | 1 Janvier 2018
 Marc | [Faire entrer la volonté de Dieu dans ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-3-1-af-mark/) | 3 Janvier 2018
 Jésus | [La bénédiction de l'Épiphanie de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-6-1-af-jesus/) | 6 Janvier 2018
-Lotus Blossom | [Le pouvoir de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-7-1-af-lotus-blossom/) | 7 Janvier 2018
+Fleur de Lotus| [Le pouvoir de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-7-1-af-lotus-blossom/) | 7 Janvier 2018
 Confucius | [Alignez vos esprits et vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-9-1-af-confucius/) | 9 Janvier 2018
 Lotus Blossom | [De nombreux cadeaux pour le cercle des sept](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-9-2-af-lotus-blossom/) | 9 Janvier 2018
 Seretta Kem | [D'une graine naît un grand arbre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-12-1-af-seretta-kem/) | 12 Janvier 2018
@@ -259,7 +259,7 @@ Seretta Kem | [Seretta Kem parle de ce qui peut venir](/fr-contemporary-messages
 Keea Atta Kem | [Intégrer les éveils de l'âme au corps et à l'esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-24-2-mc-keea-atta-kem/) | 24 Octobre 2018
 Augustin | [Écoutez votre âme et non les illusions de votre esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-25-1-af-augustine/) | 25 Octobre 2018
 Martin Luther | [La compassion comme expression de l'amour de soi et des autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-25-2-af-martin-luther/) | 25 Octobre 2018
-Lotus Blossom | [L'esprit s'engage à marcher avec nous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-26-1-af-lotus-blossom/) | 26 Octobre 2018
+Fleur de Lotus | [L'esprit s'engage à marcher avec nous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-26-1-af-lotus-blossom/) | 26 Octobre 2018
 Martha | [Nous sommes avec vous sur le chemin de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-26-2-af-martha/) | 26 Octobre 2018
 Martin Luther | [L'éveil progressif de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-26-3-af-martin-luther/) | 26 Octobre 2018
 St Matthieu | [La guérison par l'amour crée la richesse de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-26-4-af-st-matthew/) | 26 Octobre 2018
@@ -312,8 +312,6 @@ Seretta Kem | [Changements terrestres – Le temps est venu](/fr-contemporary-me
 Marie | [Beaucoup croient que leur mental apporte la conscience de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-12-17-1-af-mary/) | 17 Décembre 2018
 Seretta Kem | [Faites face aux changements à venir dans le monde avec la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-12-30-1-af-seretta-kem/) | 30 Décembre 2018
 
-[Lien vers les messages de l’année 2019](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
-<br>
-<br>
-[Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
 
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -46,3 +46,8 @@ Ainsi, vous allez émerger, mes amis, de manière magnifique. Vous serez des cr�
 Que Dieu puisse vraiment, vraiment toucher vos âmes si profondément que tout réagisse dans la joie et l’amour. Nos prières sont avec vous, mes amis. Les prières de beaucoup, beaucoup sont avec vous. Puissiez-vous continuer à vous éveiller. Puissiez-vous continuer à trouver votre chemin. Le chemin sera éclairé. Le chemin sera lumineux. La joie sera dans votre cœur pour toujours.
 
 Que Dieu vous bénisse, mes amis. Je suis Orion. Mon amour est avec vous tous. Bénédictions à vous. Bénédictions pour toujours.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

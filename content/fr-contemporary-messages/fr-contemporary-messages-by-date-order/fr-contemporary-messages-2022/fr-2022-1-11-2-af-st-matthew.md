@@ -34,3 +34,7 @@ Le voyage vous semble lent à cause du temps qui passe, mais nous le voyons comm
 L’année à venir vous apportera de nombreuses bénédictions, mes amis bien-aimés. Soyez prêts. Soyez impatients. Ne vous découragez pas mais mettez en avant votre joie et votre gratitude envers Dieu car Dieu orchestre votre voyage de la plus belle des manières. Pourvu que vous soyez prêts à faire un pas en avant, alors les cadeaux affluent sur vous, sont absorbés en vous, et exprimés à travers vous. Âmes bien-aimées, désirez vraiment être les instruments de Dieu dans le monde. Si ce désir est le premier et le plus important dans vos pensées, dans vos efforts pour servir, alors, en effet, ce qui se déroulera sera remarquable. Vous êtes ses enfants. Vous avez été réclamés et vous allez parcourir le chemin qui mène à l’âme rachetée, en vous libérant des conditions qui ne font pas partie de ce voyage et qui ne font pas partie de l’amour.
 
 Que Dieu vous bénisse, mes amis. Je suis Matthieu. Mon amour pour vous est grand. Je vous aime tendrement. Nous marchons tous ensemble. En effet, le temps passe mais en effet, le voyage se déroule. Que Dieu vous bénisse, âmes bien-aimées. Matthew vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

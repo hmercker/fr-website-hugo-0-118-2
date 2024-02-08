@@ -24,3 +24,7 @@ Le but le plus élevé de tous est de donner l’Amour dans ce monde, d’exprim
 Dieu vous sourit, mes bien-aimés, et les anges vous entourent. Il vous est donné tout ce dont vous avez besoin pour vous connaître vraiment et exprimer vos aspirations et vos désirs les plus élevés. Faites de chaque moment de votre vie un moment précieux. Que chaque étape ait un sens et un but et que toutes les expériences qui viennent avec la vie créent une élévation constante, une ascension vers une plus grande Lumière, plus proche de Dieu, plus fidèle à vous-mêmes, plus pleinement éveillés et vivants.
 
 Dieu vous bénisse, âmes bien-aimées, je suis Keea Atta Kem et je vous aime. Je vois vos lumières et je vous connais, chacun d’entre vous et je vous aime. Que Dieu vous bénisse, mes bien-aimés, que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

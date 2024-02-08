@@ -18,3 +18,7 @@ Nous pouvons facilement imprégner votre esprit de beaucoup de choses, mais nous
 Mes amis, vous devez pratiquer vos contemplations, vos méditations et vos prières et demander qu’il y ait en vous un canal de communication clair, non seulement avec nous, mais aussi avec Dieu. Vous réaliserez ainsi ce à quoi vous aspirez. La paix viendra. La joie du cœur rempli et gonflé d’amour, de joie et de lumière. Ces choses viendront à vous, je vous le promets. Cela a été offert et cela sera donné. C’est votre choix. Cela dépend de votre volonté et de vos efforts. Je vous encourage à faire cet effort pour savoir ce que vous désirez vraiment et comment vous agirez en fonction de ces désirs.
 
 Que Dieu vous bénisse, mes amis. Je suis Bartholomé et je suis ici pour vous encourager également sur le Chemin Divin, le magnifique Amour de Dieu vous remplissant et grandissant en vous, faisant de vous un véritable enfant de Dieu, un véritable instrument et clair dans votre instrumentalité. Le flux de la Volonté de Dieu à travers vous, Ses bénédictions, beaucoup de choses peuvent venir à ceux qui sont humbles mais forts, puissants mais sages, aimant toujours. Que Dieu vous bénisse. Que Dieu vous bénisse, mes amis.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

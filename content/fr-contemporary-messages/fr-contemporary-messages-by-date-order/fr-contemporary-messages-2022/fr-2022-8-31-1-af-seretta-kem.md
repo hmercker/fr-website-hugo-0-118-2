@@ -35,3 +35,7 @@ Chaque individu peut avoir une boîte à outils de ressources pour faire face à
 Je vous remercie de m'avoir écouté. Je sais que vous avez peu de temps. J'espère que j'ai traité beaucoup de sujets dans ce message. En effet, il y a beaucoup à considérer sur ces sujets. Je vous remercie, âmes bien-aimées, de prendre ces sujets au sérieux. Car il s'agit en effet de conditions graves dans le monde, qui exigent des contre-mesures sérieuses et efficaces pour neutraliser les ténèbres dans ce monde.
 
 Que Dieu vous bénisse dans son amour. Car le grand remède pour l'âme est l'Amour de Dieu. Puissiez-vous marcher pleinement sur le chemin divin, vers tout ce qui est vérité, lumière et amour. Mon amour est avec vous. Mon amour, ma bénédiction, ma présence et mon soutien sont avec vous. Je suis Seretta Kem. Je suis heureux d'être avec vous aujourd'hui. Que Dieu vous bénisse. Que Dieu vous bénisse tous avec amour.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

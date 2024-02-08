@@ -21,4 +21,7 @@ En tant que mortel, les chocs du krach boursier, de la Grande Dépression, de Pe
 
 De même, cette même Main invisible continue de façonner l'histoire, et tout comme dans ma vie j'ai vu la délivrance, la délivrance viendra aussi à votre époque.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

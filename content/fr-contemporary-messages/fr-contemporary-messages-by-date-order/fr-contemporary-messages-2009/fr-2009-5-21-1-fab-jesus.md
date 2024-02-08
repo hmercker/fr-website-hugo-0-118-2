@@ -35,4 +35,7 @@ Un autre point que je souhaite aborder est que nous ne considérons pas la riche
 
 Mais nous ne considérons pas la richesse matérielle comme nécessairement mauvaise, malgré ce que l'on peut lire dans la Bible. Ce que nous soulignons, c'est la tendance de la richesse matérielle à handicaper l'âme.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

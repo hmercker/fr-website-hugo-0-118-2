@@ -46,7 +46,8 @@ Je suis votre ami et votre frère en Esprit, Jésus de la Bible et Maître des C
 
 2. <large id="f2"> Ces désaccords ont conduit à une scission majeure parmi les adeptes de l'Amour Divin, une scission qui subsiste à ce jour.[↩](#a2)
 
-[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+### [**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

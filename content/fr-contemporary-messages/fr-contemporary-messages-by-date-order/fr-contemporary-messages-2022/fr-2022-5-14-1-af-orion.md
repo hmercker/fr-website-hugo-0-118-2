@@ -40,3 +40,7 @@ Toutes les choses de Dieu sont en harmonie et nous recherchons donc l'harmonie. 
 Je commence à perdre ma voix avec cet instrument, alors je pense que je dois partir maintenant, mais je vous remercie encore pour vos efforts de rassemblement. Puissiez-vous trouver votre chemin vers une plus grande vérité.
 
 Quel que soit le chemin que vous prenez, rappelez-vous que ces chemins mènent tous au même endroit, et c'est l'endroit de la vérité. Dans toute sa simplicité et sa gloire, la vérité viendra à vous et vous la comprendrez vraiment. L'âme s'éveillera en son temps, mais elle peut être éveillée par vos efforts, vos prières et vos désirs. Cherchez l'âme. C'est la clé de l'éveil de l'humanité, l'éveil de l'âme. Nous sommes tous passés par ce processus, mes amis. Nous sommes tous arrivés à la même conclusion, à la même vérité. Nous avons tous pris notre chemin vers cela et je vous assure qu'avec de la sincérité, avec un désir profond, avec une ouverture et un but, vous trouverez votre chemin. Je vous dis bonne nuit, mes amis, et bon vent. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

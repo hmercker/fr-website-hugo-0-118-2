@@ -33,3 +33,7 @@ Puissiez-vous poursuivre votre transformation, âmes bien-aimées et belles. Pui
 Dieu vous a accordé une conscience si vaste, si belle qu’une fois que vous en aurez un aperçu, vous connaîtrez une telle joie, une telle gratitude, un tel émerveillement que vous serez amplement élevés dans la Lumière. Que Dieu vous bénisse, âmes bien-aimées, sur ce chemin. Nous attendons votre réveil. Nous attendons votre voyage qui vous amènera dans le Royaume Céleste où nous nous rejoindrons dans ce grand voyage de découverte.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Seretta Kem. Je suis heureuse de venir vous parler aujourd’hui, pour enrichir votre discours de l’âme. Que la bénédiction de l’amour de Dieu vous permette de mieux comprendre la conscience de l’âme. Que Dieu vous bénisse. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

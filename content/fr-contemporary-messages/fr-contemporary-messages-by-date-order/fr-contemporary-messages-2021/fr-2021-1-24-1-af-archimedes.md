@@ -40,3 +40,7 @@ Si nous pouvions avoir beaucoup plus de cercles puissants comme celui-ci dans le
 Beaucoup vous est donné, mes beaux amis, parce que vous êtes prêts à recevoir, vous êtes prêts à être ensemble dans cette atmosphère d’amour. C’est le pouvoir de l’amour qui donne le pouvoir à tout ce que nous faisons et à tout ce que vous faites pour apporter la lumière dans le monde. Continuez à prier pour ce don d’Amour Divin qui transforme et guérit et apporte un grand bénéfice et une grande puissance au travail que nous partageons ensemble.
 
 Mon amour est avec vous tous, de belles âmes qui brillent, de belles âmes réunies dans l’unité, de belles âmes qui sont ouvertes et qui permettent l’échange de lumière et d’énergies merveilleuses et de bénédictions, les unes avec les autres, Dieu avec tous. Que Dieu vous bénisse. Je suis Archimède. Je suis heureux de vous parler aujourd’hui de ce qui se passe alors que vous priez ensemble. Que Dieu vous bénisse. Que Dieu vous bénisse, mes amis.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

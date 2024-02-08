@@ -20,3 +20,7 @@ Parce que vous cherchez le Royaume et à être en harmonie avec votre Créateur,
 Lorsque vous alignez votre volonté sur la Volonté de Dieu dans la prière pour Son Amour, vous avez transcendé le monde et les lois terrestres et vous ne faites plus qu’un dans l’amour avec votre Créateur. Au fur et à mesure que vous grandissez dans cet Amour, ou laissez-moi dire, au fur et à mesure qu’il grandit dans votre âme, vous voyez de plus en plus l’unité de la création, mais aussi les rouages de l’Amour de Dieu, Sa volonté, Sa grâce, Sa miséricorde, Ses dons à toute âme qui s’ouvre à eux.
 
 Ce chemin que vous avez choisi est en effet le pont vers l’éternité, vers l’immortalité, vers les Cieux Célestes. Vous avez bien choisi mes beaux amis. Que vos prières en cette saison soient ressenties autour de la terre en célébration de la naissance du maître qui a apporté la vérité de l’Amour Divin, le grand cadeau du Père au monde. Soyez joyeux, n’ayez pas peur, car Dieu vous aime. Nous vous adorons tous. Je suis votre sœur et amie, Tante Eileen. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

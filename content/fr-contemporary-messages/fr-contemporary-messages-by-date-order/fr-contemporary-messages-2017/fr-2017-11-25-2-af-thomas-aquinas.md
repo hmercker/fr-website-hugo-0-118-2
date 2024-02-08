@@ -44,3 +44,7 @@ Puissiez-vous considérer, mes amis bien-aimés, la route sur laquelle vous voya
 Que vos esprits trouvent du désir et de l'intérêt dans ce qui vous est proposé, afin que toutes les parties de vous puissent s'avancer avec audace et joie. Ne limitez pas la volonté de Dieu, mes bien-aimés, mais cherchez à connaître, à accepter et à exprimer sa parfaite volonté dans vos vies et tout se mettra en place. En fin de compte, il y aura une grande harmonie, un émerveillement, un prodige, une gloire dans vos vies, car Dieu vous touchera puissamment et le flux de Sa Lumière en vous vous portera dans ce monde comme jamais auparavant. Cela vient - cela se rapproche. Vous serez bénis, portés, guidés et aimés.
 
 Que Dieu vous bénisse, mes amis. Je suis Thomas d'Aquin. Je vous aime, mes beaux amis terrestres, beaux en effet, pleins de tant de potentiel et de Lumière et d'Amour. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

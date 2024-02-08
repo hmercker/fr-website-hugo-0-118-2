@@ -31,4 +31,6 @@ Jésus | [Jésus parle de la juste indignation - 2](/fr-contemporary-messages/fr
 Jésus | [Jésus parle de la juste indignation - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-7-29-2-fab-jesus/) | 29 Juillet 2010
 
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

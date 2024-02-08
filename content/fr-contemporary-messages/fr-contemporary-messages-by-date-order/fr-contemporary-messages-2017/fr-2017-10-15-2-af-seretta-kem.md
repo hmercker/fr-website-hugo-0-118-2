@@ -34,3 +34,7 @@ Ce sera un voyage puissant, mes amis, transformateur dans sa nature, ouvrant des
 Mon fils, oui, tu seras soutenu dans ton engagement ce soir comme à chaque fois que tu fais la Volonté du Père et que tu apportes la Vérité de Son Amour dans ce monde. Tu seras soutenu, élevé, renforcé, et tu recevras le cadeau de la clarté que tu as demandé à recevoir. Elle te sera donnée. Tu verras. Et à toi aussi, ma fille. Tu rends un grand service. Tu aideras à rassembler ces gens pour qu'ils voient un plus grand objectif, un avenir plus harmonieux, en se regroupant dans la prière, le soutien mutuel et l'amitié. Tout fait partie de la volonté de Dieu et se manifestera en conséquence.
 
 Je continuerai donc à parler et à conseiller alors que nous progressons sur ce chemin. Que les nombreuses bénédictions de Dieu se déversent sur vous et que Son Amour trouve son afflux constant dans vos âmes, mes bien-aimés, Son cadeau - Son cadeau qui guérit et réconforte et vous fait renaître dans la Lumière de Son Amour. Que Dieu vous bénisse. Je suis Seretta Kem et je suis avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

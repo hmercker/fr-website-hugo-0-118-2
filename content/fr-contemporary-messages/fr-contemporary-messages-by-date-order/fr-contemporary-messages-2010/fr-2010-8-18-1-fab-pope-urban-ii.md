@@ -21,4 +21,6 @@ Je sais qu’il vous est difficile de comprendre comment un important chef d’�
 
 Mais tout cela est du passé. Je souhaite vous donner une parole de réconfort quant à la situation actuelle. Dieu est fidèle, et Il aidera l’humanité de manière indéniable, comme Il l’a promis.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

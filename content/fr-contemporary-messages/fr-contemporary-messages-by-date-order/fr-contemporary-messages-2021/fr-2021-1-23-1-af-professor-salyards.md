@@ -29,3 +29,7 @@ Que Dieu vous bénisse, âmes bien-aimées. Puissiez-vous continuer à trouver v
 <small>
 
  1. <large id=”f1”> Allusion au proverbe chinois : « [Don’t push the river, it flows by itself](https://sophia.smith.edu/blog/wordsofwisdom/2010/06/30/dont-push-the-river-it-flows-by-itself-chinese-proverb/). » [↩](#a1)
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

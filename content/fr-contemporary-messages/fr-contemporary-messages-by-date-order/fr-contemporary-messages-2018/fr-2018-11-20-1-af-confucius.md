@@ -21,7 +21,13 @@ Apportez toujours de l’amour dans votre journée et dans tout ce que vous fait
 
 Grand amour et bénédictions à vous mes fils, mes précieux fils, qui font l’effort de marcher dans la lumière et de savoir que moi et beaucoup sont avec vous, marchent avec vous, et désirent que nous puissions avoir un plus grand rapport, que nous puissions nous rapprocher, que ce travail qui nous attend tous puisse effectivement se réaliser. Dieu continue à vous bénir, mes bien-aimés. Dieu continue à vous encourager, à vous élever et à éveiller vos âmes afin que vous soyez équipés pour être dans ce monde un agent de changement, un magnifique canal d’amour, afin que vous puissiez apporter la sagesse et la vérité partout où vous allez.
 
-Que Dieu vous bénisse, mes bien-aimés, mes frères bien-aimés. Mon amour est avec vous. Lumière de guérison sur vous. La paix soit avec vous, mes bien-aimés.
+Que Dieu vous bénisse, mes bien-aimés, mes frères bien-aimés. Mon amour est avec vous. Lumière de guérison sur vous. La paix soit avec vous, mes bien-aimés.<sup id="a2">[2](#f2)</sup>
 <small>
 
 1. <large id="f1"> Pauline Rose est une guérisseuse inhabituelle à laquelle Geoff Cutler fait régulièrement appel. Elle utilise la technologie russe pour guérir par l’énergie. La machine diagnostique en fait ce qui ne va pas, puis le guérit.[↩](#a1)
+
+2. <large id="f2"> Les différents messages communiqués  par Confucius sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a2)
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

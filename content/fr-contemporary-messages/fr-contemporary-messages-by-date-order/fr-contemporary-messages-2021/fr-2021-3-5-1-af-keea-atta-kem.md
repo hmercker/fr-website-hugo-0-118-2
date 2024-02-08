@@ -24,3 +24,8 @@ Au fur et à mesure de cette évolution, au fur et à mesure que ce changement d
 Continuez à prier pour que ce don de l’Amour Divin réveille votre âme, pour comprendre vraiment qui vous êtes et quel rôle vous jouez dans ce monde bien-aimé, afin qu’il n’y ait pas de confusion et que ce que vous faites apporte lumière et harmonie, paix et joie. Vous ferez partie de tous ceux que Dieu a activés pour apporter changement et guérison à votre monde. Puissiez-vous vous considérer comme des agents de changement, des canaux de guérison, de vérité et d’amour. Car c’est votre moi supérieur et c’est ce que Dieu souhaite pour tous ses enfants ; tous ses enfants bien-aimés pour marcher dans le monde comme une manifestation de sa création, et pour co-créer avec Dieu un monde meilleur, un monde plein de paix et d’harmonie, un monde qui est d’amour, un monde où tous vivent ensemble dans une harmonie d’amour.
 
 Merci à vous, âmes bien-aimées, je suis Keea Atta Kem. Je suis heureux de vous parler aujourd’hui du plan de Dieu pour ramener le monde à l’harmonie et à la lumière. Que Dieu vous bénisse. Mon amour est avec vous tous. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

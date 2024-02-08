@@ -32,3 +32,7 @@ Vous êtes Ses enfants, vous cherchez votre Père Céleste, vous cherchez à att
 Vos âmes le désirent. Vos âmes ont un profond désir d’être exprimées de cette manière, de se libérer des confins de vos mentalités dans la clarté de l’union avec Dieu. Puissiez-vous trouver cette liberté, âmes bien-aimées. Puissiez-vous connaître cette union et tout ce qui l’accompagne. C’est à vous de le demander et cela ne vous sera jamais refusé.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant Augustin. Je suis avec vous alors que vous avancez et je continuerai à vous donner mes conseils, mon amour, alors que vous vous rapprochez toujours plus de Dieu. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

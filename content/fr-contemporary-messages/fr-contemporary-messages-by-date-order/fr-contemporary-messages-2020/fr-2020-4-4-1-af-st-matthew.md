@@ -28,3 +28,7 @@ Que Dieu vous bénisse alors que vous continuez à découvrir les potentiels de 
 Que Dieu vous bénisse, vous les âmes bien-aimées. Je suis Matthieu et je suis très heureux que vous continuiez à collaborer en harmonie, que vous continuiez à voir votre chemin à travers tous les obstacles qui se trouvent sur votre route et que vous grandissiez en force, en amour et en sagesse. Que Dieu vous bénisse, âmes bien-aimées. Sachez que nous sommes avec vous et que nous sommes proches, nous continuerons à être proches alors que vous continuez à suivre ce chemin de service dans l’amour.
 
 Que Dieu vous bénisse. Mon amour est avec vous. Je suis Matthieu. Mon amour est sûrement avec vous, âmes bien-aimées.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

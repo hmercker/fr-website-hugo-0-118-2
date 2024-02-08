@@ -24,3 +24,7 @@ Vous vous êtes réunis pour vivre un moment très béni, une occasion de vous r
 Permettez-vous de vous élever, âmes bien-aimées. Cherchez ce qui est le plus élevé. Apprenez à connaître Dieu et vous n’aurez jamais soif de connaissance, et vous ne vous demanderez jamais qui vous êtes et ce qui se trouve en vous. Car avec Dieu, l’éveil de votre âme apporte toutes les réponses, apporte toutes les possibilités, vous amène à un endroit de clarté afin que vous puissiez être un canal clair d’amour dans ce monde. Dieu touche votre âme en ce moment même. Respirez cette bénédiction.
 
 Apprenez à connaître les véritables désirs de votre âme, afin que vous puissiez être en harmonie avec Dieu. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées. Votre enseignant Augustin est avec vous dans ce merveilleux voyage d’éveil. Que Dieu vous bénisse et que je vous aime.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

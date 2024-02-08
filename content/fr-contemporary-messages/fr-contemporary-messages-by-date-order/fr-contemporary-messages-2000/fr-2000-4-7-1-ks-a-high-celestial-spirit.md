@@ -31,5 +31,8 @@ J’espère que cela vous sera utile. Nous vous aimons d’un amour constant, qu
 
 Je vous aime, tous et chacun, et je vous laisse maintenant avec mes bénédictions pour une semaine productive et harmonieuse. Activez votre foi, aimez-vous, et nous sentons que vous retrouverez la santé de votre esprit et de votre corps. Je me signe, un haut esprit Céleste.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+
+### [**Lien vers les messages des années 2000**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

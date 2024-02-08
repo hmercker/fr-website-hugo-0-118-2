@@ -99,8 +99,7 @@ Goldie | [Soyez joyeux dans l’Amour de Dieu](/fr-contemporary-messages/fr-cont
 Robert Hugh Benson | [Croyance mentale et perception de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-18-2-jw-robert-hugh-benson/) | 18 Avril 2022
 Robert Hugh Benson | [Les royaumes de l’esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-19-1-jw-robert-hugh-benson/) | 19 Avril 2022
 Orion | [Discussion sérieuse sur l’effondrement économique et l’élévation de la conscience sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-20-1-af-orion/) | 20 Avril 2022
-Jésus | [Bénédictions profondes de paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-23-1-af-jesus/) | 23 Avril 2022
-Inayat Khan | [Gardez un chant dans votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-25-1-jw-inayat-khan/) | 25 Avril 2022
+Jésus | [Bénédictions profondes de paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-23-1-af-jesus/) | 23 Inayat Khan | [Gardez un chant dans votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-25-1-jw-inayat-khan/) | 25 Avril 2022
 Augustin | [Comment savez-vous que vous recevez l'Amour Divin ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-25-2-af-augustine/) | 25 Avril 2022
 André | [Choix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-29-1-af-andrew/) | 29 Avril 2022
 Inayat Khan | [Le chant du cœur et la danse de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-2-1-jw-inayat-khan/) | 2 Mai 2022
@@ -140,7 +139,7 @@ Orion | [Les barrières en nous causées par le conflit de nos esprits et de nos
 Jésus | [Prier pour un déversement pentecôtiste de l’Amour Divin de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-5-1-af-jesus/) | 5 Juin 2022
 Care Derby Walsh | [Semences de la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-5-2-jw-care-derby-walsh/) | 5 Juin 2022
 St François d'Assise | [Le Septième Sens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-6-1-jw-st-francis-of-assisi/) | 6 Juin 2022
-Gurdjieff | [Rester éveillé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-7-1-jw-george-gurdjieff/) | 7 Juin 2022
+George Gurdjieff | [Rester éveillé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-7-1-jw-george-gurdjieff/) | 7 Juin 2022
 Orion | [Orion est toujours avec nous, pour nous soutenir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-8-1-af-orion/) | 8 Juin 2022
 Orion | [L’humanité continue de résister à l’amour et aux énergies de guérison de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-11-1-af-orion/) | 11 Juin 2022
 Marie | [Les anges travaillent avec nous pour transformer l’obscurité en lumière, l’erreur en vérité et le chaos en paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-12-1-af-mary/) | 12 Juin 2022
@@ -294,7 +293,6 @@ Augustin | [Reconnaîssez Jésus pour la vérité qu'il a apportée au monde](/f
 Orion | [Nous allons de l'avant à l'aube d'une nouvelle année](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-31-1-af-orion/) | 31 Décembre 2022
 Elizabeth Barret Browning | [Comment Dieu vous aime t-il ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-31-2-jw-elizabeth-barret-browning/) | 31 Décembre 2022
 
-[Lien vers les messages de l’année 2023](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
-<br>
-<br>
-[Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

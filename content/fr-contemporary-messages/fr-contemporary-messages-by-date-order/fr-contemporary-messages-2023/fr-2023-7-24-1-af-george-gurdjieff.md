@@ -11,7 +11,7 @@ weight:
 
 George Gurdjieff - reçu par Al Fike le 24 Juillet 2023, Sechelt, Colombie-Britannique, Canada.
 
-Je viens votre frère en Christ et le grand-père spirituel de celui-ci. Je suis George Gurdjieff, Papa G.
+Je viens votre frère en Christ et le grand-père spirituel de celui-ci. Je suis George Gurdjieff,<sup id="a1">[1](#f1)</sup> Papa G.
 
 Que l’amour de Dieu soit sur vous !
 
@@ -26,3 +26,19 @@ Lorsque vous entrez dans ce cercle, votre âme le sait immédiatement. « Ah je 
 Lorsque vous envoyez une guérison, si son destinataire est prêt à la recevoir, il le fera. Car Dieu travaille de manière mystérieuse et merveilleuse au-delà de l’imagination de l’esprit matériel.
 
 Restez dans cette bénédiction. Restez dans cette belle connexion à la vie éternelle et à l’amour infini de Dieu. Je vous remercie beaucoup d’avoir pris mon message et je vous envoie tout mon amour et mes bénédictions dans l’Amour de Dieu. Je suis votre frère et ami dans les Cieux Célestes. Je suis George Gurdjieff. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> Georges Gurdjieff s'est également exprimé dans les messages suivants :  [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+George Gurdjieff | [L'empereur n'a pas de vêtements](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-10-10-2-jw-george-gurdjieff/) | 10 Octobre 2019
+George Gurdjieff | [Vous ne pouvez pas vous révolter contre les ténèbres, mais vous pouvez embrasser tout ce qui est dans la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-12-1-jw-george-gurdjieff/) | 12 Octobre 2020
+George Gurdjieff | [Laissez entrer l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-12-3-jw-george-gurdjieff/) | 12 Octobre 2020
+George Gurdjieff | [Continuez à apporter cette lumière dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-14-1-jw-george-gurdjieff/) | 14 Juin 2021
+George Gurdjieff | [Manifestations et expériences Sprituelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-28-1-af-george-gurdjieff/) | 28 Septembre 2021
+George Gurdjieff | [Rester éveillé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-7-1-jw-george-gurdjieff/) | 7 Juin 2022
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -11,7 +11,7 @@ weight:
 
 Confucius - reçu par FAB le 7 Juin 2008, Santa Cruz, Californie, USA.
 
-C'est moi, Confucius.
+C'est moi, Confucius.<sup id="a1">[1](#f1)</sup>
 
 J'ai délibérément utilisé la forme occidentale, latinisée, de mon nom avec vous, car c'est la façon dont vous vous reliez le mieux à moi en ce moment. Vous l'avez donc canalisé correctement.
 Je suis heureux que vous étudiiez l'histoire de la Chine. Elle est remplie du drame et de la tragédie de la vie humaine, un vaste océan d'expériences pour lequel des romans et des pièces de théâtre sans fin peuvent être écrits. Oui, l'histoire et la culture chinoises peuvent apprendre beaucoup à l'humanité sur la condition humaine et la vie.
@@ -34,5 +34,10 @@ Tout se met en place et se construit jusqu'à son apogée. Je sais que vous le v
 La colère, la haine et la violence ont une durée de vie relativement courte sur la scène mondiale. Ce qui est plus durable, c'est la transformation des tendances négatives en pardon et en amour. Et comme de plus en plus de gens s'éveillent à cette grande vérité transcendante, le monde évoluera en conséquence.
 
 Je réalise que j'ai parlé d'une manière quelque peu rhapsodique. Mais j'ai dit la vérité, que l'histoire confirmera.
+<small>
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+1. <large id="f1"> Les différents messages communiqués  par Confucius sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a1)
+
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

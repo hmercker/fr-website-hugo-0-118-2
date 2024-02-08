@@ -28,3 +28,7 @@ Belles âmes, en faisant confiance à Dieu et à Sa Volonté, en ressentant et e
 Et nous qui vous aimons et servons Dieu et vous servons dans l’amour, nous continuerons à vous soutenir et à vous porter à travers les moments difficiles vers un lieu d’ouverture et de paix et de présence puissante dans l’amour. Oui, mes bien-aimés, vous êtes portés, vous êtes aimés, vous recevez tout ce dont vous avez besoin pour monter vers ce lieu de pureté. Que chacun d’entre vous en vienne à vraiment comprendre, accepter et désirer cette invitation donnée par Dieu à être avec lui dans cette lumière et cet Amour.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis André, je vous aime tendrement, je suis avec vous, je suis avec vous comme celui qui vous aime tendrement. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

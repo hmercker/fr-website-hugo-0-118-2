@@ -14,8 +14,8 @@ weight:
 Woodrow Wilson | [L’idéalisme d’un président](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-10-1-fab-woodrow-wilson/) | 10 Janvier 2014
 Pape Pie XII | [L’erreur d’un pape](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-26-1-fab-pope-pius-xii/) | 26 Janvier 2014
 Jean-Baptiste | [Les Cieux Célestes ont des âmes de toutes les croyances](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-30-1-wv-john-the-baptist/) | 30 Janvier 2014
-Sri Yarisupta | [Le gourou Hindou Sri Yukteswar parle de l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-30-2-fab-sri-yarisupta/) | 30 Janvier 2014
-Sri Yarisupta | [La loi de la création et Sathya Sai Baba](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-2-4-1-wv-sri-yarisupta/) | 4 Février 2014
+Sri Yukteswar | [Le gourou Hindou Sri Yukteswar parle de l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-30-2-fab-sri-yarisupta/) | 30 Janvier 2014
+Sri Yukteswar | [La loi de la création et Sathya Sai Baba](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-2-4-1-wv-sri-yarisupta/) | 4 Février 2014
 Joseph | [Mémoires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-2-11-1-wv-joseph/) | 11 Février 2014
 Joseph | [Récupérer des souvenirs traumatiques](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-2-18-1-wv-joseph/) | 18 Février 2014
 Jésus | [Conseils](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-13-1-joseph-jesus/) | 13 Mai 2014
@@ -58,7 +58,6 @@ John | [Les péchés des parents et des grand parents](/fr-contemporary-messages
 Marie | [Utilisez votre don de la vie de manière optimale](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-15-1-af-mary/) | 15 Décembre 2014
 St Jean | [Volonté et Libre Arbitre et le sens de 666](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-21-1-wv-st-john/) | 21 Décembre 2014
 
-[Lien vers les messages de l’année 2015](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/)
-<br>
-<br>
-[Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+### [**Lien vers les messages des années 2015**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

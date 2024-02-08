@@ -26,3 +26,7 @@ C’est le prochain niveau d’évolution de l’humanité, pour rechercher les 
 Que Dieu vous bénisse, âmes bien-aimées, avec cette grande puissance, avec ce doux souffle de Dieu, avec tout ce qu’est l’Amour de Dieu. Puisse-t-il venir à vos âmes et éveiller tous les beaux potentiels et dons qui sont en vous. Vous êtes destinés à être des créatures de Lumière, des créatures de Dieu et cela peut être et sera alors que vous continuez à grandir dans ce merveilleux flux d’Amour du Père.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis François. Mon amour est avec vous, mes prières sont avec vous et je marche souvent avec vous. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

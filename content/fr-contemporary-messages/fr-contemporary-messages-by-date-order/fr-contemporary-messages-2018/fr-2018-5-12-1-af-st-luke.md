@@ -35,3 +35,7 @@ Que Dieu vous bénisse dans votre voyage, mes chers amis, et que Son Amour conti
 <small>
 
 1. <large id="f1"> Judas a délivré un message détaillé sur ce [sujet de l'oubli](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-6-1-hr-judas/).[↩](#a1)
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -36,3 +36,7 @@ Ces grands réveils arrivent. Ils arrivent, mes bien-aimés. Avec cela, de nombr
 Bien-aimés, les temps continuent à vous défier mais vos âmes continuent à relever ce défi et à marcher dans la Lumière. Et pour cela, sachez que nous serons toujours à vos côtés, que vous serez protégés, que l’Amour de Dieu continuera à couler dans vos âmes, que votre vie sera une expression de Lumière et de Vérité. Vous êtes les enfants de Dieu. Vous continuez à ouvrir les yeux sur cette Vérité. Cette Vérité deviendra la réalité écrasante de votre vie. En cela, une grande joie s’ensuivra. En cela, une grande sagesse viendra. En cela, une grande force et des manifestations et des bénédictions seront à vous.
 
 Mes bien-aimés, vous êtes aimés. Nous vous aimons beaucoup. Dieu vous aime au-delà de toute mesure. Sachez ceci. Embrassez-le vraiment et soyez joyeux que votre vie s’exprime dans le flux de l’Amour et de la Lumière. Tout va bien, mes bien-aimés, tout va bien. Que Dieu vous bénisse. Je suis Seretta Kem à votre service, à vos côtés. Je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

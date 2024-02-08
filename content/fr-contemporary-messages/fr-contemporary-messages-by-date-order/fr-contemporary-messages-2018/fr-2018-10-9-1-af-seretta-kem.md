@@ -30,3 +30,7 @@ Il y a tant de choses à découvrir, mes amis, tant de choses. Mais durant ce te
 Vous continuerez à vous éveiller ainsi en recevant et en buvant profondément de toutes ces choses. Naturellement, l’évolution et l’éveil qui se produisent en vous vont se déployer et donner naissance à de nouvelles et merveilleuses choses en vous. C’est le cadeau de Dieu pour vous. Son Amour s’exprime de bien des manières merveilleuses. Son Amour pour vous, si profond et si glorieux. Vous commencez à voir, mes bien-aimés, à voir vraiment. Et nous continuons ce voyage ensemble.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem. Je continue à marcher avec vous, à vous aider, à vous guider, à vous informer, à vous inspirer et à vous cajoler sur ce chemin. Vous êtes aimés. Vous êtes entourés d’anges. Vous êtes bénis et vous vous éveillez à l’amour. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -30,3 +30,7 @@ Mes bien-aimés, oui, il est difficile de comprendre l’immensité de l’Amour
 Je vous aime. Je vous aime tellement et je suis avec vous. J’ai beaucoup de compassion pour vos luttes. J’ai un grand désir de vous voir sortir de ces luttes. Dans vos prières et vos désirs, vous m’attirez près de vous, et vous connaîtrez ainsi la touche de guérison et de grâce que je peux donner à chacun d’entre vous. Mes bien-aimés, mes bien-aimés, puissions-nous nous rassembler maintenant dans le glorieux contact de l’Amour de Dieu et être ses enfants divins sur le chemin sans fin de l’expiation.
 
 Que Dieu vous bénisse. Je vous aime et je serai toujours avec vous, mes bien-aimés. Dieu est toujours avec nous tous. Que Dieu vous bénisse. Puissiez-vous connaître la paix qui dépasse toute compréhension. Puissiez-vous sentir la lumière et la chaleur de l’Esprit Saint toucher votre âme. Puissiez-vous connaître la joie de la reconnaissance de Dieu par votre âme. Puissions-nous tous connaître l’unité, l’unicité de notre relation avec le Divin. Que Dieu vous bénisse. Je suis Jésus et je vous aime. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

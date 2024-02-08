@@ -27,3 +27,7 @@ Il y a toujours un grand amour pour vous, je suis Seretta Kem et je souhaite exp
 <small>
 
 1. <large id="f1"> [Message de Serreta Kem du 12 Décembre 2017](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-12-2-af-seretta-kem/).[↩](#a1)
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

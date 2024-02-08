@@ -17,4 +17,6 @@ Vous avez eu plusieurs canalisations de Jeannette Rankin. Elle a décrit sa vie 
 
 Si ses vues semblaient en désaccord avec les recherches de ses biographes, cela signifie simplement qu'il y a une perception différente.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

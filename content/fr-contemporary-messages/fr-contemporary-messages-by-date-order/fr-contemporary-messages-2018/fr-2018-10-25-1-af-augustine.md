@@ -36,3 +36,7 @@ Tracez votre ligne, âmes bien-aimées, votre ligne contre les ténèbres et l�
 Âmes bien-aimées, Dieu vous touche profondément. Son Amour se déverse en vous en ce moment même. Vous êtes embrassés et tenus dans le Toucher sacré de Dieu, dans Son Amour pour vous. La puissance de ceci est plus grande que la puissance de mille soleils. Il peut apporter tout changement et toute la force nécessaire pour le faire. Ayez confiance dans le toucher de Dieu. Recherchez toujours cette bénédiction et soyez confiant que toute guérison viendra et chassera vos soucis et vos inquiétudes comme si c’était une plume. Le Souffle de Dieu est sur vous, mes bien-aimés. Relâchez vos préoccupations et soyez dans la lumière. Acceptez votre réveil et vivez dans sa joie.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant, Augustin. Vous connaissez mon amour, mon attention et mes soins sur toi. Je continuerai à marcher avec vous alors que vous grandissez dans cet amour, alors que vous devenez cette nouvelle et belle âme lumineuse que Dieu a voulu être dans ce monde. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

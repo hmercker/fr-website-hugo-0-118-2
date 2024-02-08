@@ -48,3 +48,7 @@ Nous, dans le Royaume Céleste, sommes très heureux lorsque vous vous avancez c
 J'espère que cela répond à vos questions, mes bien-aimés. Pour ceux qui sont craintifs, ceux qui, dans leurs habitudes mentales, placent des obstacles à leur guidance et qui apportent leurs opinions concernant votre guidance, dites une prière, demandez à Dieu de les bénir et d'ouvrir la voie pour qu'ils comprennent. C'est le pouvoir de la prière, mes bien-aimés. C'est le grand voyage dans lequel vous êtes tous et grandissez dans la Lumière, comme Dieu vous bénit chaque jour, en ouvrant de plus grandes capacités de compréhension, d'éveil de l'âme, de canaux d'amour, clairs et beaux.
 
 Que Dieu vous bénisse, mes bien-aimés, à chaque pas que vous faites. Sachez que vous êtes aimés et pris en charge de la manière la plus tendre et la plus belle qui soit. Nous continuerons à vous nourrir alors que Dieu continue à déverser son amour sur vous. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse. Je suis votre enseignant Augustin et mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

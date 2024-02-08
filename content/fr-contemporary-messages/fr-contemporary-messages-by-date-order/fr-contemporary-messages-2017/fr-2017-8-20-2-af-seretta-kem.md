@@ -34,3 +34,7 @@ Nous continuons donc, mes bien-aimés, nous continuons à aller de l'avant, à t
 Dieu vous bénit puissamment, âmes bien-aimées. Dieu bénit tous ceux qui font partie de vos vies alors que cette lumière brille, brille sur beaucoup, beaucoup d'âmes alors que vous continuez à ouvrir ce canal d'amour à ce monde. Bénis soient les enfants qui cherchent à servir de cette façon, qui viennent humblement à Dieu et demandent Ses bénédictions d'Amour et d'être utilisés comme Ses canaux d'Amour et de Vérité, pour recevoir les dons et les instruments qui apporteront la vérité à l'humanité. Bénis sont ces enfants qui sont les enfants de Dieu et ils seront puissamment bénis.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem et vous êtes également bénis d'avoir le Maître avec vous lorsque vous priez de cette façon. Il vient donc vous bénir, vous renforcer et vous couvrir de son ombre dans vos prières. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

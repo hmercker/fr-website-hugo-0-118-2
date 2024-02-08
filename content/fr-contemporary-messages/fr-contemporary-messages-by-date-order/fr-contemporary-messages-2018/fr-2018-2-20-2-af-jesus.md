@@ -26,3 +26,7 @@ C’est l’Amour qui est la clé et qui a toujours été la clé d’un grand �
 Cette voie simple est celle qui changera le monde. La voie simple est ce qui vous changera, mes bien-aimés, et vous en viendrez à connaître le monde à travers des yeux différents et à entendre la volonté de Dieu qui peut être exprimée à travers vous, mes bien-aimés.
 
 Puissiez-vous trouver le chemin qui vous est prescrit. Le chemin qui vous est destiné. Le chemin qui vous mènera à l’accomplissement de votre but dans ce monde. Il est clairement exposé devant vous, mes bien-aimés. Ouvrez vos yeux pour voir. Que les écailles soient enlevées et que votre compréhension soit claire alors que vos âmes s’éveillent et que vos esprits acceptent le pouvoir de l’Amour. Que Dieu vous bénisse, mes bien-aimés. Je suis Jésus et je vous aime. Je vous embrasse. Je suis avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

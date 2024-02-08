@@ -18,3 +18,7 @@ Car lorsqu’une personne est déprimée, en colère, triste, en proie au doute 
 Toute guérison consiste à élever la vibration qui n’est pas en harmonie ou qui est bloquée vers un état de lumière et d’amour. Pour l’âme, c’est le plus important et dans ce cercle de lumière, d’amour et de foi en Dieu, vous pouvez laisser les préoccupations et les problèmes se dissiper dans l’Amour Divin. Cette aspiration de l’âme est satisfaite non seulement dans le domaine spirituel mais aussi dans le domaine physique.
 
 Alors maintenant, je vais en silence avec vous et mon souhait pour vous tous est d’être béni dans l’Amour de Dieu, guéri dans la lumière, la grâce et la présence qui vient avec ce grand cadeau. Qu’il soit le vôtre. Que Dieu bénisse chacun, guérisse chacun dans ce cercle et au-delà. Je suis votre frère et ami en Christ, je suis Yogananda.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

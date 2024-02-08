@@ -20,3 +20,7 @@ Lorsque l’âme commence à tendre la main, souvent au début, elle s’écrie 
 Ceux d’entre nous qui sont dans les royaumes Célestes, nous venons en réponse aux prières de votre âme pour être changée, transformée, et élevée dans l’Amour de Dieu. Dans ce sens, et seulement dans ce sens, vous pouvez dire que nous avons des ailes. Car les ailes sont un symbole et une métaphore appropriés pour être élevé au-dessus du plan terrestre dans la conscience de l’Amour de Dieu et de la présence et de la lumière qui est au-delà de toutes les différences humaines, au-delà du désaccord, et au-delà de la discrimination. C’est l’unité suprême dans Sa grâce.
 
 Mes chers qui venez à ces cercles, qui aspirez à être dans cette communion dans la grâce de Dieu, vous êtes l’espoir du monde. Et comme le dit la chanson de mon frère, *« que votre lumière brille sur chaque être »* avec l’Amour de Dieu. Que cela soit votre cadeau. Je vais maintenant me retirer pour vous rejoindre dans votre cercle de lumière et dans la grâce de Dieu. Je suis ton frère et ton ami. Je suis Yogananda. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

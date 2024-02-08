@@ -32,3 +32,7 @@ Marchez dans votre monde avec de la joie dans votre cœur et un grand amour pour
 Puissiez-vous écouter vos âmes. Écoutez la guidance que Dieu continue à déverser en vous. Soyez conscients. Ayez foi en cette compréhension qu’est votre âme qui connaît la volonté de Dieu et vous trouverez votre chemin. Vous serez ceux qui ouvrent la voie. Vous serez un instrument, un canal de Lumière, d’Amour, de guérison, de paix, de tout ce qui est bon, de tout ce qui élève, de tout ce qui aide à apporter une plus grande harmonie à vos frères et sœurs. L’Amour de Dieu est grand pour vous tous, mes bien-aimés. Vous êtes Ses enfants bénis. Vous trouverez votre chemin vers le sein de Dieu et vous connaîtrez le grand réconfort qui s’y trouve. Il est toujours là pour vous donner dans les moments de lutte et dans les moments de joie, toujours là, mes bien-aimés.
 
 Permettez à Dieu de vous embrasser et de vous tenir dans cette Lumière et de vous bénir dans Son Amour. Que Dieu vous bénisse. Je suis Seretta Kem. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

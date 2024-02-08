@@ -19,4 +19,6 @@ Il en va de même avec Dieu, qui aime chacun d'entre nous plus encore que n'impo
 
 Mais cette tristesse n'enlève rien aux autres sentiments de joie que seul un Être tout-puissant et omniscient peut ressentir.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

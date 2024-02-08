@@ -26,3 +26,7 @@ Priez pour tous vos frères et sœurs. Priez pour être utilisés comme canaux d
 Alors il sera. Ainsi en est-il, en a-t-il été et en sera-t-il toujours. C’est la voie de l’univers de Dieu. Ses Lois, Ses Lois d’Amour respectent toutes le grand don du libre arbitre. Tous respectent les dons merveilleux qu’il a donnés à Ses enfants. Qu’il s’agisse du mental, de l’esprit ou de l’âme, toutes ces choses fusionneront avec le temps et seront vraiment en alignement avec Dieu alors que vous continuez à grandir dans l’Amour de Dieu et connaissez son but, son intention pour chacun de vous. Écoutez. Soyez en alignement avec Dieu, à l’écoute de votre âme et recherchez Son Amour. Tout le reste viendra en accord avec vos efforts et vos désirs.
 
 Que Dieu vous bénisse. Je suis votre enseignant Augustin. Mon amour est avec vous. Mon amour est avec vous tous, bien-aimés. Que l’Amour de Dieu soit le point d’ancrage et le fondement de tout dans votre vie. Que Dieu vous bénisse, bien-aimés.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

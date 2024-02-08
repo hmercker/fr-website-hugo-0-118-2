@@ -34,3 +34,7 @@ Marchez dans la foi. Cherchez Dieu, en ayant confiance qu’en tendant la main, 
 Bien-aimés, vous êtes assis dans la lumière de l’Amour de Dieu en ce moment. Respirez-la comme un homme assoiffé dans le désert. Buvez ces eaux pour vous ramener à la vie, la vie éternelle, les bénédictions au-delà de la compréhension, la joie qui construit pour toujours. Puissiez-vous être bénis, mes bien-aimés.
 
 Je suis Luc et je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

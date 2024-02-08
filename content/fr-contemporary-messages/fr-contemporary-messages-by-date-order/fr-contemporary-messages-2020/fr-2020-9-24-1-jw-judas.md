@@ -16,3 +16,8 @@ Je suis ici votre frère Judas et je viens dans la grâce de Dieu comme un disci
 > Trouvez un endroit calme, sans distractions, coupez-vous du monde, mettez de côté toutes les choses que vous devez faire, vos préoccupations matérielles et même vos préoccupations spirituelles, et pendant un moment, soyez tout simplement. Ressentez votre être et l’esprit de la vie dans votre corps physique et au-delà, car vous n’êtes pas limité. Ressentez la lumière de votre âme. Ressentez votre cœur et ses désirs d’amour. Permettez à ces désirs d’aller vers Dieu. Soyez réceptif. Détendez-vous dans l’amour. Libérez votre esprit pour que votre âme puisse communiquer et ne faire qu’un avec son Créateur depuis votre cœur. Vous n’avez rien à perdre qui ne vaille la peine d’être perdu. Ce que vous avez à gagner, c’est la gloire de l’amour de Dieu. Permettez-le.
 
 Je vous remercie. Tout mon amour et mes bénédictions. Que l’Amour de Dieu vous touche profondément dans ce voyage. Je suis votre ami éternel dans l’Amour de Dieu. Je suis Judas.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

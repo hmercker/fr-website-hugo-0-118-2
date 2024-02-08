@@ -11,7 +11,7 @@ weight:
 
 Marilyn Monroe <sup id="a1">[1](#f1)</sup> - reçu par FAB le 1 Décembre 2011, Berkeley, Californie, USA.
 
-C’est moi, Marilyn Monroe.
+C’est moi, Marilyn Monroe.<sup id="a2">[2](#f2)</sup>
 
 Je ne savais pas qu’une chose telle qu’un mortel recevant un message d’une personne décédée pouvait exister. Je ne savais même pas que je continuerais à vivre après ma mort. Merci beaucoup d’avoir reçu ce message. Je tiens beaucoup à vous faire part de mes pensées.
 
@@ -33,13 +33,17 @@ Ils m’ont aussi dit que j’en possédais une partie, et que c’était cet Am
 
 Eh bien, vous pouvez imaginer comment je me suis jetée dans la prière et la foi tout comme je me suis jetée dans mes images, et bien sûr, je suis sortie de ma souffrance et je suis entrée dans la lumière.
 
-Où suis-je maintenant ? Dans la cinquième sphère. J’ai l’air en forme, me dit-on. Mais ma souffrance m’a rendue plus sage, et devinez quoi – j’ai confiance en moi ! Je suis quelqu’un ! Et Dieu m’aime. Je n’ai plus besoin d’être dominé ou patronné, car Dieu m’accepte telle que je suis. Mon film a donc eu une fin heureuse. Oh, je suis si heureuse que vous soyez heureux pour moi ! *[Le médium la félicite.]*
+Où suis-je maintenant ? Dans la cinquième sphère. J’ai l’air en forme, me dit-on. Mais ma souffrance m’a rendue plus sage, et devinez quoi – j’ai confiance en moi ! Je suis quelqu’un ! Et Dieu m’aime. Je n’ai plus besoin d’être dominé ou patronné, car Dieu m’accepte telle que je suis. Mon film a donc eu une fin heureuse. Oh, je suis si heureuse que vous soyez heureux pour moi ! *[Le médium la félicite.]*<sup id="a3">[3](#f3)</sup>
 
 Je veux dire au monde que ce que vous exprimez vous reviendra, alors mettez-y les bonnes choses.
-
-**Note :** lire le [témoignage de Billy Wilder au sujet de Marilyn Monroe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-3-12-1-fab-billy-wilder/)
 <small>
 
 1. <large id="f1"> **Marilyn Monroe, née Norma Jeane Mortenson**, mais baptisée et élevée sous le nom de Norma Jeane Baker, du 1er Juin 1926 au 5 Août 1962, est une actrice, chanteuse, mannequin et showgirl américaine qui est devenue un important sex-symbol, jouant dans un certain nombre de films à succès dans les années 1950. Après avoir passé une grande partie de son enfance dans des foyers d’accueil, Marilyn Monroe a commencé une carrière de mannequin, ce qui lui a valu un contrat de cinéma en 1946. Ses premières apparitions au cinéma sont mineures, mais ses prestations dans The Asphalt Jungle et All About Eve (tous deux en 1950) attirent l’attention sur elle – ses cheveux sont désormais teints en blond. Elle reçoit un Golden Globe Award pour son interprétation dans « Certains l’aiment chaud (1959) ». Le dernier film terminé de MarilynMonroe est « The Misfits », avec Clark Gable, dont le scénario a été écrit par son mari de l’époque, Arthur Miller. Les dernières années de la vie de Monroe ont été marquées par la maladie, des problèmes personnels et une réputation d’être peu fiable et d’un caractère peu coopératif. Les circonstances de sa mort, due à une overdose de barbituriques, ont fait l’objet de nombreuses conjectures. Bien qu’officiellement classée comme un *« suicide probable »*, la possibilité d’une overdose accidentelle, ainsi que celle d’un homicide, n’ont pas été écartées. En 1999, l’American Film Institute a classé Marilyn Monroe comme la sixième plus grande star féminine de tous les temps. Dans les années et les décennies qui ont suivi sa mort, Marilyn Monroe a souvent été citée à la fois comme une icône pop et culturelle et comme la quintessence du sex-symbol féminin américain. (Source : Wikipedia)[↩](#a1)
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/)
+2. <large id="f2"> Marilyn Monroe s'est également exprimé dans un message communiqué [21 Novembre 2017](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-21-7-af-marilyn-munroe/)[↩](#a2)
+
+3. <large id="f3"> lire le [témoignage de Billy Wilder au sujet de Marilyn Monroe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-3-12-1-fab-billy-wilder/)[↩](#a3)
+
+### [**Lien vers les messages des années 2011**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

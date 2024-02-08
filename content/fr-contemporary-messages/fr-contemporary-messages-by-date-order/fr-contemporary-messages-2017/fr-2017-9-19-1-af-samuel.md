@@ -32,3 +32,7 @@ Oui, il y aura beaucoup d'expériences et d'expressions de la Volonté de Dieu d
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Samuel. Je suis heureux de vous parler. J'espère que je vous ai encouragés dans votre voyage pour voir que vous êtes Lumière et que vous suivez la volonté et le plan de Dieu dans vos expériences quotidiennes, les choix que vous faites, l'amour que vous donnez et l'amour que vous recevez. En faisant cela, vous commencez à cultiver en vous un amour profond pour vos frères et sœurs. C'est le plan de Dieu. C'est Son cadeau pour vous, pour changer vos pensées, vos désirs, vos motivations et la condition humaine, en un flux gracieux de la volonté et de la lumière de Dieu.
 
 Vous êtes bénis, âmes bien-aimées. Dieu vous bénit. Je suis Samuel. Je vous aime aussi. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

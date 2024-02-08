@@ -21,4 +21,6 @@ Faire de votre connexion avec Dieu votre objectif principal est un choix judicie
 
 Que Dieu vous bénisse, tous et chacun. Nous sommes ici en force, la puissance de l'Amour, pour aider à apporter la paix au monde. Je t'aime. Je suis votre ami et frère en Christ, Jésus, Maître des Cieux Célestes.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005)
+### [**Lien vers les messages des années 2005**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

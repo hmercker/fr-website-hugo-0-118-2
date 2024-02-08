@@ -36,3 +36,7 @@ J'espère m'être expliqué clairement. En ce qui concerne cet instrument et sa 
 Ainsi, vous grandissez en sagesse, âmes bien-aimées. Vous grandissez en perception. Vous grandissez dans l'Amour. Cela continue alors que vous continuez à prier Dieu d'ouvrir ces avenues de compréhension et de perception qui intensifient vos prières, vos désirs à Dieu, augmentant votre foi alors que l'Amour se construit en vous. Cela continue pour toute l'éternité, mes âmes bien-aimées, pour toute l'éternité. Comme vous êtes belles, belles et tendres pousses qui poussent du sol, le miracle de la vie, le miracle d'une âme qui reçoit une nouvelle vie, la vie de l'Amour.
 
 Alors nous vous regardons comme vous grandissez, comme vous vous développez, comme tous les aspects merveilleux de votre être s'épanouissent dans cet Amour et cette Lumière. Ainsi vous êtes bénis, mes bien-aimés, et ainsi nous sommes bénis en observant votre soi grandissant dans l'Amour et la Lumière. Que Dieu vous bénisse. Je suis Seretta Kem. Je vous aime.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

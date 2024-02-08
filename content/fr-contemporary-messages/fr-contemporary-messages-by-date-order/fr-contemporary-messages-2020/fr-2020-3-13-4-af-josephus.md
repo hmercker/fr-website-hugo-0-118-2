@@ -64,3 +64,7 @@ Que Dieu vous bénisse dans ce voyage, mon ami.
 *[Merci.]*
 
 Et maintenant, je crois que nous allons conclure notre temps ensemble. J’espère que ceux qui se trouvent dans ce petit Cercle de Lumière ont pu glaner un peu de compréhension, d’inspiration et de perspicacité. Je sais que nous avons traité de sujets quelque peu complexes. Écoutez votre âme. Mon espoir est que ces paroles soient enregistrées, que vous puissiez les relire, et peut-être même plusieurs fois, pour glaner la compréhension des choses dont je parle. Dieu vous bénira tous avec la Vérité, mes amis. C’est la Volonté de Dieu. Car lorsqu’une âme est sincère dans sa recherche, Dieu bénira cette âme avec la Vérité et l’Amour. Puissiez-vous trouver tout ce que vous cherchez et parvenir à connaître votre véritable moi dans toute sa beauté et sa gloire. Et moi, à ma façon, je viendrai vous aider dans ce voyage. Que Dieu vous bénisse, bien-aimés, belles âmes, que Dieu vous bénisse profondément dans Son Amour. Je suis Flavius Josèphe et je vous aime tendrement. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

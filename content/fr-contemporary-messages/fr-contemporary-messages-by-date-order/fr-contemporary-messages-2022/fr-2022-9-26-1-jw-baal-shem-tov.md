@@ -21,7 +21,7 @@ Ainsi, je souhaite vous dire que chaque fois que vous injectez quelque chose de 
 
 Alors, laissez cette joie être la vôtre et chantez des louanges au Seigneur, le Dieu unique, et à son grand amour pour nous. Faites un son joyeux sur cette terre.
 
-Je vous remercie de m’avoir accordé ce temps et je vais me retirer pour être dans l’Amour de Dieu avec vous et dans Sa Grâce. Et dans ma tradition, je souhaite à chacun d’entre vous une bonne et heureuse année. Faites de chaque jour un nouveau jour en renaissant dans l’amour de Dieu. Avec tout mon amour et mes bénédictions, je vous remercie. Je suis le Baal Shem Tove. Que Dieu vous bénisse !
+Je vous remercie de m’avoir accordé ce temps et je vais me retirer pour être dans l’Amour de Dieu avec vous et dans Sa Grâce. Et dans ma tradition, je souhaite à chacun d’entre vous une bonne et heureuse année. Faites de chaque jour un nouveau jour en renaissant dans l’amour de Dieu. Avec tout mon amour et mes bénédictions, je vous remercie. Je suis le Baal Shem Tov.<sup id="a4">[4](#f4)</sup> Que Dieu vous bénisse !
 <small>
 
 1. <large id=”f1”> Le médium Al Fike a reçu un message de Moïse le jour précédent.[↩](#a1)
@@ -29,3 +29,15 @@ Je vous remercie de m’avoir accordé ce temps et je vais me retirer pour être
 2. <large id=”f2”> Psaumes 98, 100.[↩](#a2)
 
 3. <large id=”f3”> Du grec ekstasis qui signifie « se tenir hors de soi ».[↩](#a3)
+
+4. <large id="f4"> Le Baal Shem Tov s'est également exprimé dans les messages suivants :  [↩](#a4)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Baal Shem Tov | [La vie est simple - le Baal Shem Tov](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-10-28-1-fab-baal-shem-tov/) | 28 Octobre 2010
+Baal Shem Tov | [Chaque tradition religieuse peut recevoir cet Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-2-7-1-jw-baal-shem-tov/) | 7 Février 2020
+Baal Shem Tov | [Laissez vos prières s’approfondir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-4-1-jw-baal-shem-tov/) | 4 Janvier 2021
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

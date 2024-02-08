@@ -28,4 +28,6 @@ Jérémie | [Indignation vertueuse III](/fr-contemporary-messages/fr-contemporar
 Jésus | [Jésus parle de l'indignation vertueuse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-5-30-1-fab-jesus/) | 30 Mai 2010
 Jésus | [Jésus parle de la juste indignation - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-7-29-2-fab-jesus/) | 29 Juillet 2010
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

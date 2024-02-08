@@ -30,4 +30,6 @@ Je souhaite dire à Geoff que nous travaillons très dur pour lui. Il est sous n
 
 2. <large id="f2"> <u>Note de Geoff  Cutler</u> : Bien qu’il s’agisse d’une affaire personnelle dont je ne souhaite pas discuter publiquement, elle s’est produite. Elle a nécessité de très nombreuses années de soutien angélique.[↩](#a2)
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/)
+### [**Lien vers les messages des années 2011**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -24,3 +24,7 @@ C’est mon invitation, âmes bien-aimées. Venez vous joindre à cela afin que 
 Vous êtes assis dans ce cercle sacré, un cercle dans lequel les Anges du Ciel sont venus pour être et partager avec vous sa Lumière. Vos âmes sont attirées, mes bien-aimés. Vos âmes cherchent la Vérité. Vous parviendrez à connaître la Vérité et à trouver une grande joie et un grand épanouissement dans cette Vérité.
 
 Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse profondément en vous, en éveillant les vrais désirs de votre âme. Je suis avec vous. Je conduis le chemin pour que vous le suiviez et je vous rassemble dans mon Amour et vous montre le chemin de l’Amour du Père. Que Dieu vous. Je suis avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

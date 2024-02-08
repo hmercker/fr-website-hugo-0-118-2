@@ -26,3 +26,7 @@ Maintenant, je ne suggère pas que vous deveniez stupides dans la façon dont vo
 Soyez tous bénis, belles âmes, et certains d’entre vous ici ont des perspectives quelque peu différentes de celles des autres, mais vous venez participer à l’Amour. Ce sont vos âmes qui vous amènent ici. C’est votre désir, votre envie de boire profondément de ces eaux vivantes qui inondent le cercle en ce moment même. Buvez profondément. Permettez à cet Amour d’imprégner votre être et de changer vos esprits, car il le fera et amènera vos âmes à un lieu d’éveil intense et profond. Dieu a un plan pour chaque âme dans ce monde, vous en viendrez à le savoir alors que vos yeux, les yeux de votre âme s’ouvrent lentement et deviennent conscients de ce monde d’Amour, de cette vraie nature de la vie, et de vous-mêmes profondément, et de connaître Dieu comme un être tangible et une Source d’Amour et de confort, de guérison et de joie. Tout cela vous attend. Cela vient à vous maintenant. Cela viendra toujours à vous si vous êtes ouverts et si vous désirez ardemment ces Dons et ces bénédictions.
 
 Que Dieu vous bénisse, mes amis. Votre ami Alec est toujours avec vous et je vous aime, mes chères, belles et précieuses âmes. Je t’aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

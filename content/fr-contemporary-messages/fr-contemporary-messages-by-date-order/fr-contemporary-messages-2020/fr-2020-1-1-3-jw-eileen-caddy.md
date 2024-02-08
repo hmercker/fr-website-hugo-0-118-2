@@ -16,3 +16,7 @@ C’est moi, Eileen. Merci de m’avoir invité à votre Cercle d’Amour en ré
 Je vous invite donc à être sincère dans votre demande, à être spécifique si nécessaire, mais surtout à être aimant. Partagez l’Amour de Dieu que vous avez dans votre communication. Je peux difficilement exprimer mon bonheur à vous tous dans cette grande entreprise car je sais qu’elle peut toucher tant de personnes. Alors prenez courage, ne vous découragez pas, persévérez dans la singularité de votre objectif. Comme je le dis par-dessus tout, soyez aimants.
 
 Je suis là pour vous aider dans cette entreprise, comme beaucoup d’autres. Demandez et vous recevrez. Je suis votre sœur et amie dans le royaume céleste. Je vous aime et vous bénis. Je suis Eileen.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

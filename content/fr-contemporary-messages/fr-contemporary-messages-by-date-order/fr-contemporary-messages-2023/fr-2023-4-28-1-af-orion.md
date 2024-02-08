@@ -26,3 +26,7 @@ Notre prière pour vous est que vous puissiez grandir dans l’Amour de Dieu, vo
 Je suis Orion et je vous remercie de m’avoir donné l’occasion de vous parler aujourd’hui. Nous grandissons ensemble, nous travaillons ensemble pour le bien de l’humanité, pour le bien de votre monde. Que Dieu vous bénisse, mes amis, que Dieu vous bénisse en vérité, en amour, en lumière.
 
 Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

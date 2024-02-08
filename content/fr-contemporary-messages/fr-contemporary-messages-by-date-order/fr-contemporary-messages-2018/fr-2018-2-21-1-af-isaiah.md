@@ -25,4 +25,8 @@ Je vous prie d’utiliser ce cadeau, mes bien-aimés, d’utiliser la connaissan
 
 Je vous exhorte donc à boire profondément, mes bien-aimés. Allez à la source de l’Amour de Dieu et cherchez ce dont vous avez soif, ce désir profond en vous d’étancher cette soif d’Amour. Il est à vous, mes bien-aimés. Il est à vous.
 
-Que Dieu vous bénisse. Je suis Isaïe de la Bible et un habitant du Royaume Céleste. Et je vous aime, âmes bien-aimées. Tous les enfants qui cherchent la Vérité et reconnaissent la puissance et la gloire de l’Amour de Dieu sont mes frères, mes frères et sœurs. Que Dieu vous bénisse et vous garde dans cette Lumière. Que Dieu vous bénisse.
+Que Dieu vous bénisse. Je suis Isaïe de la Bible et un habitant du Royaume Céleste. Et je vous aime, âmes bien-aimées. Tous les enfants qui cherchent la Vérité et reconnaissent la puissance et la gloire de l’Amour de Dieu sont mes frères, mes frères et sœurs. Que Dieu vous bénisse et vous garde dans ce
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

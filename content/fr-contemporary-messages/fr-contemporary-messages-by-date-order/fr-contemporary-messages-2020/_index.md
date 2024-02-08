@@ -72,7 +72,7 @@ Eileen Caddy | [Suggestions de Findhorn](/fr-contemporary-messages/fr-contempora
 St François d'Assise | [Le monde s'est ralenti pour laisser du temps à la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-13-2-jw-st-francis-of-assisi/) | 13 Mars 2020
 Hafiz | [Un rayon de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-13-3-jw-hafiz/) | 13 Mars 2020
 Flavius Josèphe | [La vérité s'étendra à mesure que votre âme s'éveillera](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-13-4-af-josephus/) | 13 Mars 2020
-Lao Tzu | [Le grand potentiel de l'âme doit être découvert par tous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-13-5-af-lao-tzu/) | 13 Mars 2020
+Lao Tseu | [Le grand potentiel de l'âme doit être découvert par tous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-13-5-af-lao-tzu/) | 13 Mars 2020
 Jésus | [L'amour de Dieu est disponible pour chaque âme et existe partout](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-14-1-af-jesus/) | 14 Mars 2020
 Keea Atta Kem | [Une allocution sérieuse sur le changement des conditions de la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-15-1-af-keea-atta-kem/) | 15 Mars 2020
 Eileen Caddy | [Fondations de Findhorn](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-15-2-jw-eileen-caddy/) | 15 Mars 2020
@@ -285,7 +285,7 @@ Marie | [Soyez Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date
 Jésus | [Écouter](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-1-3-jg-jesus/) | 1 Septembre 2020
 James Padgett | [James Padgett affirme son engagement à atteindre le plus haut niveau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-3-1-af-james-padgett/) | 3 Septembre 2020
 Yogananda | [Ne maudissez pas l’obscurité, mais louez la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-4-1-jw-yogananda/) | 4 Septembre 2020
-Lotus Blossom | [Nous sommes à la fois récepteurs et donneurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-4-2-af-lotus-blossom/) | 4 Septembre 2020
+Fleur de Lotus | [Nous sommes à la fois récepteurs et donneurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-4-2-af-lotus-blossom/) | 4 Septembre 2020
 Seretta Kem | [Guérison de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-4-3-hm-seretta-kem/) | 4 Septembre 2020
 Adriana | [Se ressourcer dans la prière pour se préparer aux défis à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-6-1-af-adriana/) | 6 Septembre 2020
 Yogananda | [Harmonie dans la nature et Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-6-2-jw-yogananda/) | 6 Septembre 2020
@@ -406,8 +406,6 @@ Noé | [A propos du déluge](/fr-contemporary-messages/fr-contemporary-messages-
 Claire d'Assise | [Accrochez-vous à l'espoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-30-1-jw-clare-of-assisi/) | 30 Décembre 2020
 Jésus | [Leçon 14 : Les efforts mentaux de l’humanité en matière de science et de religion ne réveilleront pas l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-31-1-af-jesus/) | 31 Décembre 2020
 
-[Lien vers les messages de l’année 2021](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
-<br>
-<br>
-[Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
 
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

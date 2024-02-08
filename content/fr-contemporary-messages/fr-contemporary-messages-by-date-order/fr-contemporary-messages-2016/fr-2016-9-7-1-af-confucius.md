@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous êtes bercés par Ses soins
 
-Confucius - reçu par Al Fike le 7 Septembre 2016, Francfort, Allemagne.
+Confucius<sup id="a1">[1](#f1)</sup>- reçu par Al Fike le 7 Septembre 2016, Francfort, Allemagne.
 
 Vous êtes désirés et aimés, enfants précieux. Dieu vous a dans Ses Mains, vous berçant de Ses soins et de Sa protection, la puissance de Son Amour, infusant chaque partie de votre être, âmes bien-aimées. Vous êtes bercés dans les Mains de Dieu. Permettez à Son doux Amour et à Ses soins de vous infuser, de vous porter, de vous guider, car Il souhaite guérir chaque partie de votre être, chaque crevasse de votre âme. Il souhaite vous guérir et vous rendre entier, et rempli de joie et de sagesse et de perceptions profondes qui vous amèneront dans un monde nouveau, un monde de la création de Dieu, un monde qui se révèle dans toute sa gloire, que vos yeux s’ouvrent, que votre cœur soit plein et que votre âme résonne de l’Amour, mes bien-aimés. De cette façon, Dieu vous portera en avant dans ce fleuve puissant qui vous emmènera sur les chemins de votre destinée.
 
@@ -18,3 +18,11 @@ C’est si simple, âmes bien-aimées, tellement simple. N’encombrez pas vos e
 Pour chaque respiration que vous prenez, il y aura une bénédiction, pas seulement pour vous, mais pour ce monde. Chaque pas que vous faites, vous touchez une autre âme. Chaque pensée que vous aurez, sera de l’amour. Chaque étreinte que vous donnerez sera une guérison et un réconfort pour une autre personne. Et vous ne penserez pas pour vous-mêmes mais pour le salut de l’humanité, et cela vous mènera dans de nombreux endroits pour apporter la Vérité et l’Amour de Dieu, car vous porterez cette Lumière et de nombreuses âmes sentiront la puissance et la beauté de cette Lumière et elles seront touchées, car Dieu vous utilisera de nombreuses et belles façons. Vos dons commencent tout juste à s’ouvrir, ils fleurissent dans cet Amour et lorsqu’ils seront pleinement en fleur, vous porterez un grand message et une confirmation de la Vérité à de nombreuses âmes, mes bien-aimés, et les âmes attendent votre épanouissement, votre ouverture, votre partage, votre confirmation de la Vérité.
 
 Consacrez-vous à la prière. Soyez avec Dieu et vous trouverez votre grand dessein. Confucius vous aime, vous apporte une bénédiction. Dieu vous bénit.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués  par Confucius sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a1)
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

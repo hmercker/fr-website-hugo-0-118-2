@@ -19,5 +19,6 @@ Les esprits ont toutes sortes d'opinions. Dire, par exemple, que le rejet de moi
 
 Étant vous-même Juif, vous manifestez naturellement une sympathie plus directe pour votre foi natale et vos ancêtres. Dieu vous a donc utilisé pour poursuivre notre mission en vous demandant de canaliser certains de ces anciens leaders Juifs, ce que vous avez fait. Nous sommes très heureux de la façon dont ces messages ont été reçus.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
 
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

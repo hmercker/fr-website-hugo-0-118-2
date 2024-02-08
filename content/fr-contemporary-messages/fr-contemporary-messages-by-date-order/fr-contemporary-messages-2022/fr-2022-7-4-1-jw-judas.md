@@ -22,3 +22,7 @@ C’est souvent une crise qui les propulse à rechercher l’Amour de Dieu de to
 Nous continuerons à vous guider et à vous éduquer, pour vous donner de l’espoir lorsque vous êtes perdus, pour vous encourager à avoir la foi lorsque vous êtes dans le doute, pour avoir confiance dans la sécurité et l’unité de ce cercle de lumière, de ce cercle d’amour et dans les désirs de votre âme de ne faire qu’un avec votre Créateur.
 
 Je vais me retirer pour être avec vous dans la grâce de Dieu. Je suis votre frère et ami éternel, Judas, autrefois de Kerioth, maintenant un habitant et du royaume Céleste. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

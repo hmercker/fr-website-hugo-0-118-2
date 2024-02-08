@@ -18,3 +18,7 @@ Alors que le monde s’éveille à la mortalité et à la préciosité de la vie
 La conscience de Dieu, et le désir de ne faire qu’un, apportent la transformation, la guérison et le bonheur au-delà de l’enveloppe mortelle. Dans ce monde troublé, sur cette planète qui a besoin d’une guérison, vous pouvez apporter la substance de l’Amour de Dieu Tout-Puissant, l’Essence, à tous. Lorsque vous marchez dans la grâce, en présence du Tout-Puissant, vous devenez une âme illuminée, capable de chasser les ténèbres, d’apporter un baume de guérison aux affligés. C’est une chose noble que d’apporter de l’aide à ceux qui sont dans le besoin. Certains ont juste besoin du strict nécessaire pour vivre et d’autres ont besoin de guérison – physique, spirituelle, émotionnelle ou mentale, mais tant d’autres ont juste besoin d’être amenés à prendre conscience de la lumière de l’immortalité, du monde de l’au-delà et, plus important encore, de l’Amour de Dieu. Ceci, mes frères et sœurs, vous pouvez l’apporter à un monde qui en a tant besoin.
 
 Que chaque âme soit bénie dans l’Amour de Dieu. Je suis votre frère et ami, maintenant et toujours. Je suis Yogananda.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

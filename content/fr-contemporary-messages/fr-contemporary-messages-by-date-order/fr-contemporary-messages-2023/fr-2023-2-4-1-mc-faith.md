@@ -26,3 +26,7 @@ Votre véritable essence aspire, aspire profondément à vous conduire dans votr
 Ceci, mes bien-aimés, est un acte de foi ; votre âme sait qui elle est. Permettez à votre esprit matériel de s’ouvrir. Permettez aux murmures de votre âme de devenir un chœur d’amour, dont la voix ne peut vous échapper car elle résonne et s’harmonise avec la grâce et l’amour, et elle imprègne tout ce que vous êtes dans cette forme matérielle.
 
 Soyez fidèles. Soyez pleins de foi et permettez à l’amour de continuer à vous remplir et observez la foi qui grandit en vous. Car avec le temps, vous serez pleinement fidèles, mais pour l’instant, alors que vous grandissez dans la foi, vous devez associer votre esprit et votre âme à la grâce, à l’amour et observer les changements qui se produisent dans votre vie par un tel acte.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

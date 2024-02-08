@@ -34,4 +34,6 @@ Allez donc de l'avant avec confiance, sachant qu'une puissante présence spiritu
 
 1. <large id="f1"> **William Bradford** (1590 - 9 Mai 1657) était un protestant anglais dissident de l'Église Anglicane et un des chefs de file des colons pèlerins de la colonie de Plymouth, dans le Massachusetts, dont il devint le gouverneur. Il a été le deuxième signataire et le principal architecte du Mayflower Compact. En tant que gouverneur de Plymouth, William Bradford est également reconnu comme étant le premier à avoir proclamé ce que la culture populaire américaine considère comme le premier Thanksgiving. (Source : Wikipedia)[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

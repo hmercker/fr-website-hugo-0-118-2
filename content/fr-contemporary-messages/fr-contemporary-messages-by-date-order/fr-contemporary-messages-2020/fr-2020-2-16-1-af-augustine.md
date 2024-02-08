@@ -34,3 +34,7 @@ Car n’appelons-nous pas cela la nouvelle naissance ? La nouvelle naissance, me
 Vous ferez tous l’expérience de cette transformation, âmes bien-aimées, et vous connaîtrez le grand toucher mystique qui accompagne la conscience de l’âme éveillée. Ces choses viendront à vous et sont promises par Dieu. Une touche sacrée sur votre cœur, votre âme et votre esprit, qui vous rassemblera tous en harmonie, vous réveillera tous en temps voulu et dans la mesure où vous atteindrez la plus haute bénédiction, la plus haute Vérité et le plus grand bien, non seulement pour vous mais aussi pour ce monde. Ainsi, vous serez comblés. Vous serez donc bénis. Ainsi vous saurez. Je vous le promets. Vous connaîtrez vraiment les merveilles de Dieu et le pouvoir de l’Amour pour tout transformer.
 
 Que Dieu vous bénisse sur ce chemin. Je suis votre enseignant Augustin et je suis venu vous encourager et vous apporter mon amour pour que vous sachiez que je suis proche et souvent avec vous, comme le sont de nombreux anges. Ainsi, vous n’êtes jamais seul. Nous poursuivons donc ce grand processus de naissance de votre âme, vous réconciliant avec votre Créateur, vous apportant tout ce que vos âmes désirent et recherchent. Que Dieu vous bénisse. Augustin vous aime tendrement. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

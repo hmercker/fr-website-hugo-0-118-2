@@ -15,4 +15,7 @@ C'est moi, Jonathan Edwards.
 
 Oui, [j'ai écrit et cru beaucoup de choses qui étaient positives et utiles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-1-8-1-fab-jonathan-edwards/). Mais je n'ai pas pu échapper au jugement concernant ces croyances qui étaient fausses et nuisibles.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

@@ -22,3 +22,7 @@ Vous améliorez les conditions de vie dans le monde en partageant vos ressources
 Vous apprendrez cela encore et encore, mes chers et beaux amis. Vous verrez par vous-même, à condition que vous soyez disposés et ouverts à donner votre cœur, à donner votre générosité matérielle, à donner votre temps, vos efforts pour prendre soin d’un autre, de quelque manière que ce soit, de quelque manière que ce soit dans le flux de la Volonté de Dieu, il n’y a pas de perte ou de sentiment que quelque chose est donné et non reçu en Grâce. Tout est dans le flux du Père qui fournit toute la générosité de la vie, la beauté de la vie, l’élévation, la lumière et l’amour.
 
 Que Dieu vous bénisse, âmes bien-aimées. J’espère avoir été clair sur le fait que tout se déroulera dans l’harmonie et l’équanimité de la Grâce et des Lois d’Amour de Dieu. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse. Je suis Augustin, votre enseignant. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

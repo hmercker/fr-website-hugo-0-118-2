@@ -18,3 +18,7 @@ Mon cher frère, ma chère sœur. Lorsque cela vous servira de vous retirer du m
 Je suis votre frère et ami en Christ et un disciple du maître.
 
 Je suis François, que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

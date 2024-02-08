@@ -25,3 +25,7 @@ Je suis votre sœur et amie dans le Christ. Je suis Claire.
 <small>
 
 1. <large id=”f1”> Se référant à Ruth D.[↩](#a1)
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

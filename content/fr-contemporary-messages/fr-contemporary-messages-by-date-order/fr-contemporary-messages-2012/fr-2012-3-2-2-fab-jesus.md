@@ -18,4 +18,6 @@ Je souhaite confirmer que les portraits dans les canalisations de Judas <sup id=
 
 1. <large id="f1"> Le médium lisait le très récent « Judas de Kerioth » qui peut-être lu [ici](/fr-publications-and-downloads/fr-books/conversations-avec-judas-iscariote.pdf) qui contient des photos d’un certain nombre d’apôtres. Il est possible de consulter ces photos [ici](/3-fr-judas-of-kerioth-messages/3-8-fr-portraits-of-the-apostel/).[↩](#a1)
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

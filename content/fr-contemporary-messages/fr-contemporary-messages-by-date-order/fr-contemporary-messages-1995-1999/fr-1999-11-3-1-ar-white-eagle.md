@@ -11,7 +11,7 @@ weight:
 
 Aigle Blanc - reçu par Amada Reza le 3 Novembre 1999, Aptos, Californie, USA.
 
-Je suis ici avec vous, et je suis votre frère, Aigle Blanc, un disciple de notre Maître Jésus, qui est notre frère aîné et leader dans le Royaume Céleste de l’Amour Divin de Dieu. Je suis heureux de pouvoir venir à vous en ce moment pour vous donner un message sur la guérison, car vous désirez savoir quelles forces sont à l’œuvre dans la transmission des énergies de guérison par l’intermédiaire de l’esprit tutélaire au mortel.
+Je suis ici avec vous, et je suis votre frère, Aigle Blanc<sup id="a1">[1](#f1)</sup>, un disciple de notre Maître Jésus, qui est notre frère aîné et leader dans le Royaume Céleste de l’Amour Divin de Dieu. Je suis heureux de pouvoir venir à vous en ce moment pour vous donner un message sur la guérison, car vous désirez savoir quelles forces sont à l’œuvre dans la transmission des énergies de guérison par l’intermédiaire de l’esprit tutélaire au mortel.
 
 Les lois de Dieu sont exactes dans leur fonctionnement et ne manqueront pas d’opérer lorsqu’il s’agira de mettre les mortels en accord avec le Plan d’Harmonie Éventuelle, et il faut toujours considérer que la maladie n’est qu’une manifestation de ce que nous connaissons comme étant le fonctionnement des lois. Tant de gens demandent pourquoi les enfants sont malades, alors qu’ils n’ont enfreint aucune loi par l’exercice de leur propre volonté, et je dirai que les péchés des parents sont visités et transmis de génération en génération. Les maladies du corps sont relativement faciles à guérir lorsque des forces spirituelles supérieures sont présentes et peuvent s’exercer sur les lois matérielles inférieures qui régissent le corps. C’est dans le cas où le péché s’est logé dans l’âme, et où l’esprit a été utilisé pour cultiver les pensées et les désirs de pécher, que se produit une maladie de l’esprit qui n’est pas si facile à guérir. On peut, en tant que guérisseur d’esprit, apporter un soulagement temporaire, mais c’est la volonté et le modèle de comportement qui poussent le mortel à reprendre ses activités pécheresses qui le maintiennent dans un état de maladie.
 
@@ -21,7 +21,7 @@ Dans les temps anciens, les gens honoraient leur relation avec les éléments qu
 
 Le plan dont j’ai parlé est l’équilibre harmonieux du corps humain à l’intérieur et à l’extérieur de lui-même – il est conçu pour fonctionner parfaitement à l’intérieur de lui-même et dans son environnement – on respire et on se déplace dans l’atmosphère et c’est cette synergie qui est la condition de l’harmonie naturelle qui met le corps en accord avec son environnement. Mais, dans le cas d’une guérison par l’intercession d’un esprit hautement développé, en particulier un esprit qui possède l’Amour Divin, il y a des pouvoirs présents dans le champ énergétique de l’esprit qui peuvent apporter cet équilibre et cette harmonie, malgré l’environnement physique et les conditions existantes dans le corps. Lorsque le mortel exerce sa foi dans la capacité de l’amour à guérir et à redresser la maladie, les conditions présentes dans le corps physique répondent à l’énergie supérieure et la guérison peut se produire.
 
-Vous avez reçu mes réflexions sur ce sujet et vous avez eu raison de supposer que le toucher est un élément important de la guérison. « L'imposition des mains » est très répandue dans les cérémonies Chrétiennes, qui invitent la puissance de l’Amour de Dieu à visiter le mortel qui cherche un soulagement et, grâce à l’intercession des guérisseurs spirituels et mortels, le soulagement est souvent le résultat. Là encore, le monde moderne peut parfois isoler les gens les uns des autres par la méfiance et la peur. La compagnie humaine est vitale pour établir un environnement physique sain pour une personne qui a besoin de restaurer l’équilibre et l’harmonie dans sa vie.
+Vous avez reçu mes réflexions sur ce sujet et vous avez eu raison de supposer que le toucher est un élément important de la guérison. *« L'imposition des mains »* est très répandue dans les cérémonies Chrétiennes, qui invitent la puissance de l’Amour de Dieu à visiter le mortel qui cherche un soulagement et, grâce à l’intercession des guérisseurs spirituels et mortels, le soulagement est souvent le résultat. Là encore, le monde moderne peut parfois isoler les gens les uns des autres par la méfiance et la peur. La compagnie humaine est vitale pour établir un environnement physique sain pour une personne qui a besoin de restaurer l’équilibre et l’harmonie dans sa vie.
 
 Je vois que vous vous demandez pourquoi votre amie souffre de dépression alors qu’il semble qu’elle n’ait pas été privée de compagnie, même après avoir bénéficié de soins affectueux et de prières en sa faveur. Mais je dirai qu’il y a eu un changement dans son sens de la confiance et de la foi dans sa vie antérieure qui l’a empêchée de recevoir le bénéfice de cet amour qui était là pour elle. Sa propre volonté et ses pensées ont joué un rôle important dans l’établissement d’une distance malsaine avec son cœur et ses actions étaient « par cœur » plus qu’une manifestation active de son amour. Vous connaissez l’importance d’établir l’amour véritable comme motif de nos actions et de notre comportement envers nous-mêmes et les autres, et quand on ne manifeste pas cet amour, on en subit les conséquences. Sa méfiance a pris la forme d’un blâme de Dieu pour son inconfort et son malheur, et elle doit supprimer cela et se reconnecter avec l’aspiration de son âme véritable à faire confiance à Son Amour pour elle et tous les enfants de Dieu.
 
@@ -29,9 +29,23 @@ Je sais que vous aussi, vous souffrez d’une maladie de longue date et vous pou
 
 Demandez à Dieu sa grâce transformatrice pour vous aider à guérir vous et votre famille. Remettez-vous en à Ses mains et laissez-Le ouvrir vos yeux pour voir.
 
-Je suis votre frère et ami dans l’esprit du Christ, Aigle Blanc.
+Je suis votre frère et ami dans l’esprit du Christ, Aigle Blanc.<sup id="a2">[2](#f2)</sup>
+<small>
 
-[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+1. <large id="f1"> Aigle Blanc est un Indien puissant et a souvent utilisé ses grands pouvoirs de guérison pour restaurer la santé de M. James E. Padgett. Il écrivait souvent car il avait dans son âme un Amour Divin considérable qui faisait de lui un esprit lumineux et beau. Vous pouvez consulter un des messages qu'il a communiqué à travers James Padgett [le 15 Février 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-2-15-1-jep-white-eagle/)[↩](#a1)
+
+2. <large id="f2"> Aigle Blanc  s'est également exprimé dans les messages suivants :[↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+--|---|---
+Aigle Blanc | [Les animaux et l’amour naturel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-9-4-1-ar-white-eagle/) | 4 Septembre 1999
+Marie & White Eagle | [Le soleil bondissant de Fatima](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-9-19-2-ar-mary-white-eagle/) | 19 Septembre 1999
+Aigle Blanc | [La guérison par l’intermédiaire des guérisseurs spirituels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-3-1-ar-white-eagle/) | 3 Novembre 1999
+Aigle Blanc | [L’autre vision.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-2-11-1-ar-white-eagle/) | 11 Février 2001
+Aigle Blanc | [Aigle Blanc vient offrir la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-29-2-jw-white-eagle/) | 29 Mars 2020
+Aigle Blanc | [Nous sommes tous des peuples indigènes en tant qu'enfants de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-19-2-jw-white-eagle/) | 19 Avril 2020
+
+### [**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

@@ -20,3 +20,10 @@ Dieu souhaite que chacun de Ses enfants soit soutenu dans cette Lumière et vien
 Bien-aimés, connaissez le toucher de Dieu. Ressentez la Grâce de Dieu et recevez Ses grandes bénédictions dans vos âmes et vous commencerez un voyage comme aucun autre. Vous connaîtrez une Lumière, une Vérité, un réveil de vos âmes qui répondra à ce profond désir de Vérité qui est en vous.
 
 Bien-aimés, que la paix qui dépasse toute compréhension soit avec vous. Puissiez-vous savoir que Dieu est avec vous maintenant, qu'il vous portera vers le ciel jusqu'à ce lieu de lumière. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+

@@ -16,3 +16,7 @@ Nous avons fait un sacré voyage ensemble, n'est-ce pas mes amis ? Ce fut une p�
 Oui, nous continuons à voyager ensemble, et cela nous mènera à de nombreux points dans votre cœur et dans ce monde. La puissante main de la volonté de Dieu vous porte au-delà du banal, vers quelque chose d'extraordinaire, de puissant, de significatif et d'utile. Vous connaîtrez la gloire et la puissance de Dieu dans vos vies et vous verrez que chaque effort que vous avez fait, chaque prière que vous avez prononcée, chaque fois que vous avez cherché à atteindre une plus grande Lumière, vous apportera des bénédictions cent fois supérieures à ces efforts que vous avez faits.
 
 Dieu est avec vous mes amis. Dieu vous bénit et mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

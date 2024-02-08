@@ -36,3 +36,7 @@ Soyez fidèles à vos âmes, mes bien-aimés. Soyez fidèles à Dieu. C’est to
 Que Dieu vous bénisse, mes amis, mes magnifiques étudiants qui sont si sérieux, qui parlent de leurs peurs et de ces choses qui les préoccupent tant. Sachez que Dieu vous aime, vous êtes vraiment aimés. Vous êtes vraiment aimés. Mettez de côté tout ce qui vous préoccupe, mes bien-aimés, mettez de côté vos craintes, mettez de côté vos désirs. Allez plutôt vers Dieu avec ces choses et Dieu vous soulagera de ces fardeaux et vous amènera dans un lieu de paix et de joie, votre sanctuaire de lumière. C’est en tendant la main à Dieu et en la laissant te tendre la main que vous y parviendrez
 
 Je suis votre enseignant, Augustin, et mon amour pour vous est grand. Je connais chacun d’entre vous. Je vous vois et je vous aime. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

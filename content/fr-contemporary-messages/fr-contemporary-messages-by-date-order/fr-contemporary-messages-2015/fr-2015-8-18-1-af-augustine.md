@@ -27,4 +27,6 @@ C’est la voie du monde. Ce n’est pas ce qui doit être dans ce monde, mais c
 
 Que Dieu vous bénisse, votre enseignant Augustin continuera à être avec vous et à vous aider dans votre voyage, car je vous aime profondément et je serai là, je serai avec vous dans mon amour, comme beaucoup d’autres, que Dieu vous bénisse.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015)
+### [**Lien vers les messages des années 2015**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

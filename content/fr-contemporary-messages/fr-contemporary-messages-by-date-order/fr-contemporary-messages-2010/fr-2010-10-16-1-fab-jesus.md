@@ -23,4 +23,6 @@ Je continue à aimer les mortels, et la crise mondiale actuelle requiert notre a
 
 Les mortels ont une âme qui a besoin d'être nourrie avec le Pain de Vie, il faut donc leur apprendre à négocier la vie terrestre afin que leur âme en profite. C'est l'essence de mon programme pour l'économie et la politique. Lorsque je prêchais sur Terre, j'avais le sentiment que chaque aspect de la vie d'un mortel devait être consacré aux choses de Dieu et les refléter. Mais j'ai été terrassé avant d'avoir pu faire grand-chose pour affecter la société Juive dans laquelle je vivais. Et cette préoccupation globale du Divin a toujours été distinctement Juive.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

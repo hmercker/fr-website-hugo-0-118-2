@@ -38,3 +38,7 @@ Choisissez bien, mes bien-aimés, choisissez la Lumière, choisissez la sagesse,
 Alors ne résistez pas à ces changements, âmes bien-aimées. Cédez à la volonté de Dieu. Permettez à Ses Vérités parfaites, à Son Amour puissant d'opérer les changements nécessaires pour vous apporter ce que vous désirez, à savoir l'harmonie, la guérison et la joie. C'est ce que votre âme recherche, être dans le flux de l'Amour de Dieu chaque jour, chaque jour plus proche de Dieu dans une plus grande harmonie, plus fort dans la Lumière, dans la plénitude intérieure. La sagesse, la sagesse, mes bien-aimés, vient avec l'Amour de Dieu.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Seretta Kem. Je vous remercie de m'accorder ce temps pour vous parler. Voyez-vous, mes bien-aimés, le pouvoir de guérison qui vient avec l'amour de Dieu ? C'est le plus grand pouvoir de tout l'univers, un puits de ressources et de bénédictions qui vient avec une simple prière et une vraie foi et confiance en Dieu. Que Dieu vous bénisse, mes bien-aimés. Qu'il vous garde en bonne santé alors que vous traversez cette vie et qu'il vous guide afin que vous puissiez découvrir votre véritable objectif et le plan que Dieu a pour chacun d'entre vous. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

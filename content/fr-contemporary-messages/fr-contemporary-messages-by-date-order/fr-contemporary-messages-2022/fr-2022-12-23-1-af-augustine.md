@@ -24,3 +24,7 @@ Beaucoup a été donné, âmes bien-aimées. Pourtant, ce n’est qu’une goutt
 Mes âmes bien-aimées, mes étudiants bien-aimés, mes frères et sœurs bien-aimés, nous nous réunissons aujourd’hui pour reconnaître le plus grand don, la plus grande bénédiction. Nous sommes donc des enfants de Dieu, cherchant la nourriture de l’âme, cherchant à parcourir le chemin Divin, à nous éveiller et à nous épanouir dans la vérité de l’Amour de Dieu. Que Dieu vous bénisse, bien-aimés. Je suis avec vous. Je vous beaucoup et nous continuerons sur cette route. Pour toute l’éternité, nous marcherons ensemble à la recherche de tout ce que Dieu a à donner, recevant tout ce qui afflue vers nous et reconnaissant tout ce qui a été donné et l’émerveillement de la création de Dieu.
 
 Que Dieu vous bénisse, bien-aimés. Que Dieu vous bénisse et vous garde dans Son amour. Dites une prière de remerciement pour votre frère bien-aimé, Jésus et ses efforts pour ouvrir la porte du Royaume, pour être le dit de la vérité, la lumière, l’expression de l’œuvre de Dieu et des bénédictions sur l’âme. Que Dieu vous bénisse. Que Dieu vous bénisse tous. Mon amour est avec vous. Je suis Augustin. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

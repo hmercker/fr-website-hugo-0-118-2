@@ -22,3 +22,8 @@ Cherchez la grande route et permettez à la Grâce de Dieu, à la Lumière de Di
 Puissions-nous tous rechercher la grâce de Dieu en ce moment. Puissiez-vous être bénis par un grand afflux d’Amour du Père et vous éveiller à tout ce que Dieu a à vous donner. Cherchez et vous trouverez. Frappez et la porte s’ouvrira. Venez à Dieu avec humilité, simplicité, comme un enfant et vous saurez que vous êtes bien un enfant de Dieu.
 
 Que Dieu vous bénisse, âmes bien-aimées. Votre maître Augustin est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

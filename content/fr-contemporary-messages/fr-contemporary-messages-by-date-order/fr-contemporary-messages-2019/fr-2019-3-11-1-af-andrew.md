@@ -28,3 +28,7 @@ En priant pour ce don d’Amour Divin, vous renforcez votre propre lumière. Ain
 Merci, âmes bien-aimées, de faire l’effort de vous réunir de cette manière. Que les bénédictions de Dieu continuent à se déverser sur vous. Vous êtes toutes des âmes uniques et belles et vous êtes aimées tendrement par Dieu et par nous dans le Royaume Céleste. Puissiez-vous continuer à exprimer vos qualités uniques, la beauté de vos âmes, et tout ce que vous êtes dans ce monde. Que tout cela soit de l’amour, un reflet magnifique et scintillant de l’amour apportant une beauté et une lumière si uniques au monde.
 
 Merci, âmes bien-aimées. Que Dieu vous bénisse profondément. Je suis André. Je vous aime. Je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -52,3 +52,10 @@ Continuez à vous préparer dans la Lumière de l’Amour de Dieu, à être en h
 Je vous remercie d’avoir écouté mes paroles. Je remercie cet instrument de m’avoir permis de prendre la parole aujourd’hui. J’espère revenir à un autre moment et parler des réalités qui sont de Dieu, des aspirations supérieures de l’homme et de toutes les choses qui sont un reflet de l’amour et de la vérité.
 
 Que Dieu vous bénisse. Je suis Abraham Lincoln. Je me joins à vos efforts, je continuerai à aller de l’avant dans cette grande bataille pour la lumière, pour l’amour et pour l’harmonie dans le monde. Que Dieu vous bénisse, chers amis. Que Dieu vous bénisse.
+small>
+
+1. <large id="f1"> L'ensemble des messages communiqués par Abraham Lincoln est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a1)
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

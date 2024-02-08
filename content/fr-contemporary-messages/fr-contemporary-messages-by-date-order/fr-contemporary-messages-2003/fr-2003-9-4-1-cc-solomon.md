@@ -13,7 +13,7 @@ Solomon - reçu par CC le 4 Septembre 2003, New York, USA.
 
 Bonjour CC, nous sommes nombreux ici, demande simplement qui tu aimerais entendre.
 
-J’ai dit « Salomon ».
+J’ai dit « Salomon ».<sup id="a1">[1](#f1)</sup>
 
 Cher fils, c’est un plaisir de venir te voir. J’étais avec toi lorsque tu as réfléchi à la note personnelle ([Cf message du 30/06/2003](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-6-30-2-cc-solomon/)) que je t’ai adressée il y a deux mois. Il y a des connaissances que l’on peut posséder et des événements que l’on peut faire connaître à un enfant avant qu’ils ne se déroulent, mais parfois (la plupart du temps) il est préférable que ces connaissances ne leur parviennent qu’au moment le plus opportun.
 
@@ -28,5 +28,10 @@ Et cette vision, mon cher fils, ce sont les perceptions de ton âme. Les percept
 J’ai aimé la façon dont tu as parlé une fois des perceptions de l’âme comme des organes de l’âme. C’est une analogie digne d’intérêt. Ceux-ci nécessitent des soins et une alimentation saine. La consommation d’une nourriture saine aidera tes organes à fonctionner à plein régime. Tout comme tes organes matériels ont besoin d’une alimentation appropriée, tes organes spirituels en ont besoin aussi. Et la nourriture pour tes organes spirituels est l’Amour, la Substance de Dieu. Et tout comme tu dois mâcher ta nourriture et avaler les nutriments, la prière, bien sûr, est ce qui provoque l’absorption et l’afflux de l’essence de Dieu.
 
 Je sens que tu as somnolant. Je vais donc te laisser te reposer. Nous te remercions de nous avoir donné l’occasion d’exprimer nos pensées et nous prions pour tous nos frères et sœurs qui recherchent la bonne nutrition pour leurs âmes.
+<small>
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)
+1. <large id="f1"> Il est possible de lire les divers messages commuiqués par Salomon par l'intermédiaire de [ce lien](fr-contemporary-messages\6-3-fr-contemporary-messages-by-author\6-3-10-fr-historical-figures.md) :[↩](#a1)
+
+### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

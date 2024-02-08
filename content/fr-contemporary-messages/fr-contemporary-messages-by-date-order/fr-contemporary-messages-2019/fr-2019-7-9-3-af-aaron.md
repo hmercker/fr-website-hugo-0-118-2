@@ -42,3 +42,7 @@ Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse et vous garde
 Que Dieu vous bénisse avec Son grand Amour qui se déverse dans vos âmes. Que Dieu vous bénisse avec un grand Toucher de guérison, vous apportant une Paix profonde. Que Dieu vous bénisse et vous amène à la certitude qu’Il est avec vous et que vous êtes avec Lui.
 
 Que Dieu vous bénisse mes amis. Je suis Aaron et mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

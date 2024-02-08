@@ -46,3 +46,7 @@ En continuant sur cette voie, ne suivez-vous pas la volonté de Dieu ? N’expri
 Ces choses viennent avec l’âme éveillée, nettoyée et reformée dans l’Amour. Puissiez-vous venir à connaître cela, fille bien-aimée et enfants bien-aimés qui cherchent avidement à s’éveiller, à être utilisés comme canaux de Dieu, à être un frère et une sœur, une fille et un fils de Dieu. Il vient toujours si lentement mais il avance, ce grand réveil. Exprimez tout ce que vous avez découvert jusqu’à présent dans votre vie. Soyez un canal d’Amour. Veillez à ce que la source de cet amour, le pouvoir de cet amour en vous, vienne directement de Dieu par l’intermédiaire de son Esprit Saint qui transmet l’amour dans votre âme.
 
 Que Dieu vous bénisse dans ce voyage, mes bien-aimés. Que vous soyez comblés dans l’Amour et que la renaissance de votre âme continue d’être le centre d’intérêt primordial de votre vie. Que Dieu vous bénisse. Je suis Jean et je vous aime. Que Dieu vous bénisse tous. Que Dieu vous bénisse dans votre voyage.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

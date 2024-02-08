@@ -9,7 +9,7 @@ weight:
 ---
 ### Confucius nous conseille de reposer notre esprit
 
-Confucius - reçu par Helge Mercker le 12 Août 2017, Swakopmund, Namibie
+Confucius<sup id="a1">[1](#f1)</sup>- reçu par Helge Mercker le 12 Août 2017, Swakopmund, Namibie
 
 Ma fille, ma fille bien-aimée, je te remercie de m'avoir accordé l'opportunité de parler et vous avez ressenti mes incitations de ce début de matinée et d'hier que je désire utiliser ton instrumentalité. C'est pour pouvoir transmettre un message à nos chers, chers frères et sœurs dans cette entreprise de vos efforts communs. Ce sont nos efforts conjoints dans l'accomplissement de ce cadeau qui a été accordé, dans l'accomplissement du temps passé ensemble pour faire progresser non seulement vos âmes, et l'amour dans vos âmes, mais aussi la réception, la manifestation et la démonstration des nombreuses vérités que nous souhaitons transmettre.
 
@@ -26,3 +26,10 @@ Je souhaite simplement porter à votre attention cette merveilleuse opportunité
 Nous remercions notre Père Céleste d'avoir offert cette opportunité et le dévouement et l'engagement de tant de personnes. Nous sommes reconnaissants pour vos intentions et vos désirs d'y participer et pour votre conception de la gravité de la situation. Vous réalisez la gravité de l'invitation qui vous a été adressée. Nous sommes donc très heureux et nous souhaitons vous encourager à vous y plonger encore plus profondément, avec un engagement encore plus grand, avec un désir encore plus grand, avec une clarté encore plus grande de l'objectif et de la compréhension. Il y a toujours plus, toujours plus et vous devez priez pour l'Amour de Dieu, un plus grand afflux, un afflux constant. Oh, je suis si heureux de partager mes sentiments, de partager mes émotions avec vous. Je suis heureux que cette fille veuille bien partager mon message avec nos chers amis, de partager mon désir d'exprimer mon amour et mon soutien à chacun d'entre vous comme je vous aime si tendrement. Alors, ayez du courage. Vous êtes tous sur la bonne voie. Soyez assurés du soutien et de l'amour qui vous parviennent.
 
 Je suis Confucius et oui, vous êtes mes petits oiseaux qui vont se rassembler très bientôt et certains oiseaux devront voler loin mais nous volerons avec eux et nous serons avec vous tous. Que Dieu vous bénisse. Que Dieu vous bénisse tous comme nous vous aimons, comme je vous aime - chacun d'entre vous. Que Dieu vous bénisse. Je vous salue en ce jour et je vous aime et que Dieu continue de bénir chacun d'entre vous. Confucius vous aime. Que Dieu vous bénisse et vous remercie.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués  par Confucius sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a1)
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

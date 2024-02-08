@@ -39,4 +39,8 @@ Il y a de nombreux exemples que je pourrais citer ici, mais je le ferai peut-êt
 
 Je vous laisse maintenant avec mon amour et mes bénédictions pour une journée à venir productive et harmonieuse. Lorsque vous observez une « saveur différente » dans le message que vous recevez, vous pouvez considérer que cela a quelque chose à voir avec le changement de l’état de votre âme et de votre réceptivité. Je suis votre ami et frère en esprit, un adepte des enseignements de Jésus et un esprit Céleste élevé. Notre nom n’a pas une grande importance, mais c’est la vérité du message qui doit retenir l’attention. Amen.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+
+### [**Lien vers les messages des années 2000**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

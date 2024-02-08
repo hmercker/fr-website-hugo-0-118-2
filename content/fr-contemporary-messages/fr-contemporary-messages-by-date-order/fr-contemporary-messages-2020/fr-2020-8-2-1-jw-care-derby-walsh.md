@@ -20,3 +20,7 @@ Le Maître supervise tout cela et son amour, comme vous le savez, est indescript
 Je suis votre sœur en Christ. Avec toutes mes bénédictions, puissiez-vous marcher dans la Lumière et l’Amour de notre Père Céleste. Je vous aime.
 
 Je suis Care.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

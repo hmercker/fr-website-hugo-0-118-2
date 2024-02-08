@@ -39,5 +39,8 @@ Les Lois de Dieu fonctionnent parfaitement. Quand Ses enfants décident qu’ils
 
 Je vous aime, chacun d’entre vous, et je vous laisse maintenant avec ma bénédiction pour une harmonieuse semaine à venir. Je signe moi-même *« un esprit Céleste élevé. »*
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+
+### [**Lien vers les messages des années 2000**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

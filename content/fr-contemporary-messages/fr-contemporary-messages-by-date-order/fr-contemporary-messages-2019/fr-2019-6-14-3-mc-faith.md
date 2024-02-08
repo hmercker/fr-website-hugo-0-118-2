@@ -26,3 +26,7 @@ Ma chère sœur, pour utiliser votre expression, bien que vous ayez l'impression
 Âmes bien-aimées, nous sommes ravis que vous entriez dans ce centre et que vous marchiez dans les rues de ce lieu très gracieux qui a grand besoin de lumière. Vous entendez les histoires de la population locale. Notre désir est qu'une grande lumière vienne dans ce beau centre et dans cette ville. Nous jouons tous notre rôle. Vous apportez un grand flux d'amour de Dieu par votre présence. Vous êtes tous deux profondément bénis, comme le sont tous ceux qui suivent le Chemin Divin en tant que canaux clairs pour Dieu. Puissiez-vous apprécier le temps que vous passez ensemble en vous renforçant mutuellement dans la prière, le soutien et la communion.
 
 Que Dieu vous bénisse. Je suis Faith et mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -39,7 +39,14 @@ Ainsi, ce qui a été écrit à travers moi il y a quelques années peut inspire
 
 Puissiez-vous le savoir dans vos âmes, le comprendre avec chaque partie de vous-mêmes et être libérés des contraintes et des restrictions de la pensée et de la condition humaines vers ce lieu d’éveil et d’expansion de l’âme, de joie et d’amour grands et merveilleux.
 
-Que Dieu vous bénisse ainsi, mes amis. Je suis James et je suis souvent avec vous. Que Dieu vous bénisse.
+Que Dieu vous bénisse ainsi, mes amis. Je suis James Padgett<sup id="a2">[2](#f21)</sup>
+ et je suis souvent avec vous. Que Dieu vous bénisse.
 <small>
 
 1. <large id=”f1”> Ceci est maintenant arrivé et Jésus délivre à nouveau la Vérité mais [dans un style moderne](/fr-jesus-of-nazareth-messages/fr-messages-of-jesus-to-the-world/).[↩](#a1)
+
+2. <large id="f2"> L'ensemble des messages communiqués par James Padgett  est disponible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-12-fr-family-and-friends-of-james-padgett/)[↩](#a2) 
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

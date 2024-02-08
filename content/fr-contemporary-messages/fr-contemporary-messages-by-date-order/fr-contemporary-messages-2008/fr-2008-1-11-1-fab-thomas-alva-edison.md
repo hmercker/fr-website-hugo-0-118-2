@@ -28,4 +28,14 @@ Il n'est pas nécessaire d'être un génie de l'invention pour apprécier cela. 
 
 1. <large id="f1"> **Thomas Alva Edison** (11 Février 1847 - 18 Octobre 1931) fut un inventeur Américain d'origine hollandaise et un homme d'affaires qui a développé de nombreux appareils qui ont grandement influencé la vie dans le monde, y compris le phonographe et l'ampoule électrique. Surnommé "le magicien de Menlo Park" par un journaliste, il a été l'un des premiers inventeurs à appliquer les principes de la production de masse au processus d'invention, et c'est pourquoi on lui attribue souvent la création du premier laboratoire de recherche industrielle. Edison est considéré comme l'un des inventeurs les plus prolifiques de l'histoire, détenant 1 093 brevets américains à son nom, ainsi que de nombreux brevets au Royaume-Uni, en France et en Allemagne (Source : Wikipedia).[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+2. <large id="f2"> Thomas Alva Edison s'est également exprimé par l'intermédiaire des messages suivants :[↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Thomas Alva Edison | [Matière et invention dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-11-1-fab-thomas-alva-edison/) | 11 Janvier 2008
+Thomas Alva Edison | [Les scientifiques du monde de l'Esprit souhaitent contribuer aux efforts de la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-3-3-af-thomas-edison/) | 3 Novembre 2017
+
+
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

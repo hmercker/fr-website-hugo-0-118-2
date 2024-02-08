@@ -16,3 +16,7 @@ Je suis Michael Collier. Je suis si heureux de voir mes compatriotes suivre les 
 Que Dieu vous bénisse mes amis. Je suis Michael Collier. Mon amour est avec vous, âmes précieuses.
 
 Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

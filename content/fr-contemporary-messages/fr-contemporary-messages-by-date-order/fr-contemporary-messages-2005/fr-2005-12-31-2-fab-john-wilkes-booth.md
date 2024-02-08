@@ -13,7 +13,7 @@ John Wilkes Booth - reçu par FAB le 31 Décembre 2005, Santa Cruz, Californie, 
 
 ![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-lotus-1205631_1280.jpg)
 
-C'est moi, John Wilkes Booth *[l'assassin d'Abraham Lincoln]*.
+C'est moi, John Wilkes Booth *[l'assassin d'Abraham Lincoln<sup id="a1">[1](#f1)</sup>]*.
 
 Vous êtes en train de canaliser un esprit qui a réalisé assez tôt l'acte terrible qu'il a commis. Oui, dès que je suis entré dans ce monde d'esprits, je me suis repenti de mon action pour avoir supprimé une vie qui aurait pu faire encore tellement de bonnes choses pour mon pays. Oui, la réalisation fut rapide, car dans ce monde de nudité, on peut voir avec des yeux  différents et un esprit différent. Aussi, je savais ce qui m'attendait. Et aucun stylo ne peut décrire les tortures qui furent les miennes.
 
@@ -28,7 +28,10 @@ Alors, vous vous voyez avec une véritable perspective. Donnez aux choses leur p
 Je vois que cette canalisation a eu un effet profond et bénéfique sur vous. C'était mon intention. Je vous laisserai maintenant digérer la sainteté de ce message.
 
 Comme une nouvelle année est sur le point de commencer, je vous le dis ainsi qu'au monde entier, laissez l'amour et non la haine être la réalité de la Terre, c'est la prière de votre ami, John Wilkes Booth.
+<small>
 
-**Note :** [Un message d'Abraham Lincoln](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-12-31-1-fab-abraham-lincoln/)
+1. <large id="f1"> [Lire le message d'Abraham Lincoln](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-12-31-1-fab-abraham-lincoln/)[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005)
+### [**Lien vers les messages des années 2005**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

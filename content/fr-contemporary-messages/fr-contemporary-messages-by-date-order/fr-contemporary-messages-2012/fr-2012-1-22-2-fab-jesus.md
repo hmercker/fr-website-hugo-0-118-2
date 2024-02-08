@@ -17,4 +17,6 @@ Dites à Geoff que je lui donne mon plein accord quant à la publication des [me
 
 Avec tout mon amour pour ses fidèles efforts, Jésus, Maître des Cieux Célestes.
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

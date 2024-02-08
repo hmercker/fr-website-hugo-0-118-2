@@ -11,10 +11,16 @@ weight:
 
 Harvey Milk - reçu par FAB le 20 Février 2009, Santa Cruz, Californie, USA.
 
-Je suis ici, Harvey Milk.
+Je suis ici, Harvey Milk.<sup id="a1">[1](#f1)</sup>
 
 Je suis entré dans le monde des esprits en tant qu'athée, mais j'ai très vite réalisé qu'il y avait tant de choses que je ne connaissais pas. Et beaucoup de choses que j'avais faites et dites me sont revenues, et j'ai souffert.
 
 Ce commentaire ne doit pas être interprété comme indiquant que l'homosexualité était son problème. Voir ce [message sur l'homosexualité communiqué par Judas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-30-1-hr-judas/).
+<small>
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+1. <large id="f1"> Harvey Milk s'était déjà exprimé [la veille](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-18-1-fab-harvey-milk/)[↩](#a1)
+
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

@@ -23,4 +23,6 @@ Beaucoup d’entre vous voient à travers les yeux de vos pensées et ce que vou
 
 Tout ceci vous attend, mes bien-aimés. Les anges sont prêts à vous porter, à vous inspirer, à vous aider et à vous assister dans ce voyage de découverte. Le Chemin est éclairé. Il est droit. Vous devez simplement mettre un pas devant l’autre en vous libérant de votre manteau, et en étant nus dans la Lumière de l’Amour de Dieu, sachant que, dans cette innocence, vous découvrirez tout et tout viendra à vous. Vous serez en sécurité. Vous serez sécurisés dans le flot de l’Amour de Dieu. Vous serez qui vous êtes, que vous êtes une belle âme qui attend de s’exprimer dans votre être et dans l’être de Dieu. Que Dieu vous bénisse, mes bien-aimés, je suis François et je vous aime, et j’aime ce monde avec toutes ses belles créatures, tout ce que Dieu a créé. Aimez ce monde, mes bien-aimés. Aimez ce monde, car l’œuvre de Dieu est grande et belle. Que Dieu vous bénisse, que Dieu vous bénisse, je suis François et je vous aime. Que Dieu vous bénisse.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015)
+### [**Lien vers les messages des années 2015**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

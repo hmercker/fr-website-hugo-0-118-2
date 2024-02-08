@@ -30,3 +30,7 @@ En effet, vous avez une grande responsabilité, mes amis, une grande responsabil
 Que Dieu vous bénisse profondément, mes amis. Que vous puissiez toujours marcher dans la Lumière. Cette Lumière que Dieu vous a donnée est une Lumière qui guide et qui vous montrera en effet le chemin et informera votre âme de beaucoup de choses. Vous êtes bénis, mes amis, profondément bénis. Que l’Amour de Dieu continue à se déverser dans vos âmes.
 
 Que Dieu vous bénisse. Je suis André et je marche avec vous. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

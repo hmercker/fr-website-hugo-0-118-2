@@ -34,3 +34,7 @@ Vous pouvez diffuser de nombreuses graines sur le plan terrestre. Certaines sero
 Quelqu’un vous a amené à la vérité, âmes bien-aimées. Que la chaîne de la vérité continue à travers vous à un autre et un autre et un autre afin que le monde entier s’embrase dans l’amour, dans la lumière, dans la joie, dans la liberté qui vient avec une âme éveillée. Ainsi, le monde sera transformé par les grandes bénédictions de l’âme merveilleuse de Dieu, transmettant Son Amour par l’Esprit Saint à un autre qui désire ce contact.
 
 Puissiez-vous tous recevoir Son Amour en ce moment, Ses bénédictions sur vous tous. Que Dieu vous bénisse, âmes bien-aimées. Je suis votre enseignant, Augustin. Je suis heureux de venir à vous aujourd’hui pour vous encourager à aller de l’avant car le moment est venu d’être les instruments de Dieu dans le monde, d’avancer avec courage et bravoure, clarté et amour pour le bien de vos frères et sœurs. Que Dieu vous bénisse et vous garde forts, vous garde dans la lumière, vous enveloppe dans l’amour. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

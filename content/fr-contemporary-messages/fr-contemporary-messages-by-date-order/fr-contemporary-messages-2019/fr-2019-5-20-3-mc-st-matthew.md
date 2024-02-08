@@ -22,3 +22,7 @@ Au fur et à mesure que cet Amour continuera à nourrir vos âmes, vous verrez v
 C'est ce que Dieu désire de vous, mes bien-aimés, que votre amour soit exprimé envers Dieu, que votre essence aimante parvienne si profondément à comprendre et à connaître l'Essence de Dieu. C'est ce que Dieu désire et souhaite, pour cette communion profonde et riche avec chaque enfant.
 
 Je suis Matthieu et mon amour est avec vous. C'est merveilleux de venir vous parler, de vous encourager sur votre chemin, et de partager mon amour avec vous. Que Dieu vous bénisse. Je suis Matthieu. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

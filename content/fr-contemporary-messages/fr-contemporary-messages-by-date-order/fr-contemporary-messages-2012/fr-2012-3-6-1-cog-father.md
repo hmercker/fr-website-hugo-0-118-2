@@ -31,4 +31,6 @@ Tu es fatigué, tu ne dors pas bien ces jours-ci. Tu devrais sortir dans la natu
 
 Amour de ton Père dans les Cieux.
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

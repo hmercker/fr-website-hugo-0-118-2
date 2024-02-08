@@ -52,3 +52,7 @@ C’est l’amour qui guérira le monde, âmes bien-aimées. Ce n’est pas la v
 Vous êtes tous bénis, mes bien-aimés. Dieu bénit votre âme. Dieu continuera à déverser Ses puissantes bénédictions sur vous. Vous êtes touchés par Dieu. Avec ce toucher vient l’éveil, la connaissance, la paix et le sentiment et la véritable compréhension que vous êtes aimés.
 
 Dieu vous bénisse, mes amis, et je vous remercie de m’avoir écouté aujourd’hui. Merci de vous être réunis dans ce Cercle de Lumière. Puissiez-vous trouver la nourriture que votre âme désire vraiment. Puissiez-vous parvenir à connaître votre véritable relation avec votre Créateur. Puisse l’amour abonder entre vous tous et vous lier ensemble dans la lumière. Que Dieu vous bénisse. Je suis Flavius Josèphe. Que Dieu vous bénisse, âmes bien-aimées. Mon amour est avec vous.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

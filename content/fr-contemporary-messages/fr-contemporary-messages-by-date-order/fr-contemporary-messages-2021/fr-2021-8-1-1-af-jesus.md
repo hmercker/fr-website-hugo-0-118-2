@@ -26,3 +26,7 @@ Vous êtes vraiment aimés de Dieu et l’Amour de Dieu pour vous est grand, inf
 Soyez Ses Vrais Enfants, soyez Ses Vrais Serviteurs, soyez cette merveilleuse lumière qui aidera à changer les ténèbres de votre monde et apportera la guérison, l’amour et la vérité. Beaucoup, beaucoup d’enfants attendent votre témoignage. Puissiez-vous être inspirés et connaître véritablement, dans votre âme, le but que Dieu a placé en vous. Puissiez-vous vraiment reconnaître que vous êtes une âme vivant dans un corps matériel et que cette âme vivra pour toujours, rachetée par l’Amour du Père. Vous êtes précieux pour Dieu. Vous êtes l’espoir du monde. Vous êtes aimés par vos anges amis et par les esprits lumineux qui continuent à travailler, à apporter la vérité et les bénédictions à votre monde, afin que la lumière puisse s’épanouir, que l’amour puisse s’épanouir dans votre monde. Soyez forts mes bien-aimés, soyez droits, soyez vraiment des enfants de Dieu et vous verrez se dérouler une vie qui sera joyeuse et épanouissante, puissante et belle.
 
 Que Dieu vous bénisse, mes bien-aimés. Je marche avec vous. Je suis votre ami et votre frère et je vous aime. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse. Je suis Jésus. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

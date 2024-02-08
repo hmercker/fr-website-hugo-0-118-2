@@ -32,3 +32,8 @@ Vous avez tous été profondément dotés. Aucun d’entre vous n’est exclu de
 Chaque fois que vous priez, ce don est donné, vous vous rapprochez et vous devenez un véritable enfant de Dieu. Ayez foi en cela, âmes bien-aimées. Nous, qui vous enseignons et vous assistons, voyons cette lumière grandissante dans vos âmes. Nous continuons à vous assister et à vous nourrir sur ce chemin qui vous mènera à cet endroit dont je parle. Soyez réconfortés par cela et connaissez vos propres âmes. De cette façon, vous comprendrez vraiment ce dont je parle et comprendrez vraiment Dieu et tout ce que Dieu est et souhaite vous donner au grand bénéfice de votre âme.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre maître Augustin. Maintenant, prions en silence et cherchons à être en harmonie avec Dieu et à recevoir ses bénédictions. Que Dieu vous bénisse, mes bien-aimés. Mon amour est avec vous.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

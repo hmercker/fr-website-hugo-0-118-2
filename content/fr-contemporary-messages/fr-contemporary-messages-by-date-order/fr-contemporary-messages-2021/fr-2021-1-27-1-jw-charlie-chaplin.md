@@ -23,3 +23,7 @@ Vous pouvez me considérer comme quelqu’un qui vient du passé et qui vient du
 <small>
 
 1. <large id=”f1”> Faisant une référence humoristique à son film « les temps Modernes ».[↩](#a1)
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

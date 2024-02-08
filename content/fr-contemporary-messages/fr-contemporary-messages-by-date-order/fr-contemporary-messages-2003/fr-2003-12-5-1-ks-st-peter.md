@@ -43,4 +43,6 @@ Il n’est pas nécessaire de faire des comparaisons ou d’essayer de s’infil
 
 Nous t’aimons et nous serons à tes côtés tout au long de ta vie terrestre et au-delà. Tu as pris mon message essentiellement comme je voulais qu’il soit reçu. Je suis ton ami et ton frère en Christ, qui a fait partie de ce groupe d’Amour Divin même avant les années 1970 et qui a participé à sa formation et à son développement, Pierre l’Apôtre avec Joseph, le père de Jésus, et André, ton tuteur, et d’autres. Ne te sens jamais seule ou abandonnée, sache que tu es aimée et protégée et que tu continueras ton développement dans la Grâce de Dieu.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)
+### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

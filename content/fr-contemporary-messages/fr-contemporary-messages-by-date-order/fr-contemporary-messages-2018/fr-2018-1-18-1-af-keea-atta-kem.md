@@ -16,3 +16,7 @@ Je suis Keea Atta Kem et je suis venu pour vous encourager, mes bien-aimés, à 
 Que Son Amour continue à embrasser vos âmes, à vous transformer dans la Lumière, à vous guérir dans l’Amour. Alors que vous grandissez, que vous rassemblez la lumière en vous, vous pouvez être utilisés comme un canal de lumière pour le monde. Vous êtes de belles perles enfilées ensemble, de belles âmes qui chantent en harmonie et en vérité, avec le désir de donner et d’être utilisées comme un canal dans ce monde. Vous avez chacun un ange à vos côtés et il y en a beaucoup qui sont désireux de travailler avec vous en ces moments pour apporter la lumière et les bénédictions à beaucoup. Chantez avec le véritable désir de vos âmes. Chantez avec l’amour de l’humanité dans vos cœurs. Demandez à Dieu de vous utiliser à votre service pour apporter la lumière au monde.
 
 Que Dieu vous bénisse. Je suis Keea Atta Kem et mon amour est avec vous tous, comme le sont les anges du Ciel et les bénédictions de Dieu sont avec vous en ce moment. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

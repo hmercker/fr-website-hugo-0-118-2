@@ -38,3 +38,7 @@ Chacun de vous a ce potentiel en lui. Chacun de vous continue à le découvrir e
 Que Dieu vous bénisse, mes amis. Je suis Orion, et je vous remercie de m'avoir permis de parler aujourd'hui. L'essence de ce que je dis est la plus haute vérité. C'est la vérité que tout ce qui est en alignement et le chemin devant vous est destiné à être donné à tous sur votre monde. Puissiez-vous permettre à l'expression de cette vérité d'être pleine, puissante, belle. Une lumière, une lumière dans le monde, une lumière à apporter au monde. L'espoir, l'espoir de l'avenir. Un but, le but de la vie est d'être vivant dans l'âme, éveillé, resplendissant de dons, resplendissant de joie, resplendissant dans sa relation avec le Créateur du Tout.
 
 Que Dieu vous bénisse, mes amis. Allez dans le monde, exprimez l'amour et soyez l'amour, et vous verrez ce que Dieu place devant vous. Votre voyage sera merveilleux, excitant, plein, et charmant. Que Dieu vous bénisse, mes amis, de son amour.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

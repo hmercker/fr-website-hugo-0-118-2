@@ -32,3 +32,7 @@ Exercez votre foi, mes bien-aimés. Sachez qu'en vous résident de nombreux dons
 Nous, en esprit, ne regrettons aucune minute que nous avons passée avec vous, quel que soit le résultat. Nous vous avons vu grandir de manière merveilleuse, vous étirer réellement vers la lumière et être beaucoup plus connectés à Dieu et à votre véritable moi. Comme c'est beau à voir. Vous êtes tous de la lumière, mes bien-aimés, vous tous dans le cercle êtes de la lumière. Soyez vraiment cette lumière et permettez aux dons de Dieu de circuler parmi vous et alors vous manifesterez effectivement de beaux esprits, une belle lumière, des voix de vérité, des anges de Dieu.
 
 Que Dieu vous bénisse, mes bien-aimés. Puissiez-vous apporter cela à votre sommeil et l'absorber vraiment et commencer, demain, une nouvelle journée resplendissant d'amour, ouvert et prêt. Que Dieu vous bénisse. Votre frère Seretta Kem continue de marcher à vos côtés et de vous aider sur votre chemin car il y a beaucoup de travail à faire n'est-ce pas, mes amis, beaucoup de travail à faire. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

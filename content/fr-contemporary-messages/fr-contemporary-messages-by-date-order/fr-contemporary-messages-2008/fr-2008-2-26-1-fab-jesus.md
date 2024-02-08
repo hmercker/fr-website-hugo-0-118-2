@@ -25,4 +25,6 @@ Vous savez maintenant qu'il existe effectivement de bons dirigeants d'entreprise
 
 Donc, pour résumer, les cœurs vont changer pour que le système financier qui contrôle le monde s'aligne sur la vérité. Une fois encore, d'un point de vue purement mental, cela semble impossible, mais vu avec les yeux de l'âme, cela devient discernable.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

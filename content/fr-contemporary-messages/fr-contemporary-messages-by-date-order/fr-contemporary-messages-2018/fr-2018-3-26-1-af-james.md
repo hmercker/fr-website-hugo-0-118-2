@@ -34,3 +34,7 @@ Maintenant, êtes-vous prêtes à accepter ce qui vient avec joie, à embrasser 
 Cherchez Ses Bénédictions, âmes bien-aimées. Cherchez à connaître Dieu comme jamais auparavant. Cherchez à être dans la Lumière de Dieu, la Présence de Dieu, l’Amour de Dieu et absorbez toutes ces bénédictions. Ouvrez vos âmes et recevez la générosité que Dieu a à donner et vous deviendrez les vents du changement. Vous ferez partie de cela et vous le ferez avec joie et avec un engagement, et une force, profonds.
 
 Bénis sont ceux qui voient la Lumière et connaissent la Beauté et la Gloire de Dieu. Puissiez-vous être bénis, âmes bien-aimées. Puissiez-vous être bénies profondément et puissamment. Je suis votre frère Jacques et je vous aime. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

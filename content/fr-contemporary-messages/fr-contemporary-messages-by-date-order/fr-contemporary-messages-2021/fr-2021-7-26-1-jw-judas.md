@@ -24,3 +24,7 @@ Il y a beaucoup de choses que chacun d’entre vous peut faire pour apporter cet
 Lorsque vous jetez un regard en arrière sur vos vies, et parfois avec quelques remords sur le temps perdu, je vous dis, à partir de maintenant, considérez comment vous allez utiliser chaque moment, en marchant sur le chemin de l’Amour Divin, en avançant dans la grâce de Dieu, dans la joie, dans la gratitude, dans le service, dans la bonté, en apportant la paix et l’espoir, dans la connaissance de l’avenir glorieux qui vous attend, vous et tous dans l’Amour de Dieu.
 
 Je vous remercie, ainsi que mon frère ici présent qui aime raconter des histoires. Je vais prendre du recul pour vous remercier de m’avoir permis de m’avancer. Je serai dans cette prière, avec vous, pour l’Amour de Dieu. Je suis votre frère et votre ami éternel dans les Cieux Célestes. Je suis Judas, autrefois de Kérioth, maintenant votre frère angélique. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

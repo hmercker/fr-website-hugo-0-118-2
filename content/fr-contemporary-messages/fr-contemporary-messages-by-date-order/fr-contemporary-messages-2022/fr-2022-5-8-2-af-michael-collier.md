@@ -32,3 +32,7 @@ Mes amis, le choix vous appartient, et en effet, chaque moment est un choix. Mai
 Ayez la foi et la confiance, mes amis, ayez la foi et la confiance dans la Volonté de Dieu, et cette Volonté apportera une grande harmonie et la paix, l’épanouissement et l’amour. Que voulez-vous de plus dans une vie ? Quelle plus grande, quelle plus haute vocation y a-t-il que celle-ci ? Je vous demande donc, mes amis, de suivre la Volonté de Dieu. Alignez vous, votre âme avec Dieu. Cherchez à être utiles pour servir l’humanité, et vous voyagerez dans la vie qui est magnifique, merveilleuse et glorieuse.
 
 Que Dieu vous bénisse dans ce voyage. Je suis Michael Collier, et je suis heureux d’être avec vous aujourd’hui alors que vous cherchez les secrets de votre âme et la Vérité de Dieu. Que Dieu vous bénisse, mes amis. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

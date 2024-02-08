@@ -31,3 +31,8 @@ Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés. Je suis Mylora 
 <small>
 
 1. <large id=”f1”> Il est fait référence à une personne présente qui venait de l'île de le réunion.[↩](#a1)
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

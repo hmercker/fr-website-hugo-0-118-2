@@ -26,3 +26,7 @@ Ce ne sera ni difficile ni complexe. Ce sera un beau flux, une administration ai
 Je vous encourage, mes amis. Je suis votre professeur Salyards, et mon amour vous accompagne. Je suis heureux que vous continuiez à parler de ce temps passé ensemble, de son importance, des possibilités qu’il offre, de la beauté et de la lumière qui viendront. Cette anticipation est importante. Elle contribue à créer les conditions et à ouvrir les possibilités pour que beaucoup de choses se manifestent, beaucoup de choses soient bénies et se répandent sur les gens. Nous continuons à encourager les gens à venir. Il est important que le plus grand nombre possible se joigne à cet effort, à cette prière, à ce temps de célébration, d’engagement et d’unité.
 
 Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse, vous garde toujours dans Son Amour. Je vous aime précieuses âmes précieuses sur la Terre. Si peu d’entre vous, pourtant si précieux et nécessaires.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

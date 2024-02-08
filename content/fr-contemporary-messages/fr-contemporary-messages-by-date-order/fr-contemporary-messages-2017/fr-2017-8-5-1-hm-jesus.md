@@ -32,3 +32,7 @@ Avancez avec une constance et un savoir qui est convaincant pour les autres, qui
 Vos préparatifs se font à petits pas et à chaque prière, vous grandissez intérieurement. Avec chaque conversation et communion avec notre Père céleste, vous atteignez de plus grandes profondeurs en vous et une proximité avec une confiance toujours plus grande et une confiance toujours plus grande dans les conseils de notre Père. En faisant toujours confiance à la voie à suivre, en faisant toujours confiance au déroulement de Son plan - même s'il n'a aucun sens pour vos concepts de compréhension - la foi et la confiance en notre Père vous permettront d'avancer en sachant que vous vous tenez dans la Vérité, dans l'Amour.
 
 Ainsi, ma chère fille et sœur dans l'Amour de notre Père, nous vous guidons tous. Nous avons vraiment besoin de votre aide pour mener à bien cette entreprise dans le cadre du grand plan. Nous vous remercions pour vos efforts et vos désirs. Que notre Père vous bénisse puissamment pour votre engagement. Nous vous remercions et nous vous saluons cet après-midi. C'est Jésus. Je suis le Maître des Cieux Célestes et je suis votre frère et votre ami et je vous guide sur votre chemin. Je vous aime et je vous souhaite un bon après-midi.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

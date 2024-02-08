@@ -24,3 +24,7 @@ Vous n’avez pas besoin de vous inquiéter ou de vous tourmenter, soyez en paix
 Donnez de l’amour, mes bien-aimés, et si la forme de cet amour est une prière pour un autre, alors, par tous les moyens, donnez cette prière, mais venez toujours à cet endroit où vous et Dieu êtes un et où il n’y a aucune pensée pour autre chose que votre communion avec votre Père Céleste. C’est très important et crucial. Ce n’est pas égoïste, c’est ce qui est censé être pour vous, c’est ce que Dieu désire, que cette communion soit dans sa forme pure et merveilleuse. Pour être avec Dieu, vraiment, complètement, joyeusement, mes bien-aimés, soyez avec Dieu.
 
 Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -31,4 +31,6 @@ Cela soulève tout le sujet de la guerre. Existe-t-il une guerre juste, une bonn
 
 Mais Dieu travaille toujours pour que sa vérité de droiture et d’amour prévale.
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/)
+### [**Lien vers les messages des années 2011**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

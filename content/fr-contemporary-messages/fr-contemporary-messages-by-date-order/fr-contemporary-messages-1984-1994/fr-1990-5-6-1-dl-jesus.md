@@ -35,7 +35,6 @@ Avant de conclure, je voudrais dire que nous sommes tous très fiers du travail 
 
 Je vous laisse maintenant avec mon amour et mes bénédictions, et les Bénédictions du Père. Je suis votre frère et ami, Jésus de la Bible et Maître des Cieux Célestes.
 
-[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+### [**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

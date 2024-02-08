@@ -29,4 +29,6 @@ Je suis heureux de ce message tel que tu l'as reçu, et je te remercie, chère s
 
 Je t'aime et je sens ton amour pour moi. Je suis ton frère aîné et ton ami, Jésus de la Bible, et Maître du Ciel Céleste.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002)
+### [**Lien vers les messages des années 2002**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

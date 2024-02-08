@@ -30,3 +30,7 @@ Oui, Dieu vous a choisies, âmes bien-aimées, pour faire ce travail et vous le 
 Enfants bien-aimés, vous êtes profondément bénis. Je suis avec toi, mon fils. Je suis avec vous et je suis celui qui marche avec vous sur votre chemin. Il y a beaucoup de travail à faire, beaucoup de travail. Vous continuerez à être préparés, renforcés et guidés. Portez la vérité avec vous. Tenez-la bien haut et dites : *« Ceci est la Lumière de Dieu, la Vérité de Dieu, l’émerveillement du Toucher de Dieu. »* Faites-le dans la joie, la force et l’amour.
 
 Soyez en paix, âmes bien-aimées, et sachez que l’Amour de Dieu est le plus grand pouvoir de tout l’univers. Ce pouvoir de guérir et de transformer, de faire du neuf et du beau est avec vous. Que Dieu vous bénisse, âmes bien-aimées. Je suis Étienne. Je suis heureux de vous parler en ce jour, un nouveau jour, une nouvelle aube. Je serai avec toi, mon fils, lorsque tu parleras aux enfants. Sache-le et sois en paix. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

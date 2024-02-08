@@ -24,3 +24,7 @@ Nous attendons votre décision chaque jour dans la prière et le dévouement pou
 Que Dieu vous bénisse sur ce voyage, âmes bien-aimées. Que ce voyage soit droit et rapide car vous êtes nécessaires. Nous avons besoin de vous. Permettez à Dieu d’agir à travers vous. Permettez à Dieu de vous transformer. Permettez à Dieu de vous guider et tout viendra dans la grande poussée de Son Amour, la grande Lumière qui coule vers vous et votre âme en éveil.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Seretta Kem et je continuerai à vous aider dans votre réveil, dans le déploiement de vos dons et dans tout ce qui est destiné à faire partie de votre vie. De nombreuses autres personnes sont également impliquées dans cette naissance de votre âme dans la Lumière et l’Amour. Que Dieu vous bénisse. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

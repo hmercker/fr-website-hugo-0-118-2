@@ -20,4 +20,6 @@ Je vais répondre à votre préoccupation. Si [nos histoires se ressemblent](/fr
 
 1. <large id="f1"> **Saladin** (c. 1138 – 4 Mars 1193) était un Musulman Kurde, qui devint le premier Sultan Ayyoubide d’Égypte et de Syrie. Il a mené l’opposition islamique aux Francs et autres croisés européens au Levant. À l’apogée de son pouvoir, il a régné sur l’Égypte, la Syrie, la Mésopotamie, le Hejaz et le Yémen. Il a mené les Musulmans contre les Croisés et a fini par reprendre la Palestine au Royaume croisé de Jérusalem après sa victoire à la bataille de Hattin. À ce titre, il est une figure marquante de la culture Kurde, Arabe et Musulmane. Saladin était un adepte strict de l’Islam Sunnite et un disciple de l’ordre soufi Qadiri. Son comportement chevaleresque a été noté par les chroniqueurs Chrétiens, en particulier dans les comptes-rendus du siège de Kerak à Moab, et malgré le fait qu’il était l’ennemi juré des Croisés, il a gagné le respect de beaucoup d’entre eux, y compris de Richard Cœur de Lion. Plutôt que de devenir une figure détestée en Europe, il est devenu un exemple célèbre des principes de la chevalerie. (Source : Wikipedia)[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

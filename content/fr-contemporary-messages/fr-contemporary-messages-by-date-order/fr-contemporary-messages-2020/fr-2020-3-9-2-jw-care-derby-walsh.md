@@ -18,3 +18,7 @@ La communauté s’étend dans l’Amour Divin de manière exponentielle dans le
 Donc, nous ici, nous sommes sur cette marche avec vous, nous sommes sur ce chemin, où nous sommes tous dépendants de Dieu. Vous le savez. Je fus remplie de joie en vous voyant réunis dans ce cercle et je vous embrasse tous avec mon amour et avec l’Amour de Dieu.
 
 Je remercie mon bien-aimé Jimbeau d’avoir pris ce message. Levez-vous et brillez et donnez à Dieu votre Gloire ! Je vous aime. Je suis Care.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

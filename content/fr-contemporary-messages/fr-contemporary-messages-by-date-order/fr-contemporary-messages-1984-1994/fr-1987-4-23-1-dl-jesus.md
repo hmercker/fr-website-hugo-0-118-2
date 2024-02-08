@@ -41,7 +41,6 @@ Eh bien, comme vous êtes maintenant fatigués, je vais conclure pour l’instan
 
 Je vous remercie de m’avoir permis une fois de plus de parler à travers vous, et je vous félicite pour le travail bien fait en recevant mon message, je reste à votre disposition dans l’Amour fraternel, Jésus.
 
-[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+### [**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

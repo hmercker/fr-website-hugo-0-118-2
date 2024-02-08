@@ -16,3 +16,7 @@ Que l’Esprit Saint touche vos âmes, mes bien-aimés, afin que vous puissiez v
 Vous êtes tenus en ce moment mes bien-aimés, dans cette Grâce, cette Paix qui dépasse toute compréhension. Buvez profondément ces eaux vives d’Amour, car elles sont la nourriture de l’âme. Elles guériront tout, toutes les choses en vous qui ne sont pas d’Amour. Les Eaux Vives de Dieu se déversent dans le vaisseau de votre âme, mes bien-aimés, apportant une joie et une paix profondes, vous montrant le chemin de la maison, vers la Lumière que vous cherchez, la vraie joie qui vient de l’âme libérée et enveloppée dans l’Amour de Dieu.
 
 Dieu vous portera mes bien-aimés, Il vous porte, vous élève, vous aime. Tous vos besoins seront pris en charge. Tous vos fardeaux seront allégés. Toutes vos questions seront répondues. Tous vos désirs qui sont vrais et de l’âme, satisfaits. Cela vient avec le déversement de Son Amour en vous, et ce flux est sans fin, ce voyage est infini, cette connaissance s’étend à l’infini. Sentez Son toucher, mes bien-aimés, et sachez que vous êtes aimés au-delà de toute mesure. Sachez que vous êtes aimés. Que Dieu vous bénisse. Je suis André et je vous aime.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

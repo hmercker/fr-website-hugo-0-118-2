@@ -11,7 +11,7 @@ weight:
 
 Martha - reçu par Al Fike le 10 Juin 2018, Gibsons, Colombie-Britannique, Canada.
 
-Je m’appelle Martha. J’ai fait partie autrefois de votre congrégation, dans votre église. Il y a de nombreuses années, avant qu’aucun d’entre vous ne fasse partie de cet endroit, j’étais là, et beaucoup de mes amis étaient là. Je suis heureux de voir que vous commémorez toutes les années de toutes les personnes qui ont mis leur amour et leur cœur dans cet endroit, votre église. Je veux que vous sachiez combien je suis heureuse que vous incluiez maintenant la vérité de l’Amour Divin dans ce lieu, car cela a toujours été mon chemin vers Dieu. Je suis maintenant un membre des Cieux Célestes et nous nous sommes regroupés pour aider à apporter ces vérités à votre église. Beaucoup d’entre nous, qui ont eu une certaine association, non seulement avec votre église mais aussi avec beaucoup d’entre vous, travaillent pour apporter une plus grande Lumière et plus d’harmonie à ce beau sanctuaire. Je souhaite vous rappeler que notre bien-aimé Maître Jésus a béni cet endroit et a reconsacré cette église pour Dieu. Elle a maintenant une lumière spéciale, quelque chose qui, lorsque vous priez et continuez à être dans ce lieu avec les plus hautes intentions, augmentera cette lumière. L’harmonie, la puissance et la beauté de ce lieu apporteront en lui la Grâce de Dieu et toutes Ses Bénédictions, des bénédictions de guérison et de paix et des bénédictions qui ouvrent le cœur et l’âme à l’Amour.
+Je m’appelle Martha<sup id="a2">[2](#f2)</sup>. J’ai fait partie autrefois de votre congrégation, dans votre église. Il y a de nombreuses années, avant qu’aucun d’entre vous ne fasse partie de cet endroit, j’étais là, et beaucoup de mes amis étaient là. Je suis heureux de voir que vous commémorez toutes les années de toutes les personnes qui ont mis leur amour et leur cœur dans cet endroit, votre église. Je veux que vous sachiez combien je suis heureuse que vous incluiez maintenant la vérité de l’Amour Divin dans ce lieu, car cela a toujours été mon chemin vers Dieu. Je suis maintenant un membre des Cieux Célestes et nous nous sommes regroupés pour aider à apporter ces vérités à votre église. Beaucoup d’entre nous, qui ont eu une certaine association, non seulement avec votre église mais aussi avec beaucoup d’entre vous, travaillent pour apporter une plus grande Lumière et plus d’harmonie à ce beau sanctuaire. Je souhaite vous rappeler que notre bien-aimé Maître Jésus a béni cet endroit et a reconsacré cette église pour Dieu. Elle a maintenant une lumière spéciale, quelque chose qui, lorsque vous priez et continuez à être dans ce lieu avec les plus hautes intentions, augmentera cette lumière. L’harmonie, la puissance et la beauté de ce lieu apporteront en lui la Grâce de Dieu et toutes Ses Bénédictions, des bénédictions de guérison et de paix et des bénédictions qui ouvrent le cœur et l’âme à l’Amour.
 
 C’est ce qu’une véritable église est censée être, un sanctuaire du monde extérieur et de toutes ses conditions qui n’apportent pas l’harmonie. Une véritable église est censée être un lieu de paix et d’harmonie, pour encourager les autres à aller vers Dieu, à être ouverts et aimants. Vous devez donc tous être des exemples de cela. Embrasser tous ceux qui franchissent votre seuil et leur permettre d’avoir une place au sein de votre famille, afin qu’ils puissent ressentir un sentiment d’appartenance et qu’ils puissent avoir une compréhension des désirs de leurs âmes, ces désirs qui les amènent à ce lieu de Lumière, qui les attirent, comme les lois sont promulguées dans cette église, la loi de l’attraction, les lois de l’amour.
 
@@ -25,3 +25,26 @@ Que Dieu vous bénisse à chaque pas que vous faites, qu’il vous inspire ses p
 <small>
 
 1. <large id="f1"> F.U.S.C. First United Spiritual Church (Première Église Spirituelle Unie).[↩](#a1)
+
+2. <large id="f2">Martha s'est également exprimée dans les messages suivants :  [↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Martha | [Un nouveau départ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-15-9-af-martha/) | 15 Décembre 2017
+Martha | [Je suis là pour vous aider](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-18-2-af-martha/) | 18 Décembre 2017
+Martha | [Nous sommes avec vous sur le chemin de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-26-2-af-martha/) | 26 Octobre 2018
+<small>
+
+1. <large id="f1"> Martha s'est également exprimée dans les messages suivants :  [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Martha | [Un nouveau départ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-15-9-af-martha/) | 15 Décembre 2017
+Martha | [Je suis là pour vous aider](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-18-2-af-martha/) | 18 Décembre 2017
+Martha | [Permettez à Dieu de travailler à travers cette église - F.U.S.C.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-10-2-af-martha/) | 10 Juin 2018
+Martha | [Nous sommes avec vous sur le chemin de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-26-2-af-martha/) | 26 Octobre 2018
+Martha | [Soyez ouverts et réceptifs à ce que nous faisons - Que chacun de vous puisse donner à chacun de vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2019-1-20-4-af-martha/) | 20 Janvier 2019
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

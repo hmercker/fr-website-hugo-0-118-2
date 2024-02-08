@@ -17,7 +17,19 @@ Mais j’ai exploré de nombreuses traditions et même le bouddhisme, dont j’a
 
 Ce cercle de lumière attire tant d’êtres Célestes, qui souhaitent être en prière avec vous tous, qui souhaitent vous inspirer et vous influencer tout en respectant votre libre arbitre. Et surtout, ne faire qu’un avec vous comme nous ne faisons qu’un dans l’Amour de Dieu. Au-delà des mots, au-delà des enseignements, il y a la simple présence et la grâce de l’Amour de Dieu. Qu’elles soient sur vous tous.
 
-Je vous remercie de m’avoir accordé ce temps et je suis honoré d’être ici, c’est mon privilège. Que vous soyez tous bénis par l’amour, l’amour des uns pour les autres et dans l’amour de Dieu. Je suis Thomas Merton, Dieu vous bénisse.
+Je vous remercie de m’avoir accordé ce temps et je suis honoré d’être ici, c’est mon privilège. Que vous soyez tous bénis par l’amour, l’amour des uns pour les autres et dans l’amour de Dieu. Je suis Thomas Merton, Dieu vous bénisse.<sup id="a2">[2](#f2)</sup>
 <small>
 
 1. <large id=”f1”> **Thomas Merton OCSO** (31 Janvier 1915 – 10 Décembre 1968) était un moine trappiste américain, écrivain, théologien, mystique, poète, activiste social et spécialiste des religions comparées. Le 26 mai 1949, il est ordonné prêtre et reçoit le nom de « Père Louis ». Il était membre de l’abbaye *« d'Our Lady of Gethsemani »*, près de Bardstown, dans le Kentucky, où il a vécu de 1941 à sa mort.[↩](#a1)
+
+2. <large id="f2"> Thomas Merton s'est également exprimé dans les messages suivants :[↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+--|---|---
+Thomas Merton | [Si vous aviez une croyance pour vous porter](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-24-2-jw-thomas-merton/) | 24 Mai 2020
+Thomas Merton | [Le pouvoir des mots](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-27-1-jw-thomas-merton/) | 27 Juin 2020
+Thomas Merton | [La simplicité de la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-31-1-jw-thomas-merton/) | 31 Mai 2021
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

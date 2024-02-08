@@ -24,3 +24,7 @@ Vous continuerez à être guidés et instruits sur ce Chemin. Les anges s’occu
 Priez pour recevoir cet Amour avec chaque instant que vous avez à donner, désirez-le, même si ce n’est qu’un instant. Aspirez à cela et dites votre simple prière : *« Père, touche mon âme de ton Amour »*. Vous devez apprendre à connaître la puissance de la prière, mes bien-aimés, et compter sur cette vérité, qu’une prière sincère apportera ce que vous demandez, même si elle est sans mots, simplement un désir, il y aura une réponse. Vous êtes dans l’étreinte de Dieu, mes âmes bien-aimées. Souvenez-vous de cela, vous êtes dans l’étreinte de Dieu. Faites confiance à Sa Sagesse, à Sa Volonté et tout se déroulera dans vos vies, devenant un magnifique voyage d’éveil, de service, de connaissance de la Vérité.
 
 Je vous bénis, mes enfants bien-aimés, mes frères et sœurs que je chéris et aime. Je suis votre frère, Jésus, et je marche avec vous. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

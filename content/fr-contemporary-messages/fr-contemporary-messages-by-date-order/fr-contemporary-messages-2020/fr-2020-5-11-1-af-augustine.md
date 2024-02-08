@@ -18,3 +18,7 @@ Chacun d’entre vous se réunit et aspire à ce cadeau. Chacun de vous le sait 
 Vous êtes profondément bénies, âmes bien-aimées. Vous êtes profondément bénies. Sachez que nous sommes avec vous. Sachez que Dieu est avec vous et que les bénédictions de Son Toucher continuent à vous réveiller et à vous apporter un sentiment de paix et de joie profondes. Il vous est donné, mes bien-aimés, donné librement, donné abondamment, donné joyeusement. Puissiez-vous recevoir tout ce qui vous est offert, vous éveiller à tout ce qui se transforme en vous, et les facultés de votre âme s’animer au contact de l’Amour de Dieu.
 
 Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous garde dans son Amour et dans une grande paix et joie. Je suis votre maître Augustin. Je suis heureux de prier avec vous ce soir, alors que vous cherchez une fois de plus à obtenir le saint toucher de Dieu sur vos âmes. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés. Mon amour est avec vous.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

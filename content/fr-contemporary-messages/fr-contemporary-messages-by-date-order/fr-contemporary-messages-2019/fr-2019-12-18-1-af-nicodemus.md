@@ -24,3 +24,7 @@ Je souhaite dire cela de la manière la plus douce et la plus aimante qui soit, 
 Je vous laisse avec mon amour, mes bénédictions et ma gratitude envers cet instrument qui a été assez surpris que je veuille parler car il est seul et en prière, mais il sait qu’il y a beaucoup de personnes en prière avec lui, donc en substance, ceci est pour tous. Que Dieu vous bénisse. Puissiez-vous vous ouvrir à la guidance et savoir que nous sommes avec vous pour vous offrir protection, guidance et amour. Vous êtes précieux pour nous tous, chacun d’entre nous, que Dieu vous bénisse.
 
 Je suis votre frère dans les cieux Célestes, Nicodème.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

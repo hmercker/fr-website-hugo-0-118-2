@@ -61,3 +61,7 @@ Que Dieu vous bénisse, âmes bien-aimées. Je suis votre frère et votre ami et
 <small>
 
 1. <large id="f1"> Ce pasteur a créé une vidéo largement diffusée sur Internet. Il s'appelle Dana Coverstone de Burkesville, dans le Kentucky.[↩](#a1)
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

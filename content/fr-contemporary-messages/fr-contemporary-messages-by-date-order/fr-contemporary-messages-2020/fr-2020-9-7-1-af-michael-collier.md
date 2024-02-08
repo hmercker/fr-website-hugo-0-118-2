@@ -38,3 +38,7 @@ Vous trouverez votre chemin, mes amis. Vous trouverez votre chemin. Dieu vous gu
 Que Dieu vous bénisse, mes amis, et merci de m’avoir écouté aujourd’hui. Je sais que ces prières sont souvent destinées au silence et à la contemplation, mais nous en profitons de temps en temps pour enseigner, pour vous donner un meilleur aperçu de ce qui est à venir dans vos vies, de ce qui se passe vraiment en vous, et de ce à quoi vous pouvez vous attendre à mesure que le temps passe dans votre voyage vers Dieu.
 
 Que Dieu vous bénisse, mes amis. Je suis Michael Collier. Je vous remercie et mon amour est avec vous. Que Dieu vous bénisse tous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

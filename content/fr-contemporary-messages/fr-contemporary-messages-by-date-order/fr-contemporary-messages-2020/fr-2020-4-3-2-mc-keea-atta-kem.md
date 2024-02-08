@@ -28,3 +28,7 @@ Ce que vous voyez ici, non pas en comparant mais en observant le médium par leq
 Chacun de vous verra ses dons s’ouvrir, s’éveiller et se déployer dans la grâce aimante de Dieu. Alors que vous vous embarquez dans cette période de découverte de vos dons, mes bien-aimés, soyez patients, soyez gracieux, faites preuve d’humilité, réveillez votre âme dans la prière, soyez clairs sur votre désir, et sachez que l’expression de vos dons est là pour servir vos frères et sœurs et pour éveiller le grand dessein de votre âme.
 
 Je vous remercie d’avoir écouté mes paroles, d’avoir reçu l’Amour Divin pour éveiller votre âme, et d’avoir offert à vos enseignants Célestes une voie supplémentaire pour servir. Que Dieu vous bénisse, mes chers. Je suis Keea Atta Kem à votre service. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

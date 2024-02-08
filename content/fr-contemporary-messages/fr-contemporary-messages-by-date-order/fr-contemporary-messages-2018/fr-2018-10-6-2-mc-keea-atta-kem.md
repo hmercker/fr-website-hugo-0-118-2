@@ -22,3 +22,7 @@ Bien sûr, cela ne signifie pas qu’il ne faut pas communiquer verbalement, mai
 Accordez-vous à l’âme d’un autre. Commencez à ressentir comment votre âme communie. Permettez à cet exercice de s’exprimer dans votre vie, mes bien-aimés. Il apportera une paix profonde, de la joie, de la clarté et un sens du but selon la manière dont vous vous reliez à ceux que Dieu place devant vous. Rien n’est aléatoire dans vos vies. Voyez l’œuvre de Dieu dans chaque pas que vous faites et dans ce qui se présente à vous. Voyez l’œuvre de Dieu, le déroulement de son plan. Permettez à cela d’être votre manière dominante d’exprimer, de recevoir et d’aimer ce qui se présente à vous. Renforcez vous dans cette tâche mes bien-aimés ; renforcez vous dans cette façon d’être dans le monde.
 
 C’est une si grande bénédiction de faire partie et de travailler ensemble avec des âmes bien-aimées sur cette terre qui aspirent à grandir en amour, en force et en harmonie. Je vous apporte mon amour, les couleurs vives et les lumières de Dieu pour bénir chacun de vous. Que Dieu vous bénisse dans votre journée dans ce voyage continu. Je vous aime. Je suis Keea Atta Kem et je suis souvent avec chacun de vous. Que Dieu vous bénisse, je vous aime.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

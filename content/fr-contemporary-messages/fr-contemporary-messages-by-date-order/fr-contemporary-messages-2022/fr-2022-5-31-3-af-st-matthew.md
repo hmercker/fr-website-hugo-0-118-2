@@ -18,3 +18,7 @@ Vous êtes vraiment Ses enfants. Vous continuez à être éveillés, à trouver 
 Âmes bien-aimées, soyez vraiment Ses instruments. Soyez vraiment l’enfant que vous êtes censés être. Marchez vraiment sur le chemin de la lumière et alors tout vous sera donné. Les généreuses bénédictions de Dieu s’écouleront abondamment et magnifiquement. Vous êtes aimés, âmes bien-aimées. Sachez que vous êtes aimées. Ressentez cet amour, absorbez cet amour et exprimez cet amour. De cette façon, vous êtes un exemple, un véritable canal pour que Dieu atteigne d’autres âmes. Soyez fidèles à vous-mêmes. Soyez fidèles à la Vérité. Connaissez vraiment l’amour, le pouvoir de l’amour, la qualité de l’amour de l’âme de Dieu, qui vous éveille et vous transforme.
 
 Bien-aimés, soyez en alignement avec Dieu. Cherchez cet alignement à chaque respiration et tout le reste suivra. Vous êtes bénis, âmes bien-aimées, vous êtes vraiment bénis. Je suis Matthieu. Mon amour pour vous est grand. Vous êtes vraiment nécessaires dans ce monde, vraiment une lumière. Soyez en paix et sachez que la main de Dieu est sur vous. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

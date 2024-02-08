@@ -34,3 +34,8 @@ L’innocence d’un enfant, la sagesse de l’âme qui désire Dieu, les effort
 Puissiez-vous réussir dans votre travail, mes amis. Puissiez-vous trouver votre rythme dans cette voie d’enseignement et apporter une grande et profonde inspiration avec vos mots, vos prières, votre joie, votre sagesse, votre amour. Tout vient du fait que vous avez un désir sincère de servir et d’être les canaux d’amour de Dieu, les instruments de paix et de changement dans le monde. De nombreuses bénédictions viendront et de nombreuses âmes croiseront votre chemin. Puisse chaque rencontre apporter une grande bénédiction, apporter un contact qui provoquera une réponse, un changement, un changement dans cette âme. Car ces choses sont souvent subtiles, mais avec le temps, ces graines prennent racine et apportent les résultats souhaités. Ayez la foi que vous serez guidé, que vous détenez en effet la clé de cette grande et puissante vérité, la plus haute des bénédictions, le plus grand et le plus profond changement de Dieu à l’âme de l’homme.
 
 Que Dieu vous bénisse, mon ami. Que Dieu vous bénisse. Je suis Yogananda, très, très heureux que nous communiquions de cette façon. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

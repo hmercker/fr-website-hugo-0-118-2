@@ -47,5 +47,8 @@ Faites un effort pour appliquer ces suggestions. Vous les avez reçues clairemen
 
 Je vous aime et je suis souvent avec vous. Ne désespérez pas, mais réjouissez-vous et vous redécouvrirez la puissance de la vie positive. Je suis votre ami et l’un de vos anges gardiens qui vous quitte maintenant avec mes bénédictions d’Amour. Amen.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+
+### [**Lien vers les messages des années 2000**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

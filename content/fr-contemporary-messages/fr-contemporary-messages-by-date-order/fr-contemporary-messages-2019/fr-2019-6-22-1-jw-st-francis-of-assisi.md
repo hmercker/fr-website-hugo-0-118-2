@@ -20,3 +20,7 @@ Nous vous demandons, lorsque vous avez une vision et que nous parlons à la chè
 C'est notre grand honneur et notre plaisir d'être avec vous tous aujourd'hui, dans la Présence de l'Amour de notre Créateur. Que ce lieu soit un sanctuaire, un refuge pour tous ceux qui viennent et très certainement un lieu de guérison. Nous vous remercions tous avec une profonde gratitude pour votre désir de recevoir l'Amour du Créateur et de marcher dans la Lumière avec nous. Comme nous vous aimons. Nous vous aimons vraiment, et Dieu vous aime.
 
 Je suis Francois, avec mon frère Yogananda. Merci de nous avoir permis de parler aujourd'hui. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

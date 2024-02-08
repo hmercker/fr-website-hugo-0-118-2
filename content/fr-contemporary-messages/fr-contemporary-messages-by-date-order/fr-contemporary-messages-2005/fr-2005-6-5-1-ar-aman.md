@@ -9,7 +9,7 @@ weight:
 ---
 ### La première expérience
 
-Aman - reçu par Amada Reza le 5 Juin 2005, Aptos, Californie, USA.
+Aman<sup id="a1">[1](#f1)</sup> - reçu par Amada Reza le 5 Juin 2005, Aptos, Californie, USA.
 
 *[Nous sommes venus en réponse à votre demande de clarification sur la nature de notre « désobéissance » en n'acceptant pas le don de l'Amour Divin de Dieu. Oui, nous sommes ces deux personnes que l'on appelle Adam et Eve, et je vais à nouveau essayer d'expliquer notre expérience. Je suis Aman, ou Adam, et j'ai le privilège de pouvoir bénéficier de cette opportunité. Vous savez peut-être que je suis détenteur de cette grâce, l'Amour Divin, et que j'habite les Cieux Célestes avec mon âme sœur, Amon.]*
 
@@ -32,5 +32,10 @@ Au moment où une âme humaine a de nouveau entendu frapper à la porte, Jésus 
 C'est ainsi que s'est achevée la première expérience et qu'a commencé la plus grande - celle de la transformation de l'âme humaine par son Union et Réconciliation avec l'âme de Dieu.
 
 Merci d'avoir pris ce temps avec nous, Aman.
+<small>
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005)
+1. <large id="f1"> Les différents messages relatifs à Aman(Adam), Aamon(Eve) et leur famille sont disponibles par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a1)
+
+### [**Lien vers les messages des années 2005**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

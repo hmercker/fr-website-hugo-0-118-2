@@ -34,3 +34,8 @@ Car, mes âmes bien-aimées, le temps est vraiment venu pour vous d'avancer dans
 Cela vient à vous, âmes bien-aimées. Dieu continue de déverser Son Amour sur vous, de vous élever et de vous amener à ce lieu d'éveil. C'est ainsi que cela viendra et que vous émergerez lorsque votre âme viendra pleinement à la vie. Quelle merveille ce sera, quels dons émergeront, et une telle beauté sera exprimée. Le pouvoir de l'Amour de Dieu, Son Essence change tout, la beauté de cette transformation, l'émerveillement d'une âme rachetée et la joie qui vient avec cet éveil. Tant de choses vous attendent, mes bien-aimés, tant de choses que Dieu vous donne tout et que vous n'avez besoin de rien d'autre que de votre relation avec Dieu.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem et je continue à vous servir et à vous assister en cette période de transformation. Je vous aime, chacun d'entre vous, chacun d'entre vous est une lumière précieuse. Je vous aime. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

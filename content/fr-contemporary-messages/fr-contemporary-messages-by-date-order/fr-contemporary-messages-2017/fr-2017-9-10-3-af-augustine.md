@@ -16,3 +16,7 @@ Dieu vous bénisse, je suis Augustin, votre enseignant. Je vous invite à vous r
 Que Dieu vous bénisse, mes bien-aimés. Votre enseignant Augustin viendra à nouveau et parlera de choses vraies et inspirantes pour aider vos âmes à grandir et vos esprits à comprendre les belles complexités de la vie et la merveille qu'est votre véritable soi, votre être spirituel, qui grandira et trouvera son expression pour toute l'éternité. Puissions-nous poursuivre nos efforts pour aider à enseigner ces vérités à l'humanité et inspirer les autres à rechercher l'amour du Père.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Augustin et je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -56,3 +56,7 @@ Je sais que nous vous demandons beaucoup, mes bien-aimés. Je sais que ce n'est 
 Nous poursuivrons nos efforts et notre travail ensemble, pour marcher dans la Lumière de l'Amour de Dieu, pour marcher dans la Lumière de la Vérité, pour être Ses instruments et Ses canaux, pour être dans ce royaume de Grâce. Que Dieu continue à vous bénir, âmes bien-aimées. Puissiez-vous continuer à exercer votre volonté vers plus de lumière, de compréhension et de vérité, à être ouvertes à tout ce qui peut être donné, et à vous tourner toujours vers la lumière. Puissent vos âmes se développer et éveiller chaque partie de vous, chaque cellule de votre corps, chaque pensée de votre esprit, chaque énergie de votre esprit. Tout ce que vous êtes peut être réclamé par Dieu dans Son Amour.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant Augustin. Je continue à vous parler de la vérité, à vous encourager à vivre dans la vérité. Mon amour est toujours avec vous alors que les nombreux anges du Ciel continuent à prier pour vous et à faire des efforts au nom de Dieu pour éclairer votre chemin et vous guider. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés. Augustin vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

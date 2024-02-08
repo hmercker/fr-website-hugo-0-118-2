@@ -33,5 +33,8 @@ Vous êtes mes disciples sur terre et je vous remercie de votre amour et de vos 
 
 Je suis votre frère, Jésus, et Maître des Cieux Célestes, qui vous aime et vous guide chaque fois que vous le demandez.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+
+### [**Lien vers les messages des années 2000**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

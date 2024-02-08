@@ -23,4 +23,6 @@ Je n'ai pas eu un tel nuage, car Dieu a éliminé toute influence négative. Il 
 
 En outre, j'ai bénéficié du soutien psychologique total de mes parents bien-aimés, qui ont nourri ma psyché d'enfant d'une manière qui m'a permis d'explorer et de devenir ainsi le Messie.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

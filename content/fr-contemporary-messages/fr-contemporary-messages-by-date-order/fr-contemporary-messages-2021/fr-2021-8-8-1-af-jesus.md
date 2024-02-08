@@ -27,3 +27,8 @@ Tant de choses vous sont données, âmes bien-aimées, vous qui avez choisi la l
 Nous sommes les enfants de Dieu ensemble, âmes bien-aimées, et nous continuons à servir Dieu dans l’amour et la lumière, canaux de Ses bénédictions pour le monde. Puissions-nous tous travailler ensemble à l’unisson et en harmonie. Le pouvoir de notre collaboration commence tout juste à se manifester dans le monde et va croître en profondeur et en étendue. Ce sera un effort magnifique pour apporter l’amour au monde. Vous faites tous partie de ce grand effort, alors que Dieu continue à nous bénir tous et à nous rassembler de ces manières et par ces moyens. Vous êtes mes frères et sœurs. Vous êtes les frères et sœurs de nombreux anges qui résident dans le Royaume Céleste et vous êtes une lumière dans le monde.
 
 Que Dieu vous bénisse profondément, mes bien-aimés, profondément. Réveillez vos âmes, apprenez à connaître votre vrai moi et votre vrai destin et tout se déroulera en harmonie avec la volonté et l’Amour de Dieu. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés. Je suis avec vous, je ne vous quitterai jamais, je serai toujours à vos côtés alors que nous conquérons la terre dans l’amour, la lumière et la vérité, dans l’harmonie qui se manifeste par les bénédictions de Dieu. Que Dieu vous bénisse. Je suis avec vous. Que Dieu vous bénisse. Je vous aime.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

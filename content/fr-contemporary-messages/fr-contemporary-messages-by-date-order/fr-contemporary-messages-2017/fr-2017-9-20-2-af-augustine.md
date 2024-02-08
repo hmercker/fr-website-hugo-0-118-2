@@ -45,3 +45,7 @@ Je vous dis au revoir. Que Dieu vous bénisse. Je suis votre enseignant, Augusti
 <small>
 
 1. <large id="f1"> La Loi du Désir a été communément popularisée sous le nom de [Loi de l'Attraction](/10-fr-spiritual-subjects/10-1-fr-spiritual-laws/10-1-1-fr-the-law-of-attraction/). Les esprits Célestes font cependant la distinction entre la loi du désir et une autre loi d'attraction.[↩](#a1)
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

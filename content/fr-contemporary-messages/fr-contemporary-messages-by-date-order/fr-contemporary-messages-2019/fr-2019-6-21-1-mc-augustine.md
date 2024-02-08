@@ -20,3 +20,7 @@ Ainsi, ton dévouement, cher fils, est ce qui est d'abord et avant tout requis. 
 Vous rendez un grand service à votre patrie. Nous serons avec vous pour vous aider de toutes les manières possibles. Vous savez toujours qu'il y a beaucoup plus de choses qui se passent dans les coulisses que vous n'êtes pas en mesure de reconnaître en ce moment. Soyez donc dans la joie et dans l'amour. Soyez de lumière. Soyez de paix. Permettez à l'harmonie de l'Amour de Dieu de renforcer le lien merveilleux entre vos âmes.
 
 Je suis votre enseignant, Augustin. Je suis ici avec vous. De nombreux Anges Célestes sont avec vous. Que Dieu vous bénisse. Mon amour est toujours avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -40,3 +40,7 @@ Je vous bénis, mes chers et beaux amis, dans ce voyage et je continuerai à vou
 Que Dieu vous bénisse toujours de son Amour. Que vous soyez dans cette puissante rivière de Son Amour et que vos vies soient pleines de grâce, de joie et de paix. Continuez mes bien-aimés dans vos grands efforts alors que vous luttez de l’obscurité vers la Lumière, de l’ignorance vers la Vérité, de la peur vers la joie et la libération. Tout sera fourni et guidé dans ce flux puissant, alors que Dieu vous porte dans vos belles vies de service d’éveil, d’Amour.
 
 Dieu vous bénisse, je suis Jacques et je suis avec vous dans vos efforts et je vous aime. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

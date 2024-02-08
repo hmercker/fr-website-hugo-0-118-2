@@ -36,4 +36,6 @@ Jésus | [Sur l'abondance matérielle - 5](/fr-contemporary-messages/fr-contempo
 Jésus | [Sur l'abondance matérielle - 6](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-24-4-fab-jesus/) | 24 Février 2010
 Jésus | [Sur l'abondance matérielle - 7](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-28-1-fab-jesus/) | 28 Février 2010
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

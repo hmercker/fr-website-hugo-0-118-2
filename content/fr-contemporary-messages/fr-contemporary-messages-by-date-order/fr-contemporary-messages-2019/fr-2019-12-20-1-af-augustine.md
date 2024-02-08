@@ -26,3 +26,7 @@ Continuez à prier. Je sais que cette souffrance est difficile à supporter, que
 Nous sommes avec vous. Nous ne vous avons jamais quittés. Nous continuerons à marcher avec vous tous. Nous continuerons à vous aider de toutes les manières possibles dans le cadre des lois de la création de Dieu et du pouvoir de l’Amour de Dieu dans votre âme. Nous vous bénirons donc et vous apporterons ce dont vous avez besoin pour être dans la Lumière, pour être enveloppés de protection et d’Amour.
 
 Que Dieu vous bénisse profondément, âmes bien-aimées, et vous garde dans ce grand courant d’Amour. Paix profonde, paix profonde, mes bien-aimés. Que Dieu vous bénisse. Je suis votre enseignant Augustin. Que Dieu vous bénisse, âmes bien-aimées. Je suis avec vous. En effet, je suis avec vous.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -25,4 +25,6 @@ Inversement, une bonne chose peut être faite avec une mauvaise intention. L'exe
 
 Il est ainsi arrivé que certains esprits découvrent avec stupéfaction que leur acte de charité n'apporte pas le confort et le bonheur, mais l'inverse. Ils ne pouvaient pas le comprendre au départ, mais ensuite, au fur et à mesure que les lois agissent, et que leur âme s'ouvre à elle-même, ils découvrent la vérité, à leur grande peine.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

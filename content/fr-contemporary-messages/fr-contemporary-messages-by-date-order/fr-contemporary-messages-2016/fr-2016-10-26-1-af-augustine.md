@@ -18,3 +18,7 @@ Soyez en paix et sachez que chacun d’entre vous est accompagné d’un ange et
 Soyez ouverts, soyez ouverts et recevez ce que Dieu a à vous donner, car chacun de vous est digne, est précieux et beau. Chacun d’entre vous est capable de recevoir ce cadeau tant qu’il permet à ce toucher de Dieu d’entrer en lui, ce toucher saint qui changera votre être, illuminera vos âmes et apportera la révélation à votre conscience. Cela ne vient pas d’un seul coup, mes bien-aimés. Cela vient avec chaque prière, chaque désir que vous adressez à Dieu et cela vous mettra sur une route, distincte et belle et pleine de choses merveilleuses, d’ouvertures, de compréhensions, vous amenant près de la source du Grand Amour et de l’Être de Dieu.
 
 Soyez ouverts, acceptez ce qui est donné, demandez à Dieu de vous donner ce que vos âmes désirent profondément, ce qui est destiné à être donné et vous recevrez et connaîtrez certainement ce Don. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse. Je suis votre enseignant Augustin et je suis heureux d’être avec vous ce soir dans ce beau cercle de belles âmes. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

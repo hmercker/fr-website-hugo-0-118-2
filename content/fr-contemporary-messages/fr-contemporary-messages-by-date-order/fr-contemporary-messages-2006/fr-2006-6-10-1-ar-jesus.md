@@ -23,4 +23,6 @@ Dans ces "moments" éternels, votre foi dans la réalité de l'Amour Divin se d�
 
 Je suis heureux, chère sœur, et je vous remercie d'avoir pris mon message aujourd'hui. Je suis votre frère en Christ, Jésus, et Maître des Cieux Célestes.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -7,9 +7,9 @@ draft: False
 hidden: True
 weight:
 ---
-### La Loi Morale
+### La Loi Morale <sup id="a1">[1](#f1)</sup>
 
-Jack London <sup id="a1">[1](#f1)</sup> - reçu par FAB le 9 Janvier 2008, Santa Cruz, Californie, USA.
+Jack London <sup id="a2">[2](#f2)</sup> - reçu par FAB le 9 Janvier 2008, Santa Cruz, Californie, USA.
 
 C’est moi, Jack London.
 
@@ -25,9 +25,13 @@ Cette loi est parfois perçue par les mortels comme travaillant trop lentement, 
 
 Mon opinion est que CETTE LOI MORALE EST INÉVITABLE, et il serait bon pour tous les mortels de comprendre cette loi et ses conséquences inévitables. Et permettez-moi d’ajouter que si les gens sont ignorants de la présente loi, cela ne fait aucune différence, parce qu’elle va tout de même fonctionner.
 
-**Note :** Un [message ultérieur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-10-2-fab-jesus/) explique le nom correct de la Loi Morale.
+**Note :** Un [message ultérieur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-10-2-fab-jesus/) Jésus explique le nom correct pode la Loi Morale.
 <small>
 
-1. <large id="f1"> **Jack London** (12 Janvier 1876 – 22 Novembre 1916), est un écrivain Américain qui a écrit *« l’appel de la forêt »* et d’autres livres. Un pionnier dans le monde alors grandissant des magazines de  fiction commerciale, il fut un des premiers américains à faire une carrière lucrative exclusivement par l’écriture. (Source : Wikipédia)[↩](#a1)
+1. <large id="f1"> Dans un [message ultérieur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-10-2-fab-jesus/) Jésus explique le vrai sens de la loi morale à laquelle Jack London a fait référence.[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+2. <large id="f2"> **Jack London** (12 Janvier 1876 – 22 Novembre 1916), est un écrivain Américain qui a écrit *« l’appel de la forêt »* et d’autres livres. Il fut un pionnier dans le monde alors grandissant des magazines de  fiction commerciale, dans le sens où il fut un des premiers américains à faire une carrière lucrative exclusivement par l’écriture. (Source : Wikipédia)[↩](#a2)
+
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -51,4 +51,6 @@ Donner de l’amour, pardonner aux autres, faire preuve d’acceptation, de tol�
 
 J’ai le sentiment d’avoir suffisamment couvert les sujets pour que mes arguments soient clairs. Je prie pour que ceux qui cherchent la vérité soient capables de voir la validité de ce que j’ai écrit. Je vous laisse maintenant avec mes bénédictions et vous remercie de m’avoir permis de transmettre mes pensées à travers vous ce matin. Je suis un adepte des enseignements de Jésus et un esprit Céleste élevé. Amen.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)
+### [**Lien vers les messages des années 2001**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

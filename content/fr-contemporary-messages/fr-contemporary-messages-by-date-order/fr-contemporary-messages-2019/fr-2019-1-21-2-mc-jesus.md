@@ -18,3 +18,7 @@ Je viens, je suis Jésus. Que l’Amour du Père vous baigne et vous traverse en
 J’apporte une bénédiction à chacun de vous ici, une lumière spéciale, un cadeau, une bénédiction. Marchez comme j’ai marché sur cette Terre, mes bien-aimés. Faites de votre mieux. Permettez à cet Amour de bénir tout ce que vous faites. Je marche avec chacun de vous et je prie pour vous.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Jésus. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

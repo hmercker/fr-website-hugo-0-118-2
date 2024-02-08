@@ -11,7 +11,7 @@ weight:
 
 David Ben-Gurion - reçu par FAB le 20 Juillet 2007, Santa Cruz, Californie, USA.
 
-C'est moi, David Ben-Gourion.
+C'est moi, David Ben-Gourion.<sup id="a1">[1](#f1)</sup>
 
 Je viens aujourd'hui pour [développer les pensées que j'ai canalisées à travers vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-8-7-1-fab-david-ben-gurion/).
 
@@ -42,5 +42,13 @@ Laissez-moi maintenant vous parler de votre propre rôle dans toute cette situat
 Eh bien, ne sous-estimez pas et ne doutez pas de l'effet positif que vous pouvez avoir dans vos efforts. Et aussi, ne sous-estimez pas la force croissante des jeunes en Israël qui ne sont pas enfermés dans la mentalité qui perpétue le conflit tragique qui embrase mon pays. Une solution peut être trouvée, et le Créateur est à l'œuvre pour aider tous ceux qui désirent l'amour, la justice et la paix.
 
 Je suis reconnaissant de l'occasion qui m'est donnée de partager mes pensées avec le monde, d'une manière qui était impossible lorsque j'étais un mortel.
+<small>
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+1. <large id="f1"> David Ben Gourion s'est exprimé lors des messages suivants :[↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+David Ben-Gurion | [Le conflit Israelo-Palestinien](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-8-7-1-fab-david-ben-gurion/) | 7 Août 2006
+David Ben-Gurion | [Un dirigeant israélien complète son message précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-20-1-fab-david-ben-gurion/) | 20 Juillet 2007
+David Ben-Gurion | [Le Moyen-Orient et la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-10-31-1-fab-david-ben-gurion/) | 31 Octobre 2007
+<small>

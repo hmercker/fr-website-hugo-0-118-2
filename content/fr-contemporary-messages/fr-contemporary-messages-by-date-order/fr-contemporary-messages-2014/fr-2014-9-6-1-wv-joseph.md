@@ -27,4 +27,6 @@ Nous sommes ici ensemble et nous ne faisons qu’un, que vous vouliez le croire 
 
 Je vous remercie de m’avoir donné l’occasion de parler de ces sujets. Ils sont très pertinents pour vous tous. Au revoir pour le moment. Jusqu’à ce que nous nous rencontrions à nouveau.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014)
+### [**Lien vers les messages des années 2014**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

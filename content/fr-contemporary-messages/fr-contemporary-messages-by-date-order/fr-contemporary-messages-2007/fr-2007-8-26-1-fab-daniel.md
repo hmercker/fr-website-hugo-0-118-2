@@ -35,4 +35,7 @@ La pièce manquante était ainsi fournie, et j’ai senti un accomplissement que
 
 Ainsi, j’ai brièvement décrit mon parcours vers la voie Divine. Ce fut un chemin très facile pour moi de suivre, parce que je me suis rendu compte, rétrospectivement, que Dieu m’avait préparé pour cela par mes expériences de vie et par ma personnalité.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

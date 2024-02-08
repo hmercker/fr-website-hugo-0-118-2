@@ -23,3 +23,7 @@ Je vous rappelle donc que vous devez apporter cet amour à ceux avec qui vous vo
 1. <large id=”f1”> 1 Corinthiens 13 : 1 *« Quand je parlerais les langues des hommes et des anges, si je n’ai pas la charité, je suis un airain qui résonne, ou une cymbale qui retentit. »*[↩](#a1)
 
 2. <large id=”f2”> Une personne avait un engagement et devait partir plus tôt.[↩](#a2)
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

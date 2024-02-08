@@ -20,3 +20,7 @@ Dieu veille sur vous et nous serons avec vous, comme vous le savez. En ce jour d
 Où que tu choisisses d'aller, si cela te semble juste dans ton cœur ou même si tu sens que c'est un endroit qui a besoin de ton cœur et de ton âme, nous t'encourageons à y aller. Prends le temps de te reposer. Réfléchis à ces choses. Prie à leur sujet. Nous ne te laisserons pas tomber. Le Père te protège.
 
 Dans le jardin de l'Amour de Dieu, puissiez-vous continuer à fleurir comme les roses, comme le lotus, comme les lumières que vous êtes. Que Dieu vous bénisse. Je vous promets mon amour et ma protection. Je suis votre frère dans les Cieux Célestes, François, et je vous aime.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -34,3 +34,7 @@ Beaucoup aspirent à le savoir et beaucoup sont endormis dans ce monde mais sero
 Oui, ces temps dont nous avons parlé pendant de nombreuses années sont maintenant sur nous et la gravité de ces temps exige un sérieux d’action et d’effort et nous sommes heureux que vous soyez prêts à faire les efforts qui sont nécessaires pour accomplir le travail qui vient. Je vous bénis mes bien-aimés, mes beaux amis, je vous aime tendrement et je reconnais vos belles âmes. Continuez à chercher la guidance, à suivre ce chemin en toute sincérité, à être en harmonie avec la volonté de Dieu, ses lois, son amour et à connaître la paix et la joie de reconnaître que vous êtes vraiment bénis.
 
 Que Dieu vous bénisse, âmes bien-aimées. Qu’Il vous garde toujours dans cette Lumière. Nous vous aimons, nous sommes avec vous et nous continuerons à vous soutenir de bien des façons, car l’Amour est ainsi, n’est-ce pas ? Vous êtes soulevés, vous êtes enveloppés, vous êtes guidés, vous êtes renforcés, vous êtes guéris, vous êtes en paix et vous êtes pourvus. Cela continuera, toujours. Que Dieu vous bénisse. Je suis Seretta Kem. Je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

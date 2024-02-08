@@ -36,3 +36,7 @@ Vous êtes tous capables de cela. Vous avez tous en vous ce grand don de l'Amour
 C'est votre choix. Ni Dieu ni nous n'interférons dans votre choix. Nous pouvons vous encourager. Nous pouvons vous aider. Nous pouvons vous apporter des bénédictions et vous élever, mais nous ne pouvons pas vous faire boire les Eaux Vives de Dieu. C'est votre choix. Puissiez-vous bien choisir, car chaque âme ici et toutes les âmes dans le monde ont soif de ce don, mais souvent l'entêtement du mental se détourne du grand puits d'eau qu'est l'Amour de Dieu. Ne vous détournez pas, mais buvez et buvez la subsistance de la vie de l'âme. Elle est à votre disposition et ne vous sera jamais refusée. Elle vous attend. Elle est là pour vous. Puissiez-vous l'atteindre et boire à votre faim.
 
 Que Dieu vous bénisse. Votre enseignant Augustin vous aime tendrement et continue à vous encourager sur votre chemin. Que Dieu vous bénisse. Que Dieu vous bénisse, chers étudiants. Je suis toujours avec vous. Dieu vous aime.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

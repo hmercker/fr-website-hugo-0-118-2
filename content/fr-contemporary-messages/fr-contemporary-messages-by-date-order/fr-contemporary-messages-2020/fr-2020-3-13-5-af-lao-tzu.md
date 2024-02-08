@@ -11,7 +11,7 @@ weight:
 
 Lao Tseu - reçu par Al Fike le 13 Mars 2020, Houston, TX, USA.
 
-Compagnons de lumière, je suis Lao Tseu. Il y a un grand bouleversement dans le monde, surtout en Orient comme vous l’appelez, où la grande promesse du matérialisme n’apporte pas, comme on l’a cru, le soulagement aux gens qui souffrent. Les superstitions des anciennes religions et idées sont en train de se dissiper. Beaucoup de choses changent dans cette partie du monde, tout comme dans votre partie. Le monde entier est bouleversé par de grands changements et de grands défis.
+Compagnons de lumière, je suis Lao Tseu.<sup id="a1">[1](#f1)</sup> Il y a un grand bouleversement dans le monde, surtout en Orient comme vous l’appelez, où la grande promesse du matérialisme n’apporte pas, comme on l’a cru, le soulagement aux gens qui souffrent. Les superstitions des anciennes religions et idées sont en train de se dissiper. Beaucoup de choses changent dans cette partie du monde, tout comme dans votre partie. Le monde entier est bouleversé par de grands changements et de grands défis.
 
 Il est temps pour le monde de mettre de côté ses préjugés, son ignorance, son manque de compréhension, et de reconnaître que chaque âme sur cette planète est un enfant de Dieu. Peu importe la culture, la religion, les idées qui viennent du mental, chaque âme reconnaît Dieu. Chaque âme a la possibilité de reconnaître tous ses frères et sœurs. De cette façon, tous sont une famille dans ce monde. C’est simplement l’esprit, les idées, la perspective et les perceptions de l’esprit qui font la différence, qui créent les barrières les uns avec les autres.
 
@@ -37,4 +37,18 @@ Je vous encourage donc, mes amis. Je vous encourage dans votre voyage, afin que 
 
 Je suis Lao Tseu. Je vous donne mes bénédictions et ma prière est que vous continuiez à grandir dans l’Amour et la Lumière, que vous puissiez vous éveiller aux possibilités et à la puissance de l’Amour de Dieu, cette grande Essence qui est avec vous mais qui cherche à ce que vous l’invitiez, à ce que vous l’apportiez dans votre âme. Puissiez-vous connaître la prière comme la clé qui ouvrira cette porte. Puissiez-vous apprendre à connaître votre vrai moi, ces aspects cachés de vous que nous appelons âme. Car il y a en vous un profond désir, un désir ardent d’être éveillé, d’être libéré des contraintes de votre esprit et de venir dans ce lieu de grand éveil et de joie. Que vous puissiez trouver en vous un bonheur qui dépasse toute description, que vous puissiez connaître une Vérité de premier ordre, que vous puissiez venir à Dieu et réaliser les grands avantages et les bénédictions qui découlent de cette relation.
 
-Que vous soyez bénis, mes amis, ouverts et éveillés, qu’on vous montre le chemin de la Lumière. Je suis votre humble serviteur et votre enseignant. Je viens pour être avec mes amis sur cette Terre. Je suis Lao Tseu. Soyez tous bénis, vraiment bénis. Mon amour est avec vous.
+Que vous soyez bénis, mes amis, ouverts et éveillés, qu’on vous montre le chemin de la Lumière. Je suis votre humble serviteur et votre enseignant. Je viens pour être avec mes amis sur cette Terre. 
+
+Je suis Lao Tseu. Soyez tous bénis, vraiment bénis. Mon amour est avec vous.
+<small>
+
+1. <large id="f1"> Lao Tseu s'est également exprimé dans les messages suivants :  [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+--|---|---
+Lao Tseu | [À la pointe du changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-15-2-af-lao-tzu/) | 15 Novembre 2017
+Lao Tseu | [La voie Divine est différente de la voie naturelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-8-1-af-lao-tzu/) | 8 Juin 2021
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

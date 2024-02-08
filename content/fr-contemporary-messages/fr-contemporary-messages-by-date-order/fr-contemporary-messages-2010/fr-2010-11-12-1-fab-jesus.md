@@ -33,4 +33,6 @@ Ce que je veux dire, c'est que du point de vue de Dieu, chaque situation et chaq
 
 Des atrocités ont été commises des deux côtés, mais cela ne discrédite en rien la Déclaration des droits.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

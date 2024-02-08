@@ -16,3 +16,8 @@ Je suis Bernadette et je viens dans la Grâce de Dieu dans ce cercle de lumière
 Que Dieu vous bénisse … Que Sa grâce soit avec vous.
 
 Bernadette Soubirou.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

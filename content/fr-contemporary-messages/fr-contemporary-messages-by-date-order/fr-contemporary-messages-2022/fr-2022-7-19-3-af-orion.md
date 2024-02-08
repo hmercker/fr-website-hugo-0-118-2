@@ -40,3 +40,7 @@ Chacun d’entre vous est capable de connaître et d’expérimenter cette condi
 Soyez en harmonie avec ces lois, mes amis. Cherchez ce qu’il y a de plus élevé et nous accomplirons vraiment nos objectifs ensemble. Vous trouverez des événements et des manifestations vraiment remarquables et merveilleux dans votre vie. Ayez une grande foi. Soyez fidèles à votre âme. Soyez fidèles à Dieu. Tout le reste viendra avec cela, mes amis. Nous continuons toujours ce voyage ensemble, avec vos anges amis, ensemble les uns avec les autres, alors que vous vous soutenez mutuellement sur ce grand et merveilleux chemin de l’amour.
 
 Je vous bénis. Merci pour le temps que vous avez consacré à la prière et à l’écoute. Beaucoup d’amour à vous tous. Je suis Orion. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -18,3 +18,7 @@ Dans le Nouveau Monde qui vient, de telles choses ne seront pas pertinentes, mê
 Je vous invite à pratiquer l’abstinence de ces pensées, perceptions et jugements. Être libre dans l’Amour de Dieu, d’avoir confiance dans la voie de Dieu, dans le plan de Dieu, n’est-ce pas plus excitant que toute information ou condition qui fait partie du monde matériel en ce moment ? Cela ne vous intrigue-t-il pas et ne vous amène-t-il pas à poser davantage de questions et à adresser des prières à votre Père céleste ?
 
 N’est-ce pas plus fascinant de connaître la Volonté de Dieu, d’être en harmonie avec la Volonté de Dieu, d’être en harmonie avec l’Amour de Dieu, d’être avec Dieu dans son désir d’apporter toujours plus d’harmonie à votre engagement avec l’humanité, d’apporter ce qui n’est pas que la condition humaine ? Que Dieu vous bénisse mon ami. Poursuivez la conversation reçue aujourd’hui et demain.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

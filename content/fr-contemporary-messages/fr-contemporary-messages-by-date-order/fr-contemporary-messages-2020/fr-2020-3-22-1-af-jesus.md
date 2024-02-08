@@ -16,3 +16,7 @@ Que Dieu vous bénisse, âmes bien-aimées. Je viens, je suis Jésus. Vous n’a
 Sachez que je suis avec vous, que la protection de Dieu entoure chacun de vous, car vous êtes venus à Dieu dans les moments de besoin et vous êtes venus à Dieu pour ouvrir votre âme à Son Amour, pour ressentir la joie de vivre, pour être en paix. Et ainsi chaque âme qui demande et qui a une grande foi en la volonté de Dieu sera bénie. Je vous bénis, âmes bien-aimées, je vous bénis. Sentez le réconfort du contact de Dieu sur vous, sentez l’Amour qui est l’Essence de Dieu vous entourer.
 
 Sachez que Sa guérison se déverse sur vos corps et votre âme. Vous serez tous élevés. Vous êtes dans la grâce de Dieu. Que Dieu vous bénisse, je suis avec vous pour toujours. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -27,4 +27,6 @@ Cela commence par vous. Vous pouvez vous changer. Vous pouvez vous guérir. Il n
 
 Votre Père Céleste qui vous sourit dans votre faiblesse.
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

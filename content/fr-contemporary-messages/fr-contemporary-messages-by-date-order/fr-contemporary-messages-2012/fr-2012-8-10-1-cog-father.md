@@ -29,4 +29,6 @@ Il n’y a pas de secrets. Il n’y a que la Vérité. Et la Vérité est que no
 
 Tu es aimé, tu es mon enfant, ton Père Céleste.
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

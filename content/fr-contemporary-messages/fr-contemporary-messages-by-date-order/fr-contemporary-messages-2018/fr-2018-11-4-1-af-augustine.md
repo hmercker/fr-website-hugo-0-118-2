@@ -20,3 +20,7 @@ Si vous priez pour être utilisés de cette manière, mes bien-aimés, Dieu orch
 Le moment est venu de faire un pas en avant, mes bien-aimés, car ce monde a un besoin désespéré d’amour. Ce monde a désespérément besoin de connaître Dieu et Son Amour. Je vous demande, âmes bien-aimées, je vous demande de prier pour être dans le service, de prier pour être un canal d’amour, de prier pour que tout ce qui pourrait restreindre soit retiré. Priez pour que Son Amour puisse inonder votre être, éveiller vos âmes et votre conscience à la réalité de Dieu, à la vérité de Dieu, et vous pouvez en effet trouver beaucoup de surprises et d’opportunités à votre disposition dans votre service, dans vos vies quotidiennes, dans vos expressions de votre vrai moi dans votre monde.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Augustin et je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

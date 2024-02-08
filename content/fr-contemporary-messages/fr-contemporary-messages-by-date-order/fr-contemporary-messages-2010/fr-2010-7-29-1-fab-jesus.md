@@ -20,4 +20,6 @@ Dans les cas que vous avez lus <sup id="a1">[1](#f1)</sup>, qui ont réellement 
 
 1. <large id="f1"> Le livre auquel il est fait référence est Angel Miracles, de Brad Steiger et Sherry Hansen Steiger.[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

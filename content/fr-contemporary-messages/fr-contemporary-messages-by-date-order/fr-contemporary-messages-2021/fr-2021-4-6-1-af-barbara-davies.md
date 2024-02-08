@@ -11,7 +11,7 @@ weight:
 
 Barbara Davies - reçu par Al Fike le 6 Avril 2021, Gibsons, Colombie-Britannique, Canada.
 
-Puisque vous avez tous parlé de moi, je suis là, je suis Barbara. Je suis si heureuse de pouvoir parler à travers cet instrument, de mon bien-aimé Albert que j’ai nourri et avec qui je me suis liée d’amitié il y a de très nombreuses années, et de voir maintenant comment il est devenu une belle lumière avec sa compagne, Jeanne.
+Puisque vous avez tous parlé de moi, je suis là, je suis Barbara. Je suis si heureuse de pouvoir parler à travers cet instrument, mon bien-aimé Albert que j’ai nourri et avec qui je me suis liée d’amitié il y a de très nombreuses années, et de voir maintenant comment il est devenu une belle lumière avec sa compagne, Jeanne.
 
 Comme je suis heureuse de vous voir tous réunis avec un véritable désir de servir Dieu et d’être dans la lumière de l’Amour de Dieu. Je tiens à vous assurer que je continue à travailler avec vous tous, même avec ceux que je n’ai pas connus dans la chair, sachez que je suis avec vous en esprit car je suis un soutien très enthousiaste de votre travail, car ce travail reflète la volonté de Dieu et le désir de Dieu d’apporter la Vérité de l’Amour Divin au monde. Quel que soit l’effort que vous fassiez à cet égard, sachez que beaucoup d’entre nous sont ici pour vous soutenir, vous élever, vous guider, vous aimer.
 
@@ -22,3 +22,8 @@ Ne laissez pas votre compréhension de ce monde matériel vous empêcher d’aim
 J’espère que vous vous soutiendrez tous les uns les autres dans l’amour, car avoir cette communauté, ce groupe de lumières dans le monde fera une différence dans le monde, apportera une mesure de changement dans le monde et une plus grande lumière dans le monde. Cela dépend de vous, individuellement et ensemble, pour travailler avec Dieu, pour apporter la guérison qui est nécessaire. Les bénédictions qui pleuvront sur vous et à travers vous sur beaucoup d’autres.
 
 Cela arrive mes amis, belles âmes, pour vous tous. Je vous aime tous. Je vous aime tous et je continuerai à travailler avec vous tous alors que vous continuez à chercher la guidance de Dieu et à être un canal de Son Amour dans le monde. Que Dieu vous bénisse dans ce voyage, mes beaux et bien-aimés amis. Je vous aime et je vous remercie tous pour vos efforts et votre soutien dans la création de cette belle organisation qui est conçue pour aider à soutenir et à apporter la Vérité de l’Amour de Dieu à beaucoup. Que Dieu vous bénisse et merci de m’avoir écouté. Merci, que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

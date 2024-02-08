@@ -28,3 +28,7 @@ Que Dieu vous bénisse dans ce voyage, mes bien-aimés. Vous continuez à marche
 Que Dieu vous bénisse profondément, âmes bien-aimées. Que Son amour continue à se déverser en vous. Puissiez-vous continuer à vous éveiller à l'intérieur. Cet éveil s'épanouira dans votre esprit et infusera votre esprit de Vérité et d'Amour, de compréhension et de clarté, vous renforçant tous, mes bien-aimés, vous tous et mettant en alignement tout ce qui est de Vérité.
 
 Dieu vous bénisse, je suis votre ami et votre aide Matthieu. Mon amour est avec vous, je suis souvent avec vous, mes bien-aimés. Merci de me donner cette opportunité de parler. Soyez bénis dans vos prières, mes bien-aimés, soyez bénis dans vos prières. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

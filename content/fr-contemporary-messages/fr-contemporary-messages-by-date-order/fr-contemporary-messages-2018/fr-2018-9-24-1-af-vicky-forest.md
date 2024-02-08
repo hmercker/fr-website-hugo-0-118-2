@@ -40,4 +40,8 @@ Soyez fidèles à vous-mêmes mes amis. Soyez aimant et gentil. Cherchez à aide
 Keea : Comme votre amie vous aime tous et même si vous ne la connaissiez pas en chair et en os depuis de nombreuses années, vous avez créé un lien d’amour fort et de nombreuses opportunités se sont présentées à la fois dans la chair et dans vos états de sommeil pour forger ce lien ensemble. . Et bien sûr, son cher compagnon, qui a été à vos côtés à de nombreuses reprises, a eu son influence et son affect sur cette fille bien-aimée.
 <small>
 
-1. <large id="f1"> Vicky souffrait énormément à la fin de sa vie et a été acceptée dans le processus canadien d’aide à la mort. Ce message est très significatif dans la mesure où c’est le seul message que nous ayons jamais reçu de quelqu’un qui a suivi un tel chemin pour mettre fin à ses jours. Il est donc très rassurant de savoir que de telles décisions n’ont aucune conséquence négative.[↩](#a1)
+1. <large id="f1"> Vicky souffrait énormément à la fin de sa vie et a été acceptée dans le processus Canadien d’aide à la mort. Ce message est très significatif dans la mesure où c’est le seul message que nous ayons jamais reçu de quelqu’un qui a suivi un tel chemin pour mettre fin à ses jours. Il est donc très rassurant de savoir que de telles décisions n’ont aucune conséquence négative.[↩](#a1)
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

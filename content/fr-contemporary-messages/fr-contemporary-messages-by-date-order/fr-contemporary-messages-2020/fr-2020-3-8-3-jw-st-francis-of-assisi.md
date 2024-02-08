@@ -18,3 +18,7 @@ Comme cette chère sœur l’a dit dans sa prière : *« Nous nous sommes tous �
 0h toutes ces choses que j’avais emmagasinées, toutes les blessures, toute la culpabilité et tout le non pardon, ont été transformés dans l’Amour de Dieu. Donc, vous voyez, c’est très simple. Quand vous entendez : « suivez votre cœur », il y a de la sagesse parce que cela mène à votre âme et aux désirs profonds que vous avez tous d’être transformés. Nous sommes si nombreux ici aujourd’hui avec vous dans ce beau cercle de lumière.
 
 Je vous laisse avec tout mon amour et mes bénédictions. Que Dieu vous bénisse et vous transforme car nous sommes vraiment un dans Son amour. Je suis votre frère et ami Francis. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

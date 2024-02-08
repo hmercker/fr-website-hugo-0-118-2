@@ -26,3 +26,7 @@ Oui, vous commencez de manière humble. Vous commencez à avancer et à chercher
 Puissiez-vous continuer à prier de cette manière, à chercher de cette manière, et tout le reste se mettra en place, toutes les compréhensions, perceptions et prises de conscience se mettront en place à mesure que l’âme s’éveillera et sera capable de comprendre et d’absorber le grand Univers de la Création de Dieu. L’esprit en viendra à réaliser la Vérité dans toute sa puissance, sa gloire et sa simplicité. Il n’y aura pas de malentendus, seulement des éveils et des réalisations de la Vérité.
 
 Que Dieu vous bénisse dans ce voyage, âmes bien-aimées. Je suis André. Je suis avec vous sur ce chemin, comme le sont de nombreux anges. Je continue à marcher avec vous, à vous aider, à vous encourager et à vous aimer. Que Dieu vous bénisse, mes amis. Que Dieu vous bénisse
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

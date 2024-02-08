@@ -9,7 +9,7 @@ weight:
 ---
 ### Donnez de votre Essence
 
-Jérémie et Salomon - reçu par CC le 10 Avril 2004, New York, USA.
+Jérémie et Salomon <sup id="a1">[1](#f1)</sup> - reçu par CC le 10 Avril 2004, New York, USA.
 
 Bonjour CC. Oui, nous sommes là. Merci d’avoir pensé à nous. Mais, est-il possible que tu nous aies sentis et que tu aies ensuite pensé à nous ? Ou peut-être, nous t’avons transmis nos pensées sur notre présence ici et ensuite tu as pensé à nous ? Est-ce important ?
 
@@ -36,5 +36,11 @@ Souvent, vous sentez la « puissance » (joie et force spirituelles) vous quitte
 C’est pourquoi l’altruisme vous rend fort en esprit. C’est la loi. Donner, c’est recevoir. C’est la vie. C’est la lumière qui brille avec éclat. Alors donnez votre amour, manifestez votre amour. Ne vous inquiétez pas si c’est naturel ou divin. Donnez de votre essence. Vous demandez l’amour à Dieu. Il ne peut vous donner que de Sa Substance. Il ne peut pas vous donner l’amour créé. Vous le possédez déjà. Alors donnez de vous-même, donnez de votre essence.
 
 Je suis Jérémie de l’Ancien Testament et un disciple de Jésus le Nazaréen. Et je suis votre ami et votre tuteur Salomon.
+<small>
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004)
+1. <large id="f1"> Il est possible de lire les divers messages commuiqués par Jérémie et Salomon par l'intermédiaire de [ce lien](fr-contemporary-messages\6-3-fr-contemporary-messages-by-author\6-3-10-fr-historical-figures.md) :[↩](#a1)
+
+### [**Lien vers les messages des années 2004**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

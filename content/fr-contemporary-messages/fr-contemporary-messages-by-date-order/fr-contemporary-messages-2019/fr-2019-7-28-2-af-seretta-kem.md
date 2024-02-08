@@ -32,3 +32,8 @@ Tant de choses, mes bien-aimés, tant de choses vous attendent. Ne soyez pas sur
 Que Dieu vous bénisse, que Dieu vous bénisse. Nous continuons à travailler vers nos objectifs et vous continuez à grandir et à vous manifester de ces belles manières, vous rapprochant toujours plus du moment où les manifestations de l’esprit feront véritablement partie de votre mission et de vos efforts sur Terre. Toujours plus près, âmes bien-aimées, toujours plus près, la lumière grandit et vous êtes bénis.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem et je vous bénis également. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

@@ -24,3 +24,7 @@ e viens donc vous dire qu’il y a beaucoup de choses sur le point de naître da
 C’est un plaisir d’être avec vous et de vous voir tous en prière, attirant près de vous les Anges et recevant un profond afflux de l’Amour de Dieu dans vos âmes. C’est ma grande joie et mon privilège d’être avec vous et de partager quelques mots, quelques mots qui, je l’espère, vous inspireront dans la nouvelle vie qui jaillira de vous.
 
 Que Dieu vous bénisse. Je suis François et mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

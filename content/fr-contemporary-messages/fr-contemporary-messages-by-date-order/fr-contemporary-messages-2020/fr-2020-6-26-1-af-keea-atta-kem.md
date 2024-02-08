@@ -24,3 +24,7 @@ Vous êtes des âmes courageuses, des âmes fortes et belles qui cherchent à ê
 Vous êtes bénis, mes magnifiques sœurs et frères. Vous êtes bénis dans l’Amour de Dieu et cette bénédiction ne fera que croître alors que vous continuez à aspirer et à désirer ce Don qui vient dans une mesure toujours plus grande, jour après jour. C’est le fondement même de votre vie. C’est la source de toute nourriture pour l’âme. C’est le Don que Dieu a fait à l’humanité. Puissiez-vous en venir à donner tout ce que vous pouvez et tout ce que vous êtes à vos frères dans l’espoir qu’ils puissent voir la puissance de l’amour pour eux-mêmes et en venir à connaître le don de l’Amour de Dieu pour leurs âmes.
 
 Dieu vous bénisse, âmes bien-aimées, je suis Keea Atta Kem. Mon amour pour vous est grand. Je continue à superviser vos prières ensemble et à prier avec vous, comme le font beaucoup de personnes de mon côté de la vie. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous garde toujours dans cette Lumière et cet Amour. Nous sommes avec vous, Dieu est avec vous, notre amour est avec vous. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

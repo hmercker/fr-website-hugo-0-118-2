@@ -27,7 +27,6 @@ Nous, les esprits, nous ne sommes pas éternellement condamnés aux ténèbres. 
 
 1. <large id="f1"> Judy Garland s'est également exprimé dans les messages ci-dessous indiqués :[↩](#a1)
 
-
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Judy Garland | [Une star du cinéma passe de l’obscurité au bonheur.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-19-1-fab-judy-garland/) | 19 Mai 2008
@@ -37,4 +36,6 @@ Judy Garland | [Judy Garland partage son cœur - 3](/fr-contemporary-messages/fr
 Judy Garland | [Judy Garland et le spectacle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-3-2-1-fab-judy-garland/) | 2 Mars 2009
 Judy Garland | [Judy Garland ajoute à son channeling](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-19-2-fab-judy-garland/) | 19 Janvier 2013
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

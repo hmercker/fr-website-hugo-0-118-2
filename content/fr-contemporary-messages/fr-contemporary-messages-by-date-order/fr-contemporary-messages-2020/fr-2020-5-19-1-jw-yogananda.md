@@ -20,3 +20,7 @@ Lorsque l’âme réalise que la connaissance est la vérité, elle devient comp
 Nous vous encourageons donc toujours à prier avec vos cœurs, du plus profond de vos âmes, afin que notre Glorieux Créateur ouvre chaque âme et la remplisse de l’Essence de Son Être. Cet amour Divin qui transforme de la simple image à la substance même, de l’humain à l’Ange Divin, du mortel à l’Immortel. C’est le don de l’Éternité.
 
 Je prierai avec vous aujourd’hui et toujours. Nous nous rapprochons quand vous le souhaitez dans ce beau cercle de lumière, dans cette communion des âmes et dans l’Amour de Dieu. Je suis votre frère et ami en l’amour de Dieu. Je suis Yogananda. Que Dieu vous bénisse !
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -18,3 +18,7 @@ Vous êtes devenus un canal de l'Amour du Père en tant que Ses instruments. Dan
 Que l'Esprit Saint continue à toucher vos âmes. Que la main de Dieu soit ressentie par chacune d'entre vous, âmes bien-aimées. En cela, vous connaîtrez une paix profonde, une grande sagesse et un réconfort éternel alors que Son Amour vous amène plus pleinement dans la Lumière. Que l'harmonie soit ce que vous recherchez et exprimez dans le monde, une harmonie profonde qui vient d'une âme infusée d'Amour et de l'esprit de la matière en harmonie avec la Vérité. En cela, l'harmonie s'ensuit.
 
 Vous êtes portées, âmes bien-aimées, vous êtes portée. Vous êtes mes frères et sœurs. Nous sommes éternellement liés dans ce grand voyage vers l'union avec Dieu. Je marche avec vous. Je suis votre frère et votre ami. Je suis Jésus. Que Dieu vous bénisse profondément et vous fasse avancer dans la Lumière. Que Dieu vous bénisse, mes bien-aimés. Je vous aime. Je vous aime.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

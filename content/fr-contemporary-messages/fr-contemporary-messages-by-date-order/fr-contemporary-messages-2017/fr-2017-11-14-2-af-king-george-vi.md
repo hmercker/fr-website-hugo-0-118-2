@@ -16,3 +16,8 @@ Je suis George VI, ancien roi d'Angleterre, et je souhaite me joindre à mes ami
 Continuez mes amis. Beaucoup vous observent et vous aident dans cet effort.
 
 Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

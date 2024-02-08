@@ -24,3 +24,7 @@ Soyez mes disciples, mes bien-aimés. Marchez avec moi et je vous montrerai le c
 Vous êtes mes frères et sœurs et mon amour pour vous est grand. Puissiez-vous continuer à servir Dieu et à servir l’humanité de toutes les manières, de tous les moyens, de tous les dons et de tous les potentiels dont Dieu vous a bénis. Nous serons tous dans la Lumière, main dans la main, dans la Lumière.
 
 Que Dieu vous bénisse. Je suis Jésus. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

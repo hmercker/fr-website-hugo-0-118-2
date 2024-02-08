@@ -20,3 +20,7 @@ Oui, il y a beaucoup à venir, il vous sera demandé une grande activité dans l
 Que Dieu vous bénisse dans ce voyage, mes amis. C’est une occasion si extraordinaire de servir. Si vous ne pouviez que voir la direction que vous prenez, vous seriez stupéfaits de ce qui vient et de ce qui viendra selon votre volonté, vos désirs et vos efforts. Que Dieu vous bénisse, mes amis.Je suis votre professeur Salyards et moi-même je prie avec vous et pour vous et je sers Dieu avec vous dans ces grands efforts pour le salut de l’humanité.
 
 Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse profondément de Son Amour. Mon amour est avec vous.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

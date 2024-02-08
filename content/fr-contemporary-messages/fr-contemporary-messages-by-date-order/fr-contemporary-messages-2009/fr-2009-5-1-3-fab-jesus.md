@@ -21,4 +21,7 @@ Donc ces étudiants sont diplômés, et ensuite ils sont confrontés au système
 
 Nous voulons travailler pour un monde où tout le monde a accès aux besoins fondamentaux de la vie. Dans la configuration actuelle, c'est impossible.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

@@ -30,3 +30,7 @@ Cela ne changera pas les conditions du monde et les défis qui sont de ce monde,
 Puissiez-vous trouver votre chemin, âmes bien-aimées, vers ce lieu de connaissance et de compréhension réelles de ce dont je parle et sachez que nous serons avec vous et que vous ne serez jamais seuls. Lorsque vous êtes avec Dieu, vous n’êtes jamais seuls, mais vous connaîtrez la Grâce, l’émerveillement, la joie de Son Amour. Puissiez-vous recevoir ce Don et apprendre à le connaître comme faisant partie de votre vie, et apprendre à nous connaître comme des amis et des aides qui vous aideront à ouvrir la voie et à mettre votre vie en harmonie. Que Dieu vous bénisse de Son Amour. Puissiez-vous ressentir cette Bénédiction, l’absorber et la connaître. Nous sommes avec vous et notre amour et notre soutien sont avec vous.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Augustin et je viens comme un enseignant pour vos âmes. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

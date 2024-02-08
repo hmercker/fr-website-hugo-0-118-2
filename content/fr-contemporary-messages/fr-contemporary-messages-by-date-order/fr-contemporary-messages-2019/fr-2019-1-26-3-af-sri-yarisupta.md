@@ -9,7 +9,7 @@ weight:
 ---
 ### Réponses aux questions sur la guérison par l'Amour Divin
 
-Sri Yarisupta - reçu par Al Fike le 26 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
+Sri Yarisupta<sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 26 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
 
 Que la lumière brille sur chacun de vous et sur votre monde. Je suis Sri Yarisupta et je suis venu pour répondre à ta question fille bien-aimée. Il y a beaucoup d’énergies de guérison dans l’univers et chaque objet physique dans l’univers a une lumière – une énergie à son sujet. Cette lumière de la terre et tout ce qui émane de cette terre est la force de guérison à laquelle tu te réfères dans ta pratique de guérison.
 
@@ -32,3 +32,21 @@ J’espère avoir dissipé certains malentendus, répondu à certaines questions
 Vous faites tous partie du déploiement glorieux de la Création de Dieu. Puissiez-vous en ressentir la joie, l’émerveillement, les perceptions qui amènent tous les beaux détails dans votre conscience et vous trouverez tout ce que vous cherchez, toutes les réponses à vos questions, tous les voyages qui s’ouvrent à vous, toutes les bénédictions qui se manifestent autour de vous et à travers vous. C’est le pouvoir de l’essence de Dieu qui amène ce voyage à son aboutissement et vous êtes bien sur votre chemin, âmes bien-aimées, précieuses en lumière, précieuses en amour.
 
 Que Dieu vous bénisse et vous garde sur son chemin vers la lumière glorieuse, mes chers amis bien-aimés. Je suis Sri Yarisupta et je vous aime. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> Sri Yukteswar s'est également exprimé dans les messages suivants : [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Sri Yukteswar | [Le gourou Hindou Sri Yukteswar parle de l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-30-2-fab-sri-yarisupta/) | 30 Janvier 2014
+Sri Yukteswar | [La loi de la création et Sathya Sai Baba](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-2-4-1-wv-sri-yarisupta/) | 4 Février 2014
+Sri Yarisupta | [Qu’y a-t-il dans un nom ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-27-4-af-sri-yarisupta/) | 27 Janvier 2019
+Sri Yukteswar | [La dualité de l'âme et de l'esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-4-9-2-af-sri-yukteswar/) | 9 Avril 2019
+Sri Yukteswar | [Sri Yukteswar honors Yogananda](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-18-1-jw-sri-yukteswar/) | 18 Septembre 2020
+Sri Yukteswar | [L'instrumentalité de Lorraine se manifeste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-15-2-af-sri-yuktesar/) | 15 Octobre 2022
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+

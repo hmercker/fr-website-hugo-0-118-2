@@ -30,3 +30,7 @@ Belles Lumières, nous sommes avec vous dans vos efforts, nous vous aimons, nous
 Et je marche avec vous. J’éclaire le chemin pour vous et je ne vous quitterai jamais, mes bien-aimés. Je suis avec vous et je vous aime et vous êtes mes frères et sœurs sur ce glorieux chemin de l’Amour.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Jésus et je vous aime tendrement. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

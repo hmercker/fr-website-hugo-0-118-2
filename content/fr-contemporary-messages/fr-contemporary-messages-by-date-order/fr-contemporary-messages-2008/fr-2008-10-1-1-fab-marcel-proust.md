@@ -34,4 +34,6 @@ Je suis très heureux de m'être exprimé sur ce sujet, et vous souhaite une tr�
 
 1. <large id="f1"> **Marcel Proust**, né le 10 Juillet 1871 à Paris où il est mort le 18 Novembre 1922, est un écrivain français, dont l'œuvre principale est la suite romanesque intitulée À la recherche du temps perdu, publiée de 1913 à 1927. Cette œuvre monumentale de fiction du XXe siècle est composée de sept parties. L'œuvre romanesque de Marcel Proust est une réflexion majeure sur le temps et la mémoire affective comme sur les fonctions de l'art qui doit proposer ses propres mondes, mais c'est aussi une réflexion sur l'amour et la jalousie, avec un sentiment de l'échec et du vide de l'existence qui colore en gris la vision proustienne où l'homosexualité tient une place importante. La Recherche constitue également une vaste comédie humaine de plus de deux cents personnages. (source : Wikipedia)[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

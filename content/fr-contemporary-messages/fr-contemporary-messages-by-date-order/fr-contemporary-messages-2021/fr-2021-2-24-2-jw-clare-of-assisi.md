@@ -18,3 +18,7 @@ Vous pouvez vous demander à quoi sert cet Amour Divin si les gens ne s’aiment
 Alors que les choses deviennent de plus en plus insoutenables et inharmonieuses, les âmes commencent à prier Dieu pour obtenir de l’aide et des réponses, et même sur le spectre de l’amour naturel, une lumière commence à briller. Lorsque les humains réalisent que sans fraternité et sans sororité, sans harmonie, il n’y a aucune raison de continuer. C’est le précipice sur lequel s’assoient ceux qui vivent sur terre.
 
 Alors, je vous le dis, mes chers. Votre amour fait la différence. Si vous permettez à Dieu de travailler à travers vous. Dans la joie, la lumière, et la grâce, vous ne le regretterez pas. Lorsque vous laissez partir les choses qui vous tirent vers le bas, Dieu vous soulève au-delà de vos plus grandes imaginations, comme je ne le sais que trop bien et j’en suis humilié. Que vos cœurs tendres soient ouverts et dans la sécurité de ce sanctuaire que vous avez créé mes chers, que Dieu puisse vous bénir, vous guérir, vous changer dans Son amour. Je ne peux rien vous souhaiter de plus et je souhaite que cet amour soit le vôtre. Que Dieu vous bénisse. Je suis Claire, d’Assise. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

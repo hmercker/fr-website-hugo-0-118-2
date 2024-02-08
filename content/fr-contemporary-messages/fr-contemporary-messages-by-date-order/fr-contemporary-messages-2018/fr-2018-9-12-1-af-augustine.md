@@ -21,3 +21,7 @@ Sachez que nous sommes avec vous, que nous travaillons avec vous, que nous prion
 <small>
 
 1. <large id="f1"> Les Cercles de Lumière sont décrits sur [cette page](/fr-spiritual-subjects/fr-circles-of-light/).[↩](#a1)
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

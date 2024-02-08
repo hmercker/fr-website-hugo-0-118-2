@@ -9,9 +9,9 @@ weight:
 ---
 ### Confucius accueille le troupeau
 
-Confucius - reçu par Al Fike le 27 Novembre 2016, Hawaii, USA.
+Confucius<sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 27 Novembre 2016, Hawaii, USA.
 
-’est moi, Confucius.
+C’est moi, Confucius.
 
 Mes petits oiseaux, vous vous êtes rassemblés une fois de plus et comme nous nous réjouissons lorsque cela se produit. Lorsque vous venez prier ensemble et que vous venez former un grand canal d’amour, un portail de lumière pour ce monde.
 
@@ -24,3 +24,11 @@ Réjouissez-vous, mes bien-aimés, réjouissez-vous que Dieu vous ait appelés e
 Alors que vous rassemblez ceux qui sont proches, qui désirent se joindre à vous dans la prière, dans le rire, dans l’amour, vous commencez la tâche qui vous attend et Dieu vous touche profondément dans vos âmes, mes bien-aimés. Vos âmes ressentent la joie de ceci, permettez à la joie de vous envelopper et de devenir la lumière qui est vraie pour vous.
 
 Que Dieu vous bénisse. Confucius vous aime, âmes bien-aimées.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués  par Confucius sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a1)
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

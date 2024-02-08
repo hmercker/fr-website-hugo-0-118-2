@@ -27,3 +27,7 @@ Que Dieu vous bénisse, mes bien-aimés. Je suis Augustin et je vous aime. Que D
 <small>
 
 1. <large id="f1"> First United Spiritualist Church (Première église spiritualiste unie).[↩](#a1)
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

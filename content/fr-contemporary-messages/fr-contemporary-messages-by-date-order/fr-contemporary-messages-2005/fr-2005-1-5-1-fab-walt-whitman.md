@@ -23,4 +23,6 @@ Vous vous demandez comment je peux encore me préoccuper de l'Amérique si je su
 
 Mais ces luttes ont été accompagnées de ma vision mystique, qui m'a suivi ici. Et maintenant que j'ai réussi à affronter et à surmonter la plupart de ces problèmes, ma vision a été libérée pour me guider dans le plan de Dieu pour ma vie. J'ai toujours su que cette vision poétique était un don du Seigneur. Mais ici, les aspirations que cette vision suscite ont été des réalités. C'est comme « Leaves of Grass (Brins d'Herbe)» en stéréo magnifique et amplifié. Ma vie personnelle intérieure a fusionné avec cette vision, de sorte que je suis maintenant beaucoup plus proche de l'amant extatique de ma poésie terrestre. C'est-à-dire qu'il y a moins d'entraves de toutes sortes.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005)
+### [**Lien vers les messages des années 2005**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

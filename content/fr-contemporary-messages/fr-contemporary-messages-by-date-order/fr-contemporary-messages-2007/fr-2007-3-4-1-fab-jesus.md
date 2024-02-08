@@ -39,4 +39,6 @@ Une suggestion que je recommande vivement est la présence très visible de cent
 
 Au fur et à mesure que votre pays deviendra plus humain et plus attentionné, nombreux seront ceux qui verront la nécessité d’atteindre ces femmes désespérées et leurs bébés abandonnés, afin que les deux groupes puissent bénéficier des soins et du respect appropriés. De cette façon, les tragédies peuvent être évitées et transformées en possibilités de vie, afin que la volonté de Dieu ne soit pas transgressée.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

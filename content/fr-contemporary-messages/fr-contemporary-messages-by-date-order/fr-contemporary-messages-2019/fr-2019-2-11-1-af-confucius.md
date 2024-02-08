@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous ne pouvez pas imaginer ce qui vient
 
-Confucius - reçu par Al Fike le 11 Février 2019, Gibsons, Colombie-Britannique, Canada.
+Confucius<sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 11 Février 2019, Gibsons, Colombie-Britannique, Canada.
 
 Que la puissance de l’Amour de Dieu continue de réveiller votre âme, mes bien-aimés, et de vous transporter dans la lumière, dans la belle lumière de la Présence de Dieu. Je viens bénir les deux instruments bien-aimés qui voyageront et porteront le message aux âmes avides et leur dire que ce qu’ils font n’est que l’ombre de ce qui est à venir en termes de travail qui attend et d’efforts nécessaires de la part de vous toutes, âmes bien-aimées, pour apporter l’amour généreux à ce monde, la sagesse et la lumière à ce monde.
 
@@ -24,3 +24,10 @@ Vous vous trouverez dignes de tout ce que Dieu souhaite vous donner, joyeux dans
 Bien-aimées et belles âmes, vous continuez à vous éveiller. Vous poursuivez ce voyage et nous serons effectivement avec vous. Soyez en paix, âmes bien-aimées. Continuez à écouter les incitations que Dieu place dans votre âme et à répondre de manière appropriée à votre guidance et aux nombreuses bénédictions qui viennent paver le chemin.
 
 Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse dans vos voyages, à l’intérieur et autour du monde. Que Dieu vous bénisse, vous porte, mes bien-aimés. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués  par Confucius sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a1)
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

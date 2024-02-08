@@ -18,3 +18,7 @@ Vous serez en effet touchés par Dieu et portés sur ce chemin. Vous trouverez v
 Votre chemin est béni, mes bien-aimés, avec une grande responsabilité et une grande opportunité. Dieu vous a appelé car vos âmes cherchent la Vérité, vos âmes désirent ardemment servir Dieu, connaître Sa Volonté et c'est ce que vous ferez, mes âmes bien-aimées, car vous avez une Lumière en vous qui vous guidera même dans les temps sombres. Vous serez guidées, sécurisées, et vos besoins seront satisfaits car la Vérité que vous avez à donner est précieuse. Dieu vous protégera toujours, mes bien-aimés, et nous serons toujours avec vous. Je conduirai le chemin vers une plus grande Lumière.
 
 Que Dieu vous bénisse, mes disciples. Que Dieu vous bénisse dans vos voyages et vos efforts pour apporter la Vérité à ce monde. Vous êtes bénis. La puissante Main de Dieu repose sur chacune d'entre vous, âmes bien-aimées. Sentez son contact et connaissez le confort de la présence de dieu avec vous, mes bien-aimés. Vous êtes bénis. Vous êtes bénis. Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

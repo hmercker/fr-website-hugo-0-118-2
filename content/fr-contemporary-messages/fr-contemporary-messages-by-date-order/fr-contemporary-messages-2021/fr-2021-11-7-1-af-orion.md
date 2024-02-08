@@ -36,3 +36,7 @@ Je vous exhorte tous à nous chercher, à nous appeler par notre nom, à demande
 Je vous remercie de m’avoir écouté. J’espère venir un jour sur votre Terre pour que vous puissiez me voir et me connaître. Vous ne serez pas effrayés par mon apparence car je n’ai pas l’air si différent de vous bien qu’il y ait des anomalies. En effet, la force créatrice de Dieu et les lois de l’évolution dictent qu’il y a des différences, et l’évolution continue à créer une direction vers l’harmonie.
 
 Que le grand cadeau que Dieu a à vous donner, qui est Son Amour, continue à éveiller vos âmes, mes amis. Puissiez-vous en venir à vous voir comme faisant partie d’un grand univers qui regorge de vie, qui regorge de vos frères et sœurs, qui regorge d’expériences et de connaissances passionnantes et merveilleuses et de choses qui vous soutiendront et amélioreront votre vie tout en étant en harmonie avec ce beau monde qu’est votre monde. Bénédictions à vous et grand amour. Je suis Orion et je vous remercie. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

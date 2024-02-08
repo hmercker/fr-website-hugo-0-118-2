@@ -27,4 +27,6 @@ La vie d'un politicien illustre la grande vérité selon laquelle nous agissons 
 
 J'espère que mes propos vous aideront à avoir une perspective différente sur ce sujet important. N'oubliez pas que les pensées des esprits ne sont pas les vôtres. Vous êtes parfois en profond désaccord avec ce que vous canalisez.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -22,3 +22,7 @@ Mais rappelez-vous bien-aimés, vous pouvez également prier pour le bien-être 
 Puissiez-vous en venir à désirer ardemment cette connexion ensemble dans l’amour et l’harmonie, en étant avec Dieu de cette façon avec innocence, en faisant confiance aux bénédictions de notre Créateur pour apporter de nombreuses choses dans vos vies qui reflètent l’amour et l’harmonie, la paix et la joie que vous pouvez être dans le monde comme un canal d’amour et de lumière pour beaucoup. Vous êtes bénis, bien-aimés, profondément bénis, et nous continuerons dans nos cercles et nos efforts pour apporter la lumière et l’amour à ce monde et à notre monde. Soyez des canaux d’amour, mes bien-aimés, en vous ouvrant à Dieu. De cette façon, Son Amour coule à travers vous, s’accumule parmi vous et coule de vous dans le monde. De telles bénédictions, tant de bénédictions viennent de cette simple prière et de ce rassemblement dans l’amour. Puissiez-vous continuer à le faire.
 
 Âmes bien-aimées, je suis André. Je suis avec vous dans la prière comme le sont de nombreux anges et esprits qui s’associent à vos efforts pour apporter une plus grande lumière à ce monde. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous garde dans sa grâce, dans le flux de son amour. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

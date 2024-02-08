@@ -26,3 +26,8 @@ Comme je l’ai dit, c’est multidimensionnel. La lumière se répercute dans d
 Vous rendez à beaucoup un grand service, âmes bien-aimées. Puissiez-vous continuer à servir de cette humble et belle manière, en sachant que tout autour de vous est Lumière, que vous êtes entourés par les anges, que vous faites partie d’un grand effort et d’un plan pour aider beaucoup de ceux qui sont dans l’obscurité, à entrer dans la Lumière. Que Dieu vous bénisse dans ce grand effort, nous tous. Puissions-nous continuer à travailler ensemble en harmonie et être les serviteurs de Dieu pour l’élévation et la réclamation de nombreuses âmes dans ton monde et le nôtre.
 
 Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse. Je suis André et mon amour est avec vous tous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

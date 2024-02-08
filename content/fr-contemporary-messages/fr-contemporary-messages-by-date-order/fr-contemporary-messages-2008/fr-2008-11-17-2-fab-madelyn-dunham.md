@@ -15,4 +15,6 @@ Je suis là, Madelyn Dunham. (La grand-mère de Barack Obama)
 
 Je n'ai pas été surprise par de nombreuses choses que j'ai récemment vécues ici. J'ai observé la victoire de mon petit-fils très clairement et fièrement, et ensuite j'ai été informée de l'activité étonnante ici, dirigée vers la terre - et j'ai pleuré de joie.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

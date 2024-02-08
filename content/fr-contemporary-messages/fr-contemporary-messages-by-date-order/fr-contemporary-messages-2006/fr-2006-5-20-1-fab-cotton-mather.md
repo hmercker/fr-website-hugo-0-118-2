@@ -34,4 +34,16 @@ Eh bien, maintenant vous savez que les deux lois fonctionnent simultanément –
 
 1. <large id="f1"> **Cotton Mather**, (12 Février 1663 - 13 Février 1728 ; A.B. 1678, Harvard College ; A.M. 1681, doctorat honorifique 1710, Université de Glasgow) était un ministre puritain de Nouvelle-Angleterre socialement et politiquement influent, un auteur prolifique et un pamphlétaire. Connu pour son soutien vigoureux aux procès des sorcières de Salem, il a également laissé un héritage scientifique grâce à ses expériences d'hybridation et sa promotion de l'inoculation pour la prévention des maladies. Il s'est ensuite vu refuser la présidence du Harvard College que son père, Increase, avait occupée. (Source : Wikipedia)[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+2. <large id="f2"> Cotton Mather s'est également exprimé par l'intermédiaire des messages suivants :[↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Cotton Mather | [Dieu regarde le cœur.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-5-21-2-fab-cotton-mather/) | 21 Mai 2006
+Cotton Mather | [Dieu et l'Amérique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-11-15-1-fab-cotton-mather/) | 15 Novembre 2007
+Cotton Mather | [La conscience dans le procès des sorcières de Salem](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-24-1-fab-cotton-mather/) | 24 Mars 2008
+Cotton Mather | [Réflexions sur la sorcellerie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-28-2-fab-cotton-mather/) | 28 Février 2009
+
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

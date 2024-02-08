@@ -31,4 +31,9 @@ J’ai ajouté qu’indépendamment de la façon dont ils sont arrivés là, le 
 
 J’espère donc avoir clarifié le fait que je ne souhaitais en aucun cas excuser la violence dans mon message précédent. Je faisais simplement remarquer que le nouveau gouvernement américain lui-même était une chose à part, entièrement séparée de l’ambivalence et des horreurs de la guerre qui l’a précédé.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+<u>Note</u> : Thomas Paine s'est de nouveau exprimé le [6 Décembre 2007](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-12-6-2-fab-thomas-paine/)
+
+
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

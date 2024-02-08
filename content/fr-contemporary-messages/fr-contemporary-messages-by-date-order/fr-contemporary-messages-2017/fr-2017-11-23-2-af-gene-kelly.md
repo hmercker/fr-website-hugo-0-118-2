@@ -21,3 +21,8 @@ Que vos efforts soient bénis, mes amis. Puissiez-vous avoir une chanson dans vo
 <small>
 
 1. <large id="f1"> **Eugene Curran Kelly, dit Gene Kelly,** est un danseur, chanteur, acteur, réalisateur, chorégraphe et producteur américain né le 23 Août 1912 à Pittsburgh, en Pennsylvanie, et mort à Beverly Hills le 2 Février 1996. Il est probablement, avec Fred Astaire, la personnalité masculine la plus marquante de la comédie musicale hollywoodienne des années 1950. En 1999, il est classé quinzième plus grande légende du cinéma par l'American Film Institute. En outre, Chantons sous la pluie et Un Américain à Paris sont respectivement classées 1re et 9e plus grandes comédies musicales du cinéma par l'American Film Institute en 2006.[↩](#a1)
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

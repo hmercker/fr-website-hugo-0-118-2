@@ -11,7 +11,7 @@ weight:
 
 Confucius - reçu par Al Fike le 11 Octobre 2018, Gibsons, Colombie-Britannique, Canada.
 
-Je suis Confucius. Alors mes petits oiseaux souhaitent voler et voler vous devez, voler vous devez petits oiseaux et voler vous le ferez, battant vos ailes, apportant la lumière à votre planète assiégée. Âmes bien-aimées, vous brillez avec vos lumières. Vous exprimez vos désirs de servir Dieu et de servir l’humanité de si belles manières et avec de belles prières et vous vous donnez les uns aux autres et à vos frères et sœurs dans le monde.
+Je suis Confucius.<sup id="a1">[1](#f1)</sup> Alors mes petits oiseaux souhaitent voler et voler vous devez, voler vous devez petits oiseaux et voler vous le ferez, battant vos ailes, apportant la lumière à votre planète assiégée. Âmes bien-aimées, vous brillez avec vos lumières. Vous exprimez vos désirs de servir Dieu et de servir l’humanité de si belles manières et avec de belles prières et vous vous donnez les uns aux autres et à vos frères et sœurs dans le monde.
 
 Chaque fois que vous servez un autre, vous renforcez vos ailes. Chaque fois que vous allez vers Dieu pour recevoir Ses bénédictions, votre chant est un peu plus doux, votre plumage plus beau. La douceur de votre chant et la beauté de votre âme toucheront beaucoup de monde alors que vous continuez à vous rapprocher des Cieux et de Dieu, âmes bien-aimées. Âmes bien-aimées, sachez que je suis proche. Je vous regarde et je ressens une grande joie à vous voir vous réunir de cette manière, à nourrir vos âmes dans la prière, à vous serrer les uns contre les autres et à vous dire *« Je t’aime, tu es mon frère, tu es ma sœur. »*
 
@@ -24,3 +24,10 @@ Ses tendres soins vous seront prodigués pour l’éternité. La lumière au sei
 Buvez profondément mes bien-aimés et soyez dans la grâce du toucher de Dieu. Oui, oui, le Père nous bénit tous, n’est-ce pas ? Tous ceux qui viennent dans la prière fervente et le désir profond. Vous êtes bénis mes bien-aimés, mes enfants bien-aimés, bénis en effet.
 
 Dieu vous bénit. Confucius vous aime.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués  par Confucius sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a1)
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

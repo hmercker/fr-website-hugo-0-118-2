@@ -46,3 +46,7 @@ Nous vous encourageons à poursuivre dans cette voie. Comme vous le savez, cela 
 Nous sommes à vos côtés, âmes bien-aimées, toujours. Nous sommes avec vous. Notre amour pour vous est grand. L’amour de Dieu pour vous est au-delà de votre imagination. Que votre amour pour vous-même continue à grandir et à s’éveiller et à être vous comme vous devez vraiment l’être, en tant qu’enfants créés par Dieu, Ses belles âmes qui dansent dans la vie, cette belle expression du véritable amour, de la véritable lumière et de la véritable joie.
 
 Que Dieu vous bénisse, mes amis. Je suis Aaron. Je suis heureux d’être avec vous aujourd’hui. Que Dieu vous bénisse. Mon amour est avec vous.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -44,3 +44,7 @@ Car le moment est venu de vous découvrir et de marcher dans la lumière du jour
 Que Dieu vous bénisse, chers étudiants. Je suis votre enseignant, Augustin. Je vous parle sérieusement. Je vous parle parce que vous avez besoin de dépasser la condition humaine et ses restrictions et d’être libérés par l’Amour de Dieu. Que Dieu vous bénisse. Votre maître Augustin vous aime et sera toujours à vos côtés. Que Dieu vous bénisse.
 
 **Note :** La congruence est le fait de coïncider, de s’ajuster parfaitement
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

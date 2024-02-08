@@ -15,4 +15,6 @@ C'est moi, Jésus.
 
 Mais encore une fois, vous pensez avec votre tête et non avec votre âme. Sans les perceptions de l'âme, tout est terne et noir et blanc, avec des couleurs et des formes différentes.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

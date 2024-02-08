@@ -29,5 +29,8 @@ Je t’aime et je resterai fidèle à toi, W____. Je suis ton gardien en esprit 
 
 Je suis Jean, ton frère et ami, et je ne suis jamais loin lorsque tu pries pour que Dieu soit avec toi.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+
+### [**Lien vers les messages des années 2000**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

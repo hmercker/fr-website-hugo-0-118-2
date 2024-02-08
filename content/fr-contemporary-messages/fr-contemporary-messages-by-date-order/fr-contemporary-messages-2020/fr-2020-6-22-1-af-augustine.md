@@ -42,3 +42,7 @@ Ces réalités de l’âme émergeront de vous dans les moments où vous en aure
 Telle est notre promesse à vous, âmes bien-aimées. Nous ne vous quitterons jamais, aucun d’entre vous. Nous ne vous quitterons jamais. Nous sommes avec vous et nous vous aiderons de toutes les manières possibles. Ce qui peut se manifester à travers nous, canaux de Dieu, sera énorme dans sa puissance et sa capacité à vous protéger, à vous élever et à vous guider. Tant de choses vous attendent dans un monde qui continue à changer et à être en crise. Tant de choses peuvent être données et tant de choses seront données.
 
 Que Dieu vous bénisse dans vos voyages, chacun étant unique et beau, chacun étant aimé de Dieu, chacun étant guidé selon son désir et ses efforts pour être en alignement avec Dieu. Que Dieu vous bénisse, âmes bien-aimées. Je suis votre enseignant Augustin. Je suis avec vous. Je vous donnerai ma force comme le feront de nombreux anges qui vous soutiendront et vous fortifieront sur ce chemin difficile et pourtant nécessaire pour l’équilibre de votre monde, la guérison de votre monde pour mettre tout le monde en harmonie. Que Dieu vous bénisse, âmes bien-aimées. Augustin vous aime tendrement. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

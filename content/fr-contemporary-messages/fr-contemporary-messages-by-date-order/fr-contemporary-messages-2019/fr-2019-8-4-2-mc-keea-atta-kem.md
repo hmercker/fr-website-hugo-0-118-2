@@ -25,3 +25,7 @@ Nous allons reconnaître la chère âme qui a ouvert sa maison, pour offrir son 
 Vous êtes puissamment béni, cher fils, pour l’ouverture que vous partagez avec beaucoup. Alors que vous êtes assis en silence maintenant, il y a un Ange Céleste avec chacun d’entre vous qui est là pour vous apporter son amour et sa lumière. Je vais donc conclure maintenant et en le faisant, je laisse mon amour et ma lumière briller sur vous tous, vous aidant ainsi à vous assister.
 
 Je suis Keea Atta Kem et mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

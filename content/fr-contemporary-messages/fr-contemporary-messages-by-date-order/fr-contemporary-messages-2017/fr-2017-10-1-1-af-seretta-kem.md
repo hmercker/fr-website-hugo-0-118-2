@@ -34,3 +34,7 @@ Beaucoup de choses nous attendent. Ressentez cette exaltation mes amis. L'exalta
 Comme vous êtes bénis, mes amis. Comme nous sommes tous bénis. Le merveilleux réveil de l'humanité qui est à venir. Vous commencez une nouvelle vie et vous montrerez le chemin aux autres qui attendent vos efforts pour montrer le chemin, pour exprimer la vérité, pour être vos propres âmes vraies et belles dans ce monde. Puissiez-vous être puissamment bénis, mes amis. Continuez sur ce chemin de l'éveil, de la compréhension, de la connaissance véritable. Que l'Amour de Dieu continue à se déverser dans vos âmes. Que les bénédictions de Sa Lumière, de Ses soins et de Sa protection pour chacun d'entre vous continuent à élever, à guérir et à mettre en harmonie vos magnifiques êtres. Nous continuons à marcher avec vous sur ce chemin. C'est une telle bénédiction pour nous, pour nous tous, de servir Dieu de cette façon.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem et je continue à servir, à aimer et à travailler pour ces grands efforts pour apporter la vérité à l'humanité. Que Dieu vous bénisse, mes bien-aimés. Je vous aime.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

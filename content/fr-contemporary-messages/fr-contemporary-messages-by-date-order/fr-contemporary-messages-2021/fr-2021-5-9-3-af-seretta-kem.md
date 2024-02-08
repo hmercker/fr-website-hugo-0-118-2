@@ -32,3 +32,7 @@ C’est ainsi qu’est votre monde. Il en sera toujours ainsi, âmes bien-aimée
 Puissiez-vous continuer sur ce chemin, âmes bien-aimées. Puissiez-vous continuer à entendre l’appel de Dieu et maintenant la Volonté de Dieu et que la paix puisse régner en vous, que l’amour puisse s’exprimer à travers vous, que tout ce qui est en vous puisse s’harmoniser, puisse aboutir à une merveilleuse réalisation de tous les potentiels et de la beauté merveilleuse qu’est votre âme.
 
 Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem. Je suis heureuse d’être avec vous aujourd’hui dans ce voyage, ce déploiement continu des possibilités et des potentiels de la volonté de Dieu mêlés à votre vie, votre volonté et votre âme. Tout ira bien, mes bien-aimés, tout ira bien. Dieu vous bénit. Que Dieu vous bénisse profondément de Son Amour. Je suis proche comme beaucoup. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

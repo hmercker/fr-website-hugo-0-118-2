@@ -16,3 +16,7 @@ Je suis votre sœur dans le Christ, Claire d’Assise. Je suis ici aussi pour ho
 Ces prières seront les étoiles de votre couronne céleste, chacune d’elles. Cet amour, cet amour sans fin de Dieu que vous avez découvert, ne sera jamais perdu et vous l’emporterez avec vous. Célébrons donc cette merveilleuse communauté qui se rassemble dans la sainte communion dans la grâce de Dieu, et elle est riche. Alors que vous honorez mon bien-aimé François, lui et tous ceux qui sont ici vous honorent. Allez dans la grâce de Dieu.
 
 Je vous. Aime. Je suis Claire d’Assise.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

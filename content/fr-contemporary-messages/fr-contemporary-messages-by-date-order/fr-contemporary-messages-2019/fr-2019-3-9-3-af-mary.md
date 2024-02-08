@@ -28,3 +28,7 @@ Vous êtes Ses enfants et Il prend soin de vous très tendrement et vous donne c
 Que Dieu vous bénisse profondément, mes bien-aimés, et sachez que je suis proche et que mes prières vont à Dieu pour votre bénéfice et vos bénédictions. Je fais partie de beaucoup, beaucoup de belles âmes, des anges dans le Ciel qui continuent à vous soutenir et à marcher avec vous et à enseigner et à guider et à guérir et à élever, à inspirer. Le plan de Dieu est magnifique, mes bien-aimés, et vous êtes tous dans le flux de sa volonté et de son plan. Sachez ceci. Il y a tellement de choses que vous pouvez savoir alors que vous continuez à vous éveiller dans vos âmes. Apprenez à connaître votre véritable moi et soyez avec Dieu à chaque respiration.
 
 Dieu vous bénit, mes bien-aimés, et je vous aime. Je suis avec vous. Je vous aime. Je suis Marie. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

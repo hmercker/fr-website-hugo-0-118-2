@@ -42,3 +42,8 @@ Il n’y a rien à craindre. Ayez plutôt un sentiment de gratitude, de joie dan
 Beaucoup de choses vont changer, chers amis. Beaucoup de choses changent. Vous devez changer avec cela et vous réveiller pour recevoir le nouvel âge de lumière qui s’annonce. Considérez ces choses, mes amis. Considérez comment vous pouvez avancer dans votre monde en harmonie et en paix, dans l’amour et la joie.
 
 Dieu vous bénisse, âmes bien-aimées, je suis votre enseignant Augustin. Je suis avec vous. Je suis très proche, comme le sont de nombreux anges qui vous aideront dans vos efforts pour vous rapprocher de Dieu et être en plus grande harmonie avec Ses lois d’Amour et de création. Dieu vous bénisse, Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

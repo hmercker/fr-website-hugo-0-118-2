@@ -28,3 +28,8 @@ Il a été dit, en rapport avec vous, que tout peut être guéri – les organes
 Que ce monde reçoive une profonde guérison et que vos prières et celles du monde entier élèvent les vibrations de la terre vers une nouvelle conscience, vers l’harmonie dans la nature et l’Amour Divin. Que Dieu vous bénisse de tout don bon et parfait, mes chers amis, mes frères et sœurs sur le chemin de l’Amour Divin.
 
 Je suis Yogananda. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

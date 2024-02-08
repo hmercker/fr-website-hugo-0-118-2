@@ -24,4 +24,8 @@ On ne sait jamais ce que Dieu réserve à ceux qui l’aiment, qui marchent dans
 Que Dieu vous bénisse par un grand afflux, un grand remplissage de son essence divine, de son amour divin. Avec tout mon amour et toutes mes bénédictions, je me retire et je vous rejoins dans le calme de la présence de l’amour de Dieu. Je vous remercie. Je suis votre frère en Christ, Yogananda. Allez en paix.
 <small>
 
-<large id=”f1”> Donner un caractère catatonique à .(qui dénote dela catatonie : de l'agitation, de la démense).Le synonym de catatonique est catastrophique.[↩](#a1)
+<large id=”f1”> Donner un caractère catatonique à (qui dénote de la catatonie : de l'agitation, de la démense).Le synonyme de catatonique est catastrophique.[↩](#a1)
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -30,3 +30,7 @@ Ainsi, le flux de votre travail est très profond et ce que vous comprenez comme
 Mais tu commences, chère fille, comme vous commencez tous, à avoir un aperçu et une compréhension de la profondeur et de l’émerveillement des grands potentiels et des possibilités de l’âme éveillée dans l’Amour de Dieu. Et nous continuons à vous assister dans cette compréhension et cet éveil. Nous sommes comme les sages-femmes qui assistent à une naissance ; la naissance de votre âme bien-aimée, et nous prendrons le plus grand soin, avec le plus tendre amour, pour nous assurer que tout ce que vous pourriez arriver à comprendre et à connaître de la Vérité et de l’émerveillement de l’Amour de Dieu dans votre âme puisse être réalisé. Que Dieu te bénisse, ma fille chérie. Que Dieu vous bénisse tous.
 
 *[Maureen :]* Merci pour la bénédiction de tes mots, pour ton âme et pour ton cadeau à nous tous. Nous t’aimons tendrement. Nous t’aimons.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

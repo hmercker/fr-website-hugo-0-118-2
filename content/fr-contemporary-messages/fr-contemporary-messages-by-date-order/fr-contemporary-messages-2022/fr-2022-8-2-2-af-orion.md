@@ -32,3 +32,7 @@ Ces choses viennent avec les bénédictions de Dieu sur vous, mes amis. Dieu ne 
 Que Dieu vous bénisse, mes amis, alors que vous poursuivez votre voyage vers une plus grande lumière, une plus grande vérité, un plus grand amour. Tout cela coule vers vous. C’est à vous de vous engager et de répondre à ce que Dieu vous donne, à chaque instant de chaque jour. Dieu vous bénisse mes amis, je suis Orion. Je suis heureux d’être avec vous aujourd’hui, d’être avec vous dans la prière et d’être avec vous dans vos désirs et votre désir d’être les instruments de Dieu, les canaux de Dieu, les lumières de Dieu dans le monde.
 
 Que Dieu vous bénisse, chers amis. Que Dieu vous bénisse profondément, pleinement, puissamment, avec Son Essence. Réveillez-vous et soyez libres de la tyrannie de la condition humaine, de la tyrannie de l’esprit si conditionné à ce qui n’est pas en harmonie avec Dieu, et libérez-vous de votre propre douleur afin de connaître une grande joie. Bénédictions à vous, mes amis. Bénédictions et amour.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

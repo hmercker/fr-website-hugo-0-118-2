@@ -21,4 +21,6 @@ Cela ne change rien au fait qu'ils avaient exactement la même source dans la pe
 
 Oui, les deux Talmuds peuvent présenter des pensées différentes, mais les mêmes valeurs les imprègnent tous les deux, et tous les deux ont une source commune dans la profonde sollicitude sur la façon de vivre correctement la vie selon le Dieu Hébreu. C'est ce beau système de valeurs que je mets en avant, en montrant que mes valeurs étaient proches des leurs.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

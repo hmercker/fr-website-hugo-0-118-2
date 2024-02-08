@@ -33,3 +33,7 @@ Que Dieu vous bénisse dans ce voyage. Je suis Mark. Je marche avec vous, chacun
 <small>
 
 1. <large id=”f1”> FUSC : First United Spiritualist Church (Première Eglise Spiritualiste Unie).[↩](#a1)
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -46,3 +46,7 @@ Vous trouverez que dans ces moments ensemble et à travers ce processus et ce vo
 Que Dieu vous bénisse, âmes bien-aimées. Vous êtes tous précieux pour nous et nous continuerons à vous guider. Notre amour et notre gratitude pour votre engagement sont grands. Vous êtes encore des âmes naissantes dans un grand voyage, mais en effet vous avez fait des choix puissants, des choix merveilleux vers la lumière. De cette façon, Dieu vous bénit profondément et vous marchez plus pleinement sur ce Chemin Divin et vous continuerez à le faire. Tant que votre désir de Vérité pour ouvrir votre âme à l’Amour de Dieu est vrai et que votre engagement à le faire est une priorité, alors tout ce que nous faisons ici ensemble reflétera une merveilleuse joie, harmonie et lumière.
 
 Vous êtes bénis, âmes bien-aimées. Vous êtes bénies et aimées. Je suis votre Seretta Kem et je vous aime tendrement. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

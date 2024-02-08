@@ -18,3 +18,7 @@ Et Dieu souhaite que vous mainteniez ce lieu de Lumière, que vous attiriez ceux
 Sachez que vous marchez dans la Lumière. Ne permettez pas à ceux qui veulent vous dénigrer et vous rabaisser d’avoir un quelconque effet sur votre être et sachez que vous marchez sur un Chemin qui est juste, beau et plein de Grâce. Marchez sur ce beau Chemin et les anges marcheront avec vous et vous aideront sur votre chemin, vous guidant et vous protégeant, vous soutenant dans vos efforts pour non seulement rendre votre vie plus belle et en harmonie avec Dieu, mais pour rendre ce monde plus en harmonie avec Dieu.
 
 Âmes bien-aimées, poursuivez vos efforts. Servez les autres par ce que vous appelez « l’action juste », un canal d’Amour. Et soyez en paix car la main de Dieu est sur vous. Et vous êtes avec Dieu dans votre désir qui vient de votre âme d’être en alignement avec cette Grâce Divine, cette Volonté Divine, cet Amour Divin. Bien-aimés, je suis avec vous, je suis Pierre et je suis avec vous dans vos efforts, Dieu vous bénit.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

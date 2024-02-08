@@ -35,4 +35,6 @@ Il y a eu beaucoup, beaucoup de gens dans l'histoire qui ont estimé que tuer à
 
 Je sais que tout cela est déroutant pour vous. Je reviendrai et je développerai. Mais sachez que votre médiumnité a progressé au point que vous êtes incapable de ne pas recevoir nos pensées avec précision. Vous l'avez pratiquée et polie pendant dix ans, et récemment, votre âme a progressé, de sorte que la combinaison de beaucoup de pratique et d'un développement accru de l'âme n'a fait qu'aiguiser votre expertise en matière de canalisation.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

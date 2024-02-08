@@ -20,3 +20,7 @@ Lorsque nous méditions, je dis à mes étudiants de se mettre à l’aise, de s
 Lorsque vous sentez l’Amour de Dieu entrer dans votre âme à l’endroit où se trouve votre chakra du cœur et que cette lumière traverse votre corps, votre corps physique, votre corps spirituel, votre âme, profitez et soyez dans la joie de l’Amour de Dieu.
 
 Je suis votre frère et ami et je vous aime, je suis Yogananda.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

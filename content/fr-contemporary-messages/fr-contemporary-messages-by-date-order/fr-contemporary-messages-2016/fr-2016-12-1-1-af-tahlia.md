@@ -27,9 +27,21 @@ Continuez, âmes bien-aimées, vous êtes fortes, vous êtes belles, vous êtes 
 
 Et je suis avec vous, âmes bien-aimées, et je continuerai à faire partie de votre travail comme vous continuez à faire partie du travail du Maître dans ce monde. Tant, tant d’esprits, d’Anges Célestes dont vous n’avez pas conscience font partie de ce grand travail et de ce plan pour le salut de l’humanité.
 
-Soyez toujours ouverts à la guidance de Dieu, permettez au flux de Sa Volonté de vous porter dans la rivière de Son Amour et tout ira bien. De nombreuses surprises vous attendent. N’êtes-vous pas surpris d’être tous ensemble aujourd’hui, en ce lieu ? Cependant ceci est mineur comparé à ce qui est à venir. Tant de choses vous attendent.
+Soyez toujours ouverts à la guidance de Dieu, permettez au flux de Sa Volonté de vous porter dans la rivière de Son Amour et tout ira bien. De nombreuses surprises vous attendent. N’êtes-vous pas surpris d’être tous ensemble aujourd’hui, en ce lieu ? Cependant ceci est mineur comparé à ce qui est à venir. Tant de choses vous attendent.<sup id="a2">[2](#f2)</sup>
 
 Que Dieu vous bénisse, Tahlia vous aime.
 <small>
 
-1. <large id="f1"> Il faut probablement voir, dans cette remarque, une allusion à la publication des messages sur Internet par Geoff Cutler, webmaster des sites https://new-birth.net/ et https://soultruth.ca/ où les divers messages ont été originellement publiés.[↩](#a1)
+1. <large id="f1"> Il faut probablement voir, dans cette remarque, une allusion à la publication des messages sur Internet par Geoff Cutler, webmaster des sites https://new-birth.net/ et https://soultruth.ca/, sites sur lesquels les divers messages présents sur ce site ont été originellement publiés.[↩](#a1)
+
+2. <large id="f2"> Tahlia s'est également exprimé dans les messages suivants :  [↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Tahlia | [Marcher dans la lumière à travers les bouleversements à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-2-1-af-tahlia/) | 2 Octobre 2017
+Tahlia | [Connaître Dieu dans son grand fleuve d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-17-2-af-tahlia/) | 17 Mars 2018
+Tahlia | [Ce qui n'est pas en harmonie avec la création de Dieu s'écroulera](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-3-10-1-af-tahlia/) | 10 Mars 2019
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -20,3 +20,7 @@ C’est un beau cadeau, mes bien-aimés. Combien de personnes dans votre monde s
 Ainsi, ce voyage, unique pour chacun, est une sorte de naissance, la naissance d’une nouvelle réalité qui émergera de votre âme et fusionnera avec votre esprit. C’est ce que nous encourageons, nous vous poussons à aller de l’avant, nous vous entourons de notre amour et nous vous gardons près de nous. Car dans cette nouveauté de la naissance de votre âme, il y a une sensibilité et une vulnérabilité qui nécessitent un ajustement, une force et une foi, afin que vous puissiez connaître cette nouvelle personne qu’est vous, cachée dans les recoins de votre âme, mais maintenant vivifiée par la puissance de l’Amour de Dieu. Avancez, mes bien-aimés. Apprenez à vous connaître tels que vous êtes vraiment.
 
 Que Dieu vous bénisse et je vous aime, mes tendres et belles âmes. Je vous aime. (Keea Atta Kem)
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

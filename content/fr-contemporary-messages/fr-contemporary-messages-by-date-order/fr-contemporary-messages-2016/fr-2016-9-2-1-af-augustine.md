@@ -32,3 +32,7 @@ Je vous exhorte, âmes bien-aimées, ceux qui n’ont pas vraiment fait l’exp�
 Marchez avec nous sur ce chemin et je vous assure que chacun d’entre vous fera la glorieuse expérience d’être touché par l’Amour, éveillé par l’Amour, de connaître cette grande paix, de sentir cette grande exaltation et cette grande joie en vous, d’être sûr que le Père Céleste vous aime complètement et que Dieu a sa main sur vous.
 
 A quoi pouvez-vous aspirer de plus, mes enfants ? Qu’est-ce qui peut vous attendre de plus que cette expérience mystique et glorieuse qu’est le toucher d’amour de Dieu dans vos âmes ? Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse et qu’il vous enveloppe. Je suis Augustin et je connais le Toucher de l’Amour de Dieu et je sais de quoi je parle, et je vais me joindre à vous dans votre expérience d’Amour. Dieu vous bénisse et je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

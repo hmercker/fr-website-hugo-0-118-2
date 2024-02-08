@@ -20,3 +20,7 @@ De cette façon, vous libérez le canal entre vous et votre Père Céleste. Et v
 Tant de choses dépendent de vos efforts, mes belles et bien-aimées âmes. C’est à la fois une libération du contrôle de votre mental et une ouverture à la conscience de votre âme. Permettez-vous de vous fondre dans ce magnifique lieu de prière et de contemplation et d’être vraiment élevés et bénis par lui.
 
 Une clé vous est donnée. Chaque fois que vous priez, vous tournez la clé et déverrouillez la porte de Dieu. Soyez avec Dieu maintenant, mes bien-aimés. Sachez qu’il vous bénit avec douceur et fermeté. Soyez élevés dans l’Amour et soyez un canal de Lumière pour le monde. Bénédictions à vous tous. Je suis Keea Atta Kem et mon amour pour chacun de vous est grand. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

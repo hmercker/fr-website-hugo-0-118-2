@@ -20,4 +20,6 @@ J'envoie l'avertissement aux mortels, que lorsque vous êtes la cause du meurtre
 
 1. <large id="f1"> **Moctezuma**, (vers 1466 ou vers 1480-1520) a gouverné sur l'ancienne capitale de l'Empire Aztèque : Mexico-Tenochtitlan de 1502 jusqu'à sa mort en 1520. Sous son règne, l'Empire Aztéque a été envahi par les conquistadors mené par Hernán Cortés. Il tente de négocier, mais Cortés entre rapidement dans la capitale et Moctezuma II est fait prisonnier, il est obligé de reconnaitre la souveraineté de Charles Quint. En juin 1520, lorsque des révoltes éclate dans la capitale, il est envoyé pour calmer les rebelles, mais il est lapidé et meurt quelques jours plus tard. (Source : Wikipedia)[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

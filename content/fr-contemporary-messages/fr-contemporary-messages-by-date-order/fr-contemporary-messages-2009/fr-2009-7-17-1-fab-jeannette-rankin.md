@@ -11,7 +11,7 @@ weight:
 
 Jeannette Rankin - reçu par FAB le 17 Juillet 2009, Santa Cruz, Californie, USA.
 
-C’est moi, Jeannette Rankin.
+C’est moi, Jeannette Rankin.<sup id="a1">[1](#f1)</sup>
 
 Vous avez parfaitement bien reçu mes pensées [hier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-16-1-fab-jeannette-rankin/).
 
@@ -30,5 +30,16 @@ Oui, j’ai lutté contre ces manquements. Je l’ai fait. Je sais que j’aurai
 C’est le cœur qui fait la personne, et qui détermine notre destin ici. Cela présente la réalité humaine sous un jour entièrement différent. Les pressions que j’ai subies étaient énormes, car étant une femme, j’étais fortement influencée par la pression de mon frère, qui entrait parfois en conflit avec mes idéaux.
 
 Certains jugeraient défavorablement plusieurs de mes actions, et je peux le comprendre. Placée dans une position intenable, et tiraillée par des impulsions contradictoires, j’ai fait certains choix, dont certains se sont dressés devant moi. Comment une personne ayant certains idéaux peut-elle affirmer ces idéaux, lorsque les cartes semblent empilées contre elle ? En canalisant les pères fondateurs, vous vous êtes rendu compte que sur la question de l’esclavage, ils avaient l’impression d’avoir les mains liées.
+<small>
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+1. <large id="f1"> Jeannette Rankin a commmuniqué les messages suivants :[↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Jeannette Rankin | [L’image que se fait d’elle-même une politicienne américaine – 1](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-16-1-fab-jeannette-rankin/) | 16 Juillet 2009
+Jeannette Rankin | [L’image que se fait d’elle-même une politicienne américaine – 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-17-1-fab-jeannette-rankin/) | 17 Juillet 2009
+Jeannette Rankin | [L’opinion de Jeannette Rankin sur ses biographes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-17-2-fab-jeannette-rankin/) | 17 Juillet 2009
+
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

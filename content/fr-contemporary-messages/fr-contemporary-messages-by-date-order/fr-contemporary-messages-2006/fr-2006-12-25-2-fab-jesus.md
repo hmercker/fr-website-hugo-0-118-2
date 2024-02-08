@@ -29,4 +29,6 @@ Dans [mon message précédent](/fr-contemporary-messages/fr-contemporary-message
 
 Mais ils ne l’emporteront pas. Vous ne pouvez pas prévoir ce qui se passera dans les mois et les années à venir, ce que nous avons planifié, donc chaque fois que vous vous sentez pessimiste, vous savez que c’est votre raison qui travaille et non votre âme.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -18,3 +18,7 @@ Je viens saluer ma chère et belle protégée, qui a été patiente et aussi dé
 Aujourd’hui vous êtes au complet, aujourd’hui c’est le début de quelque chose de tout à fait extraordinaire et beau. Aujourd’hui, vous allez tous vous trouver ouverts et arriver à un endroit de changements qui font vraiment partie de ce qui est prévu. Il n’y a rien qui sera laissé de côté dans ce programme et ce processus, mais tous se réuniront dans l’unité et l’harmonie. Que nous soyons tous en paix dans ce grand amour de votre désir et de la bénédiction de Dieu. Puissions-nous tous connaître la lumière de sa présence parmi nous. Puissions-nous être ouverts, vraiment ouverts à ce que Dieu a à nous donner à tous.
 
 Que Dieu vous bénisse, âmes bien-aimées, que Dieu vous bénisse, qu’il vous garde dans son amour, je suis Mylora et je vous aime. Amen.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

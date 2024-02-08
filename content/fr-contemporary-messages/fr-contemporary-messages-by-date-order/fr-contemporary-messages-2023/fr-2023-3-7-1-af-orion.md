@@ -34,3 +34,7 @@ Au contraire, vous trouverez la joie. Vous aurez la sagesse de voir et de percev
 Le monde n’est pas facile, mais c’est le vôtre. C’est le cadeau que Dieu vous a fait, la vie sur ce monde. Je vous demande instamment de continuer à saisir toutes les occasions et possibilités de grandir dans la lumière, d’être un canal d’amour et d’œuvrer pour une plus grande lumière dans ce monde. Ce faisant, vous découvrirez beaucoup de choses, vous apprendrez beaucoup de choses et vous ferez l’expérience de beaucoup de choses qui sont bonnes, joyeuses et stupéfiantes à bien des égards.
 
 Que Dieu vous bénisse dans ce voyage, mes amis. Je suis Orion. Je suis heureux de vous parler aujourd’hui des défis auxquels vous êtes confrontés. Pourtant, vous, mes beaux amis, les âmes qui sont une lumière d’amour, continuez. Vous êtes persévérants. Vous avez une grande force. Nous allons donc continuer. En effet, nous continuerons, mes beaux amis. Que Dieu vous bénisse profondément. Mon amour vous accompagne toujours.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

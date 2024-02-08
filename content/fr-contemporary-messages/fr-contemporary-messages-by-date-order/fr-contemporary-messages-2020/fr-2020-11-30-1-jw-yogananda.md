@@ -21,3 +21,7 @@ Chacun ici est connecté dans l'étreinte de Dieu, dans le chant de l'amour <sup
 <small>
 
 1. <large id=”f1”> Référence à la Bhagavad Gita « le Chant de Dieu ».[↩](#a1)
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

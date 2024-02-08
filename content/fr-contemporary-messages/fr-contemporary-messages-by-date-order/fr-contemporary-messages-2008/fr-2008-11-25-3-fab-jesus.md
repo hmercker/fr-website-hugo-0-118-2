@@ -15,4 +15,6 @@ C'est moi, Jésus.
 
 J'ai dit dans [ma canalisation du 12 Novembre 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-11-12-2-fab-jesus/) que certaines forces vont radicalement modifier le comportement politique dans votre pays [les États-Unis]. Ce que je voulais dire, c'est que le chemin sera dégagé pour un changement bénéfique guidé par la politique. De cette manière, la carte politique sera rouge.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008)
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

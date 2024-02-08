@@ -26,3 +26,7 @@ Toutes ces choses vous sont données, âmes bien-aimées. Dieu bénit chacun de 
 Puissiez-vous être élevés, mes frères et sœurs bien-aimés. Puissiez-vous trouver votre chemin vers ce lieu de lumière et que tout ce que Dieu a prévu se réalise et prenne place parmi vous. Ma gratitude pour vos efforts est grande, âmes bien-aimées. Je souhaite que chaque âme qui participe soit transformée et profondément bénie par l’Amour de Dieu, et que nous nous rassemblions dans des hosannas et des larmes de joie, d’amour et d’éveil à la grande sagesse et à la compréhension que l’âme apportera lorsque vous serez profondément touchés par la main de Dieu.
 
 Que Dieu vous bénisse, bien-aimés. Je suis votre et ami Jésus et je t’aime. Je serai très certainement là avec vous, comme le sera une grande partie du Royaume Céleste. Nous nous rassemblerons avec vous lorsque vous ferez votre déclaration de vérité au monde. Que Dieu vous bénisse. Que Dieu vous bénisse tous. Je vous aime.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

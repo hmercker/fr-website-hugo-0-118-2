@@ -37,9 +37,10 @@ Je sais que c’est peut-être une pilule difficile à avaler, mais c’est le m
 
 Je vous laisse sur ces réflexions et vous dirai que vous avez très bien reçu l’essentiel de mon message ce matin. J’en suis très heureux.
 
-Je suis votre ami et votre frère en esprit, Jésus de la Bible et Maître des cieux célestes.
+Je suis votre ami et votre frère en esprit, Jésus de la Bible et Maître des cieux Célestes.
 
-[###**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+### [**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

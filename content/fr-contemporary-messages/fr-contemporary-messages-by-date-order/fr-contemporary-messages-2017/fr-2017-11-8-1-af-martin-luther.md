@@ -41,3 +41,7 @@ Que Dieu vous bénisse, mes bien-aimés. Je suis Martin Luther et je suis heureu
 <small>
 
 1. <large id="f1"> Martin Luther est limité dans son expression ici car le médium n'a aucune connaissance de la façon dont le cerveau fonctionne. C'est toujours une limite de la médiumnité, car l'esprit doit utiliser des mots et des concepts qui existent dans l'esprit du médium.[↩](#a1)
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

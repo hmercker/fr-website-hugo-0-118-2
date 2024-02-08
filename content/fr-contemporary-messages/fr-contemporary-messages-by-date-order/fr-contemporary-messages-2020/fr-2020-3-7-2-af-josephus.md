@@ -34,3 +34,8 @@ Pour ce faire, mes bien-aimés, vous devez être forts et clairs et être enraci
 Que Dieu vous bénisse lors de cet éveil. Que Dieu vous bénisse avec la joyeuse compréhension de Sa grande Création et de Son vrai Soi, Son âme, en relation avec votre merveilleuse âme. Tant de choses vous attendent, âmes bien-aimées, tant de choses que je ne peux pas vous expliquer en ce moment. Mais au fur et à mesure que cet instrument grandira et que vous grandirez, vous serez prêts à apprendre davantage des vérités de Dieu, et cela viendra. Il s’ouvrira et vous serez remplis de l’incroyable merveille de Dieu.
 
 Que Dieu vous bénisse, mes amis. Je suis Flavius Josèphe. Je suis heureux de venir vous parler de ce sujet, et je prie pour que chacun d’entre vous trouve son chemin sur ce chemin d’éveil et d’expression de l’âme, pour venir voir les merveilles de Dieu. Que Dieu vous bénisse. Que Dieu vous bénisse tous. Mon amour est avec vous.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

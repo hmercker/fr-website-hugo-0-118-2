@@ -9,7 +9,7 @@ weight:
 ---
 ### Différences entre les sexes
 
-Marie Madeleine - reçu par Amada Reza le 19 Août 2001, Aptos, Californie, USA.
+Marie Madeleine<sup id="a1">[1](#f1)</sup> - reçu par Amada Reza le 19 Août 2001, Aptos, Californie, USA.
 
 Je suis ici avec vous en ce moment, et je suis reconnaissante d’avoir l’opportunité de vous écrire. Je m’appelle Marie-Madeleine et je suis une vraie adepte de mon Maître, Jésus, et une personne qui l’aime si complètement, comme une âme sœur liée à lui pour toute l’éternité. J’ai prié pour l’Amour Divin de Dieu depuis que je suis sur terre, et bien que je sois haut dans les Cieux Célestes, je ne suis pas si proche de Jésus à ce moment de ma progression. L’une des raisons en est qu’il a dû rester proche du Père Céleste afin d’aider à amener la terre dans une condition plus aimante, et ses prières et sa communion avec notre merveilleux Créateur l’amènent très haut dans les cieux qu’il gouverne avec un amour tendre et miséricordieux.
 
@@ -32,5 +32,22 @@ Je vous demande donc, en tant que femme, de voir la bonté de votre nature spiri
 Lève-toi comme celui qui, avec tes frères en Christ, mettra en lumière la vérité que l’Amour est la seule puissance qui amènera ce monde à la paix et à l’harmonie. Alors vous verrez la violence et l’inégalité cesser, et la terre redevenir le paradis voulu par Dieu, adapté à des créatures aussi élevées que vous.
 
 Je suis Marie-Madeleine, et une vraie disciple de mon Jésus bien-aimé. Je suis très reconnaissante de l’occasion que vous m’avez donnée. Je vous aime, chers frères et sœurs, et je prie pour votre évolution vers les anges divins que je vous sais être.
+<small>
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001)
+1. <large id="f1"> Marie-Madeleine s'est également exprimé lors des messages suivants [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+--|---|---
+Marie Madeleine | [L'Amour de Dieu au sein de vos âmes émane de vous et apporte aux autres la lumière et la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-53-1970-1-28-anonymous-mary-magdalene/) | 28 Janvier 1970
+Marie Madeleine | [Communication personnelle.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1992-7-9-1-dl-mary-magdalene/) | 9 Juillet 1992
+Marie Madeleine | [Le visage de l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-4-2-ar-mary-magdalene/) | 4 Novembre 2001
+Marie-Madeleine | [Plus sur les esprits liés à la terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-7-19-1-rl-mary-magdalene/) | 19 Juillet 2004
+Marie-Madeleine & Jésus | [Observer l’âme humaine.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-1-1-ar-mary-magdalene-jesus/) | 1 Avril 2006
+Marie-Madeleine | [Portez la lumière de l'amour en vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-7-2-1-dl-mary-magdalene/) | 2 Juillet 2008
+Marie-Madeleine | [Marie-Madeleine n’est pas l’âme-soeur de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-29-2-af-mary-magdalene/) | 29 Janvier 2019
+Marie-Madeleine | [Permettez à la bénédiction de l'Amour de Dieu de venir dans votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-12-1-jw-mary-magdalene/) | 12 Juillet 2022
+Marie-Madeleine | [La lampe de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-4-1-af-mary-magdalene/) | 4 Septembre 2022
+
+### [**Lien vers les messages des années 2001**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

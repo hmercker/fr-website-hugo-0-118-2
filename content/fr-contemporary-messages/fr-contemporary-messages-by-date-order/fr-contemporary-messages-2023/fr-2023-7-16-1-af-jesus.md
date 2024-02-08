@@ -26,3 +26,7 @@ Soyez sincère envers vous-même, bien-aimés. Cherchez à vous connaître, mêm
 Mes bien-aimés, vous êtes bénis, vous êtes aimés, Dieu vous embrasse et vous embrassera à jamais. Ainsi vous trouverez votre chemin vers plus de lumière et de vérité. Votre capacité à aimer les autres sera multipliée par cent, par mille, à mesure que vous grandissez dans l’Amour du Père. Vous connaîtrez une grande joie et un grand bonheur, bien-aimés, une grande joie et un grand bonheur d’être dans la bergerie des enfants de Dieu, Ses beaux enfants de lumière. Bien-aimés, allons-nous nous ouvrir complètement aux grandes bénédictions que Dieu doit nous donner en ce moment même ? Allons-nous nous réjouir en amour des grands dons, des grandes bénédictions qui sont nôtres ? Serons-nous unis, recherchant son Toucher, être dans la grâce de Sa Présence ?
 
 Que Dieu vous bénisse, mes âmes bien-aimées. Nous sommes sur une terre sainte et serons bénis en conséquence. Mon amour est avec vous. Je suis Jésus et je vous aime, âmes bien-aimées du Créateur, tous frères et sœurs. Nous sommes donc Sa famille. Nous sommes donc Ses enfants. Nous sommes donc chacun un don de Dieu à l’univers. Que Dieu vous bénisse. Que Dieu vous bénisse tous en amour.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

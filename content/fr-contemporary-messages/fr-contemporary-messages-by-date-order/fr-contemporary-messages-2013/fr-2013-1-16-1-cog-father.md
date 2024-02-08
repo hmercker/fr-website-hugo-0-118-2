@@ -25,4 +25,6 @@ Votre Père.
 
 <u>Note</u> : Le sous-entendu est que ceux qui ont l'Amour Divin dans leur âme sont invités à s'avancer et à tendre la main à leurs frères et sœurs qui portent également l'Amour. Le temps de la solitude est révolu. Beaucoup d'entre nous ont appris à marcher seuls sur leur chemin spirituel, mais le temps est venu de nous unir, de partager l'amour et de le répandre.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013)
+### [**Lien vers les messages des années 2013**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

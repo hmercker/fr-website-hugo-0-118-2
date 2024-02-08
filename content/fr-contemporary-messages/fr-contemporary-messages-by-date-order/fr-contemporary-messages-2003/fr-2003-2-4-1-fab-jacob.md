@@ -11,7 +11,7 @@ weight:
 
 Jacob - reçu par FAB le 4 Février 2003, Santa Cruz, Californie, USA.
 
-Je suis Jacob.
+Je suis Jacob.<sup id="a1">[1](#f1)</sup>
 
 Je suis venu ce soir pour partager un message sur ma vie. Mais avant de le faire, vous devez savoir que nous nous soucions tous de vous et que nous vous envoyons nos meilleurs vœux et nos pensées les plus affectueuses.
 
@@ -28,5 +28,10 @@ Et j’ai continué à vivre. Uni à mon père Isaac et à ma mère Rebecca, à 
 Voilà, c’est tout pour le moment. Je suis heureux de la façon dont vous avez reçu ce message. Sachez que de nombreux messages futurs que nous canaliserons seront d’un grand intérêt pour les mortels.
 
 Sincèrement, Jacob.
+<small>
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)
+1. <large id="f1"> Jacob a égalment communiqué [le 06 Mai 2020](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-6-1-hm-jacob/).[↩](#a1)
+
+### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

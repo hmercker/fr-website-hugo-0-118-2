@@ -25,7 +25,20 @@ Votre travail consiste donc à embrasser et à aimer, à comprendre et à compat
 
 Mon message pour vous, bien-aimés, est un message de grande appréciation et de gratitude, un message où des âmes comme moi, qui ont enseigné, qui ont conduit de nombreuses personnes sur Terre à travers les vérités qui m’ont été données. C’est un grand privilège de travailler avec des âmes telles que vous, qui portent une vérité très élevée et qui sont des travailleurs pour Dieu. Nous travaillons tous ensemble.
 
-Je suis le Guru Nanak et ma grande bénédiction d’amour vient à vous, belles âmes qui êtes remplies de l’Amour de Dieu, dont les lumières s’étendent, qui émanent la vérité et touchent beaucoup. Que Dieu bénisse chacun d’entre vous. Je suis Guru Nanak, le fondateur de la tradition Sikh. Que Dieu vous bénisse tous.
+Je suis le Guru Nanak <sup id="a2">[2](#f2)</sup> et ma grande bénédiction d’amour vient à vous, belles âmes qui êtes remplies de l’Amour de Dieu, dont les lumières s’étendent, qui émanent la vérité et touchent beaucoup. Que Dieu bénisse chacun d’entre vous. Je suis Guru Nanak, le fondateur de la tradition Sikh. Que Dieu vous bénisse tous.
 <small>
 
 1. <large id=”f1”> **Guru Nanak (1469 – 1539)** est le fondateur de la religion sikh. Il aurait voyagé dans toute l’Asie pour enseigner aux gens le message de ik onkar (« un seul Dieu »), qui habite chacune de ses créations et constitue la Vérité éternelle. Grâce à ce concept, il a établi une plate-forme spirituelle, sociale et politique unique fondée sur l’égalité, l’amour fraternel, la bonté et la vertu.[↩](#a1)
+
+2. <large id="f2"> Guru Nanak s'est également exprimé dans les messages suivants :[↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Guru Nanak | [Marcher dans la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-16-7-af-guru-nanak/) | 16 Novembre 2017
+Guru Nanak | [Guru Nanak, le fondateur de la religion Sikh](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-9-1-af-guru-nanak/) | 9 Décembre 2017
+Guru Nanak | [Bénédiction de réconfort et d'amour sur votre parcours](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-19-1-af-guru-nanak/) | 19 Décembre 2019
+Guru Nanak | [Voyage pour apporter l'égalité et l'amour à l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-7-1-mc-guru-nanak/) | 7 Avril 2020
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

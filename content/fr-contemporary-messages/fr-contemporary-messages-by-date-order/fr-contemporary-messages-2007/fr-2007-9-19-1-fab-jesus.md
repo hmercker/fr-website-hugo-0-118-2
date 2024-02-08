@@ -42,4 +42,7 @@ Je n'ai pas jugé ni pris parti, car chaque personne doit prendre les décisions
 
 1. <large id="f1"> Jésus s'est préalablement exprimé sur ce sujet le [04 Mars 2007(/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-4-1-fab-jesus/)].[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -22,3 +22,7 @@ Chaque âme a la capacité de comprendre ce qui la retient loin de Dieu. C'est l
 Sans cette intégrité et cette honnêteté, il n'est pas possible d'aller très loin dans le développement de son âme. Il faut cette profonde honnêteté, tourner son visage vers Dieu et dire : *« Dieu, mon Père, j'ai besoin de Toi. J'ai besoin de Tes soins et de Ton amour. J'ai besoin d'être guéri. J'ai besoin d'être libéré de ma douleur »*. Dans cette simple demande couplée à vos prières pour l'Amour du Père viendra tout ce dont vous avez besoin pour être libre et dans la Lumière.
 
 Que Dieu vous bénisse, mes amis. Je suis Sigmund Freud et je suis aussi à vos côtés dans ces magnifiques efforts pour apporter une plus grande Vérité à l'humanité. Puisse cette Vérité être présentée de manière à ce que l'humanité puisse l'accepter et l'absorber, la connaître et en vivre. C'est un grand travail, un grand travail en effet. Que Dieu vous bénisse. Que Dieu vous bénisse, mes amis.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

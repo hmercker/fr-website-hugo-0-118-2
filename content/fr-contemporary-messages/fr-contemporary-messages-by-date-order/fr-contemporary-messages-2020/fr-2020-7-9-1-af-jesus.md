@@ -39,3 +39,7 @@ Je continue à être avec vous, frères et sœurs bien-aimés, sur ce chemin. J�
 <small>
 
 1. <large id=”f1”> Ceci est une réponse à un adepte de longue date de l’Amour Divin qui a publié sur Internet un message prétendant provenir de Jésus et affirmant que les Cieux Célestes sont maintenant fermés.[↩](#a1)
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

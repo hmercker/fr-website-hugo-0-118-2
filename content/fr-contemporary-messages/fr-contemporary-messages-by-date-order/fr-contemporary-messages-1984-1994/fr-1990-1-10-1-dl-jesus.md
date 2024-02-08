@@ -35,7 +35,6 @@ Bien, j'espère que ce commentaire supplémentaire pourra être utile à K____ e
 
 En conclusion, laissez-moi vous dire encore une fois que nous sommes très heureux des efforts sincères et louables de K et M. F., et que nous nous réjouissons de soutenir tous leurs merveilleux efforts spirituels dans les jours et les années à venir. Notre « armée » s'agrandit en effet, et il ne faudra pas longtemps avant que tous les coins du monde soient informés des vérités du salut grâce à nos efforts de diffusion combinés. Je vous laisse maintenant avec mon amour et mes bénédictions, et je vous félicite et vous remercie pour la bonne réception de mon message de ce jour. Je suis votre frère et ami, Jésus.
 
-[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+### [**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

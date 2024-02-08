@@ -15,4 +15,8 @@ C’est moi, Care. Je suis venue sur l’Amour de Dieu comme votre sœur en Chri
 
 Et je dis à tous ici et au-delà, permettez à la pureté de vos intentions, à la pureté de vos cœurs, de regarder au-delà de la perfection, d’aller au-delà des blessures et d’apporter votre marche dans la foi au monde en sachant que tous ne répondront pas de manière positive et que certains ne répondront peut-être pas du tout, mais ceux que vous toucherez seront à jamais reconnaissants comme mon bien-aimé l’est pour moi et plus important encore, pour Dieu. Apportez donc votre cœur et ses intentions au monde dans l’Amour de Dieu et vous ne pourrez pas échouer. Et vous pourriez être très surpris de votre réussite.
 
- Je vous remercie, je vous bénis et je vous aime. Je suis votre sœur céleste en Christ, je suis Care. Que Dieu vous bénisse.
+Je vous remercie, je vous bénis et je vous aime. Je suis votre sœur céleste en Christ, je suis Care. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

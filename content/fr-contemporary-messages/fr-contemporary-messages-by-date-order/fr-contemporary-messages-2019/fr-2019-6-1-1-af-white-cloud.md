@@ -11,7 +11,7 @@ weight:
 
 Nuage Blanc - reçu par Al Fike le 1 Juin 2019, Gibsons, Colombie-Britannique, Canada.
 
-Bénédictions du Créateur, je suis Nuage blanc. Vous m'avez attiré dans votre cercle avec vos chansons et vos histoires de ceux qui ont fait l'expérience des vérités des peuples de votre terre, la Grande Île de la Tortue, comme on l'appelle.
+Bénédictions du Créateur, je suis Nuage blanc.<sup id="a1">[1](#f1)</sup> Vous m'avez attiré dans votre cercle avec vos chansons et vos histoires de ceux qui ont fait l'expérience des vérités des peuples de votre terre, la Grande Île de la Tortue, comme on l'appelle.
 
 Vous êtes venus de nombreux endroits différents et vous vous référez à Dieu sous de nombreux noms différents, que ce soit le Grand Esprit Blanc, que ce soit la Sainte Grâce du Créateur ou Allah, de nombreux noms pour un seul Dieu. Pourtant, dans vos cœurs se trouve un véritable sentiment d'être des enfants de Dieu. Chacun d'entre vous a une Lumière et chacun d'entre vous porte la Vérité. Chacun d'entre vous a un don à faire.
 
@@ -34,3 +34,25 @@ Je vous remercie de m'avoir écouté aujourd'hui. Je vous remercie tous pour vos
 Que Dieu vous bénisse, mes amis bien-aimés. Je suis souvent avec vous, avec beaucoup d'entre vous. Je vous aide et je cherche à vous guider. De nombreuses bénédictions vous parviennent à travers nos prières. Ceux d'entre nous qui vivent dans les royaumes de lumière viennent aider les enfants qui cherchent l'Amour, la Lumière, la Vérité et de grandes bénédictions pour ce monde.
 
 Que Dieu vous bénisse. Je suis Nuage Blanc et je vous connais. Beaucoup d'entre vous me connaissent dans leur cœur car j'ai été avec vous en tant qu'ami. Que Dieu vous bénisse. Merci.
+<small>
+
+1. <large id="f1"> Nuage Blanc s'est également exprimé dans les messages suivants :  [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+--|---|---
+Nuage Blanc | [Vous devez chercher et vous préparer à recevoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-72-1969-anonymous-white-cloud/) |   1969
+Nuage Blanc et Eau Christalline | [Nuage blanc, eau cristalline](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-111-1969-anonymous-white-cloud-crystal-water/) |   1969
+Nuage Blanc | [Aidez les autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-114-1969-anonymous-white-cloud/) |   1969
+Nuage Blanc | [L'importance de la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-124-1969-anonymous-white-cloud/) |   1969
+Nuage Blanc | [Apprenez à lancer des pensées d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-143-1970-anonymous-white-cloud/) |   1970
+Nuage Blanc | [Vivez ces vérités](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-158-1970-anonymous-white-cloud/) |   1970
+Nuage Blanc | [Conférence sur la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-163-1970-anonymous-white-cloud/) |   1970
+Nuage Blanc | [Le monde a besoin de vos prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-2-2-af-white-cloud/) | 2 Décembre 2016
+Nuage Blanc | [L'amour réveillera votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-28-2-af-white-cloud/) | 28 Septembre 2017
+Nuage Blanc | [Dites la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-11-2-af-white-cloud/) | 11 Novembre 2017
+Nuage Blanc | [Demander les bénédictions et les dons de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-11-2-af-white-cloud/) | 11 Septembre 2019
+Nuage Blanc | [Priez avec nous pour plus d'équilibre et d'harmonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-3-1-af-white-cloud/) | 3 Décembre 2021
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -18,3 +18,7 @@ Quant à notre instrument bien-aimé, il continue à travailler dans le cadre de
 Chacun trouvera son chemin. Au fur et à mesure que le temps passe dans votre monde, vous trouverez votre chemin et continuerez à être des instruments actifs et efficaces de l’amour de Dieu et du changement dans ce monde. Même si vous ne voyez pas les résultats manifestes de vos efforts, même si vous avez l’impression de ne pas être du tout efficaces, vous continuez à travailler dans cette grande entreprise pour le salut de l’humanité. Cela deviendra clair avec le temps, mes amis bien-aimés, clair afin que vous ne doutiez plus, mais que vous soyez dans la Lumière et la joie de savoir que vous et Dieu êtes vraiment reliés par un lien d’Amour et que vous servez vraiment dans le flux de l’Amour.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre enseignant, Augustin, et je continue à vous servir comme je l’ai fait pendant de nombreuses années et je continuerai à le faire pendant de nombreuses autres années, car il y a beaucoup de travail à faire, un grand travail à portée de main. Que Dieu vous bénisse, qu’il vous garde dans son amour. Je suis souvent avec vous et mon amour est avec vous, mes amis bien-aimés. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -15,4 +15,10 @@ Nous sommes très excités aussi ! !! Je suis Goldie ! !! Ne vous prenez pas tro
 
 C'est la joie dans votre cœur, mes bien-aimés, qui est importante. Avec l'Amour, tout est possible. Avec l'Amour, tout se réunira en harmonie. Nous célébrerons nos efforts mutuels dans les temps à venir. Remerciez Dieu pour ces grands dons qu'Il nous a faits à tous pour apporter davantage de joie et de Lumière à ce monde, un monde qui a tant besoin de joie, de légèreté et d'Amour. C'est ce que vous allez donner au monde, mes amis, un cadeau de joie et un cadeau d'Amour. Soyez dans la joie et dans l'Amour et soyez proches de Dieu car Dieu déverse sur vous ses bénédictions comme jamais auparavant. Absorbez tout comme une grosse éponge, laissez tout absorber et sachez que vous êtes sur le bon chemin. Un destin vous attend, un destin est certain si vous continuez à faire ces efforts dans l'Amour.
 
-Je vous aime. Je serai avec vous. Vous m'entendrez chanter en Voix Directe. Que Dieu vous bénisse. Je suis Goldie. Je vous aime. Je suis folle de joie. Je vous aime tellement. Que Dieu vous bénisse.
+Je vous aime. Je serai avec vous. Vous m'entendrez chanter en Voix Directe. Que Dieu vous bénisse. 
+
+Je suis Goldie. Je vous aime. Je suis folle de joie. Je vous aime tellement. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

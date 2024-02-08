@@ -20,3 +20,7 @@ Lorsque Dieu vous embrasse et touche vos âmes, lorsque vous laissez aller et pe
 L’innocence de l’Amour de Dieu, comme l’enfant a confiance dans le parent pour protéger et guider et montrer le chemin, alors laissez tous les enfants de Dieu avoir cette foi et cette confiance dans la protection et l’amour de notre Père Céleste. Vous avez de nombreux guides et il vous suffit de demander et nous sommes là. Chère sœur, si tu as besoin de mon aide ou de celle de mon bien-aimé, nous sommes là pour toi. Il a donné son cœur à Dieu et à ce travail, mais si tu as besoin que je vienne, appelle-moi.
 
 Que cette lumière dans ce cercle de prière reste avec vous. Que vos âmes soient élevées et réveillées car vous serez et êtes vraiment une bénédiction pour tous. Avec tout mon amour et mes bénédictions pour vous. Que la grâce de Dieu soit vôtre. Je suis Care.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

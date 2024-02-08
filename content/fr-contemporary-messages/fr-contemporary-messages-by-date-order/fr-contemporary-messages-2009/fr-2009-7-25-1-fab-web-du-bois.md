@@ -23,4 +23,10 @@ Plus de cent ans ont passé, et la cause pour laquelle je me suis battu réclame
 
 1. <large id="f1"> **William Edward Burghardt Du Bois** (23 Février 1868 - 27 Août 1963) fut un militant américain des droits civiques, panafricaniste, sociologue, historien, auteur et éditeur. À l'âge de 95 ans, en 1963, il a été naturalisé citoyen du Ghana. L'historien David Levering Lewis a écrit : *« Au cours de sa longue et turbulente carrière, W. E. B. Du Bois a tenté pratiquement toutes les solutions possibles au problème du racisme du XXe siècle : érudition, propagande, intégration, autodétermination nationale, droits de l'homme, séparatisme culturel et économique, politique, communisme international, expatriation, solidarité avec le tiers monde. »* En 2002, l'universitaire Molefi Kete Asante a inscrit W. E. B. Du Bois sur sa liste des 100 plus grands Afro-Américains. (Source : Wikipedia)[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+
+
+

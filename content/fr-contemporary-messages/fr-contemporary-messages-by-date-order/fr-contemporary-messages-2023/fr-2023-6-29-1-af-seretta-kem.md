@@ -30,3 +30,7 @@ Vous, âmes bien-aimées, êtes les précurseurs. Vous êtes celles, et il y en 
 Dieu a un grand plan pour Ses enfants sur ce plan terrestre. Chacun de vous jouera son rôle. Chacun de vous connaîtra son rôle et il n’y aura pas de confusion, pas de recul, pas de peur. Mais vous connaîtrez la joie d’accomplir quelque chose de vraiment profond en vous dont vous avez toujours su qu’il devait s’exprimer dans le monde. Vous trouverez cette expression dans sa plénitude, sa richesse et son émerveillement.
 
 Que Dieu vous bénisse, mes chers amis. En effet, nous continuons le voyage, l’éveil de l’âme. En effet, l’éveil de l’âme. Que Dieu vous bénisse. Je suis Seretta Kem et je vous aime tellement, mes amis bien-aimés, les hôtes de la vérité, les précurseurs de ce qui est à venir, ces âmes courageuses prêtes à tester les limites, les limites de votre propre conscience et capacités. Donc, nous nous réunissons pour aider à favoriser ces choses en vous et à travers vous. Que Dieu te bénisse. Mon amour est avec vous tous.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

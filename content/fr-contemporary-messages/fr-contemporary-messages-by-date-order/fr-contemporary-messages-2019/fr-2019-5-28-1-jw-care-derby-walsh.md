@@ -20,3 +20,7 @@ Mais je vous dis tout cela, non pas parce que vous ne le savez pas, mais pour vo
 Le travail que je fais maintenant est d'âme à âme. Il y a bien sûr des esprits qui sont très utiles sur le plan matériel, aidant à réaliser les souhaits de ceux qui ont besoin de choses matérielles. Ce sont de bonnes choses. Mais nous qui souhaitons servir le Père dans l'Amour, nous travaillons au niveau de l'âme. C'est vers cela que vous vous dirigez tous. Malgré les distractions du monde et toutes les choses que nous devons faire dans le monde et que vous devez faire dans le monde, vous êtes maintenant bénis au point de savoir que le travail que vous faites est d'âme à âme. Je suis ravi d'être avec vous en cela.
 
 Mon cher amour, Jimbeau, merci de m'avoir permis de venir. Merci, Jimbeau. Que Dieu vous bénisse tous. Je vous aime. Que Dieu vous couvre de son amour. Je suis Care.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

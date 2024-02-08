@@ -20,3 +20,7 @@ Pourtant, toutes ces choses, je les ai abordées dans un esprit d’amour, avec 
 J’ai rencontré le Maître et j’ai à peine des mots pour exprimer son visage, mais il m’a humblement dit : *« Oh, moi aussi je fus un voleur, je suis venu voler les gens dans leur vie somnambulante et leurs croyances restrictives, dans les bras de Dieu et de son grand amour. »* Je vous dis cela, mes amis, parce que quoi que vous pensiez être dans la vie, maintenant vous savez que l’Amour de Dieu vous élève et dans cet éveil et dans ce flux comme vous le dites, il y a de la joie, de la bénédiction et de l’harmonie. Que ce soient là vos cadeaux au monde. Je vais maintenant partir, car d’autres personnes souhaitent prendre la parole. Avec tout mon amour, ma joie et mes bénédictions, je suis votre frère dans lAamour de Dieu.
 
 Que Dieu vous bénisse tous, je suis Charles.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

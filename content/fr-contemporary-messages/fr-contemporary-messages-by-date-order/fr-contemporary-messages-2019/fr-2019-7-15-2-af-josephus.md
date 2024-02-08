@@ -46,3 +46,7 @@ Vous devez continuer à parler de ces vérités, du pouvoir de l'amour de Dieu p
 Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse profondément avec Son Amour. Puissiez-vous toujours choisir la Lumière. Quoi que vous fassiez, où que vous soyez, puissiez-vous toujours choisir la Lumière, car c'est la sagesse profonde, c'est la Vérité. Vous devez toujours la porter d'une manière consciente.
 
 Que Dieu vous bénisse, soyez aimés. Mes bénédictions sont avec vous. Je suis Flavius Josèphe. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

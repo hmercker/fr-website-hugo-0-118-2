@@ -28,3 +28,7 @@ Continuez dans vos prières et vos efforts, âmes bien-aimées, portez cette fla
 Continuez, mes frères et sœurs bien-aimés, dans vos efforts fervents pour déclarer la Vérité, pour vivre la Vérité, pour reconnaître combien vous êtes aimés dans l’étreinte de Dieu.
 
 Âmes bien-aimées, je suis avec vous. Je suis Jésus et je vous aime.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

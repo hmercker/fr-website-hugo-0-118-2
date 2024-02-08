@@ -17,4 +17,6 @@ Nous approuvons votre lecture du livre *[Les Rockfellers, une Dynastie Américai
 
 Le plan de Dieu est un plan d'amour, qui comprend des dispositions pour la personnalité individuelle, ainsi que des correctifs issus de la loi de compensation.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

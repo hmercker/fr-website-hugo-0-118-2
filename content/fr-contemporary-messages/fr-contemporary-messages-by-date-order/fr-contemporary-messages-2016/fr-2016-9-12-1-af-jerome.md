@@ -32,3 +32,8 @@ C’est le voyage, mes bien-aimés. C’est ce qui doit se produire si vous voul
 Tu trouveras ton chemin, mon fils. Je serai avec toi dans tes efforts. Je t’aiderai à te libérer de tes fardeaux. Je serai à tes côtés ainsi que beaucoup d’autres anges qui sont impatients de te soutenir dans ton voyage et ta mission d’apporter la guérison et l’Amour à cet endroit, cette partie du monde, si abattue par tant de douleur. Allez dans les églises. Allez dans les lieux de rencontre. Allez le long des rues. Dites vos prières en marchant. Dites vos prières en participant aux offices dans les églises. Continuez à être l’humble serviteur de Dieu et ne laissez pas les erreurs que vous entendez proférer par les membres de ces églises inhiber le flux de votre amour. La véritable humilité est l’acceptation. La véritable humilité consiste à ajouter votre amour à ceux qui cherchent la Lumière, même si leurs croyances sont fausses. Chaque âme est un enfant de Dieu. Chaque âme cherche Dieu et, par votre présence et votre foi, vous ajouterez votre lumière à leurs efforts.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis très heureux de pouvoir parler aujourd’hui à travers cet instrument. Il y aura plus de conseils au fur et à mesure que le temps avance dans vos voyages. Que Dieu vous bénisse, je suis Jérôme. Je vous aime, je suis avec vous et je suis avec le peuple de cette terre, ses luttes pour la Lumière. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

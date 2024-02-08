@@ -27,6 +27,3 @@ Je suis cette voix. Je suis cette paix éternelle qui est en toi. Je suis ton â
 
 Nous n’avons pas tout à fait fini mais tu as besoin d’un peu de repos. Reviens plus tard, mon enfant.
 
-[MESSAGES](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
-
-

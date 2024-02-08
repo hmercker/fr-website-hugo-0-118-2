@@ -30,3 +30,7 @@ Mes chers et beaux amis, mon fils, ma fille, mon cher ami que je connais bien pa
 Mes bien-aimés, mes bien-aimés, comme je vous aime. Comme je suis impatiente de vous voir grandir et de continuer à servir dans toutes les capacités qui vous conviennent et qui sont en harmonie avec la Volonté de Dieu. De ma position actuelle, l’image est tellement plus grande et plus brillante. Cela me motive à continuer à être à vos côtés, à vous aider de toutes les manières possibles, à prier pour vous, à vous apporter des bénédictions, et c’est ce que je ferai, tous les jours de votre vie, je le ferai.
 
 Je suis Barbara et je vous aime. Oh, comme je vous aime. Que Dieu vous bénisse tous dans la paix de sa présence, dans la grâce de son contact, dans l’expansion de son amour en vous. Que Dieu vous bénisse toujours, de toutes les manières qu’Il peur.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

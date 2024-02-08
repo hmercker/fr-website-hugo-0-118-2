@@ -30,3 +30,7 @@ Tout se déroulera dans l’harmonie et la grâce. L’amour sera la pierre angu
 Vous serez mis à l’épreuve et la vie, la condition humaine, tentera de vous éloigner de votre tâche. Ne permettez pas cela, âmes bien-aimées. C’est là que votre foi et votre force, votre engagement et votre persévérance vous conduiront sur le chemin que Dieu a désigné pour vous. Ne permettez pas à la peur d’entrer dans vos esprits, ni au doute. Soyez vraiment l’enfant de Dieu, soyez vraiment dans Sa grâce, et tout ira bien alors que nous continuerons à progresser ensemble sur cette route partagée vers l’expiation avec Dieu.
 
 Que Dieu vous bénisse, mes bien-aimés, je suis Seretta Kem. Mon amour est avec vous tous. Sachez que je suis proche de vous tous, que beaucoup sont proches. A tout moment, vous avez des anges à vos côtés. Profondément bénies, âmes bien-aimées, combien dans votre monde ont cette grande bénédiction, ce grand cadeau d’amour et d’élévation, de protection, de lumière de guérison ? Tant de choses sont données par les cieux à chacun d’entre vous. Dieu vous bénisse, mon amour est avec vous, Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

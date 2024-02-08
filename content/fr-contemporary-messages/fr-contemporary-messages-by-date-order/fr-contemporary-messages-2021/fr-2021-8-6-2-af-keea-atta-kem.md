@@ -18,3 +18,7 @@ En effet, chaque fois que vous vous réunissez en prière, vous ajoutez une plus
 Le monde a besoin de plus de personnes qui font cela, qui se consacrent à être des serviteurs de Dieu, qui se consacrent à la lumière, qui se consacrent à la guérison de votre terre et à la guérison des âmes de l’humanité. Vous donnez de vous-même dans la foi et la prière, et ce faisant, vous donnez à l’humanité et à votre monde. Continuez à être une lumière, âmes bien-aimées, continuez à vous voir comme une belle lumière, et Dieu vous utilisera de nombreuses façons pour apporter une multiplicité de bénédictions à de nombreuses âmes sur votre monde.
 
 Nous vous remercions pour vos efforts. Sachez que vous êtes vraiment aimés et élevés, et que vos dons sont utilisés au profit de l’humanité. Que Dieu vous bénisse, âmes bien-aimées. Je suis Keea-Atta Kem. Mon amour est avec vous. En vérité, nous sommes ensemble dans la lumière et l’amour. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

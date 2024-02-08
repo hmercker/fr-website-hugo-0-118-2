@@ -20,3 +20,7 @@ Concentrez vos désirs. Concentrez les désirs ardents de votre âme et recevez 
 Puissiez-vous le connaître profondément en vous. Car vous ne devez pas seulement prier ici. Vous pouvez prier n’importe où, à n’importe quel moment, pour recevoir ce don et il vous sera donné, à condition que vous soyez sincères dans vos désirs. Dieu ne cache rien à ses enfants. Dieu est impatient de vous donner la générosité qui est de Son Âme à chacun d’entre vous. Respirez-la, âmes bien-aimées. Recevez de votre cœur. Soyez dans la Grâce de Dieu et tout le reste disparaîtra dans ce temps sacré passé ensemble.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre enseignant Augustin et je suis avec vous en ce temps de prière et de communion comme le sont de nombreux anges et de nombreux esprits, de très nombreux esprits qui sont liés à chacun d’entre vous. Ceux qui sont partis avant vous, viennent et sont avec vous maintenant dans cette grande Lumière, dans cette grande salle. Que Dieu nous bénisse tous. Que Dieu bénisse vos âmes. Réveillez-vous à la promesse et tout viendra facilement et en abondance. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

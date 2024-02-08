@@ -16,3 +16,7 @@ Nous allons commencer à approfondir nos rapports avec vous mes bien-aimés. Cel
 Vous devez cependant poursuivre vos efforts pour vous rapprocher de Dieu, l’intensité de vos prières et de vos désirs afin d’apporter des bénédictions plus profondes à vos âmes. Nous continuons mes amis dans cet éveil, dans cet approfondissement, dans ce joyeux voyage d’amour.
 
 Que Dieu vous bénisse. Je suis Seretta Kem.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

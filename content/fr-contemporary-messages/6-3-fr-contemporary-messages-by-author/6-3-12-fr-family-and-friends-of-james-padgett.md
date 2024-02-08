@@ -20,6 +20,7 @@ Anne Rollins | [Réseau de l’amour](/fr-contemporary-messages/fr-contemporary-
 Anne Rollins | [Croyances erronées et Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-19-4-jw-ann-rollins/) | 19 Décembre 2020
 Anne Rollins | [N'est-ce pas le désir de votre cœur ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-30-1-jw-ann-rollins/) | 30 Janvier 2023
 Anne Rollins | [L'expiation et la loi de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-30-1-jw-ann-rollins/) | 30 Avril 2023
+Hélène Padgett | [Ceux qui servent dans l'amour feront des percées dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-17-2-af-helen-padgett/) | 17 Septembre 2017
 James Padgett | [Édition du deuxième volume des messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1991-3-9-1-ks-james-padgett/) | 9 Mars 1991
 James Padgett | [Message personnel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1997-10-21-2-dl-james-padgett/) | 21 Octobre 1997
 James Padgett | [Le deuxième avènement.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-5-21-1-db-james-padgett/) | 21 Mai 2006

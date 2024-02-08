@@ -24,4 +24,7 @@ Alors que vos peurs et vos insécurités s'évaporent lentement, votre âme voit
 
 1. <large id="f1"> **Thaddeus Stevens** (4 Avril 1792 - 11 Août 1868), était un membre de la Chambre des représentants des États-Unis de Pennsylvanie. Charles Sumner et lui furent les puissants leaders des républicains radicaux pendant la guerre civile américaine et la reconstruction. Son biographe le caractérise comme « le grand communiste, sauveur de l'éducation publique gratuite en Pennsylvanie, leader républicain national dans les luttes contre l'esclavage aux États-Unis et pilier intrépide de la tentative d'assurer la justice raciale pour les affranchis pendant la Reconstruction, le seul membre de la Chambre des représentants à avoir jamais été connu, même si c'était à tort, comme le "dictateur" du Congrès. » (Source : Wikipedia.)[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

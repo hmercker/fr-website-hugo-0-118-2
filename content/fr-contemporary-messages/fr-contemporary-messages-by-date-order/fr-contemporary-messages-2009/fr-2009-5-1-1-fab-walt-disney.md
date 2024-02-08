@@ -20,7 +20,6 @@ Je réside dans les Cieux Célestes, et je vous dis ce soir, avec l'autorité qu
 
 1. <large id="f1"> Walt Disney  s'est également exprimé dans les messages ci-dessous indiqués :[↩](#a1)
 
-
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Walt Disney | [L'espoir de Walt Disney](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-1-1-fab-walt-disney/) | 1 Mai 2009
@@ -32,7 +31,7 @@ Walt Disney | [Inharmonie et Boomerang](/fr-contemporary-messages/fr-contemporar
 Walt Disney | [Le sens moral de Walt Disney](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-6-21-2-fab-walt-disney/) | 21 Juin 2012
 Walt Disney | [La mentalité de guerre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-2-21-2-fab-walt-disney/) | 21 Février 2013
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
 
-
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

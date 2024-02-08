@@ -23,3 +23,7 @@ Que le grand don de l’Amour de Dieu continue à illuminer nos âmes et à nous
 <small>
 
 1. <large id=”f1”> Parlant à John M de son ami pasteur.[↩](#a1)
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

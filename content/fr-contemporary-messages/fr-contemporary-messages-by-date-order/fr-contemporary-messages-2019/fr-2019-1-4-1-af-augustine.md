@@ -35,4 +35,6 @@ Vous vous embarquez dans un grand voyage, âmes bien-aimées, un grand voyage qu
 
 Que Dieu vous bénisse, âmes bien-aimées. Votre enseignant Augustin est avec vous, il vous aime, il continue à vous enseigner et à vous soutenir, toujours, mes bien-aimés, toujours. Que Dieu vous bénisse.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019)
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

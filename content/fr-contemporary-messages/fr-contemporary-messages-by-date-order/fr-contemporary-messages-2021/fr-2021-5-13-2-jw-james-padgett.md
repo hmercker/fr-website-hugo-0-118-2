@@ -11,7 +11,7 @@ weight:
 
 James Padgett - reçu par Jimbeau Walsh le 13 Mai 2021, Punalu’u, Oahu, Hawaii, USA.
 
-Je suis ici votre frère, ami et guide, James Padgett.
+Je suis ici votre frère, ami et guide, James Padgett.<sup id="a1">[1](#f1)</sup>
 
 Chers amis de mon âme, j’ai été avec vous aujourd’hui dans ce groupe d’étude, écoutant, guidant, encourageant et influençant vos âmes à tendre la main dans l’amour. Je suis un habitant des Cieux Célestes avec mon âme sœur, ma chère Hélène, et je veux tous vous encourager à lire les messages que j’ai reçus afin que vous puissiez connaître ces vérités qui sont aussi vraies aujourd’hui qu’elles l’étaient il y a plus de 100 ans lorsque j’ai commencé à les recevoir. Comme l’Amour de Dieu est éternel, Ses lois et Ses vérités le sont aussi.
 
@@ -24,3 +24,10 @@ Lorsque vous ressentez l’amour de l’âme sœur ou un amour profond pour une 
 Ainsi, alors que vous explorez ce chemin vers le royaume Céleste, permettez à vos âmes d’être touchées afin que vous puissiez ressentir l’éclat, la gloire, la magnifique et éternelle félicité que le Créateur a pour chacun de vous. Laissez vos âmes s’élever et être soulevées. Vous pouvez laisser votre mental se reposer pendant que vous lisez le sujet traité et je vous encourage à ressentir la substance, l’essence des vérités contenues dans ce que vous connaissez comme les messages de James Padgett. Et oui, j’ai été profondément honoré de les recevoir et d’être transformé par les vérités qu’ils contiennent.
 
 Avec tout mon amour, mes bénédictions et mon soutien du royaume Céleste, je suis votre humble serviteur et frère dans l’amour de Dieu, James Padgett. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> L'ensemble des messages communiqués par James Padgett  est disponible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-12-fr-family-and-friends-of-james-padgett/)[↩](#a1) 
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

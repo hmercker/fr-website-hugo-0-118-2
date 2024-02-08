@@ -26,3 +26,7 @@ Vous êtes béni par Dieu. Vous avez invoqué les lois qui engendrent cette bén
 Avancez dans la foi et la confiance pour être avec votre Créateur, votre Père Céleste, et toutes Ses bénédictions, toute la paix, toute la joie, tout le confort et tout ce qui est amour sont à vous, mes bien-aimés, dans ces moments de prière. Que vous soyez ensemble comme vous l’êtes maintenant ou séparés dans votre propre prière, passez du temps avec Dieu, réalisez que vous posez devant vous une fondation, solide et éternelle, qui vous amènera, avec le temps, à l’accord avec Dieu et à tout ce que cela apporte dans une vie transformée, une âme éveillée.
 
 Que Dieu vous bénisse. Je suis Jean, Jean le Bien-Aimé, et je vous aime, mes beaux amis sur le plan terrestre. Oui, vous luttez, mais Dieu vous rencontre en ce lieu de lumière et est avec vous dans une grande compassion et un grand amour, dans l’élévation et la joie. Buvez profondément ces eaux, sentez Sa Présence, soyez en paix, mes bien-aimés. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

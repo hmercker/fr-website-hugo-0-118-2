@@ -21,4 +21,6 @@ D'un autre côté, je m'affirmais aussi quand je le jugeais nécessaire. Je ne p
 
 L'affirmation de soi est une nécessité sur le chemin spirituel. La question est de savoir quelle est la meilleure façon d'y parvenir. Beaucoup ont rejeté cet enseignement parce qu'ils ont estimé qu'il représentait une faiblesse lâche, alors qu'en fait, il faut beaucoup plus de force que celui qui opère simplement au niveau animal.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007)
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

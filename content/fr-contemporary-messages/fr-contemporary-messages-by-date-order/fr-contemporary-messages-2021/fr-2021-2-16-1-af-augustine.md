@@ -26,3 +26,7 @@ C’est le bénéfice de l’Amour de Dieu qui vous change, vous transforme et i
 Sachez que ces choses viennent et qu’en effet les vrilles de ces deux façons d’expérimenter la vie se tendent l’une vers l’autre avec un profond désir, un profond besoin de se réunir et d’être intégrées dans l’harmonie et l’amour. Cela viendra donc, et vous verrez par vous-mêmes la merveilleuse création qu’est la Création de Dieu et la merveilleuse expérience qu’est votre existence dans ce monde en tant qu’être matériel et spirituel. Ensemble, vous exprimerez une harmonie, une joie et un amour profonds dans le monde. Que Dieu vous bénisse alors que vous continuez à évoluer et à changer dans cette merveilleuse bénédiction et ce don que Dieu a fait à chacun de vous.
 
 Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse profondément. Mon amour est avec vous. L’Amour de Dieu se déverse sur vous en ce moment et vous en viendrez à connaître l’émerveillement, la joie, l’appréciation de votre vie comme un don de Dieu. Dieu vous bénit. Que Dieu vous bénisse profondément, avec Son Amour.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

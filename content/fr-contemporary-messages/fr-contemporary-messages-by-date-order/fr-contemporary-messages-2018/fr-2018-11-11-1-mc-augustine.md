@@ -20,3 +20,7 @@ Comment sait-on quand ces changements prennent effet ? Ces fardeaux et ces bless
 Alors bien-aimés, alors que vous êtes assis maintenant avec vos âmes ouvertes, aspirant et désirant ardemment ressentir cet Amour de votre Créateur, ne vous sentez-vous pas merveilleux, ne vous sentez-vous pas à l’aise, ne vous sentez-vous pas réconfortés ? Chers amis, ceci est disponible à tout moment. C’est seulement à vous de faire un effort et c’est seulement vous qui vous tenez à l’écart de cette guérison. C’est l’Amour le plus gracieux, le plus tendre, le plus connaissant et le plus attentif qui vous guérira. Je vous laisse donc avec le souhait de rechercher l’Amour de votre Créateur bien-aimé, permettant à l’essence, à la vérité, de ce que vous êtes en tant qu’âme, d’être soignée par Celui qui vous a créé. Alors que cet Amour coule en vous, mes amis, vous verrez votre essence grandir et se transformer en celle de l’Amour.
 
 Que Dieu vous bénisse en ce jour, je suis Augustine et je réside dans le Royaume Céleste. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

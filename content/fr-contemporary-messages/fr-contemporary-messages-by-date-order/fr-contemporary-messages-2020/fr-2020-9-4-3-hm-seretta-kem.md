@@ -29,7 +29,7 @@ Nous avons bien écrit, ma fille, et nous écrirons encore plus bientôt. Je t�
 
 Que Dieu te bénisse, cher enfant bien-aimé, et qu’il fasse naître tes prières avec une plus grande intensité et un désir ardent dans ta recherche de la vérité. Nous t’aimons et te saluons. Que Dieu te bénisse !
 
-*[Suite des messages le 6 Septembre 2020.]*
+*[Suite du message le 6 Septembre 2020.]*
 
 Fille bien-aimée, je suis ici, Seretta Kem.
 
@@ -38,3 +38,7 @@ Je voudrais continuer à écrire sur la perspective de recevoir la guérison de 
 En ouvrant la voie pour atteindre l’oreille de Dieu, une réponse est assurée. L’acceptation de la guérison appliquée et l’embrassement des énergies de guérison soutiendront la libre circulation de la guérison nécessaire/désirée.
 
 Notre communication est difficile et nous réessayerons à une autre occasion. Que Dieu te bénisse, cher enfant. Seretta Kem t’aime.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

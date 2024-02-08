@@ -18,3 +18,7 @@ Je trouve qu'ici, dans le monde de l'esprit, mes passions continuent avec l'ajou
 Alors, mes chers amis, si je pouvais vous dire une chose que j'ai apprise, ce serait ceci : Dieu est Amour. L'Amour de Dieu est la plus grande chose dans l'univers entier. Vous qui avez choisi de le recevoir et de croire en lui, vous avez fait un choix judicieux. Je suis attiré par votre groupe pour cette raison et parce que cet instrument a de nombreux projets créatifs dans sa, disons, "poche arrière". Nous partageons le besoin de nous exprimer avec humour et avec la musique et de faire en sorte qu'elle soit utile aux autres, qu'elle serve l'humanité. J'espère pouvoir lui rendre service en diffusant autant que possible ce qu'il a reçu. Il a parfois fait de grands efforts dans ce sens, mais le moment n'était pas propice. C'est maintenant le cas. Nous allons travailler ensemble et je vais le guider à travers ses doutes et ses échecs mentaux qui l'ont paralysé comme ils l'ont souvent fait pour moi.
 
 Que l'amour soit là. Que la lumière soit. Que la musique s'élève et que les rires et la joie abondent. Oh, comme le monde a besoin de vous. Que Dieu vous bénisse. Je vous aime. Charles.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

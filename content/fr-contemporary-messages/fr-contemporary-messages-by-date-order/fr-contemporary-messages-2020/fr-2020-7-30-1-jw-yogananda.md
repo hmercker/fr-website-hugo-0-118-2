@@ -20,3 +20,7 @@ Vous savez, ceux qui vivent dans des monastères et des ashrams et dans des lieu
 Cependant, tout comme vous avez choisi ce moment pour être en prière avec vos amis bien-aimés, vous pouvez faire du monde votre monastère, votre ashram. Je vous en prie, si vous êtes occupés, si votre esprit se déplace vraiment d’un mile par minute, alors ouvrez simplement votre cœur, ouvrez votre âme à Dieu. Comme je l’ai dit précédemment, s’il le faut, parlez à Dieu. Lorsque vous envoyez cette prière vers le haut, vers Dieu, pour être un avec Lui dans l’amour, vous avez élevé vos pensées au niveau de l’âme. À ce moment-là, nous sommes tous unis dans l’amour de Dieu. Quelle que soit notre station, où que nous soyons dans notre voyage, nous avons permis à Dieu de toucher nos âmes. En ce moment, il y a beaucoup de lumière dans ce cercle. Ne pouvez-vous pas ressentir cette bénédiction ?
 
 Alors, mes chers amis, je vous encourage à faire du monde votre ashram, votre monastère. Soyez transformés dans l’amour du Père. Soyez une bénédiction pour chacun, partout. Je vous remercie. Je vous envoie tout mon amour et je vous embrasse dans l’amour de Dieu. Que vous soyez tous bénis. Je suis avec vous. Je vous aime tous. Je suis Yogananda.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

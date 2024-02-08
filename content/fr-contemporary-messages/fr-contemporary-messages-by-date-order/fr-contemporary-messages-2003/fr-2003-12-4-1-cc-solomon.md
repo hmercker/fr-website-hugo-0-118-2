@@ -9,9 +9,9 @@ weight:
 ---
 ### Appel à tous les médiums
 
-Salomon - reçu par CC le 4 Décembre 2003, New York, USA.
+Salomon <sup id="a1">[1](#f1)</sup> - reçu par CC le 4 Décembre 2003, New York, USA.
 
-Bonjour CC. C’est moi Salomon. Tu n’as pas besoin de dire que je te manque. J’ai souvent été avec toi. Ne crois-tu pas ce qu’on t’a dit ? Nous t’aimons. Oui, nous sommes tous ici. Nous n’avons pas pu venir te voir parce que tu participes à une étude que nous jugeons importante pour ta croissance. De plus, tu as vécu quelques aventures et ton état ne nous a pas permis de communiquer. Bien que de nombreuses choses, nous avons été en mesure de te faire comprendre au moment opportun. Mais tu dois savoir que tu n’as, à aucun moment, été laissé seul. Je sais que tu aimes notre compagnie et que nous sommes heureux d’être avec toi, même si tu ne t’en rends pas compte parfois.
+Bonjour CC. C’est moi Salomon. Tu n’as pas besoin de dire que je te manque. J’ai souvent été avec toi. Ne crois-tu pas ce que nous t’avons dit ? Nous t’aimons. Oui, nous sommes tous ici. Nous n’avons pas pu venir te voir parce que tu es impliqué dans une étude que nous jugeons importante pour ta croissance. De plus, tu as vécu quelques aventures et ton état ne nous a pas permis de communiquer. Bien que nous ayons pu te faire comprendre beaucoup de choses au moment opportun, il faut que tu saches que tu n'as pas été en mesure de faire ce qu'il fallait. Mais tu dois savoir que tu n’as, à aucun moment, été laissé seul. Je sais que tu aimes notre compagnie et que nous sommes heureux d’être avec toi, même si tu ne t’en rends pas compte parfois.
 
 Maintenant, passons à l’objet de cette communication. Comme tu l’as appris, il y a beaucoup d’esprits dans le monde spirituel qui sont poussés par leur amour à choisir un groupe particulier sur terre pour travailler avec lui, dans le but d’apporter l’harmonie à ton monde avec leur connaissance de la vérité. Il y a des millions de groupes impliqués dans l’aide à l’évolution de votre monde à partir de son état actuel. Ce sont des esprits avides et ont un amour pour l’humanité qui surpasse tout ce que les humains ont connu. Tout comme un groupe varié et diversifié habite la terre, le monde des esprits a un groupe important et varié de croyants et d’esprits de différentes cultures et manières.
 
@@ -127,4 +127,8 @@ Emmène-moi sur ton chemin toujours changeant
 
 Mon âme doit voler
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)
+1. <large id="f1"> Il est possible de lire les divers messages commuiqués par Salomon par l'intermédiaire de [ce lien](fr-contemporary-messages\6-3-fr-contemporary-messages-by-author\6-3-10-fr-historical-figures.md) :[↩](#a1)
+
+### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -24,3 +24,7 @@ Que chacun de vous soit béni, âmes bien-aimées, chacun de vous reçoit un cad
 Soyez un canal d'Amour mes bien-aimés. Marchez dans la grâce. Permettez aux Vérités d'imprégner vos êtres. Permettez à Son Amour de toucher votre cœur.
 
 Que Dieu vous bénisse. Que Dieu vous bénisse. Je suis Jésus et je suis venu vous bénir, car chacun de vous m'est précieux. Chacun de vous est aimé de Dieu. Chacun de vous a un cœur tendre. Que ce cœur soit rempli de joie et de gratitude. Que Dieu vous bénisse et vous garde. Je marche avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

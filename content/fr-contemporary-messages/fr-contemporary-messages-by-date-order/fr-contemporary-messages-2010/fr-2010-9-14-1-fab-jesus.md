@@ -19,4 +19,6 @@ Mais ce n'est pas une hypothèse correcte. À quoi cela sert-il d'obéir aux cou
 
 Certaines personnes ne sont jamais capables de sortir de leur boîte, et je le savais. Et il en est de même à votre époque.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010)
+### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

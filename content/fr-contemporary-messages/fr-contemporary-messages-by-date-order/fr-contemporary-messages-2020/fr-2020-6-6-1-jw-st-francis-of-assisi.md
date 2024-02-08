@@ -18,3 +18,7 @@ Le monde n’était pas sans problèmes, mais nous étions des exemples, pour le
 Vous êtes dans une merveilleuse bulle de protection et lorsque vous appelez, nous venons avec tout l’amour de nos âmes et avec nos intentions d’être une bénédiction pour chacun d’entre vous. Comme Dieu bénit chacun d’entre vous pour votre demande, nous venons pour être un avec vous dans Son amour. N’ayez pas peur, n’ayez pas peur, marchez dans la foi, ayez confiance en Dieu et vous nous rejoindrez dans les royaumes célestes. N’ayez aucun doute, il en sera ainsi.
 
 Que Dieu continue à bénir chacun d’entre vous avec le don glorieux de Son amour. Je suis votre frère et ami en Christ, je suis François et je vous aime.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

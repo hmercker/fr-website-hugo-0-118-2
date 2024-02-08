@@ -26,3 +26,7 @@ Faites-en votre objectif chaque jour : Marcher en harmonie avec la Volonté de D
 Mes amis bien-aimés, puissiez-vous continuer à marcher à la lumière de l’Amour de Dieu. Puissiez-vous continuer à rechercher cette bénédiction avec chaque désir ardent de votre âme et de votre esprit d’être en harmonie avec Dieu dans l’amour et vous trouverez votre chemin, âmes bien-aimées. Tout va s’éclaircir. Tout sera une bénédiction. Tout sera un réveil. C’est la Volonté de Dieu pour vous, mes bien-aimés. C’est la Volonté de Dieu que vous et nous, en esprit, marchions ensemble dans le service pour le bien de l’humanité. C’est en train d’arriver. Cela ne cesse de se construire au fur et à mesure que vous continuez à vous éveiller à cet appel. Tout ira bien, mes bien-aimés. Tout se passera bien. La main de Dieu est sur vous. Ses anges sont proches. Comment les choses peuvent-elles être autres que bonnes et bénéfiques et pour le plus haut étant donné vos intentions pour tout cela.
 
 Âmes bien-aimées, que Dieu vous bénisse et vous garde près de lui. Mon amour est avec vous. Je suis Matthieu. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

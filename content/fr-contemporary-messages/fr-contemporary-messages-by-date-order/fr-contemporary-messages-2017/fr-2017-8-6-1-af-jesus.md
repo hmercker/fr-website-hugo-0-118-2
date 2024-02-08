@@ -18,3 +18,7 @@ Que Dieu vous bénisse, vous les âmes précieuses. Que Sa Lumière, Sa Paix et 
 Bien-aimés, que vos âmes soient ouvertes à l’afflux de cette grande Essence et que vous puissiez sentir le Toucher qui vient avec ce Don et connaître la certitude que vous êtes aimés et que vous êtes un enfant de Dieu, une âme précieuse au-delà, une âme de Lumière.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Jésus et je vous conduirai dans cette sainte Lumière si vous suivez cette simple prière et si vous vous ouvrez à ce que Dieu peut vous donner. Je vous aime, mes bien-aimés, je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -20,4 +20,7 @@ J'ai noté avec amusement certaines des légendes qui ont surgi à mon sujet. Ma
 
 1. <large id="f1"> **Le roi Arthur** est un chef britannique légendaire qui, selon les histoires et romans médiévaux, a pris la tête de la défense de la Grande-Bretagne contre les envahisseurs saxons au début du 6e siècle. Les détails de l'histoire d'Arthur sont principalement composés de folklore et d'inventions littéraires, et son existence historique est débattue et contestée par les historiens modernes. Les rares antécédents historiques d'Arthur sont glanés dans diverses sources. Le nom d'Arthur apparaît également dans des sources poétiques anciennes telles que Y Gododdin. (Source : Wikipedia)[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

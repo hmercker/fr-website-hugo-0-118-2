@@ -9,7 +9,7 @@ weight:
 ---
 ### Cet amour vous aidera à surmonter les obstacles sur votre chemin
 
-Leytergus - reçu le 26 Janvier 1970, Vancouver, Colombie-Britannique, Canada.
+Leytergus<sup id="a1">[1](#f1)</sup> - reçu le 26 Janvier 1970, Vancouver, Colombie-Britannique, Canada.
 
 Mes amis, il est très intéressant pour moi de revenir une fois de plus sur le plan terrestre pour vous rencontrer, vous qui habitez dans la chair. Je viens très rarement sur Terre et je travaille surtout dans les sphères spirituelles, mais il est intéressant pour moi de venir ici et de ressentir à nouveau les conditions de la Terre et de ressentir à nouveau les restrictions du corps physique.
 
@@ -28,10 +28,18 @@ Mes petits enfants, je voudrais vous libérer de ces tensions de la vie et de l'
 Il y a une forte force d'amour avec vous, mais à moins que vous ne soyez en condition de prendre conscience et de recevoir cette force d'amour, c'est comme si elle n'existait pas autour de vous.
 
 Que Dieu vous bénisse mes enfants et que vous puissiez trouver cette porte qui libère vos âmes, que vous puissiez absorber facilement et aisément l'amour de Dieu et que vos corps physiques, vos esprits et vos âmes puissent surmonter ces obstacles de la chair et que vous puissiez connaître la joie et la paix qui est votre héritage légitime et que vous puissiez être un avec Dieu.
+<small>
 
+1. <large id="f1"> Leytergus s'est également exprimé dans les messages suivants :  [↩](#a1)
 
-
-
+**Auteur** | **Titre du message** | **Date du message**  
+--|---|---
+Leytergus | [Cet amour vous aidera à surmonter les obstacles sur votre chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-52-1970-1-26-anonymous-leytergus/) | 26 Janvier 1970
+Leytergus | [Relation entre le mental matériel et le mental de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-11-2-af-leytergus/) | 11 Septembre 2017
+Leytergus | [Les différences entre la Sixième Sphère et les Sphères Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-12-3-af-leytergus/) | 12 Septembre 2017
+Leytergus | [Ce que signifie vraiment la co-création avec Dieu. (Retraite Q&A Gibsons Juillet 2019)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-11-3-af-leytergus/) | 11 Juillet 2019
+Leytergus | [Embrasser la diversité et l’autre dans l’acceptation et l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-23-1-af-leytergus/) | 23 Juillet 2020
+Leytergus | [Prier avec intention](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-2-23-1-af-leytergus/) | 23 Février 2021
 
 ### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
 

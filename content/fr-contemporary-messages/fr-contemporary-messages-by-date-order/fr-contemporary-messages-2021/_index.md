@@ -187,7 +187,7 @@ Marie | [Soyez l’ami affectueux de l’autre](/fr-contemporary-messages/fr-con
 Seretta Kem | [Démarrage et engagement des anges](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-5-2-af-seretta-kem/) | 5 Juin 2021
 Judas | [Représentations du monde des esprits au cinéma](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-7-1-jw-judas/) | 7 Juin 2021
 St François d'Assise | [L'amour va changer le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-7-2-jw-st-francis-of-assisi/) | 7 Juin 2021
-Lao Tzu | [La voie Divine est différente de la voie naturelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-8-1-af-lao-tzu/) | 8 Juin 2021
+Lao Tseu | [La voie Divine est différente de la voie naturelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-8-1-af-lao-tzu/) | 8 Juin 2021
 Care Derby Walsh | [Chaque âme est unique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-8-2-jw-care-derby-walsh/) | 8 Juin 2021
 Seretta Kem | [Les efforts des anges pour apporter la vérité sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-9-1-af-seretta-kem/) | 9 Juin 2021
 James Padgett | [Comprendre Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-10-1-jw-james-padgett/) | 10 Juin 2021
@@ -408,8 +408,6 @@ Orion | [Deux pas en avant, un pas en arrière (2021 Gardiens de la Lumière)](/
 Jésus | [Une bénédiction profonde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-28-2-af-jesus/) | 28 Décembre 2021
 Jude, le frère de Jésus | [Chaque voyage commence par un premier pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-30-1-jw-jesus-brother-jude/) | 30 Décembre 2021
 
-[Lien vers les messages de l’année 2022](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
-<br>
-<br>
-[Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

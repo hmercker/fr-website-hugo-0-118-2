@@ -34,3 +34,7 @@ Ainsi, Dieu vous a rassemblés une fois de plus pour le servir d’une manière 
 C’est un test pour votre foi. C’est l’opportunité de grandir dans l’amour. C’est beaucoup de choses. Mais par essence, ce n’est pas une chose de l’homme mais une chose de Dieu. Vous devez donc chercher à servir le plus haut possible, le plus grand bien pour tous et ne pas mettre votre empreinte, votre jugement sur les plans de Dieu, mais être humble et accepter ce qui est présenté devant vous. Dieu offre toujours un festin spirituel devant vous, mes bien-aimés, où vous pouvez en effet trouver une profonde reconstitution, de profondes guérisons et des connaissances, et des occasions de servir dans l’amour.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis avec vous. Nous travaillons ensemble au service de Dieu. Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

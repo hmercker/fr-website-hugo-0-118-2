@@ -25,7 +25,6 @@ C'est uniquement entre chaque âme individuelle et l'Âme de Dieu qui permet à 
 
 Il y a donc de l'espoir pour l'âme perdue. Il y a un moyen pour une personne de trouver son chemin hors des ténèbres et du désespoir et c'est par des prières sincères à Dieu pour Son Aide et Son Amour par des désirs prolongés de connaître la vérité et comment trouver le chemin du Salut de l'âme. L'Amour Divin est la disposition du Père pour sauver les âmes de ses enfants. Un enfant doit avoir la foi en l'Amour et en l'attention du Père à son égard. Sans cette foi nécessaire, il serait presque impossible pour un enfant de se tourner vers le Père dans la prière. Ainsi, la foi et la prière de la part de l'enfant apporteront la Grâce salvatrice - l'Amour Divin de Dieu - dans l'âme de cet enfant comme je l'ai expliqué dans les messages délivrés par James Padgett et comme je l'explique maintenant, et comme je continuerai à l'expliquer dans le futur aussi longtemps que les portes des Cieux Célestes seront ouvertes et que l'invitation au festin des noces pourra être acceptée par les enfants de Dieu partout dans le monde. Je suis votre ami et frère en Christ, Jésus de la Bible et Maître des Cieux Célestes.
 
-[###**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
-<br>
-<br>
-[###**Lien vers la liste des messages contemporains classées par année**]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+### [**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

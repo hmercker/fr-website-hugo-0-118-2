@@ -30,3 +30,7 @@ Dans cette invitation vient l’ouverture d’une porte, le déverrouillage de v
 Que Dieu vous bénisse, mes chers amis. Je suis Augustin et je suis heureux d’être avec vous en ce jour.
 
 Que Dieu vous bénisse. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

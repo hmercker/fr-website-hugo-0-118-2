@@ -69,4 +69,6 @@ Il est habituel de se concentrer sur les zélotes Juifs, qui voulaient chasser l
 
 J'ai montré que ce que je représentais était connu et partagé par mes contemporains juifs. Mais ce qu'ils ne savaient pas, c'est que l'Amour de Dieu avait été répandu dans mon âme et que, par conséquent, le souci minutieux et exquis de mes contemporains de vivre correctement s'était accompli dans mon âme, qui avait connu la Nouvelle Naissance.
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006)
+### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

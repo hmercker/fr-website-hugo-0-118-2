@@ -29,9 +29,22 @@ Je sais que tout cela peut paraître un peu confus au début, mais lorsque vous 
 
 Je vais m’arrêter ici pour le moment et j’espère que vous trouverez de l’intérêt dans ce que je vous ai donné. Garde l’esprit ouvert afin que nous puissions déverser nos connaissances dans votre conscience, mon cher ami.
 
-Au revoir, votre ami et aide, Sri Yukteswar.
+Au revoir, votre ami et aide, Sri Yukteswar.<sup id="2">[2](#f2)</sup>
 <small>
 
 1. <large id="f1"> Un avatar, dans la religion Hindoue, est une incarnation de Vishnou.[↩](#a1)
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014)
+2. <large id="f2"> Sri Yukteswar s'est également exprimé dans les messages suivants : [↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Sri Yukteswar | [Le gourou Hindou Sri Yukteswar parle de l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-30-2-fab-sri-yarisupta/) | 30 Janvier 2014
+Sri Yukteswar | [Réponses aux questions sur la guérison par l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-26-3-af-sri-yarisupta/) | 26 Janvier 2019
+Sri Yarisupta | [Qu’y a-t-il dans un nom ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-27-4-af-sri-yarisupta/) | 27 Janvier 2019
+Sri Yukteswar | [La dualité de l'âme et de l'esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-4-9-2-af-sri-yukteswar/) | 9 Avril 2019
+Sri Yukteswar | [Sri Yukteswar honors Yogananda](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-18-1-jw-sri-yukteswar/) | 18 Septembre 2020
+Sri Yukteswar | [L'instrumentalité de Lorraine se manifeste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-15-2-af-sri-yuktesar/) | 15 Octobre 2022
+
+### [**Lien vers les messages des années 2014**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-20143/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

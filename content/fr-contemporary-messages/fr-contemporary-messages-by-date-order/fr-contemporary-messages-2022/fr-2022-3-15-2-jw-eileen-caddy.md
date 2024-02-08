@@ -18,3 +18,7 @@ Du côté spirituel des choses, j’ai été guidée et instruite pour construir
 Ce sont les humains qui font naître les portails de lumière. Car Dieu répond aux intentions de l’âme de recevoir la lumière, la protection, la guidance et surtout l’Amour. Et comme le dit Judas, si vous en faites votre priorité en citant les mots des Maîtres « cherchez d’abord le royaume », votre vision sera actualisée et d’autres viendront vous aider. Cela peut être ou non le travail que vous avez choisi, mais je ne parle pas seulement à ce petit groupe, mais à la communauté, la Communauté de l’Amour Divin, dans le monde entier. Cultivez votre jardin, créez votre fondation dans la foi et la prière et le miraculeux se manifestera, et le monde sera béni.
 
 J’encourage donc tout le monde à avancer dans la foi, à explorer et à réaliser les désirs de leur cœur et les aspirations de leur âme à grandir et à changer dans l’Amour de Dieu. Je vous dis cela à partir de mon expérience, pour que ce soit la vôtre, pour que nous grandissions tous ensemble. C’est toujours un plaisir de venir vous parler et je vous remercie de me permettre de partager. Avec tout mon amour et mes bénédictions, je suis votre sœur en Christ, je suis Eileen Caddy.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

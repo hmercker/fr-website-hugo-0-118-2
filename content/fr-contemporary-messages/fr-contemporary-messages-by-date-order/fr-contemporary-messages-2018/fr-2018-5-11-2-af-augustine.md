@@ -28,3 +28,7 @@ Continuez à avoir une grande foi. Marchez avec courage et force. Cherchez l’A
 Beaucoup de choses vous attendent, comme vous le savez bien. Dieu continue à vous bénir chaque jour, mes beaux et bien-aimés étudiants qui cherchent en effet le plus grand bien, le plus grand bien, à rechercher le bien-être de ce monde afin qu’il puisse être guéri. Dieu vous embrasse, mes bien-aimés. Dieu est avec vous. Soyez avec Dieu de toutes les manières. Ressentez l’Amour de Dieu dans chaque partie de votre corps. Permettez à sa grande influence et à ses pouvoirs de guérison de vous toucher tous.
 
 Que Dieu vous bénisse. Je suis votre enseignant Augustin et mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

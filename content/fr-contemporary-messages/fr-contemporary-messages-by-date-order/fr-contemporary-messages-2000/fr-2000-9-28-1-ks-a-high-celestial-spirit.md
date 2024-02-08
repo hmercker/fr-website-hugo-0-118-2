@@ -45,5 +45,8 @@ J’espère que vous pourrez trouver dans ce message une réponse satisfaisante 
 
 C’est à vous, chaque âme individuelle, de développer une relation significative avec Dieu et de vous amener dans le domaine de la vérité spirituelle, où vous vous réjouirez dans la plénitude et l’amour. Je vous laisse avec mes bénédictions. Je suis un esprit Céleste élevé.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000)
+
+### [**Lien vers les messages des années 2000**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

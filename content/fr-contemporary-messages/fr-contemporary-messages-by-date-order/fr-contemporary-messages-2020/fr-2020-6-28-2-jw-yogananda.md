@@ -18,3 +18,7 @@ Lorsque vous entendez un message, ou que vous lisez un message ou un livre, ou q
 Mais, simplement dit, les vibrations glorieuses de l’Amour de Dieu provoquent la progression de l’âme, la transformation du cœur, et lorsque vous ressentirez cette joie miraculeuse, lorsque vous permettrez au Créateur de vous accorder cet Amour, vous ne vous demanderez pas si c’est vrai.
 
 Que la bénédiction de l’Amour de Dieu dans ce cercle de lumière soit sur vous tous afin que nous puissions être Un, car ce sont les désirs les plus profonds de nos âmes. Avec tout mon amour et mes bénédictions dans la grâce de Dieu, je suis votre frère et ami, Yogananda. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -18,3 +18,7 @@ Sur le sujet du service, je vous dis que de tout ce que mon Findhorn est devenu,
 Je suis ici parce que vous pouvez apporter votre pratique, votre vie de prière, vos âmes en transition et la lumière que vous y portez comme je l’ai déjà dit, pour recharger Findhorn. Oui, il y a des obstacles à franchir comme vous pouvez le voir et mon ami ici présent est assez sidéré par tout cela, mais comme il cherche la clarté comme vous le faites tous, vous la trouverez et la proposition ira de l’avant, et elle sera belle. Si l’un d’entre vous a du mal à s’exprimer, appelez-moi et je viendrai vous guider.
 
 Comme toujours, je vous donne mon amour, mes bénédictions et ma gratitude pour cet effort de vos cœurs qui m’a touché. Je vous aime tous. Que Dieu vous bénisse. Je suis Eileen.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

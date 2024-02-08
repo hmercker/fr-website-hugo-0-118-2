@@ -40,3 +40,7 @@ Puissiez-vous marcher sur le chemin que Dieu vous a destiné, que vous puissiez 
 Vous êtes en train d'être incubés dans ce lieu et vous êtes transformés par l'Amour. Absorbez tout, âmes bien-aimées, car tout ce qui est requis est donné. Permettez à cela de venir en vous. Pendant que tout ce qui vous arrive est accepté, il peut venir en vous un sens profond de gratitude et de joie pour ce que Dieu donne et pour ce que vous acceptez dans ce cadeau, dans ce Toucher. Tout s'écoule vers vous, âmes bien-aimées. Tout s'écoule, sans fin, sans fin.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Jésus. Je suis venu pour vous bénir, mes frères et sœurs bien-aimés qui travaillent sur ce chemin et qui sont mes disciples. Que votre travail continue à se déployer dans une telle harmonie et une telle beauté que la puissance du Toucher de Dieu puisse vous pousser en avant et vous apporter une grande joie alors que vous vous éveillez à l'appel que Dieu a lancé. Que Dieu vous bénisse, que Dieu vous bénisse, âmes bien-aimées. Je suis Jésus et je vous aime. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

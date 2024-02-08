@@ -32,3 +32,8 @@ C’est une bénédiction de pouvoir parler et vous faire connaître mon rôle d
 En terminant ici, je veux que vous sachiez que notre plan dans ce cercle est d’amener en chacun de vous des fréquences d’énergies plus élevées afin que vous soyez capables de faire face à la puissance de l’amour et de la lumière qui désirent s’exprimer à travers vous. Nous vous préparons à la belle mission qui vous attend. Que chacun d’entre vous ressente la bénédiction, le cadeau de cette rose que je partage avec vous de mon cœur et de mon amour au vôtre.
 
 Que Dieu vous bénisse. Je suis Anna. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

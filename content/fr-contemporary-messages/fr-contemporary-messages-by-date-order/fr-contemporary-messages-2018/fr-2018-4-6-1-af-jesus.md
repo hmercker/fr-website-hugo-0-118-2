@@ -16,3 +16,7 @@ Que Dieu vous bénisse, mes chers amis. Dieu crée des sanctuaires de Lumière d
 Que Dieu vous bénisse. Je suis Jésus et je vous bénis dans vos efforts, dans les aspirations de vos âmes à faire ces œuvres que Dieu a mises en vous pour s’exprimer dans ce monde. Beaucoup de choses vont venir et je serai toujours avec vous, mes bien-aimés. Continuez à prier sur votre beau petit sanctuaire. Que Dieu vous bénisse. Je suis avec vous dans l’Amour. Je vous porterai dans la Lumière. Continuez dans vos prières et vos efforts, dans vos désirs de réaliser ce qui doit être réalisé. C’est un test de votre foi et de la force de votre âme, et de l’Amour que vous portez. Ne reculez pas, mais avancez et portez tous ceux que vous pouvez dans la Lumière, la vérité et la beauté des bénédictions de Dieu sur ce lieu.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis avec vous. Je suis votre frère et votre ami. Je suis Jésus.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

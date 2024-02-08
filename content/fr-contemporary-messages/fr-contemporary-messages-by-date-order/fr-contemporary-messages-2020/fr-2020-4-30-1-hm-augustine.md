@@ -25,3 +25,7 @@ Je suis Jacques et je souhaite ajouter ma salutation d’Amour et nous prions av
 <small>
 
 1. <large id=”f1”> « soul-being » dans le texte originel.[↩](#a1)
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

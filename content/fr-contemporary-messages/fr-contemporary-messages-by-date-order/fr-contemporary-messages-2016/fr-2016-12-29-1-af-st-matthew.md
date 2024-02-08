@@ -32,3 +32,7 @@ Que Dieu vous bénisse dans votre voyage, mes âmes bien-aimées, et vous amène
 Il est temps de franchir ce seuil vers une nouvelle façon d’être, vers une nouvelle vie née dans la lumière et la vérité, l’amour et la joie. cela n’attend que vous, que votre choix, vos efforts, vos prières, votre volonté de laisser tomber les vieilles méthodes dépassées et d’adopter les voies de Dieu dans tous les aspects de votre vie.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis Matthieu et je vous aime. Je reviendrai et je parlerai lorsque le moment sera venu. Que Dieu vous bénisse, mes bien-aimés, belles âmes. Vous portez tant de lumière. Que Dieu vous bénisse. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -23,4 +23,9 @@ Il y a tant de choses à transmettre à l’humanité, tant d’ignorance dans l
 
 Ainsi, j’ai connu les deux cieux et j’ai choisi ainsi. J’en suis venu à connaître l’unification avec Dieu dans une certaine mesure en réalisant que la joie et la félicité, l’émerveillement et le pouvoir de l’Amour continueront à augmenter pour toute l’éternité. La récompense que j’ai récoltée avec mes efforts et mes prières a été grande et je souhaite partager ce que je sais et ce qui est la Vérité, les connaissances de mon âme. Vous, mes frères bien-aimés, m’aiderez à le faire, et je sais que vous êtes impatients de le faire. Nous travaillons tous ensemble dans cette œuvre sacrée pour apporter la lumière à ce monde et pour apporter la lumière aux nombreux esprits qui sont dans l’obscurité et la grisaille des sphères inférieures. Il est possible d’atteindre plusieurs millions de personnes, mes amis, étant donné votre engagement et vos efforts pour suivre la volonté de Dieu. C’est possible. Ayez la foi que le plan de Dieu est extraordinaire et vaste dans sa portée et que vous pouvez en faire partie, pour travailler avec beaucoup de gens à la réalisation du désir de Dieu d’apporter la Lumière, la Paix et l’Amour à votre monde.
 
-Merci de m’avoir écouté, mes amis. Je suis Yogananda. Je continue à enseigner et à être le serviteur de Dieu. Nous allons poursuivre notre travail ensemble et être dans le flux de l’amour et de la volonté de Dieu. Que Dieu vous bénisse. Que Dieu vous bénisse, mes amis. Mon amour est avec vous. Que Dieu vous bénisse
+Merci de m’avoir écouté, mes amis. Je suis Yogananda. Je continue à enseigner et à être le serviteur de Dieu. Nous allons poursuivre notre travail ensemble et être dans le flux de l’amour et de la volonté de Dieu. Que Dieu vous bénisse. Que Dieu vous bénisse, mes amis. Mon amour est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+

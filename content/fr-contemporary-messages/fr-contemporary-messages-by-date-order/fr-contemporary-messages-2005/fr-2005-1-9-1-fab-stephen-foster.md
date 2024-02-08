@@ -11,7 +11,7 @@ weight:
 
 Stephen Foster - reçu par FAB le 9 Janvier 2005, Santa Cruz, Californie, USA.
 
-Je suis là, Stephen Foster.
+Je suis là, Stephen Foster. <sup id="a1">[1](#f1)</sup>
 
 Je suis le premier auteur-compositeur professionnel d'Amérique. Je voulais vous écrire depuis un certain temps déjà, et j'ai pensé que ce soir était approprié.
 
@@ -32,7 +32,10 @@ Le mot « aspiration » donne un sens à ma vie sur terre. Il y avait ce qu'on p
 Je vais m'arrêter là. Merci de m'avoir permis de partager mes pensées avec vous.
 
 Affectueusement, Stephen Foster.
+<small>
 
-**Stephen Foster** (4 Juillet 1826 – 13 Janvier 1864), considéré comme le « père de la musique américaine », fut un auteur de chansons influent aux États-Unis durant le XIXe siècle. Ses chansons, tel que Oh! Susanna, Camptown Races, My Old Kentucky Home, Old Black Joe, Beautiful Dreamer et Old Folks at Home (Swanee River) demeurent populaires même longtemps après leur composition.
+1. <large id="f1"> **Stephen Foster** (4 Juillet 1826 – 13 Janvier 1864), considéré comme le « père de la musique américaine », fut un auteur de chansons influent aux États-Unis durant le XIXe siècle. Ses chansons, tel que Oh! Susanna, Camptown Races, My Old Kentucky Home, Old Black Joe, Beautiful Dreamer et Old Folks at Home (Swanee River) demeurent populaires même longtemps après leur composition.[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005)
+### [**Lien vers les messages des années 2005**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

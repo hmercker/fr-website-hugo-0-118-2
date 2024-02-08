@@ -28,3 +28,7 @@ Il est demandé à chacun d’entre vous d’atteindre un certain niveau de matu
 Vous êtes tous des âmes magnifiques et glorieuses créées par notre Créateur aimant. C’est un cadeau pour nous en esprit de vous aider et nous vous invitons à demander, demander notre présence. Garder vos pensées élevées, sur Dieu est aussi ce qui nous attire. Lorsque vous priez, que ce soit seul ou en cercle, lorsque vous priez pour l’Amour Divin, vous attirez les anges Célestes et nous sommes là pour vous servir. Donc, mes bien-aimés, s’il vous plaît, marchez avec l’intention de garder la condition de votre esprit brillante, propre et illuminée.
 
 Je vous remercie de me permettre de venir partager cet aspect important, le développement de vos dons. Mon nom est Faith. Je réside dans le Royaume Céleste et je suis ici pour vous servir. Que Dieu vous bénisse. Je vous aime.
+
+### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -9,7 +9,7 @@ weight:
 ---
 ### Vivez dans la grâce en dehors de vos cases
 
-Yogaanda - reçu par Jimbeau Walsh le 31 Juillet 2023, Nashville, TN, USA.
+Yogananda - reçu par Jimbeau Walsh le 31 Juillet 2023, Nashville, TN, USA.
 
 C’est moi, Yogananda. Je souhaite transmettre quelques réflexions sur une plus grande conscience. Lorsque vous sentez la présence de Dieu, de Son grand Amour et que vous Lui permettez d’imprégner votre être, de bénir votre âme, vous vous trouvez au-dessus de la préoccupation, au-delà de l’inquiétude. Car vous avez laissé disparaître vos peurs et toutes les perturbations que votre esprit peut vous apporter et qui peuvent avoir un effet délétère sur votre corps. Alors, restez avec moi. Laissez votre âme avancer. Reposez votre esprit. Reposez-vous en Dieu.
 
@@ -18,3 +18,7 @@ C’est une chose très humaine de vouloir une protection, d’organiser sa vie 
 Laissez votre âme être touchée par Dieu, là où l’esprit de l’âme est en ascendance. Mes bien-aimés, vivez dans la grâce. Abandonnez tout le reste si vous souhaitez vraiment être dans la béatitude, être libre et ne faire qu’un avec Dieu.
 
 Nous vous aimons profondément pour toujours et au-delà. Puisse l’amour de Dieu remplir chacun de vous alors que vous lâchez prise et permettez-lui de venir dans cette grande bénédiction. Je suis votre frère en Christ et ami éternel. Je suis Yogananda.
+
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

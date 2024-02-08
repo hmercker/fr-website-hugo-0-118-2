@@ -16,3 +16,7 @@ Je suis ici votre frère et ami Yogananda. C’est un plaisir d’être en cette
 Je tiens à vous dire que cet Amour Divin, cette ouverture du cœur apporte une réponse de notre Créateur aimant pour remplir l’âme d’Amour pour chacun qui le demande. Cet Amour transforme l’âme de l’image du Créateur à la substance même que vous pouvez être un avec Dieu. C’est le Grand Don à découvrir pour tous, et mes chers amis, certains d’entre vous qui ont cherché pendant si longtemps, d’autres nouveaux, c’est mon souhait pour vous et pour nous tous ici dans le Royaume Céleste, de voir cette transformation dans l’Amour, l’Amour de Dieu.
 
 Que ce jour apporte un chant dans votre cœur, une guérison dans votre âme, dans votre corps, dans votre mental. Que vous soyez tous élevés dans l’Amour de Dieu et dans la Lumière de la Grâce. Je vous aime tous et chacun d’entre vous. Nous vous embrassons tous dans l’Amour de Dieu. Je suis votre ami et frère, Yogananda.
+
+### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

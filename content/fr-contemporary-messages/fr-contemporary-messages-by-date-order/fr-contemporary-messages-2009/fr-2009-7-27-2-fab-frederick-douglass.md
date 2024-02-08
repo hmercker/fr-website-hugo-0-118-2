@@ -20,4 +20,6 @@ Oh, l'accomplissement ! Quel Dieu aimant nous avons ! Je ne peux que chanter ma 
 
 1. <large id="f1"> **Frederick Douglass** né Frederick Augustus Washington Bailey (né vers 1818 - 20 Février 1895) était un abolitionniste, suffragette des femmes, éditeur, orateur, auteur, homme d'État et réformateur américain. Surnommé « Le Sage d'Anacostia » et « Le Lion d'Anacostia », Douglass est l'une des figures les plus marquantes de l'histoire afro-américaine et des États-Unis. Il croyait fermement à l'égalité de toutes les personnes, qu'elles soient noires, femmes, Amérindiennes ou immigrantes récentes. Il aimait dire : *« Je m'unirais à n'importe qui pour faire le bien et à personne pour faire le mal. »* (Source : Wikipedia)[↩](#a1)
 
-[Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

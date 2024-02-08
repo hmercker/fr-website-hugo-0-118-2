@@ -34,3 +34,8 @@ Si peu de gens souhaitent travailler dans ces domaines, mettre leurs efforts en 
 Cherchez le Royaume, comme l’a dit notre frère Jésus, et toutes les réalités viendront. Soyez dans la Grâce de Dieu et toutes les réalités deviendront faciles et couleront à flots. Cherchez à vous aimer et cela renforcera tous vos dons, toute la vérité en vous. Cherchez à aimer Dieu et vous serez dans la béatitude de Son Amour.
 
 Que Dieu vous bénisse, mes amis. Je suis en effet Yogananda, votre frère, votre ami, votre serviteur, celui qui aime Dieu. Je suis avec vous dans vos luttes. Je m’efforcerai de vous aider et de vous enseigner. Que Dieu vous bénisse, mes amis, belles âmes, frères et sœurs, tous dans ce grand voyage. Mon amour est avec vous. Ma joie est avec vous. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
