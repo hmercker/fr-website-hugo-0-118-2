@@ -22,7 +22,7 @@ Je viens avec un message de Pâques, à savoir que JE NE SUIS PAS MORT EN VAIN. 
 ---|---|---
 Martin Luther King jr | [La Terre Promise](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-12-1-fab-martin-luther-king-jr/) | 12 Janvier 2007
 Martin Luther King jr | [Le Dr King réaffirme la non-violence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-20-1-fab-martin-luther-king-jr/) | 20 Janvier 2008
-Martin Luther King | [L'avenir s'annonce radieux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-15-1-af-martin-luther-king/) | 15 Décembre 2017
+Martin Luther King jr| [L'avenir s'annonce radieux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-15-1-af-martin-luther-king/) | 15 Décembre 2017
 Martin Luther King jr | [Gardez les yeux sur le prix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-17-2-jw-martin-luther-king-jr/) | 17 Août 2021
 
 ### [**Lien vers les messages des années 2010**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/)

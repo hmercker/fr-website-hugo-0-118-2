@@ -26,6 +26,9 @@ Et je n'ai pas été déçu. Et - votre intuition est correcte - je me suis retr
 De nombreux esclaves n'ont pas eu la même chance que moi et ont succombé à la haine, voire l'ont entretenue. J'ai découvert que l'une de mes tâches ici était de les aider à voir que leur haine ne faisait qu'entraver leur progrès. J'ai parfois réussi, d'autres fois non. Mais il est tout à fait clair que la loi des semailles et de la récolte est exacte, et que personne ne peut échapper à ses dures exigences.
 
 Je vous remercie de la bienveillance dont vous faites preuve en acceptant ce message. Je sens que mon expérience terrestre est instructive dans le déroulement du beau Plan de Dieu pour l'Amérique et le monde.
+<small>
+
+1. <large id="f1"> Old Joe a complété son message  [quelques jours plus tard](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-19-1-fab-old-joe/)
 
 ### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
 

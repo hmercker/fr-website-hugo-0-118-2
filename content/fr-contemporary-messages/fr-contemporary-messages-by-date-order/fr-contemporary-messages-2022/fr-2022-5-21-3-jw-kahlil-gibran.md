@@ -19,7 +19,7 @@ Le désir de votre cœur devient le parfum de l’amour éternel.
 1. <large id="f1"> Kahlil Gibran s'est également exprimée dans les messages suivants :  [↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**  
---|---|---
+---|---|---
 Kahlil Gibran | [Poésie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-3-19-1-ar-kahlil-gibran/) | 19 Mars 1999
 Kahlil Gibran | [Le cœur spirituel reçoit sa vie de la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-27-3-jw-kahlil-gibran/) | 27 Avril 2020
 Kahlil Gibran | [Chaque fois que vous touchez une autre âme, c’est le cadeau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-3-1-jw-kahlil-gibran/) | 3 Mai 2020

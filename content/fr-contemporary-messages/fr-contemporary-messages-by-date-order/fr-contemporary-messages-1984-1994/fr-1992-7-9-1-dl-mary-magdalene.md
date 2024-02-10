@@ -42,7 +42,7 @@ Votre sœur dans le Christ, Marie, autrefois enfant déchue mais jouissant maint
 2. <large id="f2"> Marie-Madeleine s'est également exprimé lors des messages suivants [↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**  
---|---|---
+---|---|---
 Marie Madeleine | [L'Amour de Dieu au sein de vos âmes émane de vous et apporte aux autres la lumière et la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-53-1970-1-28-anonymous-mary-magdalene/) | 28 Janvier 1970
 Marie Madeleine | [Différences entre les sexes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-19-2-ar-mary-magdalene/) | 19 Août 2001
 Marie Madeleine | [Le visage de l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-4-2-ar-mary-magdalene/) | 4 Novembre 2001

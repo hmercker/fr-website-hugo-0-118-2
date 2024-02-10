@@ -40,6 +40,14 @@ Dieu vous bénisse, mes amis, je suis très heureux de pouvoir vous parler et j�
 
 1. <large id="f1"> C’est notre très cher ami James Reid, récemment décédé, récepteur et éditeur des Messages Richard.[↩](#a1)
 
+2. <large id="f1"> James Reid s'est également exprimé lors des messages suivants :
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+James Reid | [Nous travaillons ensemble au service de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-15-2-af-james-reid/) | 15 Novembre 2018
+James Reid | [Entrerai bientôt dans les Cieux Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-24-1-af-james-reid/) | 24 Juin 2021
+
+
 ### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

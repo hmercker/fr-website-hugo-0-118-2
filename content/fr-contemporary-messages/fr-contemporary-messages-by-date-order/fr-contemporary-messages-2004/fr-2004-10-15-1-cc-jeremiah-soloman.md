@@ -38,7 +38,7 @@ Nous vous aimons et sommes toujours avec vous, chers enfants. Nous prions pour q
 Nous sommes vos gardiens, Jéremie et Salomon.
 <small>
 
-1. <large id="f1"> Il est possible de lire les divers messages commuiqués par Jérémie et Salomon par l'intermédiaire de [ce lien](fr-contemporary-messages\6-3-fr-contemporary-messages-by-author\6-3-10-fr-historical-figures.md) :[↩](#a1)
+1. <large id="f1"> Il est possible de lire les divers messages commuiqués par Jérémie et Salomon par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-10-fr-religious-figures/) :[↩](#a1)
 
 ### [**Lien vers les messages des années 2004**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/)
 

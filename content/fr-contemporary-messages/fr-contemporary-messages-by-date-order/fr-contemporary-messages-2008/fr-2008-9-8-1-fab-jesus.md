@@ -13,7 +13,7 @@ Jésus - reçu par FAB le 8 Septembre 2008, Santa Cruz, Californie, USA.
 
 C’est moi, Jésus.
 
-Je voulais transmettre ce message depuis longtemps, mais ta peur t’en a empêché. Maintenant que la peur t’a quitté, je peux commencer. Je souhaite discuter de l’existence des Cieux Célestes. Vous avez été curieux de ce sujet depuis le début, et maintenant, je vais satisfaire votre curiosité.
+Je voulais transmettre ce message depuis longtemps, mais votre vous a en empêché. Maintenant que la peur t’a quitté, je peux commencer. Je souhaite discuter de l’existence des Cieux Célestes. Vous avez été curieux de ce sujet depuis le début, et maintenant, je vais satisfaire votre curiosité.
 
 Vous vous êtes demandé comment les Cieux Célestes ont commencé et comment ils sont apparus, si le privilège de recevoir l’Amour Divin n’existait pas jusqu’à ce qu’il soit rétabli avec ma naissance.
 

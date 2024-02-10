@@ -9,7 +9,7 @@ weight:
 ---
 ### Guérison
 
-Swift Bear - reçu par Alfredo le 17 Juillet 2001, Séville, Espagne.
+Ourson Véloce - reçu par Alfredo le 17 Juillet 2001, Séville, Espagne.
 
 Je suis ici, mon cher frère, ton guide spirituel, qui t’accompagne à chaque instant, pour guider tes pas vers ton progrès.
 
@@ -25,7 +25,17 @@ Je vous demande, à vous les guérisseurs, d’appliquer, s’il vous plaît, to
 
 Ne désespérez pas de votre zèle, et vous réussirez, et vous serez rempli d’un bonheur que vous ne pouvez comparer à rien. Que Dieu bénisse tous vos efforts.
 
-De votre frère, Swift Bear.
+De vton frère, Ourson Véloce.<sup id="a1">[1](#f1)</sup>
+<small>
+
+1. <large id="f1"> Ourson véloce s'est exprimé dans les messages suivants : [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Ourson Véloce  | [Pourquoi les gens accusent-ils Dieu du mal dans ce monde ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-9-8-2-Alfredo-swift-bear/) | 8 Septembre 2000
+Ourson Véloce  | [Au fond de mon cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-9-23-1-Alfredo-swift-bear/) | 23 Septembre 2000
+Ourson Véloce  | [Notre développement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-11-2-1-Alfredo-swift-bear/) | 2 Novembre 2000
+Ourson Véloce  | [Votre relation avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-11-12-1-Alfredo-swift-bear/) | 12 Novembre 2000
 
 ### [**Lien vers les messages des années 2001**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/)
 

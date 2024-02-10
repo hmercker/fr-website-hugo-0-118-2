@@ -15,6 +15,7 @@ Je suis la mère de David. Je souhaite moi aussi confirmer la vérité, et je su
 
 Que Dieu vous bénisse et vous garde dans l’amour. Je suis Grace, une enfant de la vérité, une enfant de Dieu. Que Dieu vous bénisse.
 
+
 ### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

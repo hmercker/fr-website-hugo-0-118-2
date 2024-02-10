@@ -22,6 +22,14 @@ Le monde a besoin de visionnaires, de mystiques, de personnes qui voient au-del�
 Vous vous demandez comment je peux encore me préoccuper de l'Amérique si je suis un esprit avancé. Eh bien, la vérité n'est pas tout à fait aussi noire et blanche. Ma progression ici n'a pas été très rapide, comme l'a été celle de Marcel Proust. J'ai très tôt décidé que je voulais prendre mon temps. En outre, j'avais de nombreux problèmes à régler, dont certains me rendaient malheureux. Bien sûr, je n'étais pas essentiellement une âme pécheresse sur Terre, et pourtant certaines préoccupations m'ont vraiment fait lutter de ce côté-ci de la vie.
 
 Mais ces luttes ont été accompagnées de ma vision mystique, qui m'a suivi ici. Et maintenant que j'ai réussi à affronter et à surmonter la plupart de ces problèmes, ma vision a été libérée pour me guider dans le plan de Dieu pour ma vie. J'ai toujours su que cette vision poétique était un don du Seigneur. Mais ici, les aspirations que cette vision suscite ont été des réalités. C'est comme « Leaves of Grass (Brins d'Herbe)» en stéréo magnifique et amplifié. Ma vie personnelle intérieure a fusionné avec cette vision, de sorte que je suis maintenant beaucoup plus proche de l'amant extatique de ma poésie terrestre. C'est-à-dire qu'il y a moins d'entraves de toutes sortes.
+<small>
+
+1. <large id="f1"> Walt Whitman s'est également expimé par l'intermédiaire des messages suivants :[↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Walt Whitman | [Le mysticisme et les expériences personnelles en esprit de Walt Whitman](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-1-5-1-fab-walt-whitman/) | 5 Janvier 2005
+Walt Whitman | [La personnalité de Whitman en tant que poète et personne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-28-1-fab-walt-whitman/) | 28 Avril 2008
 
 ### [**Lien vers les messages des années 2005**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/)
 

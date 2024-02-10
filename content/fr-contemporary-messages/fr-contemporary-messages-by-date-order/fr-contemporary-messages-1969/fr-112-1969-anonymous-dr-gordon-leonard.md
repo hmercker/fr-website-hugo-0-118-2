@@ -25,7 +25,7 @@ Je viens à vous comme un ami. Je viens à vous en tant que guérisseur et je vo
 1. <large id="f1"> Dr Gordon Leonard s'est également exprimé dans les messages suivants :  [↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**  
---|---|---
+---|---|---
 Dr Gordon Leonard | [Comment rester en bonne santé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-92-1970-anonymous-dr-gordon-leonard/) |   1970
 Dr Gordon Leonard  | [Le pouvoir de la foi pour guérir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-26-2-af-dr-gordon-leonard/) | 26 Décembre 2021
 

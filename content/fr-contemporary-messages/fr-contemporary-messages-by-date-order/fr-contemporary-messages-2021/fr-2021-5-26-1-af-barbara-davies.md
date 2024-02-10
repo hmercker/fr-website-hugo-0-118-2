@@ -11,7 +11,7 @@ weight:
 
 Barbara Davies - reçu par Al Fike le 26 Mai 2021, Gibsons, Colombie-Britannique, Canada.
 
-Que Dieu vous bénisse, belles âmes. Je suis Barbara et je suis avec mes amis bien-aimés depuis ce soir. Je tiens à féliciter ma chère Terry pour ses efforts dans la cuisine. Elle a appris quelque chose et a déployé ses efforts avec amour. Comme je suis heureuse de voir mes chers et beaux amis réunis.
+Que Dieu vous bénisse, belles âmes. Je suis Barbara<sup id="a1">[1](#f1)</sup> et je suis avec mes amis bien-aimés depuis ce soir. Je tiens à féliciter ma chère Terry pour ses efforts dans la cuisine. Elle a appris quelque chose et a déployé ses efforts avec amour. Comme je suis heureuse de voir mes chers et beaux amis réunis.
 
 Je tiens à vous dire que j’ai maintenant progressé et atteint la septième sphère. Je souhaite faire quelques commentaires sur mon voyage jusqu’à présent car je suis sûr que chacun d’entre vous est intéressé par ce que sera pour vous la traversée de ces diverses sphères de l’esprit en direction du Royaume Céleste.
 
@@ -44,6 +44,21 @@ Je suis sur le point d’entrer dans ce royaume. J’ai un si grand amour et une
 Mes amis, nous sommes tous en voyage vers Dieu et dans ce voyage nous trouverons en effet l’épanouissement, un épanouissement profond, profond et la joie. Puissiez-vous voir cela plus clairement chaque jour, mes amis. Car chaque jour, Dieu envoie ses anges pour vous élever. Chaque jour vous avez l’opportunité de vous éveiller et de grandir dans l’Amour. Soyez avec Dieu maintenant, mes amis. Nous sommes tous dans la Grâce de Dieu, la paix qui dépasse toute compréhension. Nous sommes tous ensemble dans ce lieu de lumière où Dieu pose sa main sur chacun de nous et dit :  *« Tu es mon enfant. Je t’aime. Viens et sois embrassé par ton Père qui t’aime tant et connais la paix dans mon étreinte. »* Nous sommes ici ensemble. Nous sommes ici pour recevoir Son amour. Ainsi, nous le ferons, mes amis. Nous le ferons.
 
 Que Dieu vous bénisse. Je m’appelle Barbara. Je suis si heureuse d’être avec vous aujourd’hui par l’intermédiaire de mon fils bien-aimé que j’aime tant, qui a appris et grandi beaucoup au fil des ans et sa lumière continue de grandir comme avec son compagnon, comme avec sa sœur, ses deux sœurs, mes chères sœurs. Que Dieu vous bénisse tous. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> Barbara Davies s'est également exprimée dans les messages suivants : [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Barbara Davies | [Ma nouvelle maison et la vie dans l’esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-20-1-af-barbara-davies/) | 20 Janvier 2021
+Barbara Davies | [Exprimez vos émotions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-12-2-af-barbara-davies/) | 12 Mars 2021
+Barbara Davies | [Désir de servir et d’être dans l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-6-1-af-barbara-davies/) | 6 Avril 2021
+Barbara Davies | [Progression de la cinquième à la septième sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-26-1-af-barbara-davies/) | 26 Mai 2021
+Barbara Davies | [Notre connexion avec notre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-24-2-af-barbara-davis/) | 24 Novembre 2022
+Barbara Davies | [Amitié et voyage similaire avec Grace Jordan](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-28-1-af-barbara-davies/) | 28 Janvier 2023
+Barbara Davis  | [Votre famille bénéficie de vos efforts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-21-1-af-barbara-davis/) | 21 Février 2023
+Barbara Davies | [N'ayez pas peur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-6-23-3-af-barbara-davies/) | 23 Juin 2023
+Barbara Davies | [Faire la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-14-1-af-barbara-davies/) | 14 Juillet 2023
 
 ### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
 

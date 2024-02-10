@@ -19,11 +19,18 @@ Alors, je suis venue à vous ce soir pour ouvrir votre réunion et c'est à chac
 
 Regardez en vous-mêmes et demandez-vous. Suis-je charitable ? Suis-je aimable ? Suis-je aimant ? Parce que tant qu'il y a encore une personne sur Terre qui manque de ces qualités, alors la vraie paix ne peut être la vôtre. Alors ce soir, je vous salue de l'esprit et je vous remercie de m'avoir permis de venir vous parler et on me dit que je dois maintenant partir, d'autres vont suivre. Gardez toujours la musique dans votre âme. Essayez d'être heureux et cherchez le bonheur dans tout ce que vous êtes appelé à faire et demandez à Dieu de vous bénir et d'être digne de sa bénédiction. Je chanterai à nouveau sur Terre non pas à travers un instrument mais directement.
 
-J'espère que je pourrai apporter un plus grand bonheur et une plus grande joie, car je sens que ma musique sera maintenant une plus grande expression de l'amour, car j'ai appris que l'amour dans l'âme, auquel nous devons tous aspirer, apporte la plus grande joie, le plus grand bonheur et la plus grande paix que tout autre chose. Que Dieu vous bénisse.
+J'espère que je pourrai apporter un plus grand bonheur et une plus grande joie, car je sens que ma musique sera maintenant une plus grande expression de l'amour, car j'ai appris que l'amour dans l'âme, auquel nous devons tous aspirer, apporte la plus grande joie, le plus grand bonheur et la plus grande paix que tout autre chose. Que Dieu vous bénisse.<sup id="a2">[2](#f2)</sup>
 <small>
 
 1. <large id="f1"> **Nellie Melba**, de son nom de naissance Helen Porter Mitchell, née à Richmond (Victoria) le 19 mai 1861 et morte à Lilydale (Victoria) le 23 février 1931, est une soprano colorature australienne. Avec Adelina Patti, elle est une des premières cantatrices dont la voix fit l'objet d'enregistrements phonographiques. [↩](#a1)
 
+2. <large id="f1"> Nellie Melba s'est exprimée dans les messages suivants :  [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Nellie Melba | [Plomb, Lumière Bienveillante](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-94-1970-anonymous-melba/
+Nellie Melba | [Le monde a besoin de vous maintenant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-21-6-af-dame-nellie-melba/) | 21 Novembre 2017
+ 
 
 
 

@@ -32,7 +32,12 @@ Continuez à rechercher la vérité. Continuez à être fort dans la foi. Que la
 Ainsi, vous devenez les précurseurs d’une nouvelle ère, une ère d’illumination, d’amour, d’harmonie, de paix. Que Dieu vous bénisse, mes amis. Je suis Copernic. Mon amour pour vous est grand. J’ai une grande admiration pour vos désirs et vos intentions d’être un instrument pour apporter la paix et l’harmonie à tout ce qui existe. Que Dieu vous bénisse, mes amis. Mon amour est avec vous. Que Dieu vous bénisse.
 <small>
 
-<large id=”f1”> Copernic s’était exprimé précédemment [le 09 Septembre 2019](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-9-3-af-copernicus/) et [le 02 Décembre 2019](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-2-2-af-copernicus/).[↩](#a1)
+<large id=”f1”> Copernic s’est également exprimé dans les messages suivants : [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Copernic | [Vous avez toute l’éternité pour apprendre les merveilles de la création de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-9-3-af-copernicus/) | 9 Septembre 2019
+Copernic | [La mesure du temps sur Terre est très différente de celle des Cieux Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-2-2-af-copernicus/) | 2 Décembre 2019
 
 ### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
 

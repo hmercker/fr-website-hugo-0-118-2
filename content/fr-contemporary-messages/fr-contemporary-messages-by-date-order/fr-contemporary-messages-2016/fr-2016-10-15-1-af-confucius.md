@@ -9,9 +9,9 @@ weight:
 ---
 ### Vous avez un but
 
-Confucius<sup id="a1">[1](#f1)</sup>- reçu par Al Fike le 15 Octobre 2016, Gibsons, Colombie-Britannique, Canada.
+Confucius - reçu par Al Fike le 15 Octobre 2016, Gibsons, Colombie-Britannique, Canada.
 
-C’est moi Confucius. Je vois que mes petits oiseaux sont revenus se percher. (Retour d’Angleterre, d’Allemagne et de Serbie) Comme nous sommes heureux de leurs efforts. Ils ont accompli un autre voyage, apportant la lumière de l’Amour de Dieu partout où ils sont allés et de nombreuses âmes ont été touchées par leurs efforts, leurs prières et leurs conversations avec tant de personnes. Chaque jour a été un dévouement à ce travail et nous sommes heureux de leurs efforts.
+C’est moi Confucius.<sup id="a1">[1](#f1)</sup> Je vois que mes petits oiseaux sont revenus se percher. (Retour d’Angleterre, d’Allemagne et de Serbie) Comme nous sommes heureux de leurs efforts. Ils ont accompli un autre voyage, apportant la lumière de l’Amour de Dieu partout où ils sont allés et de nombreuses âmes ont été touchées par leurs efforts, leurs prières et leurs conversations avec tant de personnes. Chaque jour a été un dévouement à ce travail et nous sommes heureux de leurs efforts.
 
 Le travail va s’étendre, mes bien-aimés. Chacun d’entre vous ressent un appel, un désir de contribuer à ce travail en constante expansion pour apporter l’Amour et la Lumière à ce monde. Et bien qu’à l’intérieur de vos esprits vous ne voyez pas le plan se dérouler, mais c’est le cas, magnifiquement et en accord avec la volonté de Dieu. Et pour ceux d’entre vous qui désirent faire partie de cette vague d’Amour et de Lumière qui se déploie dans le monde, vous trouverez votre place – vous trouverez votre place dans ce travail.
 

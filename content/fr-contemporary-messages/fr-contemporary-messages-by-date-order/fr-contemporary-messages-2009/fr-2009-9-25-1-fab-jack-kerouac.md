@@ -28,7 +28,14 @@ Il m'a été lancé une bouée de sauvetage et je m'y suis accroché. Je suis fi
 Je suis donc un exemple vivant du fait, que ce monde spirituel démontre amplement que, quelle que soit la quantité de ténèbres dans l'âme d'un homme, Dieu est capable de le racheter.
 <small>
 
-1. <large id="f1"> Jacques Kerouac s'était exprimé précédemment [le 16 Avril 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-16-1-fab-jack-kerouac/), [le 18 Avril 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-18-2-fab-jack-kerouac/), [le 9 Mai 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-9-1-fab-jack-kerouac/) et [le 28 Septembre 2009](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-9-28-1-fab-jack-kerouac/).[↩](#a1)
+1. <large id="f1"> Jack Kerouac s'est également exprimé par l'intermédiaire des messages suivants :[↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Jack Kerouac | [Le voyage d'un écrivain de l'époque](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-16-1-fab-jack-kerouac/) | 16 Avril 2008
+Jack Kerouac | [Un écrivain de l’époque trouve l'Amour Divin - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-18-2-fab-jack-kerouac/) | 18 Avril 2008
+Jack Kerouac | [Un écrivain de l’époque trouve l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-9-1-fab-jack-kerouac/) | 9 Mai 2008
+Jack Kerouac | [L'identité religieuse de Jack Kerouac](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-9-28-1-fab-jack-kerouac/) | 28 Septembre 2009
 
 ### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
 

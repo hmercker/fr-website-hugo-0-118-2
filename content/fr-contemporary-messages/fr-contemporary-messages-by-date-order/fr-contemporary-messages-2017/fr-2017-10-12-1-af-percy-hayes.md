@@ -9,7 +9,7 @@ weight:
 ---
 ### Salutations de Percy depuis le Royaume d'Amour de Dieu
 
-Percy Hayes - reçu par Al Fike le 12 Octobre 2017, FUCS, Burnaby, Colombie-Britannique, Canada.
+Percy Hayes <sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 12 Octobre 2017, FUCS, Burnaby, Colombie-Britannique, Canada.
 
 « Ho ho ho. » Quelle merveilleuse bénédiction de pouvoir vous parler à travers cet instrument. Comme je l'ai dit à maintes reprises, c'est un merveilleux médium. J'ai la bénédiction de pouvoir parler si peu de temps après mon décès. Mon décès n'a pas été si difficile, mes amis. C'était comme enfiler une vieille paire de pantoufles, si familière et si confortable. Je commence donc effectivement une nouvelle vie.
 
@@ -23,9 +23,20 @@ Soyez fidèles aux désirs de vos âmes, mes amis, soyez fidèles à Dieu, soyez
 
 Je souhaite donner mon amour à mes filles qui m'ont tant donné. Quelles belles âmes elles sont et combien je suis fière d'elles et de toute ma famille et de mes amis. J'ai eu une vie merveilleuse. Et maintenant, j'ai une vie encore plus merveilleuse alors que j'entre dans le monde de l'esprit et que je trouve vraiment ce Royaume que j'ai toujours voulu connaître et dans lequel je me trouve. Le Royaume de Dieu est Amour. Je me sens tellement béni d'être parvenu à ce lieu de Lumière. Dieu me l'a promis et il a tenu sa promesse. Je ressens une joie et une gratitude profondes pour le toucher affectueux de Dieu sur moi et sur tous mes amis qui sont ici et beaucoup dans ce monde qui cherchent à faire le bien, à trouver la Vérité, à exprimer l'Amour. Vous serez amplement récompensés, mes amis, vous le serez. Vous serez étonnés des trésors que vous récolterez en exprimant les trésors de votre âme. Tant de choses attendent chacun d'entre vous.
 
-Que Dieu vous bénisse. Que Dieu vous bénisse, mes amis. Je suis Percy. Oui, c'est moi. Je vous aime tous. Merci. Merci de chercher à être dans la Lumière. Le monde a besoin de tellement plus de belles personnes comme vous. Continuez à prier pour Son Amour, mes bien-aimés. Priez pour Son Amour. Tout ira bien. Je continuerai à être avec vous alors que vous grandissez dans l'Amour et cherchez à servir Dieu dans ce monde. Je sais que je serai avec vous pour vous aider, pour prier pour vous, pour vous apporter l'Amour et la Lumière. Dorothy et Darlene le savent, je ne vous quitterai jamais. Mon amour est toujours avec vous et je serai proche. Et avec tout le reste de la famille, je serai proche.
+Que Dieu vous bénisse. Que Dieu vous bénisse, mes amis. Je suis Percy. <sup id="a2">[2](#f2)</sup>
+ Oui, c'est moi. Je vous aime tous. Merci. Merci de chercher à être dans la Lumière. Le monde a besoin de tellement plus de belles personnes comme vous. Continuez à prier pour Son Amour, mes bien-aimés. Priez pour Son Amour. Tout ira bien. Je continuerai à être avec vous alors que vous grandissez dans l'Amour et cherchez à servir Dieu dans ce monde. Je sais que je serai avec vous pour vous aider, pour prier pour vous, pour vous apporter l'Amour et la Lumière. Dorothy et Darlene le savent, je ne vous quitterai jamais. Mon amour est toujours avec vous et je serai proche. Et avec tout le reste de la famille, je serai proche.
 
 Que Dieu vous bénisse. Je vous aime. Je vous aime tous. Vous êtes tous merveilleux. Vous êtes tous merveilleux. Que Dieu vous bénisse dans Son Amour. Que Dieu vous bénisse.
+<small>
+
+1. <large id=”f1”> Percy Hayes fut un des pionniers du mouvement de l’Amour Divin au Canada et a largement contribué à l’établissement de la communauté de Vancouver.[↩](#a1)
+
+2. <large id="f2"> Percy Hayes s'est également exprimé dans les messages suivants : [↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|--
+Percy Hayes | [Salutations de Percy depuis le Royaume d'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-12-1-af-percy-hayes/) | 12 Octobre 2017
+Percy Hayes | [Percy Hayes annonce son entrée dans le Royaume Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-27-2-af-percy-hayes/) | 27 Janvier 2021
 
 ### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
 

@@ -25,7 +25,7 @@ Il est bon de rappeler à tous que l’on n’a rien à perdre et tout à gagner
 2. <large id="f2"> Robert James Lees s'est également exprimé lors des messages suivants [↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**  
---|---|---
+---|---|---
 Robert James Lees | [L’auteur de « A travers les brumes » est très reconnaissant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-13-1-jw-robert-james-lees/) | 13 Avril 2021
 Robert James Lees | [Veuillez mettre à jour mon livre dont le texte est périmé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-25-1-jw-robert-james-lees/) | 25 Mai 2021
 Robert James Lees | [Je vous guiderai](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-18-2-jw-robert-james-lees/) | 18 Juin 2021

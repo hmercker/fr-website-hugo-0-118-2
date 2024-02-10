@@ -27,7 +27,7 @@ Je sais que certains d’entre vous peuvent voir cette lumière émaner des Cieu
 2. <large id="f2"> Révérend George Vale Owen s'est également exprimé lors des messages suivants [↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**  
---|---|---
+---|---|---
 Pasteur George Vale Owen | [Dans la gratitude et l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-12-1-jw-rev-george-vale-owen/) | 12 Août 2020
 Pasteur George Vale Owen | [Quelques propos du Révérend GV Owen](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-11-1-jw-rev-george-vale-owen/) | 11 Janvier 2021
 

@@ -37,7 +37,7 @@ Si l'amour de vos cœurs peut faire cela pour moi, que peut faire l'amour de Die
 1. <large id="f1"> Nuage Blanc s'est également exprimé dans les messages suivants :  [↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**  
---|---|---
+---|---|---
 Nuage Blanc | [Vous devez chercher et vous préparer à recevoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-72-1969-anonymous-white-cloud/) |   1969
 Nuage Blanc | [Aidez les autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-114-1969-anonymous-white-cloud/) |   1969
 Nuage Blanc | [L'importance de la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-124-1969-anonymous-white-cloud/) |   1969

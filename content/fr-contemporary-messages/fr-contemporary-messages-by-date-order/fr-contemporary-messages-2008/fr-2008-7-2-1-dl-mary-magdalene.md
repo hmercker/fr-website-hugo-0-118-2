@@ -11,7 +11,7 @@ weight:
 
 Marie-Madeleine - reçu par Révérend Dave Lampron le 2 Juillet 2008, Vail, CO, USA.
 
-Cela fait un certain temps que je n'ai pas eu le privilège et l'honneur de parler à travers vous, mon cher D____ . C'est votre sœur en Christ, connue dans le monde sous le nom de Marie-Madeleine. Et je viens à vous aujourd'hui parce que j'ai été pendant si longtemps une spectatrice sur la touche, lorsque mon cher bien-aimé Jésus vous a donné ses merveilleux messages, à travers vous, et à travers d'autres ; et j'ai toujours voulu que tout le monde sache que j'étais là lorsque cela s'est produit. Car mon bien-aimé et moi ne sommes jamais vraiment séparés. Et comme son amour va vers vous, et le mien aussi, c'est en suppliant que nous continuions tous à grandir dans l'Amour et à utiliser cet Amour d'une manière très bienveillante et efficace.
+Cela fait un certain temps que je n'ai pas eu le privilège et l'honneur de parler à travers vous, mon cher D____ . C'est votre sœur en Christ, connue dans le monde sous le nom de Marie-Madeleine.<sup id="a1">[1](#f1)</sup> Et je viens à vous aujourd'hui parce que j'ai été pendant si longtemps une spectatrice sur la touche, lorsque mon cher bien-aimé Jésus vous a donné ses merveilleux messages, à travers vous, et à travers d'autres ; et j'ai toujours voulu que tout le monde sache que j'étais là lorsque cela s'est produit. Car mon bien-aimé et moi ne sommes jamais vraiment séparés. Et comme son amour va vers vous, et le mien aussi, c'est en suppliant que nous continuions tous à grandir dans l'Amour et à utiliser cet Amour d'une manière très bienveillante et efficace.
 
 Peu importe où vous êtes, ou à quelle heure de la journée, l'Amour est toujours là pour que vous puissiez y puiser, et Dieu est toujours là à écouter, à attendre, et à se réjouir lorsque vous Lui demandez cet Amour depuis votre cœur. Je vous avais mentionné dans un message précédent que ce n'était pas le temps de crier sur les toits que je suis Marie, l'âme sœur de Jésus1 ; car ce qui est le plus important, c'est que nous sommes tous « un », qui sommes en possession de cet Amour. Et, au fond, ni Jésus ni moi ne pensons qu'il est important que l'un ou l'autre soit distingué. Nous sommes tous ensemble, comme certains de vos amis pourraient dire, ce qui est beau, et c'est ce que je voulais partager avec vous, parce que je veux soutenir ce que mon bien-aimé Jésus a dit, c'est-à-dire que l'utilisation de cet Amour est toujours disponible, tout comme vous pouvez toujours le chercher vous-même.
 
@@ -29,9 +29,24 @@ Je pense que vous comprenez ce que j'essaie de dire : que nous voulons tous vous
 
 Que Dieu vous bénisse tous - et le chœur ici fait écho à ce que je viens de dire. Nous vous bénissons tous comme nos chers frères et sœurs dans l'Amour de Dieu.
 
-Je suis Marie, autrefois connue sous le nom de Marie-Madeleine.
+Je suis Marie, autrefois connue sous le nom de Marie-Madeleine.<sup id="a2">[2](#f2)</sup>
+<small>
 
-**Comentaire :** Il y a actuellement une division parmi les divers médiums contemporains quant à savoir si Marie Madeleine est l'âme sœur de Jésus, comme cela est suggéré dans ce message. En effet dans un [message communiqué le 11 Février 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-11-1-na-elijah/), à travers un médium Australien, Nicholas Arnold, Élie affirme que la véritable âme-sœur de Jésus est Dieu. Cette position a également été affirmée par un message communiqué par [Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-27-2-af-jesus/) et [Marie Madeleine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-29-2-af-mary-magdalene/) respectivement le 27 et 29 Janvier 2019.
+1. <large id="f1"> Il y a actuellement une division parmi les divers médiums contemporains quant à savoir si Marie Madeleine est l'âme sœur de Jésus, comme cela est suggéré dans ce message. En effet dans un [message communiqué le 11 Février 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-11-1-na-elijah/), à travers un médium Australien, Nicholas Arnold, Élie affirme que la véritable âme-sœur de Jésus est Dieu. Cette position a également été affirmée par un message communiqué par [Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-27-2-af-jesus/) et [Marie Madeleine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-29-2-af-mary-magdalene/) respectivement le 27 et 29 Janvier 2019.[↩](#a1)
+
+2. <large id="f2"> Marie-Madeleine s'est également exprimé lors des messages suivants [↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Marie Madeleine | [L'Amour de Dieu au sein de vos âmes émane de vous et apporte aux autres la lumière et la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-53-1970-1-28-anonymous-mary-magdalene/) | 28 Janvier 1970
+Marie Madeleine | [Communication personnelle.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1992-7-9-1-dl-mary-magdalene/) | 9 Juillet 1992
+Marie Madeleine | [Différences entre les sexes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-19-2-ar-mary-magdalene/) | 19 Août 2001
+Marie Madeleine | [Le visage de l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-4-2-ar-mary-magdalene/) | 4 Novembre 2001
+Marie-Madeleine | [Plus sur les esprits liés à la terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-7-19-1-rl-mary-magdalene/) | 19 Juillet 2004
+Marie-Madeleine & Jésus | [Observer l’âme humaine.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-1-1-ar-mary-magdalene-jesus/) | 1 Avril 2006
+Marie-Madeleine | [Marie-Madeleine n’est pas l’âme-soeur de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-29-2-af-mary-magdalene/) | 29 Janvier 2019
+Marie-Madeleine | [Permettez à la bénédiction de l'Amour de Dieu de venir dans votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-12-1-jw-mary-magdalene/) | 12 Juillet 2022
+Marie-Madeleine | [La lampe de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-4-1-af-mary-magdalene/) | 4 Septembre 2022
 
 ### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
 

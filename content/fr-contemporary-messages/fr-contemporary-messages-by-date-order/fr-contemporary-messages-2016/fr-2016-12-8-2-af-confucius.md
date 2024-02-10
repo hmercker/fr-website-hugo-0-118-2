@@ -9,9 +9,9 @@ weight:
 ---
 ### N’ayez pas peur d’exprimer ce qui est dans votre âme
 
-Confucius<sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 8 Décembre 2016, Oahu, Hawaii, USA.
+Confucius - reçu par Al Fike le 8 Décembre 2016, Oahu, Hawaii, USA.
 
-C’est Confucius. Dieu vous bénisse. Dieu vous bénisse, mes bien-aimés, et Dieu vous bénit en ce moment même alors que vous multipliez vos prières ensemble pour recevoir le grand amour de Dieu qui se déverse dans vos âmes en ce moment même.
+C’est Confucius.<sup id="a1">[1](#f1)</sup> Dieu vous bénisse. Dieu vous bénisse, mes bien-aimés, et Dieu vous bénit en ce moment même alors que vous multipliez vos prières ensemble pour recevoir le grand amour de Dieu qui se déverse dans vos âmes en ce moment même.
 
 Vous avez reçu beaucoup d’enseignements à considérer pendant que vous étiez ensemble et il y a beaucoup d’autres enseignements de l’Amour Divin que vous devez absorber et connaître. Et vous devez vous rappeler que lorsque les anges donnent un message de vérité, il y a de nombreux niveaux à ces enseignements. Lorsque vous lisez les mots, priez sur ce qui est donné et demandez à Dieu de vous montrer ces nombreux niveaux de vérité.
 

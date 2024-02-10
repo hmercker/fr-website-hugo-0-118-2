@@ -16,7 +16,7 @@ Mère Teresa - reçu par Al Fike le 23 Novembre 2017, Gibsons, Colombie-Britanni
 Libérez-vous, âmes précieuses, et permettez à Dieu de travailler à travers vous, car c'est ainsi que des miracles peuvent se produire, des œuvres merveilleuses à contempler. L'amour, l'amour en tout. Que Dieu vous bénisse, mes amis. Moi aussi, je souhaite parler à l'humanité un jour. Puissent vos projets se réaliser. Que votre service à Dieu apporte toujours plus de lumière au monde. Je prierai pour vous et je viendrai apporter mon amour et mon soutien à vos belles âmes et peut-être qu'un jour vous viendrez dans ce pays, l'Inde, pour apporter la vérité et la lumière, l'espoir et l'amour aux âmes perdues qui y résident. Que Dieu vous bénisse. Que Dieu vous bénisse pour tout ce que vous faites. S'il vous plaît, continuez votre travail. Il y a tant à faire. Que Dieu vous bénisse, âmes bien-aimées. Mon amour est avec vous. Que Dieu vous bénisse.
 <small>
 
-1. <large id="f1"> Mère Thérésa s'était exprimé antérieurement dans un message communiqué [le19 Janvier 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-19-1-na-mother-teresa/)[↩](#a1)
+1. <large id="f1"> Mère Thérésa s'était exprimé antérieurement dans un message communiqué [le 19 Janvier 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-19-1-na-mother-teresa/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
 

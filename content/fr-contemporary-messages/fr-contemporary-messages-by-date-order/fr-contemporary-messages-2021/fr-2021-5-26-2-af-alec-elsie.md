@@ -24,6 +24,10 @@ Que Dieu vous bénisse dans vos voyages, âmes bien-aimées. Je continue à serv
 Moi aussi, je suis heureuse d’être avec vous tous, car j’ai connu Alec, j’ai connu Barbara, et je connais chacune de ces précieuses âmes dans cette salle. J’ai fait un sacré voyage dans ma vie pour vraiment comprendre mon âme et voir mes motivations et désirs profonds en moi. En fait, j’ai prié très, très souvent pour recevoir le grand amour rédempteur de Dieu. Ainsi, je suis maintenant avec mon âme sœur bien-aimée, Alec, et nous progressons ensemble. J’ai encore quelques chemins à parcourir avant d’atteindre son niveau, mais je veux vous assurer à tous que je suis maintenant totalement en accord avec la vérité de l’Amour de Dieu. J’ai trouvé ce que je cherchais depuis tout ce temps, et c’est la grande joie de l’amour de Dieu qui remplit continuellement mon âme. Je sais maintenant tout ce que j’ai besoin de savoir pour que mon voyage soit complet, et je suis avec vous tous. Je suis souvent proche de vous.
 
 Même si je sais que vous ne me sentez pas si proche, sachez que je suis votre amie, votre sœur sur ce chemin et que je continuerai à essayer de l’être. Que Dieu vous bénisse, âmes bien-aimées. Je suis Elsie. Je vous aime. Je vous aime tous tellement. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> Elsie avait communiqué précédemment le [22 Octobre 2018](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-22-2-af-elsie/)[↩](#a1)
+
 
 ### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
 

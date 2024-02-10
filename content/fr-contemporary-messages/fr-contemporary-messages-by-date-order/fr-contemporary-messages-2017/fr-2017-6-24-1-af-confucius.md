@@ -9,9 +9,9 @@ weight:
 ---
 ### Les conseils du vieux sage
 
-Confucius<sup id="a1">[1](#f1)</sup>- reçu par Al Fike le 24 Juin 2017, Gibsons, Colombie-Britannique, Canada
+Confucius - reçu par Al Fike le 24 Juin 2017, Gibsons, Colombie-Britannique, Canada
 
-Que Dieu vous bénisse, âmes bien-aimées, je suis Confucius. Je suis venu vous prêter mon amour et mes bénédictions, mes bien-aimés, alors que vous vous réunissez dans vos efforts pour vous rapprocher de Dieu et pour travailler ensemble à votre petite aventure dans ce monde. Je souhaite que vous sachiez que moi aussi, je suis impliqué dans cet effort et que j’aiderai à apporter la guérison et à mélanger les produits chimiques, à prendre soin de chacun d’entre vous alors que vous continuez à apporter plus d’harmonie à vos corps physiques, à votre esprit et à votre âme.
+Que Dieu vous bénisse, âmes bien-aimées, je suis Confucius.<sup id="a1">[1](#f1)</sup> Je suis venu vous prêter mon amour et mes bénédictions, mes bien-aimés, alors que vous vous réunissez dans vos efforts pour vous rapprocher de Dieu et pour travailler ensemble à votre petite aventure dans ce monde. Je souhaite que vous sachiez que moi aussi, je suis impliqué dans cet effort et que j’aiderai à apporter la guérison et à mélanger les produits chimiques, à prendre soin de chacun d’entre vous alors que vous continuez à apporter plus d’harmonie à vos corps physiques, à votre esprit et à votre âme.
 
 Nombreux sont ceux qui s’occupent de vous, mes bien-aimés, en vous aidant à vous élever, à vous protéger, à vous guérir, à vous guider, à vous entourer de leur amour et de leur lumière.
 

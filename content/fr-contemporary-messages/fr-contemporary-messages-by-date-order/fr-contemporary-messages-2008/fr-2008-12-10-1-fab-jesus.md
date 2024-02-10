@@ -15,8 +15,7 @@ C'est moi, Jésus.
 
 Je veux me concentrer sur deux émotions que toute personne a ressenties : l'indignation et le ressentiment.
 
-Les gens ont généralement de l'amour-propre, et lorsque quelqu'un fait ou dit quelque chose qui nous semble offensant, alors ces deux émotions sont à la porte,
-Je tiens à préciser qu'elles peuvent être ressenties simultanément, mais il s'agit néanmoins de deux émotions totalement différentes.
+Les gens ont généralement de l'amour-propre, et lorsque quelqu'un fait ou dit quelque chose qui nous semble offensant, alors ces deux émotions sont à la porte. Je tiens à préciser qu'elles peuvent être ressenties simultanément, mais il s'agit néanmoins de deux émotions totalement différentes.
 
 L'indignation nous dit que quelque chose n'est pas juste, que la dignité ou la justice a été violée. Mais le ressentiment va un peu plus loin en jugeant et en condamnant la personne offensée.
 L'indignation veut rectifier l'équilibre du bien, tandis que le ressentiment veut punir et être négatif. Ils sont très différents parce que leurs objectifs sont différents.

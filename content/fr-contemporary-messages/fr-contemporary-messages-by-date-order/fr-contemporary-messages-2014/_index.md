@@ -43,7 +43,7 @@ Yogananda | [Le monde n’est qu’une illusion de notre imagination](/fr-contem
 St François d'Assise | [Vivre dans l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-6-8-1-jr-st-francis-of-assisi/) | 8 Juin 2014
 Père | [L’amour que je suis est l’amour que tu es](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-7-9-1-cog-father/) | 9 Juillet 2014
 James Padgett | [Détails de la vie de James Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-7-17-1-af-james-padgett/) | 17 Juillet 2014
-Helen Padgett | [Détails de la vie d’Hélène Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-7-18-1-af-helen-padgett/) | 18 Juillet 2014
+Hélène Padgett | [Détails de la vie d’Hélène Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-7-18-1-af-helen-padgett/) | 18 Juillet 2014
 Augustin | [Le libre arbitre fait que le monde est libre. Rien n’est garanti](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-7-26-1-af-augustine/) | 26 Juillet 2014
 Joseph | [Où sont mes propres limites ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-9-6-1-wv-joseph/) | 6 Septembre 2014
 Yogananda | [Êtes-vous prêts à faire briller votre lumière dans les moments d’obscurité ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-9-6-2-wv-yogananda/) | 6 Septembre 2014

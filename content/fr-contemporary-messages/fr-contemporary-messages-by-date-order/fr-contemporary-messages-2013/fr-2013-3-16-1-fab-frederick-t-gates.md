@@ -11,7 +11,7 @@ weight:
 
 Frederick T. Gates <sup id="a1">[1](#f1)</sup> - reçu par FAB le 16 Mars 2013, Berkeley, Californie, USA.
 
-Je suis ici, Frederick T. Gates.<sup id="a1">[1](#f1)</sup>
+Je suis ici, Frederick T. Gates.<sup id="a2">[2](#f2)</sup>
 
 Comme je fus le promoteur et l’ami de John D. Rockefeller, je suis dans une excellente position pour évaluer ses récentes canalisations, et je peux dire avec la plus grande confiance que ce qu’il a dit est vrai. La preuve en est évidente, car Dieu lui a montré, ainsi qu’au monde des esprits, où se trouvaient les péchés et où brillait la vertu. Il avait des tendances dans les deux sens, et nous, les esprits, pouvions le voir clairement.
 

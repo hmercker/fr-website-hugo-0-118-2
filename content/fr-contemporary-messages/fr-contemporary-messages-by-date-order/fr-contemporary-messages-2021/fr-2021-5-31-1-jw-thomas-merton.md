@@ -25,7 +25,7 @@ Je vais prendre du recul dans le silence de cette prière et dans la joie de la 
 1. <large id="f1"> Thomas Merton s'est également exprimé dans les messages suivants :  [↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**  
---|---|---
+---|---|---
 Thomas Merton | [Si vous aviez une croyance pour vous porter](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-24-2-jw-thomas-merton/) | 24 Mai 2020
 Thomas Merton | [Le pouvoir des mots](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-27-1-jw-thomas-merton/) | 27 Juin 2020
 Thomas Merton | [Diversité et unicité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-17-3-jw-thomas-merton/) | 17 Juillet 2020

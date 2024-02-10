@@ -28,7 +28,6 @@ Mes enfants m’aiment d’un amour profond et vrai, et ils ne souhaitent que pr
 
 1. <large id="f1"> Judy Garland s'est également exprimé dans les messages c-dessous indiqués :[↩](#a1)
 
-
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Judy Garland | [Une star du cinéma passe de l’obscurité au bonheur.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-19-1-fab-judy-garland/) | 19 Mai 2008

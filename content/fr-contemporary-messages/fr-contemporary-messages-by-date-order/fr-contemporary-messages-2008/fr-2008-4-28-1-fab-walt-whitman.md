@@ -21,7 +21,15 @@ Au moment où j'étais prêt à publier mon livre, ma vision de moi-même avait 
 
 Et puis, ici, j'ai remarqué certaines négativités en moi dont je n'avais pas conscience sur terre. Ainsi, même si je m'identifiais sincèrement à la personne dans mes poèmes, parce que je n'étais qu'un mortel, je n'ai pas pu fusionner complètement avec cette identité avant de venir ici. Et dans ce processus en esprit, certaines de mes idées de base sur la vie ont été modifiées pour s'adapter à la vérité telle que je la percevais de ce côté-ci de la vie.
 
-Donc, ce que j'ai canalisé à l'origine est tout à fait vrai, mais pas complètement, à cause des imperfections terrestres.
+Donc, ce que j'ai canalisé à l'origine est tout à fait vrai, mais pas complètement, à cause des imperfections terrestres.<sup id="a1">[1](#f1)</sup>
+<small>
+
+1. <large id="f1"> Walt Whitman s'est également exprimé par l'intermédiaire des messages suivants :[↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Walt Whitman | [Walt Whitman et les Amérindiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-1-4-1-fab-walt-whitman/) | 4 Janvier 2005
+Walt Whitman | [Le mysticisme et les expériences personnelles en esprit de Walt Whitman](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-1-5-1-fab-walt-whitman/) | 5 Janvier 2005
 
 ### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
 

@@ -39,7 +39,7 @@ Le roi David | [Le roi David et la guerre](/fr-contemporary-messages/fr-contempo
 John Lennon | [John Lennon est toujours un bohémien](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-16-1-fab-john-lennon/) | 16 Février 2003
 Jésus | [Marchez doucement dans la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-17-1-ar-jesus/) | 17 Février 2003
 Judas | [Les choses sont ce qu’elles sont](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-25-1-hr-judas/) | 25 Février 2003
-Johann Sebastian Bach | [La foi inébranlable de Bach en Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-27-1-fab-johann-sebastian-bach/) | 27 Février 2003
+Jean Sébastien Bach | [La foi inébranlable de Bach en Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-27-1-fab-johann-sebastian-bach/) | 27 Février 2003
 Rembrandt Harmenszoon van Rijn | [Rembrandt n’était pas spirituel sur terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-3-16-1-fab-rembrandt-harmenszoon-van-rijn/) | 16 Mars 2003
 Le roi David | [Participez au moins par Vos prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-3-20-1-pjr-king-david/) | 20 Mars 2003
 Judas | [La dynamique de la vie 1 : Le mal](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-3-21-1-hr-judas/) | 21 Mars 2003
@@ -97,7 +97,7 @@ St Jean | [L’âme et le mental](/fr-contemporary-messages/fr-contemporary-mess
 André | [Appel à une aide supérieure](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-11-9-1-ks-andrew/) | 9 Novembre 2003
 Marie | [La radio de l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-11-12-1-ar-mary/) | 12 Novembre 2003
 Anonyme | [La loi des harmonies Sympathiques](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-11-12-2-pjr-anonyme/) | 12 Novembre 2003
-Solomon | [Appel à tous les médiums](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-12-4-1-cc-solomon/) | 4 Décembre 2003
+Salomon | [Appel à tous les médiums](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-12-4-1-cc-solomon/) | 4 Décembre 2003
 St Pierre | [Des millions d’âmes, des millions de chemins](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-12-5-1-ks-st-peter/) | 5 Décembre 2003
 Jacques | [Le pouvoir de s’élever au-dessus.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-12-17-1-ks-james/) | 17 Décembre 2003
 

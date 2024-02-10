@@ -107,6 +107,9 @@ Franklin D Roosevelt | [Quelques autres réflexions de FDR](/fr-contemporary-mes
 Harry Truman | [Pensées d'un président](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-26-2-fab-harry-truman/) | 26 Août 2010
  | <p align="center">**Dwight Eisenhower 34ème président**</p> |
 Dwight Eisenhower | [Les douleurs d'un président par Dwight Eisenhower](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-10-18-1-fab-dwight-eisenhower/) | 18 Octobre 2010
+ | <p align="center">**John Fitzgerald Kennedy 35ème président**</p> |
+John Fitzgerald Kennedy | [La pensée réconfortante d’un président](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-25-1-fab-john-f-kennedy/) | 25 Mars 2013
+John Fitzgerald Kennedy | [De grands projets sont en préparation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-14-1-af-john-f-kennedy/) | 14 Novembre 2017
  | <p align="center">**Ronald Reagan 40ème président**</p> |
 Ronald Reagan | [Apprendre à connaître un Président - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-6-30-1-fab-ronald-reagan/) | 30 Juin 2009
 Ronald Reagan | [Ronald Reagan - Apprendre à connaître un président](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-6-29-2-fab-ronald-reagan/) | 29 Juin 2009

@@ -29,7 +29,7 @@ Je souhaite ajouter à l’éloquence de mon cher frère sur le chant de l’âm
 2. <large id="f2"> Hazrat Inayat Khan s'est également exprimé lors des messages suivants [↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**  
---|---|---
+---|---|---
 Hazrat Inayat Khan | [Gardez une chanson dans votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-9-1-jw-hazrat-inayat-khan/) | 9 Novembre 2021
 Hazrat Inayat Khan | [Gardez un chant dans votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-25-1-jw-inayat-khan/) | 25 Avril 2022
 Hazrat Inayat Khan | [Amants et bien-aimés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-9-2-jw-inayat-khan/) | 9 Septembre 2022

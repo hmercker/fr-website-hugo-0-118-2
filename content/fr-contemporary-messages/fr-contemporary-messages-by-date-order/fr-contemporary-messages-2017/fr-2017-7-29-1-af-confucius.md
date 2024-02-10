@@ -9,9 +9,9 @@ weight:
 ---
 ### La vérité passe par l'âme
 
-Confucius<sup id="a1">[1](#f1)</sup>- reçu par Al Fike le 29 Juillet 2017, Gibsons, Colombie-Britannique, Canada
+Confucius - reçu par Al Fike le 29 Juillet 2017, Gibsons, Colombie-Britannique, Canada
 
-Que Dieu vous bénisse, âmes bien-aimées. Je suis Confucius. J'espère que vous pouvez m'entendre.
+Que Dieu vous bénisse, âmes bien-aimées. Je suis Confucius.<sup id="a1">[1](#f1)</sup> J'espère que vous pouvez m'entendre.
 
 Chacun d'entre vous a une âme ardente, mes bien-aimés. Chacun de vous est précieux aux yeux de Dieu. Chacun de vous est aimé de Dieu. Lorsque vous parvenez à connaître cet Amour que Dieu a pour vous, âmes bien-aimées, cela apporte une grande joie à votre être. Cela vous apporte une perspective différente de la vie. Car tant de personnes traversent leur vie sans savoir pourquoi elles sont en vie, quel est le sens et le but de leur vie.
 

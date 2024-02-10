@@ -28,6 +28,13 @@ Mes amis, votre frère James est avec vous. Que Dieu vous bénisse. C’est un c
 
 1. <large id="f1"> Je (Geoff Cutler, webmastrer des sites New-Birth.net et Soul.Truth.Ca) considère James comme un ami très spécial et nous avons passé de nombreuses heures heureuses à parler de choses spirituelles et à prier ensemble. Malheureusement, comme il vivait en Queensland, je ne l’ai pas vu, lui et sa charmante épouse, aussi souvent que je l’aurais souhaité. Il n’était que récemment décédé à cette date.[↩](#a1)
 
+2. <large id="f2"> James Reid s'est également exprimé dans les messages suivants : [↩](#a2)
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+James Reid | [La valeur de la connaissance de vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-27-3-af-james-reid/) | 27 Novembre 2016
+James Reid | [Entrerai bientôt dans les Cieux Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-24-1-af-james-reid/) | 24 Juin 2021
+
+
 ### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

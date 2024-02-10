@@ -17,7 +17,7 @@ Il y a un pouvoir dans les mots, le pouvoir de toucher l’âme lorsqu’ils vie
 1. <large id="f1"> Thomas Merton s'est également exprimé dans les messages suivants :  [↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**  
---|---|---
+---|---|---
 Thomas Merton | [Si vous aviez une croyance pour vous porter](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-24-2-jw-thomas-merton/) | 24 Mai 2020
 Thomas Merton | [Diversité et unicité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-17-3-jw-thomas-merton/) | 17 Juillet 2020
 Thomas Merton | [La simplicité de la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-31-1-jw-thomas-merton/) | 31 Mai 2021

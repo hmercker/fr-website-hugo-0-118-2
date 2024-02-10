@@ -11,7 +11,7 @@ weight:
 
 John Denver - reçu par FAB le 1 Janvier 2003, Santa Cruz, Californie, USA.
 
-C’est moi, John Denver.
+C’est moi, John Denver.<sup id="a1">[1](#f1)</sup>
 
 Oui, c’est moi, John Denver. Je suis si heureux de pouvoir écrire à travers vous. Je me sens vraiment humble. Certains des esprits qui ont écrit par votre intermédiaire étaient si hautement développés. Mais je désire aussi partager quelques idées avec vous.
 
@@ -32,8 +32,9 @@ J’ai enregistré un peu de ce malheur dans mes chansons, mais aussi un amour d
 Je vois comment vous êtes consacré à ma musique, et je ne peux que vous remercier. Vous, et d’autres comme vous, confirment ma conviction que j’ai vraiment fait quelque chose de valable. Cela m’a apporté de la consolation dans mes peines. Je reviendrai bientôt pour vous écrire. Sachez que vous êtes libre de partager avec moi vos pensées et vos idées au sujet de la Nouvelle Naissance de l’âme.
 
 Avec amour, John Denver.
+<small>
 
-**Note :** John Denver a communiqué un second message [le 23 Janvier 2003](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-23-1-fab-john-denver/)
+1. <large id="f1">John Denver a communiqué un second message [le 23 Janvier 2003](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-23-1-fab-john-denver/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
 

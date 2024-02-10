@@ -14,6 +14,7 @@ Nous qualifions d’esprits anciens les esprits qui ont vécu sur terre avant la
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Abel | [Abel partage ses expériences](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-25-1-fab-abel/) | 25 Janvier 2007
+Aekarius | [Le pouvoir de l’astronomie et de l’astrologie est limité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-3-9-1-af-aekarius/) | 9 Mars 2017
 Aman | [La première expérience](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-6-5-1-ar-aman/) | 5 Juin 2005
 Aman | [Changements dans le programme "The First Parents"](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-24-4-fab-aman/) | 24 Janvier 2007
 Aman | [Les besoins nutritionnels des Premiers Parents et du Maître.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-24-3-fab-aman/) | 24 Janvier 2007
@@ -32,6 +33,7 @@ Amon | [La nature maternelle d’Amon](/fr-contemporary-messages/fr-contemporary
 Amon | [Avoir de l’espoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-2-1-jw-amon/) | 2 Juillet 2021
 Amon | [Quand vous faites briller la lumière de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-8-4-jw-amon/) | 8 Mai 2022
 Amon | [Qualités de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-6-1-jw-amon/) | 6 Mars 2023
+Aramée | [L’Amour Divin ne contourne pas vos leçons (Retraite Voix Directe 2021)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-5-1-af-aramaeus/) | 5 Septembre 2021
 Aristote | [Sur la réincarnation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-19-2-Alfredo-aristotle/) | 19 Novembre 1999
 Aristote | [La progression d'Aristote, et l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-7-1-fab-aristotle/) | 7 Mai 2009
 Bouddha | [Le Bouddha est très heureux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-11-7-1-fab-buddha/) | 7 Novembre 2005
@@ -118,6 +120,7 @@ Confucius | [Partager nos dons de guérison](/fr-contemporary-messages/fr-contem
 Confucius | [S'envoler vers votre Père Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-7-1-al-confucius/) | 7 Octobre 2022
 Confucius | [Ne gaspillez pas ces opportunités](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-13-1-af-confucius/) | 13 Janvier 2023
 Gilgamesh | [La Voie Antique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-8-16-1-rl-gilgamesh/) | 16 Août 2004
+Icarius | [Apprenez à connaître votre propre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-21-3-af-icarius/) | 21 Mai 2017
 Jael | [La sœur de Caïn et Abel raconte ses expériences](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-25-4-fab-jael/) | 25 Janvier 2007
 Jael | [La longévité dans la première famille](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-10-2-fab-jael/) | 10 Mars 2007
 Lao Tseu | [À la pointe du changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-15-2-af-lao-tzu/) | 15 Novembre 2017

@@ -13,7 +13,7 @@ James Padgett & Dr Stone - reçu par Amada Réza le 27 Mars 2000, Aptos, Califor
 
 *[Cher Dieu, je prie pour un afflux de Ton Amour Divin en ce moment, afin que je puisse être en relation avec Tes Anges Célestes qui nous guident et nous protègent. Je prie pour avoir la foi en la puissance de Ton Amour pour me transformer en une nouvelle création, née dans Ton Amour Divin. Par cet Amour dans mon âme, je peux être plus capable de m’élever du plan terrestre pour entrer en relation avec les esprits et les âmes des Esprits Célestes qui sont ici avec nous. Puissions-nous être protégés de l’influence des esprits inférieurs, afin qu’ils n’interfèrent pas avec cette transmission, et qu’ils soient instruits de Ton Don et de Ta Miséricorde. Je T’aime, cher Dieu, et je ne veux que faire Ta volonté. Si je peux être un instrument pour que les anges transmettent leurs pensées, utilise-moi comme tel. Merci, mon Dieu. Je Vous aime. Amen]*
 
-Je suis ici avec toi maintenant, ma chère sœur en Christ, et *je suis James Padgett* et un vrai disciple de Jésus le Christ, notre Maître et frère aîné dans l’Amour Divin.
+Je suis ici avec toi maintenant, ma chère sœur en Christ, et **je suis James Padgett**<sup id="a1">[1](#f1)</sup> et un vrai disciple de Jésus le Christ, notre Maître et frère aîné dans l’Amour Divin.
 
 Je suis très heureux de pouvoir t’écrire aujourd’hui, et tu as effectivement retenu mon intention d’écrire une réponse à la question de ____, à savoir si nous communiquons. Je lui assure qu’il ne se passe pas un jour sans que nous communiquions avec vous, mortels, qui aspirez à construire le Royaume de l’Amour de Dieu sur cette terre, car notre rayonnement auprès de vous se traduit par les nombreuses façons dont nous vous aidons et vous guidons.
 
@@ -31,7 +31,7 @@ Oui, vous enseignez tous le même message, mais vous êtes tous différents. Vou
 
 Nous, dans les Cieux Célestes, travaillons sans cesse pour soutenir et influencer les événements afin d’atteindre les objectifs que vous avez en tête, et nous sommes très heureux de jouer un simple rôle de soutien. Le Dr Stone est l’un de ceux qui n’est pas très éloigné de vous, et je vais lui permettre d’écrire son propre message maintenant…
 
-*Je suis ici, Dr Stone* – Leslie pour mes amis – et je suis très heureux d’être avec vous aussi, de vous apporter mon soutien, et de vous assurer que je suis avec vous en tant que collaborateur dans ce merveilleux travail de diffusion du message de l’Amour Divin.
+**Je suis ici, Dr Stone** – Leslie pour mes amis – et je suis très heureux d’être avec vous aussi, de vous apporter mon soutien, et de vous assurer que je suis avec vous en tant que collaborateur dans ce merveilleux travail de diffusion du message de l’Amour Divin.
 
 J’étais très conscient de l’importance des messages que James a reçus, et j’ai pour seul but d’aider à diffuser ces messages et à les mettre à la disposition du public. Je peux dire que nous avons plus ou moins réussi à préserver ces messages comme un évangile, une bonne nouvelle qui (devait) être partagée.
 
@@ -44,7 +44,9 @@ Aussi, je vous assure que Jean-Paul est ici avec vous aussi, et qu’il est une 
 Je vous laisse maintenant, en espérant que cela suffise comme mot pour vous, nos chers frères et sœurs de la terre. Nous vous aimons et vous soutenons chaque jour. Puissiez-vous trouver la paix et le bonheur dans votre foi en cet Amour immortel, qui est vraiment votre possession et votre grâce salvatrice.
 
 Je suis Leslie Stone… comme je suis James Padgett… et nous vous souhaitons une bonne journée.
+<small>
 
+1. <large id="f1"> L'ensemble des messages communiqués par James Padgett  est disponible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-12-fr-family-and-friends-of-james-padgett/)[↩](#a1) 
 
 ### [**Lien vers les messages des années 2000**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/)
 

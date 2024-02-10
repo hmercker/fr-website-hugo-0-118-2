@@ -27,7 +27,6 @@ Alors avec toutes mes bénédictions pour la nouvelle année sur terre et la lum
 ---|---|---
 Baal Shem Tov | [La vie est simple - le Baal Shem Tov](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-10-28-1-fab-baal-shem-tov/) | 28 Octobre 2010
 Baal Shem Tov | [Chaque tradition religieuse peut recevoir cet Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-2-7-1-jw-baal-shem-tov/) | 7 Février 2020
-Baal Shem Tov | [Laissez vos prières s’approfondir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-4-1-jw-baal-shem-tov/) | 4 Janvier 2021
 Baal Shem Tov | [Faites de chaque jour un nouveau jour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-26-1-jw-baal-shem-tov/) | 26 Septembre 2022
 
 ### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)

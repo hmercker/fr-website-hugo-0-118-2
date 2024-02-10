@@ -23,13 +23,16 @@ Réalisez que vous êtes d’abord une entité spirituelle et ensuite un mortel 
 
 Priez, mes enfants, le Père vous écoute. Vous êtes aimés au-delà de toute compréhension. Nous sommes toujours à vos côtés. Nous vous aimons et nous vous parlerons à nouveau. Que Dieu vous bénisse.
 
-Vos gardiens, Jeremiah et Solomon.
+Vos gardiens, Jeremiah et Solomon.<sup id="a1">[1](#f1)</sup>
 
-Je suis votre ami et frère Jésus, si je peux ajouter quelques mots à propos de vos discussions sur le « but ». Lorsque j’ai marché sur la terre il y a 2000 ans, j’ai également réfléchi à mon but. Et ce que j’ai appris, je vais maintenant vous le dire.
+**Je suis votre ami et frère Jésus**, si je peux ajouter quelques mots à propos de vos discussions sur le « but ». Lorsque j’ai marché sur la terre il y a 2000 ans, j’ai également réfléchi à mon but. Et ce que j’ai appris, je vais maintenant vous le dire.
 
 Chacun d’entre vous est le « but ». Chaque âme est une expression unique et individuelle de l’amour. Il n’y a pas d’autre but à définir ou à décrire. Vous essayez de vous identifier à quelque chose d’extérieur à vous. Il n’y a aucun besoin de cela. Vous êtes le but. Rapprochez-vous de Dieu et de Son Amour et alors vous vous verrez et verrez le « but ».
 
 Nous vous aimons, jeunes frères, nous sommes toujours avec vous et nous nous signons, Jésus, Marie-Madeleine, Jean, Marie, Joseph, Paul, Luc, Pierre, André, Jean Marc, Daniel, Moïse, Sarah (arrière, arrière grand-mère) et beaucoup d’autres.
+<small>
+
+1. <large id="f1"> Il est possible de lire les divers messages commuiqués par Jérémie et Salomon par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-10-fr-religious-figures/) :[↩](#a1)
 
 ### [**Lien vers les messages des années 2004**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/)
 

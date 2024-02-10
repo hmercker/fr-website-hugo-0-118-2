@@ -11,8 +11,7 @@ weight:
 
 Robert James Lees - reçu par Jimbeau Walsh le 5 Août 2021, Punalu’u, Oahu, Hawaii, USA.
 
-Je suis ici Robert Lees<sup id="a1">[1](#f1)</sup>
-. L’œil n’a pas vu, l’oreille n’a pas entendu, et les sens n’ont pas perçu ce que Dieu a préparé pour Ses enfants dans l’amour. En parcourant les descriptions des livres que j’ai écrits, ou devrais-je dire, que j’ai reçus, vous obtenez, comme cela a été dit, un simple aperçu des conditions, des environnements et de l’état d’être dans les royaumes spirituels. Et pourtant, ce simple aperçu est tout à fait étonnant pour les terriens. Bien sûr, parce que vous êtes sur le chemin de l’Amour Divin, vous pouvez reconnaître la progression qui vous est présentée et en même temps trouver un grand réconfort dans les bénédictions que Dieu a accordées à tous, du plus vil pécheur au plus saint des saints.
+Je suis ici Robert Lees<sup id="a1">[1](#f1)</sup>. L’œil n’a pas vu, l’oreille n’a pas entendu, et les sens n’ont pas perçu ce que Dieu a préparé pour Ses enfants dans l’amour. En parcourant les descriptions des livres que j’ai écrits, ou devrais-je dire, que j’ai reçus, vous obtenez, comme cela a été dit, un simple aperçu des conditions, des environnements et de l’état d’être dans les royaumes spirituels. Et pourtant, ce simple aperçu est tout à fait étonnant pour les terriens. Bien sûr, parce que vous êtes sur le chemin de l’Amour Divin, vous pouvez reconnaître la progression qui vous est présentée et en même temps trouver un grand réconfort dans les bénédictions que Dieu a accordées à tous, du plus vil pécheur au plus saint des saints.
 
 Comme je l’ai dit également, je suis ravi de vos études, et comme Luc l’a souligné, elles sont vraiment approuvées si vous souhaitez partager ces livres et ces vérités. Et ils sont du point de vue de la terre, des vérités supérieures, et ils contiennent l’Amour Divin de Dieu et la progression de l’âme, bien que pas dans la mesure où James Padgett a reçu, mais il a certainement été informé par leur contenu. Vous voyez donc qu’il y en a pour tous les goûts. Vous pouvez atteindre beaucoup de personnes d’une certaine disposition en partageant les écrits que j’ai reçus, comme vous le faites. Et il y en a qui résonnent beaucoup avec l’approche plus judicieuse de James Padgett et le cœur du Révérend Owens, et la belle âme d’Eileen Caddy et sa connexion avec l’esprit de Dieu, et ceux qui sont encore sur terre.
 
@@ -26,7 +25,7 @@ Le temps sur terre est essentiel et si vous souhaitez que la terre soit bénie, 
 2. <large id="f2"> Robert James Lees s'est également exprimé lors des messages suivants [↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**  
---|---|---
+---|---|---
 Robert James Lees | [L’auteur de « A travers les brumes » est très reconnaissant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-13-1-jw-robert-james-lees/) | 13 Avril 2021
 Robert James Lees | [Veuillez mettre à jour mon livre dont le texte est périmé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-25-1-jw-robert-james-lees/) | 25 Mai 2021
 Robert James Lees | [Je vous guiderai](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-18-2-jw-robert-james-lees/) | 18 Juin 2021

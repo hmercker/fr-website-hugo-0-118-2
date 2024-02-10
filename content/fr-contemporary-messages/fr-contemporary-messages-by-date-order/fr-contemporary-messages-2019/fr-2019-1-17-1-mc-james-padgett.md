@@ -25,7 +25,7 @@ Votre prière à Dieu ne nécessite pas qu’une autre personne vous initie ou f
 
 J’ai eu le privilège d’être choisi pour recevoir ces nombreux et magnifiques messages qui se trouvent dans ces volumes. Je suis ravi de venir ce soir pour partager avec vous cette façon simple mais profonde de développer votre relation avec votre Dieu. Ce n’est pas à une autre personne de vous dire qui est votre Dieu. C’est à Dieu et à vous de vous connaître au plus profond de votre cœur, au plus profond de votre âme, en marchant pas à pas avec Dieu toujours proche.
 
-Je vous remercie d’avoir entendu l’appel de votre âme et d’avoir rejoint ce cercle ce soir, d’avoir été en prière et d’avoir expérimenté ce que c’est que de recevoir l’essence de l’Amour Divin, l’amour du Créateur. Dieu vous bénisse, chères âmes, mon amour est avec vous, je suis James Padgett.<sup id="a1">[1](#f1)</sup>
+Je vous remercie d’avoir entendu l’appel de votre âme et d’avoir rejoint ce cercle ce soir, d’avoir été en prière et d’avoir expérimenté ce que c’est que de recevoir l’essence de l’Amour Divin, l’amour du Créateur. Dieu vous bénisse, chères âmes, mon amour est avec vous, je suis James Padgett.<sup id="a2">[2](#f2)</sup>
 
 Que Dieu vous bénisse.
 <small>

@@ -39,7 +39,15 @@ Je sais que vous avez pensé à moi de temps en temps et je suis heureux de vous
 
 Alors, en espérant que vous jugerez bon de publier ceci pour le bénéfice de ceux dont j’ai parlé, je vais m’excuser et signer de mon nom.
 
-JRR Tolkien.
+JRR Tolkien.<sup id="a1">[1](#f1)</sup>
+<small>
+
+1. <large id="f1"> Tolkien s'est exprimé dans les messages suivants : [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Tolkien | [Tolkien a remarqué que je lisais son livre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-17-1-pjr-tolkien/) | 17 Janvier 2002
+Tolkien | [Tolkien fait son rapport](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-7-29-1-pjr-tolkien/) | 29 Juillet 2002
 
 ### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
 

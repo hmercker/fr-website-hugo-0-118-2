@@ -21,10 +21,12 @@ Mais j'ai reconnu la nécessité de progresser et d'apprendre. J'ai très tôt c
 
 Au début, c'était lent. J'ai dû apprendre qu'une vie de pensée sur le plan terrestre ne correspond pas à la réalité que j'ai rencontrée ici.
 
-Vous recevez nos pensées avec exactitude, alors ne doutez pas.
+Vous recevez nos pensées avec exactitude, alors ne doutez pas.<sup id="a2">[2](#f2)</sup>
 <small>
 
 1. <large id="f1"> **John Fitzgerald Kennedy**, Jr. (25 Novembre 1960 - 16 Juillet 1999), souvent appelé John F. Kennedy, Jr, JFK Jr, John Jr, John Kennedy ou John-John, était un pilote, un avocat, un journaliste et une personnalité sociale. Il était le troisième enfant et le premier fils du président John F. Kennedy et de Jacqueline Kennedy Onassis, le neveu d'Edward Kennedy et du défunt Robert Kennedy, le frère cadet d'Arabella Kennedy et de Caroline Kennedy et le frère aîné du défunt Patrick Bouvier Kennedy. Il était connu sous le nom de "fils de l'Amérique" car il était l'un des rares enfants du président à avoir été élevé à la Maison Blanche. Il est mort dans un accident d'avion avec sa femme et sa belle-sœur à l'âge de 38 ans. (Source : Wikipedia)[↩](#a1)
+
+2. <large id="f2"> John Fitzgerald Kennedy Jr a complété son message [le lendemain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-17-1-fab-john-f-kennedy/)
 
 ### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
 

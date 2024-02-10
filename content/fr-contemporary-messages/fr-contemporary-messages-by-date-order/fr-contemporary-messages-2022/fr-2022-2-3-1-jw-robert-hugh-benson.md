@@ -29,7 +29,7 @@ Je reviendrai, et je vous remercie, belles âmes sur le chemin comme moi, vers l
 2. <large id="f2"> Robert Hugh Benson s'est également exprimé lors des messages suivants [↩](#2)
 
 **Auteur** | **Titre du message** | **Date du message**  
---|---|---
+---|---|---
 Robert Hugh Benson | [Merci pour votre considération](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-1-13-1-jw-robert-hugh-benson/) | 13 Janvier 2022
 Robert Hugh Benson | [Croyance mentale et perception de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-18-2-jw-robert-hugh-benson/) | 18 Avril 2022
 Robert Hugh Benson | [Les royaumes de l’esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-19-1-jw-robert-hugh-benson/) | 19 Avril 2022

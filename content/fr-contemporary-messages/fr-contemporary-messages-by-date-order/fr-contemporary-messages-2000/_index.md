@@ -42,16 +42,16 @@ Marie et Jean | [Encouragement donné à W___](/fr-contemporary-messages/fr-cont
 Marie | [Prière et réponse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-9-2-2-ar-mary/) | 2 Septembre 2000
 André | [Le parler en langues](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-9-4-1-ks-andrew/) | 4 Septembre 2000
 Jésus | [La violence est-elle jamais justifiée en cas de légitime défense ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-9-8-1-ks-jesus/) | 8 Septembre 2000
-Swift Bear | [Pourquoi les gens accusent-ils Dieu du mal dans ce monde ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-9-8-2-Alfredo-swift-bear/) | 8 Septembre 2000
-Swift Bear | [Au fond de mon cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-9-23-1-Alfredo-swift-bear/) | 23 Septembre 2000
+Ourson véloce  | [Pourquoi les gens accusent-ils Dieu du mal dans ce monde ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-9-8-2-Alfredo-swift-bear/) | 8 Septembre 2000
+Ourson véloce  | [Au fond de mon cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-9-23-1-Alfredo-swift-bear/) | 23 Septembre 2000
 Marie & Jean | [Le parler en langues et les animaux dans le monde spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-9-24-1-ar-mary-john/) | 24 Septembre 2000
 Esprit Céleste Elevé | [Pourquoi est-il si difficile d’ouvrir notre esprit à la Vérité ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-9-28-1-ks-a-high-celestial-spirit/) | 28 Septembre 2000
 Marie | [Le processus d’éveil spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-10-8-1-ar-mary/) | 8 Octobre 2000
 Marie | [Ce qui influence une âme à se tourner vers le Père](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-10-20-1-ar-mary/) | 20 Octobre 2000
-Swift Bear | [Notre développement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-11-2-1-Alfredo-swift-bear/) | 2 Novembre 2000
+Ourson véloce  | [Notre développement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-11-2-1-Alfredo-swift-bear/) | 2 Novembre 2000
 Esprit Céleste Elevé | [Les problèmes des groupes religieux organisés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-11-5-1-ks-a-high-celestial-spirit/) | 5 Novembre 2000
 Marie | [La trame de vos vies](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-11-10-1-ar-mary/) | 10 Novembre 2000
-Swift Bear | [Votre relation avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-11-12-1-Alfredo-swift-bear/) | 12 Novembre 2000
+Ourson véloce | [Votre relation avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-11-12-1-Alfredo-swift-bear/) | 12 Novembre 2000
 Esprit Céleste Elevé | [Bénédictions matérielles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-11-28-1-ks-a-high-celestial-spirit/) | 28 Novembre 2000
 Esprit Céleste Elevé | [Chercher la vérité avec notre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-11-30-1-ks-a-high-celestial-spirit/) | 30 Novembre 2000
 Esprit Céleste Elevé | [Protection contre les blessures](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-12-5-1-ks-a-high-celestial-spirit/) | 5 Décembre 2000

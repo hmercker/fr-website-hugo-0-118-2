@@ -9,7 +9,7 @@ weight:
 ---
 ### Anciens Secrets
 
-Phoduk l'Ancien - reçu par RL le 2 Septembre 2004, Atlanta, Georgia, USA.
+Phoduk l'Ancien<sup id="a1">[1](#f1)</sup> - reçu par RL le 2 Septembre 2004, Atlanta, Georgia, USA.
 
 *Phoduk* : Lorsque le soleil se levait brillamment à l'horizon, avec une lumière jaune pure, je remontais la rivière en pagayant. Il y avait des roseaux dans l'eau, et des serpents, donc c'était dangereux. Le monde du Créateur était très beau, d'une beauté irrésistible. Je m'arrêtais au bord de la rivière.
 
@@ -30,6 +30,9 @@ Je suis Phoduk, et je dois partir maintenant.
 *Phoduk* : Il y avait un scribe très célèbre, et renommé, nommé Cyrus que je n'ai jamais rencontré moi-même. Il est très peu probable qu'il s'agisse d'une régression dans une vie antérieure. Plus probablement, Cyrus lui parlait alors que son mental était ouvert (alors qu’il était en transe ?). Je dois partir maintenant, mais je reviendrai.
 
 **Commentaire de Geoff Cutler :** Rebecca n'était pas une adepte de l'Amour Divin, et il semble qu'elle croit encore à la réincarnation.
+<small>
+
+1. <large id="f1"> Phoduk l'ancien s'était également expimé dans un autre message communiqué [le 24 Août 2004](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-8-24-1-rl-phoduk-the-elder/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2004**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/)
 

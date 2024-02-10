@@ -19,8 +19,8 @@ Nous, dans le Royaume Céleste, continuerons à vous soutenir, à vous guider et
 
 Continuez dans vos efforts. Nous sommes avec vous mes amis. Nous continuons à vous soutenir et à être avec vous. Nous voyons beaucoup de changements à venir pour chacun d'entre vous. De nombreuses possibilités s'offrent à vous comme un grand banquet. Êtes-vous prêts à accepter ce que Dieu souhaite pour vous ? Ces grandes bénédictions de service, ces grandes opportunités de voyager dans le monde, d'être un canal clair pour Son Amour, Sa sagesse, Sa Vérité.
 
-Ce sont des temps passionnants alors que vous continuez à construire en vous une grande Lumière, à reconnaître vos dons et à accepter ce que Dieu a à donner. Que Dieu vous bénisse. Je suis James Padgett. Moi aussi, je vous aime et je suis souvent avec vous. Nous voyons vos progrès, nous voyons la Lumière dans vos âmes. C'est passionnant et joyeux, vraiment beau. Je vous en prie, continuez à faire tout ce que vous faites. Que Dieu vous bénisse. Que Dieu vous bénisse.
-s<mall>
+Ce sont des temps passionnants alors que vous continuez à construire en vous une grande Lumière, à reconnaître vos dons et à accepter ce que Dieu a à donner. Que Dieu vous bénisse. Je suis James Padgett.<sup id="a1">[1](#f1)</sup> Moi aussi, je vous aime et je suis souvent avec vous. Nous voyons vos progrès, nous voyons la Lumière dans vos âmes. C'est passionnant et joyeux, vraiment beau. Je vous en prie, continuez à faire tout ce que vous faites. Que Dieu vous bénisse. Que Dieu vous bénisse.
+<small>
 
 1. <large id="f1"> L'ensemble des messages communiqués par James Padgett  est disponible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-12-fr-family-and-friends-of-james-padgett/)[↩](#a1) 
 

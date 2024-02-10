@@ -31,7 +31,20 @@ Continuez à prier pour l’Amour du Père car, comme vous le savez bien, c’es
 
 Maintenant, vous êtes sur le point d’obtenir une grande récompense pour tous vos efforts. Il faut un désir intense pour être dans ce lieu de connaissances, de sentiments et d’être éveillés. Puissiez-vous fouiller vos désirs, votre âme, pour faire naître l’intensité de ce désir. Que ce soit comme un feu brûlant en vous. Comme les apôtres à la Pentecôte, ce désir presque désespéré de s’unir à Dieu. Puissiez-vous ressentir cela, âmes bien-aimées. Non pas comme une braise ardente qui est presque éteinte, mais une flamme si brillante, si chaude, si perçante, qu’un grand afflux d’Amour de Dieu viendra vous balayer dans cette conscience et vous changera pour toujours.
 
-Merci de m’avoir écouté mes amis. Je connais vos luttes. Je ne suis pas dans le monde de l’esprit depuis si longtemps que je ne connais pas les défis de la terre. Mais, je vous le dis, je suis ici pour vous et beaucoup, beaucoup d’autres sont ici pour vous aider à arriver à ces réalisations, ces changements et ces réveils. Nous sommes tous ici dans l’attente impatiente de ce que nous savons être votre destinée. Notre excitation, comme celle de votre propre enfant qui vient de naître, est cette sorte d’anticipation et de joie. Nous sommes ici avec vous mes amis et nous vous aimons. Marthe vous aime.
+Merci de m’avoir écouté mes amis. Je connais vos luttes. Je ne suis pas dans le monde de l’esprit depuis si longtemps que je ne connais pas les défis de la terre. Mais, je vous le dis, je suis ici pour vous et beaucoup, beaucoup d’autres sont ici pour vous aider à arriver à ces réalisations, ces changements et ces réveils. Nous sommes tous ici dans l’attente impatiente de ce que nous savons être votre destinée. Notre excitation, comme celle de votre propre enfant qui vient de naître, est cette sorte d’anticipation et de joie. Nous sommes ici avec vous mes amis et nous vous aimons. Martha vous aime.
+<small>
+
+1. <large id="f1"> Martha s'est également exprimée dans les messages suivants :  [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Martha | [Un nouveau départ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-15-9-af-martha/) | 15 Décembre 2017
+Martha | [Je suis là pour vous aider](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-18-2-af-martha/) | 18 Décembre 2017
+Martha | [Permettez à Dieu de travailler à travers cette église - F.U.S.C.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-10-2-af-martha/) | 10 Juin 2018
+Martha | [Nous sommes avec vous sur le chemin de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-26-2-af-martha/) | 26 Octobre 2018
+Martha | [Soyez ouverts et réceptifs à ce que nous faisons - Que chacun de vous puisse donner à chacun de vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2019-1-20-4-af-martha/) | 20 Janvier 2019
+
+
 
 ### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
 

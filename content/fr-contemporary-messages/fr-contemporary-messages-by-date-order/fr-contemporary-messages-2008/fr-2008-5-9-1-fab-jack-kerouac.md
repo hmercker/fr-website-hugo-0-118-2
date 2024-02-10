@@ -20,7 +20,14 @@ Vous en doutez, puisque vous saviez que j'étais très porté sur le Bouddhisme.
 L'ange était si beau et si puissant que j'ai dû céder à ses conseils et prier pour bénéficier de l'Amour Divin. Je n'étais pas dogmatique à propos du bouddhisme au point de ne pas pouvoir m'ouvrir à une autre vérité. En tant qu'écrivain et observateur attentif de la vie, l'ouverture d'esprit était quelque chose de naturel pour moi, alors quand j'ai appris l'existence de l'Amour Divin, je l'ai embrassé.
 <small> 
 
-1. <large id="f2"> Jacques Kerouac s'est également exprimé [le 16 Avril 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-16-1-fab-jack-kerouac/),[le 18 Avril 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-18-2-fab-jack-kerouac/), [le 9 Mai 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-9-1-fab-jack-kerouac/),[le 25 Septembre 2009](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-9-25-1-fab-jack-kerouac/) et [le 28 Septembre 2009](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-9-28-1-fab-jack-kerouac/).[↩](#a1)
+1. <large id="f1"> Jacques Kerouac s'est également exprimé par l'intermédiaire des messages suivants :[↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Jack Kerouac | [Le voyage d'un écrivain de l'époque](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-16-1-fab-jack-kerouac/) | 16 Avril 2008
+Jack Kerouac | [Un écrivain de l’époque trouve l'Amour Divin - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-18-2-fab-jack-kerouac/) | 18 Avril 2008
+Jack Kerouac | [La douleur de Jacques Kerouac](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-9-25-1-fab-jack-kerouac/) | 25 Septembre 2009
+Jack Kerouac | [L'identité religieuse de Jack Kerouac](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-9-28-1-fab-jack-kerouac/) | 28 Septembre 2009
 
 ### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
 

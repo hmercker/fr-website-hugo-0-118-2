@@ -229,7 +229,7 @@ Orion | [L'importance du discernement de la vérité](/fr-contemporary-messages/
 Yogananda | [Permettez à vos âmes d'informer vos esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-18-1-jw-yogananda/) | 18 Septembre 2022
 Eileen Caddy | [Comment être dans le monde et non pas du monde ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-19-1-jw-eileen-caddy/) | 19 Septembre 2022
 Judas | [Foi, responsabilité et dévouement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-20-1-jw-judas/) | 20 Septembre 2022
-Ann Rollins | [Le voyage unique de notre âme vers Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-20-2-af-ann-rollins/) | 20 Septembre 2022
+Anne Rollins | [Le voyage unique de notre âme vers Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-20-2-af-ann-rollins/) | 20 Septembre 2022
 Professeur Salyards | [Ceci est votre mandat](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-22-1-af-professor-salyards/) | 22 Septembre 2022
 Jesus | [Nous avons un rôle à jouer dans le plan de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-24-1-af-jesus/) | 24 Septembre 2022
 Baal Shem Tov | [Faites de chaque jour un nouveau jour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-26-1-jw-baal-shem-tov/) | 26 Septembre 2022
@@ -237,7 +237,7 @@ Fred Rogers | [Amis imaginaires](/fr-contemporary-messages/fr-contemporary-messa
 Care Derby Walsh | [Progression au-delà des flux et reflux de la vie terrestre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-3-1-jw-care-derby-walsh/) | 3 Octobre 2022
 Yogananda | [N'abandonnez jamais votre recherche de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-3-2-af-yogananda/) | 3 Octobre 2022
 James Padgett | [Le monde connaîtra ces vérités à temps](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-4-1-af-james-padgett/) | 4 Octobre 2022
-Helen Padgett | [Buvez profondément ces eaux de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-4-2-af-helen-padgett/) | 4 Octobre 2022
+Hélène Padgett | [Buvez profondément ces eaux de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-4-2-af-helen-padgett/) | 4 Octobre 2022
 Orion | [Les ressources de nos âmes aident à ouvrir les portes de l'univers](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-4-3-af-orion/) | 4 Octobre 2022
 Jésus | [Confirme le message d'Orion et encourage l'ouverture aux possibilités](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-4-4-af-jesus/) | 4 Octobre 2022
 St Pierre | [Le libre arbitre - la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-4-5-em-st-peter/) | 4 Octobre 2022

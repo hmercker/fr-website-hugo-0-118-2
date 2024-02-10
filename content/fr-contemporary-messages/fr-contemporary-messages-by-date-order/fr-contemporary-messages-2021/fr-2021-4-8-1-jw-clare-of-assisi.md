@@ -20,6 +20,18 @@ Je vais prendre du recul et être avec vous en silence pendant quelques instants
 
 1. <large id=”f1”> Robert James Lees est l’auteur de trois livres étonnants, à savoir Through the Mists, The Life Elysian et The Gate of Heaven.[↩](#a1)
 
+2. <large id="f2"> Barbara Davies s'est également exprimée dans les messages suivants : [↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Augustin       | [Hommage à Barb](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-4-14-1-af-augustine/) | 14 Avril 2019
+Barbara Davies | [Ma nouvelle maison et la vie dans l’esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-20-1-af-barbara-davies/) | 20 Janvier 2021
+Barbara Davies | [Exprimez vos émotions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-12-2-af-barbara-davies/) | 12 Mars 2021
+Barbara Davies | [Progression de la cinquième à la septième sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-26-1-af-barbara-davies/) | 26 Mai 2021
+Barbara Davis  | [Notre connexion avec notre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-24-2-af-barbara-davis/) | 24 Novembre 2022
+Barbara Davis | [Votre famille bénéficie de vos efforts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-21-1-af-barbara-davis/) | 21 Février 2023
+
+
 ### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

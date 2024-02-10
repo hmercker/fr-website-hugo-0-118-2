@@ -13,7 +13,7 @@ weight:
 
 John Denver - reçu par FAB le 23 Janvier 2003, Santa Cruz, Californie, USA.
 
-C’est moi, John Denver.
+C’est moi, John Denver.<sup id="a1">[1](#f1)</sup>
 
 Je vous remercie une fois de plus pour me permettre d’écrire. Les esprits supérieurs qui vous protègent dans cette entreprise m’ont donné la permission, et je me sens tellement privilégié de le faire.
 
@@ -34,8 +34,9 @@ Je veux que le monde sache qu’aucun talent musical, ni nobles idéaux, ne peut
 Je pense que j’ai exprimé ce soir ce que je voulais dire. J’apprécie votre bonté et je sais que nous sommes maintenant de bons amis.
 
 Sincèrement, John Denver.
+<small>
 
-**Note :** John Denver a communiqué un premier message [le 1er Janvier 2003](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-1-1-fab-john-denver/)
+1. <large id="f1"> John Denver a communiqué un premier message [le 1er Janvier 2003](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-1-1-fab-john-denver/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
 

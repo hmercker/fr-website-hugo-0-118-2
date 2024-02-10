@@ -29,9 +29,10 @@ Effacez tous les doutes et les regrets, car ils n’ont aucune vérité. Et prof
 
 Nous apprécions vos efforts en notre nom. Vous serez heureux d’apprendre que je crois maintenant à l’Amour Divin.
 
-Sincèrement, Napoléon.
+Sincèrement, Napoléon.<sup id="a1">[1](#f1)</sup>
+<small>
 
-**Note :** Vous pouvez lire ici Le précédent [message de Napoléon](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-1-2-jep-napoleon/).
+1. <large id="f1"> Vous pouvez lire ici Le précédent [message de Napoléon](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-1-2-jep-napoleon/).[↩](#a1)
 
 ### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
 

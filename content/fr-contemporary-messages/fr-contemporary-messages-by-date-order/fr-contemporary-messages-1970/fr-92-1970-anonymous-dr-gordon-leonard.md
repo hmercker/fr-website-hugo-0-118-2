@@ -31,7 +31,7 @@ Alors que je me tiens avec vous maintenant, une grande guérison est apportée p
 1. <large id="f1"> Dr Gordon Leonard s'est également exprimé dans les messages suivants :  [↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**  
---|---|---
+---|---|---
 Dr Gordon Leonard | [L'Amour Divin de Dieu, le chemin du bonheur et de la santé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-112-1969-anonymous-dr-gordon-leonard/) |   1969
 Dr Gordon Leonard  | [Le pouvoir de la foi pour guérir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-26-2-af-dr-gordon-leonard/) | 26 Décembre 2021
 

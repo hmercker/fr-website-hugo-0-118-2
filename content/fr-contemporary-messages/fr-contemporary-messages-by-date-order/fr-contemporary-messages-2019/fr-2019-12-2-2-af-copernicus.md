@@ -30,7 +30,12 @@ Que Dieu vous bénisse, mes amis, et vous garde dans son amour. Je suis Copernic
 
 1. <large id=”f1”> Nous appellerions cela des esprits « liés à la terre ». (G.C.).[↩](#a1)
 
-2. <large id="f2"> Copernic s'était également exprimé [le 9 Septembre 2019](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-9-3-af-copernicus/.)[↩](#a2) 
+2. <large id="f2"> Copernic s'était également exprimé dans les messages suivants : [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Copernic | [Vous avez toute l’éternité pour apprendre les merveilles de la création de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-9-3-af-copernicus/) | 9 Septembre 2019
+Copernic | [L'humanité a été un virus sur la Terre Mère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-7-1-af-copernicus/) | 7 Juillet 2023
 
 ### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
 

@@ -26,6 +26,8 @@ Notre famille continue sur les deux côtés de la vie. Mes enfants progressent r
 
 1. <large id="f1"> Née **Rose Elizabeth Fitzgerald** dans le quartier de North End de Boston (Massachusetts), elle était l’aînée de John F. « Honey Fitz » Fitzgerald et son épouse, Mary Josephine Hannon. « Honey Fitz » fut une figure de premier plan dans la politique de Boston  ; pour un mandat il fut membre du Congrès des États-Unis et pour deux mandats il fut le maire de Boston. Rose a été précédée par son mari, Joseph, en 1969 et quatre de ses neuf enfants : Joseph Jr. en 1944, Kathleen en 1948, John F. en 1963 et Robert en 1968. Huit mois seulement après l’assassinat de John F., la mère de Rose, Mary, est morte à l’âge de 98 ans. Rosemary Kennedy est décédée le 7 janvier 2005 à l’âge de 86 ans, et Patricia Kennedy Lawford est décédée le 17 septembre 2006 à l’âge de 82 ans, toutes deux de causes naturelles. En août 2008, seulement trois enfants vivent toujours : 87 ans – Eunice Kennedy Shriver, 80 ans – Jean Kennedy Smith et 76 ans – Sénateur Edward « Ted » Kennedy. (Source : Wikipédia)[↩](#a1)
 
+2. <large id="f2"> Rose  Kennedy s'est égalemenent exprimé quelques jours plus tard [le 16 Septembre 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-16-1-fab-rose-kennedy/)[↩](#a2)
+
 ### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

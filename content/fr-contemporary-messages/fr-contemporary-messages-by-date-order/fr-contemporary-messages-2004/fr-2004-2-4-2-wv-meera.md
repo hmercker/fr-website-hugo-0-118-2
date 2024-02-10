@@ -39,6 +39,9 @@ Aimer, c’est donner le meilleur de soi-même et le meilleur de soi-même sait 
 Alors déployez vos ailes et commencez à donner à ce monde ce qu’il veut pour que cette véritable évolution puisse avoir lieu !
 
 Je suis votre sœur, Meera, et je suis heureuse que vous ayez pris ce stylo et que vous m'avez laissé écrire aujourd’hui. J’espère que vous avez apprécié notre petite conversation et je vous laisse, pour le moment, avec mon amour.
+<small>
+
+1. <large id="f1"> Meera s'est également expimé dans un autre message communiqué [le 19 février 2004](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-2-19-1-wv-meera/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2004**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/)
 

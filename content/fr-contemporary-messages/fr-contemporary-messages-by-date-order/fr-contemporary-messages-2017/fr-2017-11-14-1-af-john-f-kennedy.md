@@ -19,10 +19,12 @@ Beaucoup d'entre vous ici étaient dans ce monde lors de ma vie publique. Donc v
 
 Que Dieu vous bénisse, mes amis. Je suis John F. Kennedy et mon amour et mon soutien sont avec vous. 
 
-Que Dieu vous bénisse. Que Dieu vous bénisse.
+Que Dieu vous bénisse. Que Dieu vous bénisse.<sup id="a2">[2](#f2)</sup>
 <small>
 
-1. <large id="f1"> John Kennedy s'était également exprimé [le 25 Mars 2013](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-25-1-fab-john-f-kennedy/)
+1. <large id="f1"> John Fitzgerald Kennedy s'était également exprimé [le 25 Mars 2013](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-25-1-fab-john-f-kennedy/)
+
+2. <large id="f2"> L'ensemble des messages communiqués par les divers préssidents Améicains est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-3-fr-former-american-presidents/).[↩](#a2)
 
 ### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
 

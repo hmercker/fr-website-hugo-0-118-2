@@ -9,7 +9,7 @@ weight:
 ---
 ### Chercher la sagesse
 
-Confucius - reçu en 1969, Vancouver, Colombie-Britannique, Canada.
+Confucius<sup id="a1">[1](#f1)</sup> - reçu en 1969, Vancouver, Colombie-Britannique, Canada.
 
 Comme un arbre qui cherche plus de soleil, l'homme doit rechercher une plus grande sagesse. Je suis Confucius.
 
@@ -20,9 +20,9 @@ L'homme doit rechercher l'amour et les conseils du Grand Esprit. Aucune force ne
 Lentement, le bourgeon fleurira et la paix viendra alors à l'humanité. Le désir de grandir et de se développer en sagesse doit être le vôtre. Se contenter de désirer et ne pas faire l'effort de gagner est une faiblesse. Mais avoir en soi la force d'un but est un pouvoir qui peut amener un homme à travers tous les niveaux de l'existence et vous, vous tous ici, devez avoir ce désir et cette détermination. Rien ne peut vous donner la puissance et la sagesse, le bonheur ou la paix comme l'Amour de notre Dieu Père. Mon Dieu, votre Dieu, qui a tout créé.
 
 Pour être un avec Dieu, l'homme doit trouver la paix et la tranquillité en lui-même. Personne ne peut vous donner cela tant que vous ne le voulez pas. Comme un arbre qui se fortifie en atteignant le soleil, vous, mes enfants, grandirez en sagesse. La force de l'Amour de Dieu est au milieu de vous ce soir, le joyau le plus précieux de tous. J'ai terminé.
+<small>
 
-
-
+1. <large id="f1"> Les différents messages communiqués par Confucius sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a1)
 
 ### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
 

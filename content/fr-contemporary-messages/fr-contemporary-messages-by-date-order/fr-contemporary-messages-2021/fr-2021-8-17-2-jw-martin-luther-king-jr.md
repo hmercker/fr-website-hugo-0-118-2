@@ -21,7 +21,17 @@ Je croyais que Dieu était amour et que Jésus était son grand prophète, son f
 
 Alors vous qui avez eu le merveilleux privilège et la bénédiction de recevoir la vérité de l’Amour de Dieu, le véritable Évangile de Jésus, et de la progression de l’âme vers le Royaume de Dieu, je vous dis : *« Gardez les yeux sur le prix »* car il n’y a rien de plus grand. Et pendant que vous vivez sur terre, faites votre devoir avec cet Amour que vous possédez, faites votre devoir pour la justice sociale, pour la terre, pour les pauvres, pour tous ceux qui sont dans le besoin. L’Amour de Dieu donne une grande empathie pour tous ceux qui souffrent, pour les désespérés et les affamés et oui, même pour ses ennemis. Le maître n’a-t-il pas dit : *« Aimez vos ennemis, ceux qui vous oppriment et vous haïssent. »* Laissez votre amour vaincre tout car il est la grande arme de paix et de lumière qui vient de Dieu, et nous sommes tous ses enfants.
 
-Que Dieu vous bénisse chacun dans vos voyages et je vous remercie d’avoir pris mon message. Nous avons ici de grands espoirs pour l’humanité en ce temps de péril, en ce temps de changement et de transition. *« N’ayez pas peur, ayez la foi et marchez dans la lumière et l’amour de Dieu. »* Tout va bien. Que Dieu vous bénisse. Qu’il vous bénisse vraiment. Je suis votre frère et ami dans le Christ. Je suis Martin Luther King. Marchez en paix.
+Que Dieu vous bénisse chacun dans vos voyages et je vous remercie d’avoir pris mon message. Nous avons ici de grands espoirs pour l’humanité en ce temps de péril, en ce temps de changement et de transition. *« N’ayez pas peur, ayez la foi et marchez dans la lumière et l’amour de Dieu. »* Tout va bien. Que Dieu vous bénisse. Qu’il vous bénisse vraiment. Je suis votre frère et ami dans le Christ. Je suis Martin Luther King.<sup id="a1">[1](#f1)</sup Marchez en paix.
+<small>
+
+1. <large id="f1"> Martin Luther King s'est également exprimé lors des messages suivants :[↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Martin Luther King jr | [La Terre Promise](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-12-1-fab-martin-luther-king-jr/) | 12 Janvier 2007
+Martin Luther King jr | [Le Dr King réaffirme la non-violence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-20-1-fab-martin-luther-king-jr/) | 20 Janvier 2008
+Martin Luther King jr | [Encouragements de Martin Luther King pour Pâques](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-4-4-1-fab-martin-luther-king-jr/) | 4 Avril 2010
+Martin Luther King jr | [L'avenir s'annonce radieux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-15-1-af-martin-luther-king/) | 15 Décembre 2017
 
 ### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
 

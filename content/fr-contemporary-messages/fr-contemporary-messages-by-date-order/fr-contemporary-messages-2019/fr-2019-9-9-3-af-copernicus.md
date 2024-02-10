@@ -28,7 +28,12 @@ Que Dieu vous bénisse dans ce voyage, mes amis. Je suis Copernic<sup id="a2">[2
 
 1. <large id=”f1”> Ce message est à rapprocher d'une communication faite par Galilée [le 21 Janvier 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-21-2-jep-galileo/).[↩](#a1)
 
-2. <large id="f2"> Copernic s'est également exprimé ultérieurement [le 2 Décembre 2019](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-2-2-af-copernicus/).[↩](#a2) 
+2. <large id="f2"> Copernic s'est également exprimé dans les messages suivants : [↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Copernic | [La mesure du temps sur Terre est très différente de celle des Cieux Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-2-2-af-copernicus/) | 2 Décembre 2019
+Copernic | [L'humanité a été un virus sur la Terre Mère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-7-1-af-copernicus/) | 7 Juillet 2023
 
 ### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
 

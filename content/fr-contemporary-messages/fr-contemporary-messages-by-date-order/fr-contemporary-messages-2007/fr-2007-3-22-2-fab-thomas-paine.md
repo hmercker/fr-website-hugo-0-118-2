@@ -11,7 +11,7 @@ weight:
 
 Thomas Paine - reçu par FAB le 22 Mars 2007, Santa Cruz, Californie, USA.
 
-Je suis Thomas Paine.
+Je suis Thomas Paine.<sup id="a1">[1](#f1)</sup>
 
 Je viens cet après-midi pour discuter de ma [précédente canalisation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-16-2-fab-thomas-paine/) à la lumière de la réaction d’un collègue de l’église. Lorsque vous avez reçu ce message, vous avez compris tout ce que je disais, y compris mes intentions. Mais cela n’était pas du tout évident pour votre ami. Permettez-moi donc d’être plus explicite.
 
@@ -30,9 +30,14 @@ Mais la vérité est qu’en raison des conséquences de mes actes, et du fait q
 J’ai ajouté qu’indépendamment de la façon dont ils sont arrivés là, le fait est que les colons ont pu mettre en place une Constitution et un gouvernement inhabituels et extraordinaires dans l’histoire des mortels. La guerre, comme toutes les guerres, était un méli-mélo de motifs, de haine pécheresse et de nobles idéaux, de conviction et de trahison. Le résultat direct de ce fatras a été la Constitution et la Déclaration des droits, qui n’ont pas été entachées par les impuretés et les péchés de la guerre. Et ce, parce que le Créateur y a participé.
 
 J’espère donc avoir clarifié le fait que je ne souhaitais en aucun cas excuser la violence dans mon message précédent. Je faisais simplement remarquer que le nouveau gouvernement américain lui-même était une chose à part, entièrement séparée de l’ambivalence et des horreurs de la guerre qui l’a précédé.
+<small>
 
-<u>Note</u> : Thomas Paine s'est de nouveau exprimé le [6 Décembre 2007](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-12-6-2-fab-thomas-paine/)
+1. <large id="f1"> Thomas Paine s'est également exprimé par l'intermédiaire des messages suivants :[↩](#a1)
 
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Thomas Paine | [Une discussion sur la médiumnité et la guerre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-16-2-fab-thomas-paine/) | 16 Mars 2007
+Thomas Paine | [Le militarisme a tout faux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-12-6-2-fab-thomas-paine/) | 6 Décembre 2007
 
 ### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
 

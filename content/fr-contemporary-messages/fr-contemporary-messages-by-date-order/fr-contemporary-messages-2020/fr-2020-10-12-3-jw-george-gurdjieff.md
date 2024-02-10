@@ -23,7 +23,6 @@ Allez dans la grâce de Dieu aujourd’hui et bénissiez chacun. Je suis votre f
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 George Gurdjieff | [L'empereur n'a pas de vêtements](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-10-10-2-jw-george-gurdjieff/) | 10 Octobre 2019
-George Gurdjieff | [Vous ne pouvez pas vous révolter contre les ténèbres, mais vous pouvez embrasser tout ce qui est dans la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-12-1-jw-george-gurdjieff/) | 12 Octobre 2020
 George Gurdjieff | [Continuez à apporter cette lumière dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-14-1-jw-george-gurdjieff/) | 14 Juin 2021
 George Gurdjieff | [Manifestations et expériences Sprituelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-28-1-af-george-gurdjieff/) | 28 Septembre 2021
 George Gurdjieff | [Rester éveillé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-7-1-jw-george-gurdjieff/) | 7 Juin 2022

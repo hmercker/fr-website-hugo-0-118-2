@@ -21,7 +21,7 @@ Amis bien-aimés, j’espère que vous pouvez voir que Dieu ouvre ces portes pou
 
 C’est l’amour et la compassion de Dieu pour chaque âme qui se manifestent de nombreuses manières. Puissiez-vous être bénis, mes amis bien-aimés, avec toutes les réponses, toutes les bénédictions, tout l’amour, toute la paix, toute la joie du voyage spirituel bien expérimenté et connu.
 
-Merci, mes amis bien-aimés. Je suis James Padgett <sup id="a1">[1](#f1)</sup> et je suis impatient que chacun d’entre vous parvienne à connaître la Vérité de l’Amour de Dieu. Que Dieu vous bénisse, mes amis. Dieu vous bénisse tendrement.
+Merci, mes amis bien-aimés. Je suis James Padgett <sup id="a2">[2](#f2)</sup> et je suis impatient que chacun d’entre vous parvienne à connaître la Vérité de l’Amour de Dieu. Que Dieu vous bénisse, mes amis. Dieu vous bénisse tendrement.
 <small>
 
 1. <large id=”f1”> Ces livres ont été publiés sous le titre « Nouvelles Révélations de Jésus de Nazareth » [et sont disponibles par l’intermédiaire de ce lien](https://new-birth.net/other-stuff/books-we-love/books-on-the-messages-received-by-james-padgett/#tgrabjone).[↩](#a1)

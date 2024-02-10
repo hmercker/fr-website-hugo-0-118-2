@@ -9,9 +9,9 @@ weight:
 ---
 ### Dans l'amour de Dieu se trouvent toutes les réponses
 
-Confucius<sup id="a1">[1](#f1)</sup>- reçu par Al Fike le 9 Août 2017, Abbotsford, Colombie-Britannique, Canada
+Confucius - reçu par Al Fike le 9 Août 2017, Abbotsford, Colombie-Britannique, Canada
 
-C'est moi, Confucius. Oui en effet, parfois vous occupez vos anges, vous protégeant et vous assistant dans vos vies, mais ma fille je vous assure qu'il n'y avait aucun péril dans vos efforts. Ne vous sentez pas accablées par cela.
+C'est moi, Confucius.<sup id="a1">[1](#f1)</sup> Oui en effet, parfois vous occupez vos anges, vous protégeant et vous assistant dans vos vies, mais ma fille je vous assure qu'il n'y avait aucun péril dans vos efforts. Ne vous sentez pas accablées par cela.
 
 Il y a beaucoup d'autres moments dans chacune de vos vies où le péril peut être imminent, mais les anges vous aident à contourner ces conditions et vous n'êtes pas conscients, et vous ne devez pas sentir que vous devez être conscients de ces conditions, simplement marcher dans la foi, mes âmes bien-aimées, marcher dans la foi. Soyez dans la Lumière. Soyez avec Dieu. Au fur et à mesure que vos âmes acquièrent plus de cette bénédiction d'amour de Sa grande âme, vous serez protégés. La main de Dieu sera sur vous, mes bien-aimés, et vous ne devez pas vous inquiéter de votre sort. Au fur et à mesure que vous grandissez dans l'Amour, mes bien-aimés, vous serez guidés et vous créerez la Lumière et apporterez l'harmonie. N'est-ce pas votre désir ? Cela ne fait-il pas partie de votre but dans la vie, d'apporter l'Amour, l'harmonie et la Lumière, de suivre la volonté de Dieu, de rechercher et d'exprimer l'Amour ?
 

@@ -11,7 +11,7 @@ weight:
 
 Salomé - reçu par Al Fike le 21 Juin 2022, Gibsons, Colombie-Britannique, Canada.
 
-Que les bénédictions de l’amour soient sur vous, mes beaux frères et sœurs de la Terre. Je m’appelle Salomé, j’ai vécu à l’époque de Jésus et j’étais une adepte de sa vérité ; je réside donc dans le Royaume Céleste, et ce depuis plusieurs centaines d’années. Je tiens à vous dire que Dieu rassemble ses forces : les anges du ciel, les esprits lumineux, ceux d’entre vous qui se trouvent sur le plan terrestre, afin de contribuer aux puissants changements et transformations qui sont en train de s’opérer dans votre monde. Ces transformations sépareront les ténèbres de la lumière et les ténèbres se dissoudront dans la lumière.
+Que les bénédictions de l’amour soient sur vous, mes beaux frères et sœurs de la Terre. Je m’appelle Salomé,<sup id="a1">[1](#f1)</sup> j’ai vécu à l’époque de Jésus et j’étais une adepte de sa vérité ; je réside donc dans le Royaume Céleste, et ce depuis plusieurs centaines d’années. Je tiens à vous dire que Dieu rassemble ses forces : les anges du ciel, les esprits lumineux, ceux d’entre vous qui se trouvent sur le plan terrestre, afin de contribuer aux puissants changements et transformations qui sont en train de s’opérer dans votre monde. Ces transformations sépareront les ténèbres de la lumière et les ténèbres se dissoudront dans la lumière.
 
 Mes amis bien-aimés, vos prières sont nécessaires. Vos pensées, vos actes, vos perspectives et les ouvertures de votre cœur et de votre âme vers le grand Amour de Dieu et tout ce qui est de lumière sont nécessaires. Alors que le monde continue à rejeter l’obscurité et à se diriger vers la lumière, une plus grande lumière et l’harmonie, Dieu a besoin de Ses instruments, qu’ils viennent des Cieux Célestes ou de votre plan terrestre et des nombreuses autres sources et ressources d’âmes qui sont en alignement avec la vérité de l’amour, de la lumière et de l’harmonie.
 
@@ -32,6 +32,14 @@ Bien-aimés, amis bien-aimés, frères et sœurs, soyez cette lumière. Sachez q
 Âmes bien-aimées, vous êtes précieuses pour Dieu. Vous êtes précieuses pour nous dans le Royaume céleste. Vous êtes précieuses dans ce monde, car vous portez une vérité et une lumière qui peuvent le transformer et éliminer toute la douleur et la souffrance qui s’y trouvent. Sachez-le et croyez-le. Ayez une grande foi en cela, et vous trouverez la liberté, la vérité, la joie, la lumière que vous recherchez. Cela viendra au fur et à mesure que Son Amour coulera en vous et vous transformera.
 
 Que Dieu vous bénisse, âmes bien-aimées, et vous garde dans la lumière. Je suis Salomé et mon amour est avec vous, vous tous. Mes prières vous accompagnent. Et les prières dont vous parlez sont exaucées par vos efforts communs, en les envoyant à Dieu qui répondra en harmonie avec Ses lois et Sa Volonté. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> Salome s'est exprimée dans les messages suivants : [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|--
+Salome | [Les désirs de notre âme en alignement avec la volonté de Dieu (2021 Voix directe II)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-17-1-af-salome/) | 17 Septembre 2021
+Salome | [Le monde a besoin de vos prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-21-2-af-salome/) | 21 Juin 2022
 
 ### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
 

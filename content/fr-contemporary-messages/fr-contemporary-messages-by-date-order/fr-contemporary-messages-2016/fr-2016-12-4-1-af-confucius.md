@@ -9,9 +9,9 @@ weight:
 ---
 ### Bénédictions de guérison et d’amour
 
-Confucius<sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 4 Décembre 2016, Punalu’u, Hawaii, USA.
+Confucius - reçu par Al Fike le 4 Décembre 2016, Punalu’u, Hawaii, USA.
 
-C’est Confucius.
+C’est Confucius.<sup id="a1">[1](#f1)</sup>
 
 Vous vous êtes tous réunis pour la guérison et vous recevrez la guérison alors que vous êtes ensemble dans ce groupe. Vous repartirez de ces moments avec une compréhension plus profonde, moins de fardeaux et une plus grande joie en vous. Continuez à prier dans vos cercles et vous verrez comment vous êtes plus légers avec chaque jour, plus joyeux, et une compréhension plus profonde viendra grâce à vos prières faites alors que vous étiez ensemble.
 

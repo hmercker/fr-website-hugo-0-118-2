@@ -11,7 +11,7 @@ weight:
 
 Wat Tyler - reçu par FAB le 16 Février 2009, Santa Cruz, Californie, USA.
 
-C'est moi, Wat Tyler.
+C'est moi, Wat Tyler.<sup id="a1">[1](#f1)</sup>
 
 Vous avez réfléchi au message que j'ai [canalisé il y a deux jours](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-14-1-fab-wat-tyler/). Vous vous demandez comment nous, les paysans, aurions pu réagir autrement.
 
@@ -24,6 +24,14 @@ Alors que je contemplais mon destin, je me suis souvenu de certaines choses que 
 Dès que ce changement dans mon esprit s'est produit, je me suis retrouvé avec un esprit qui avait enduré de grandes persécutions et injustices sur terre. Il m'a dit qu'il avait absorbé les enseignements de Jésus et qu'il avait ainsi trouvé en lui la force d'endurer sa souffrance avec grâce et patience, en essayant toujours de contrôler la négativité envers ses oppresseurs. Il a dit que c'était parfois très difficile, mais qu'avec le temps, il a développé des habitudes d'esprit et d'âme qui lui ont permis de réussir à obéir aux enseignements du Maître. En conséquence, il a hérité d'un grand bonheur ici, et n'a pas du tout souffert de ce que je souffrais en esprit.
 
 Naturellement, j'ai été très surpris. J'ai commencé à réévaluer ma vie, et dès que ce désir a surgi dans mon âme, un Ange est venu me voir et m'a expliqué comment progresser. Je l'ai fait, et ainsi j'ai fini par sortir de mon obscurité. La méthode que cet Ange m'a enseignée était de prier pour l'Amour Divin. J'ai donc réalisé qu'une autre approche était toujours à ma disposition, mais que j'étais aveugle à celle-ci. Pour moi, c'était donc comme si elle n'existait pas.
+<small>
+
+1. <large id="f1">  Wat Tyler s'est également exprimé dans les messages suivants : [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Wat Tyler | [La négativité dans la guerre - 1](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-14-1-fab-wat-tyler/) | 14 Février 2009
+Wat Tyler | [La négativité à la guerre - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-17-1-fab-wat-tyler/) | 17 Février 2009
 
 ### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
 

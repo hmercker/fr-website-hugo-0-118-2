@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous devez chercher et vous préparer à recevoir
 
-Aigle Blanc - reçu en 1969, Vancouver, Colombie-Britannique, Canada.
+Nuage Blanc - reçu en 1969, Vancouver, Colombie-Britannique, Canada.
 
 Je suis l'Indien, Nuage Blanc.<sup id="a1">[1](#f1)</sup>.  Je me tiens debout. Les Indiens ne s'assoient jamais sur une chaise. Que les bénédictions du Grand Esprit Blanc tombent sur vous, mes amis. Il y a beaucoup d'Indiens ici et je suis fier de voir la lumière que les amis indiens apportent. Nous devons venir à vous mes amis lorsque nous trouvons cette porte ouverte. Nous ne pouvons pas rester sans rien faire et ne rien vous dire. Bien souvent, nous venons nous tenir à vos côtés et vous apporter la guérison lorsque vous n'êtes pas pleinement conscients de notre présence.
 
@@ -28,7 +28,8 @@ Ma bénédiction pour vous ce soir est pour la bénédiction de Dieu. En quittan
 
 **Auteur** | **Titre du message** | **Date du message**  
 --|---|---
-Nuage Blanc et Eau Christalline | [Nuage blanc, eau cristalline](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-111-1969-anonymous-white-cloud-crystal-water/) |   1969
+Nuage Blanc | [Vous devez chercher et vous préparer à recevoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-72-1969-anonymous-white-cloud/) |   1969
+Nuage Blanc et Eau de Cristal | [Nuage blanc, eau de chrystal](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-111-1969-anonymous-white-cloud-crystal-water/) |   1969
 Nuage Blanc | [Aidez les autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-114-1969-anonymous-white-cloud/) |   1969
 Nuage Blanc | [L'importance de la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-124-1969-anonymous-white-cloud/) |   1969
 Nuage Blanc | [Apprenez à lancer des pensées d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-143-1970-anonymous-white-cloud/) |   1970
@@ -40,6 +41,8 @@ Nuage Blanc | [Dites la vérité](/fr-contemporary-messages/fr-contemporary-mess
 Nuage Blanc | [Vous devez vous lever et dire la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-6-1-1-af-white-cloud/) | 1 Juin 2019
 Nuage Blanc | [Demander les bénédictions et les dons de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-11-2-af-white-cloud/) | 11 Septembre 2019
 Nuage Blanc | [Priez avec nous pour plus d'équilibre et d'harmonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-3-1-af-white-cloud/) | 3 Décembre 2021
+
+
 
 ### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
 

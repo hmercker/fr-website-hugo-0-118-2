@@ -11,7 +11,7 @@ weight:
 
 James Padgett - reçu par Révérend Dave Lampron le 21 Octobre 1997.
 
-Oui, c’est moi, James E. Padgett, un ange Céleste et l’un des esprits de votre équipe. Je suis si heureux de pouvoir enfin vous saluer de cette manière personnelle et vous transmettre ma profonde gratitude pour tout ce que vous avez fait, non seulement dans la merveilleuse édition que vous avez réalisée, mais aussi en me donnant une voix et une contribution significative et importante dans les questions et les déclarations que vous avez créées pour moi afin de les inclure parmi les messages des trois volumes que vous avez achevés jusqu’à présent.
+Oui, c’est moi, James E. Padgett, <sup id="a1">[1](#f1)</sup> un ange Céleste et l’un des esprits de votre équipe. Je suis si heureux de pouvoir enfin vous saluer de cette manière personnelle et vous transmettre ma profonde gratitude pour tout ce que vous avez fait, non seulement dans la merveilleuse édition que vous avez réalisée, mais aussi en me donnant une voix et une contribution significative et importante dans les questions et les déclarations que vous avez créées pour moi afin de les inclure parmi les messages des trois volumes que vous avez achevés jusqu’à présent.
 
 Vous vous souviendrez que j’ai donné un message par l’intermédiaire de K____ déclarant et affirmant que vous me feriez un plus grand honneur et un plus grand respect en insérant ces questions et déclarations conçues pour donner vie à mes contributions (plutôt que de ne pas fournir ces ajouts nécessaires) afin que les lecteurs aient une bien meilleure compréhension de ce qui était discuté et de ce qui allait suivre dans les paragraphes suivants. Bien sûr, outre l’aide à la facilité de lecture et à la compréhension, il y avait l’avantage supplémentaire de personnaliser mes propres contributions à certaines des formulations qui suivaient mon propre questionnement. Les esprits Célestes ont souvent pris l’initiative de discuter de sujets qui n’auraient peut-être pas été abordés ou qui auraient été reportés à beaucoup plus tard. Ainsi, les questions posées étaient importantes et ont fait de moi un élément essentiel de toute cette expérience révélatrice.
 
@@ -30,7 +30,9 @@ Oui, David, je fais partie de votre groupe d’esprits et, vous pouvez être sû
 Je pourrais continuer pendant des pages et des pages à vous communiquer ma gratitude et mon amour, mais ce que j’ai dit aujourd’hui devra servir de point de départ, car je sais que vous êtes assis pour des messages depuis des heures maintenant. Mais pour conclure, sachez que mes prières sont avec vous et que nous serons et resterons toujours frères et amis dans ce grand travail que nous avons eu le privilège d’entreprendre. Encore une fois, merci beaucoup et que Dieu vous bénisse.
 
 James E. Padgett, collègue de travail et l’un de vos anges de compagnie.
+<small>
 
+1. <large id="f1"> L'ensemble des messages communiqués par James Padgett  est disponible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-12-fr-family-and-friends-of-james-padgett/)[↩](#a1) 
 
 ### [**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
 

@@ -17,7 +17,7 @@ Richard | [Donner, recevoir, émotions et pensées](/fr-contemporary-messages/fr
 Richard | [Gratitude](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-18-1-jr-richard/) | 18 Mai 2014
 Agnès | [Ne pas ignorer l’Amour Naturel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-19-2-jr-agnes/) | 19 Mai 2014
 Riannon | [Restez connectés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-21-3-jr-riannon/) | 21 Mai 2014
-St François d'Assise | [« S’aimer les uns les autres »](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-26-1-jr-st-francis-of-assisi/) | 26 Mai 2014
+St François d'Assise | [S’aimer les uns les autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-26-1-jr-st-francis-of-assisi/) | 26 Mai 2014
 St François d'Assise | [Vivre dans l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-6-8-1-jr-st-francis-of-assisi/) | 8 Juin 2014
 
 Depuis sa transition dans le monde spirituel, James Reid s’est quelques fois manifesté. Les messages qu’il a alors communiqués sont disponibles dans la tableau ci-dessous :

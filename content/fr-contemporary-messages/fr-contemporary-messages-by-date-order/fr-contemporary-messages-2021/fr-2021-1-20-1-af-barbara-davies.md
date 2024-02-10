@@ -13,7 +13,7 @@ Barbara Davies - reçu par Al Fike le 20 Janvier 2021, Gibsons, Colombie-Britann
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-barbara-davis.jpg)
 
-Que le Père vous bénisse de Son Amour. Je suis Barbara. Je viens pour être avec vous et vous dire, mes amis bien-aimés, que je suis souvent près de vous, qu’en réalité, je n’ai jamais quitté votre côté, mais dans mes prières et mes pensées et tout ce que je suis, sachez que mon amour est avec vous, qu’à chaque instant de chaque jour, le lien d’amour entre nous n’est jamais rompu, mais est plein et riche et que nous portons tous ensemble ce beau lien.
+Que le Père vous bénisse de Son Amour. Je suis Barbara.<sup id="a1">[1](#f1)</sup> Je viens pour être avec vous et vous dire, mes amis bien-aimés, que je suis souvent près de vous, qu’en réalité, je n’ai jamais quitté votre côté, mais dans mes prières et mes pensées et tout ce que je suis, sachez que mon amour est avec vous, qu’à chaque instant de chaque jour, le lien d’amour entre nous n’est jamais rompu, mais est plein et riche et que nous portons tous ensemble ce beau lien.
 
 Je veux que vous sachiez combien je suis heureuse d’être entrée dans ma nouvelle maison dans le monde des esprits. Et je tiens à dire que toutes les descriptions et anecdotes qui sont données concernant ces lieux ne sont que l’ombre de la réalité. Pour reprendre une expression que j’ai souvent été heureuse d’utiliser, c’est époustouflant. Vous ne pouvez pas imaginer à quel point c’est beau.
 
@@ -31,7 +31,23 @@ Comme vous êtes aimés, mes amis. Comme vous êtes beaux. Et je sais que beauco
 
 Mon amour est avec vous. Je suis heureuse de faire partie de ce cercle. Et ma chère et bien-aimée sœur, comme tu es dévouée à aider les autres. Et mon amour, mon aide et mon appréciation de ce que vous êtes ne cessent de croître. En vous observant de mon côté de la vie, je vois plus intensément, plus profondément, la beauté de votre âme. Ainsi, depuis l’endroit où je réside, lorsque je viens sur Terre et que je suis attirée par ceux qui sont dans la lumière, j’en suis venue à apprécier beaucoup plus les efforts, les luttes et les cheminements que vous faites tous pour trouver Dieu. Et mes prières et mon amour sont avec vous tous alors que vous continuez ce voyage d’amour.
 
-Que Dieu vous bénisse de Son Amour, de cette belle Paix, de la belle Touche de Dieu. C’est pour vous tous. Elle est pour toute l’humanité. Continuez à prier pour que l’humanité soit touchée par Dieu, intensément, profondément. Que Dieu vous bénisse, mes amis. Sachez que je suis proche, plus proche que vous ne le pensez, que je continuerai à vous aider à être élevé dans l’amour. Que Dieu vous bénisse, mes amis. Je suis Barbara. Je vous aime. Que Dieu vous bénisse tous.
+Que Dieu vous bénisse de Son Amour, de cette belle Paix, de la belle Touche de Dieu. C’est pour vous tous. Elle est pour toute l’humanité. Continuez à prier pour que l’humanité soit touchée par Dieu, intensément, profondément. Que Dieu vous bénisse, mes amis. Sachez que je suis proche, plus proche que vous ne le pensez, que je continuerai à vous aider à être élevé dans l’amour. Que Dieu vous bénisse, mes amis. Je suis Barbara. <sup id="a2">[2](#f2)</sup> Je vous aime. Que Dieu vous bénisse tous.
+<small>
+
+1. <large id=”f1”> Barbara Davies a longtemps été un pilier important du mouvement Divine Love pour la communauté de Vancouver au Canada et a largement contribué à l’essor du mouvment dans ce pays. Barbra est passée au monde des esprits le 14 Avril 2019.[↩](#a1)
+
+2. <large id="f2"> Barbara Davies s'est également exprimée dans les messages suivants : [↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Barbara Davies | [Exprimez vos émotions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-12-2-af-barbara-davies/) | 12 Mars 2021
+Barbara Davies | [Désir de servir et d’être dans l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-6-1-af-barbara-davies/) | 6 Avril 2021
+Barbara Davies | [Progression de la cinquième à la septième sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-26-1-af-barbara-davies/) | 26 Mai 2021
+Barbara Davies | [Notre connexion avec notre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-24-2-af-barbara-davis/) | 24 Novembre 2022
+Barbara Davies | [Amitié et voyage similaire avec Grace Jordan](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-28-1-af-barbara-davies/) | 28 Janvier 2023
+Barbara Davis  | [Votre famille bénéficie de vos efforts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-21-1-af-barbara-davis/) | 21 Février 2023
+Barbara Davies | [N'ayez pas peur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-6-23-3-af-barbara-davies/) | 23 Juin 2023
+Barbara Davies | [Faire la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-14-1-af-barbara-davies/) | 14 Juillet 2023
 
 ### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
 

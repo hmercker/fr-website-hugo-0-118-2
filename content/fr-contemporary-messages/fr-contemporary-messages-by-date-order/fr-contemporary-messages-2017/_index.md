@@ -207,7 +207,7 @@ Marie | [Les porteurs d'eau de l'amour](/fr-contemporary-messages/fr-contemporar
 St Matthieu | [Dieu est amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-12-1-af-st-matthew/) | 12 Novembre 2017
 Seretta Kem & Jésus | [Parler de collaboration à propos de la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-12-2-af-seretta-kem-jesus/) | 12 Novembre 2017
 Seretta Kem | [Bienvenue pour le retour à la Chambre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-13-1-af-seretta-kem/) | 13 Novembre 2017
-John F Kennedy | [De grands projets sont en préparation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-14-1-af-john-f-kennedy/) | 14 Novembre 2017
+John Fitzgerald Kennedy | [De grands projets sont en préparation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-14-1-af-john-f-kennedy/) | 14 Novembre 2017
 Roi George VI | [Continuez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-14-2-af-king-george-vi/) | 14 Novembre 2017
 Winston Churchill | [On a besoin de vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-14-3-af-winston-churchill/) | 14 Novembre 2017
 Seretta Kem | [Une question sur la 7ème Sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-14-4-af-seretta-kem/) | 14 Novembre 2017

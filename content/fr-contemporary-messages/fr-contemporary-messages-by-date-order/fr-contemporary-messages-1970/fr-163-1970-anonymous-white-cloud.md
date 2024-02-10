@@ -11,7 +11,7 @@ weight:
 
 Nuage Blanc - reçu en 1970, Vancouver, Colombie-Britannique, Canada.
 
-Je viens moi aussi. Je suis Nuage Blanc.<sup id="a1">[1](#f1)</sup>
+Je viens moi aussi. Je suis Nuage Blanc.
 
 Je suis très heureux d'amener mes semblables avec moi ce soir pour vous parler un court moment, mes amis. Tecumseh <sup id="a1">[1](#f1)</sup> et moi ne resterons pas trop longtemps car beaucoup souhaitent nous suivre et l'instrument est en très bonne condition ici ce soir. Très heureux de voir tant de guérisons au début de la séance. Cela crée une condition merveilleuse pour que nous puissions venir et c'est très merveilleux pour nous tous ici ce soir.
 
@@ -19,17 +19,17 @@ Beaucoup de ceux qui sont ici ont besoin de guérison. Beaucoup de ceux qui pens
 
 Un soir, je vous expliquerai en détail les différentes couleurs et les produits chimiques qu'elles représentent. Je vous expliquerai les différentes parties du corps que ces produits chimiques guérissent, mais ce soir nous n'avons pas assez de temps pour le faire, aussi tout ce que nous pouvons faire est de démontrer et d'enseigner chaque fois que nous le pouvons. Cela rend curieux ceux qui étudient la médecine, et c'est ce que nous désirons, mes amis.
 
-Bonne nuit et que le Grand Esprit Blanc bénisse chacun d'entre vous ici, ceux que vous voyez et ceux que vous ne voyez pas, mes amis.
+Bonne nuit et que le Grand Esprit Blanc bénisse chacun d'entre vous ici, ceux que vous voyez et ceux que vous ne voyez pas, mes amis.<sup id="a2">[2](#f2)</sup>
 <small>
 
 1. <large id="f1"> Tecumseh /(ti-KUM-see) (Mars 1768 - 5 Octobre 1813), était un guerrier et chef Amérindien Shawnee, qui devint le principal dirigeant d'une grande confédération multi-tribale au début du XIXe siècle.[↩](#a1)
 
-2. <large id="f1"> Nuage Blanc s'est également exprimé dans les messages suivants :  [↩](#a1)
+2. <large id="f2"> Nuage Blanc s'est également exprimé dans les messages suivants :  [↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**  
---|---|---
+---|---|---
 Nuage Blanc | [Vous devez chercher et vous préparer à recevoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-72-1969-anonymous-white-cloud/) |   1969
-Nuage Blanc et Eau Christalline | [Nuage blanc, eau cristalline](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-111-1969-anonymous-white-cloud-crystal-water/) |   1969
+Nuage Blanc et Eau de Chrystal | [Nuage blanc, eau de Chystal](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-111-1969-anonymous-white-cloud-crystal-water/) |   1969
 Nuage Blanc | [Aidez les autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-114-1969-anonymous-white-cloud/) |   1969
 Nuage Blanc | [L'importance de la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-124-1969-anonymous-white-cloud/) |   1969
 Nuage Blanc | [Apprenez à lancer des pensées d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-143-1970-anonymous-white-cloud/) |   1970

@@ -9,7 +9,7 @@ weight:
 ---
 ### Pourquoi les gens accusent-ils Dieu du mal dans ce monde ?
 
-Swift Bear - reçu par Alfredo le 8 Septembre 2000, Séville, Espagne.
+Ourson Véloce<sup id="a1">[1](#f1)</sup> - reçu par Alfredo le 8 Septembre 2000, Séville, Espagne.
 
 *[Question : Pourquoi y a-t-il tant de gens qui doutent de l’existence de Dieu ?]*
 
@@ -51,7 +51,16 @@ Il est essentiel pour nous d’apprendre, d’éduquer, nous sommes des personne
 Alors, allez-y, apprenez ! Vous n’êtes pas seuls, vous avez l’Amour de Dieu et ses messagers pour prendre soin de vous, pour vous aider, pour vous guider. Ne désespérez pas, car finalement vous récolterez les fruits bénéfiques de votre vie.
 
 Swift Bear.
+<small>
 
+1. <large id="f1"> Ourson Véloce s'est exprimé dans les messages suivants : [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Ourson Véloce  | [Au fond de mon cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-9-23-1-Alfredo-swift-bear/) | 23 Septembre 2000
+Ourson Véloce  | [Notre développement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-11-2-1-Alfredo-swift-bear/) | 2 Novembre 2000
+Ourson Véloce  | [Votre relation avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-11-12-1-Alfredo-swift-bear/) | 12 Novembre 2000
+Ourson Véloce  | [Guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-7-17-1-alfredo-swift-bear/) | 17 Juillet 2001
 
 ### [**Lien vers les messages des années 2000**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/)
 

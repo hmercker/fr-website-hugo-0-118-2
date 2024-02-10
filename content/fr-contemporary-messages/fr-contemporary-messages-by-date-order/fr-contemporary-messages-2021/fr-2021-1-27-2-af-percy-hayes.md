@@ -25,10 +25,18 @@ Mes amis, vous êtes grandement bénis, vraiment très bénis d’être sur ce c
 
 Ainsi, Dieu apporte des bénédictions à travers vous et pour vous alors que vous marchez sur le plan terrestre. Puissiez-vous apprendre à connaître toutes les façons dont Dieu vous utilise comme Ses instruments. Puissiez-vous en venir à connaître le pouvoir de l’Amour de Dieu pour transformer, guérir et vous rapprocher. C’est un chemin simple ; un chemin si simple mais pourvu de si grandes récompenses. Tant de choses se produisent lorsque vous continuez à prier pour ce grand don d’amour. Que Dieu vous bénisse dans ce voyage, mes beaux amis, et que vous puissiez connaître l’émerveillement du toucher de Dieu sur votre âme et voir que vous êtes vraiment aimés et que vous êtes destinés à continuer à marcher sur un chemin d’amour.
 
-Bénédictions à vous tous. Bénédictions à ma famille. Sachez que je suis proche, que je viens protéger vos proches. Que moi aussi, je suis un instrument de Dieu et que je le fais avec la joie dans mon cœur et l’amour dans mon âme. Que Dieu vous bénisse et vous garde dans son amour. Votre ami Percy est avec vous. Et oui, je suis souvent avec votre bien-aimée Barbara. Nous avons beaucoup de conversations ensemble et parfois nous travaillons ensemble. Que Dieu vous bénisse. Que Dieu vous bénisse mes amis. Mon amour est toujours avec vous. Que Dieu vous bénisse.
+Bénédictions à vous tous. Bénédictions à ma famille. Sachez que je suis proche, que je viens protéger vos proches. Que moi aussi, je suis un instrument de Dieu et que je le fais avec la joie dans mon cœur et l’amour dans mon âme. Que Dieu vous bénisse et vous garde dans son amour. Votre ami Percy <sup id="a2">[2](#f2)</sup>  est avec vous. Et oui, je suis souvent avec votre bien-aimée Barbara. Nous avons beaucoup de conversations ensemble et parfois nous travaillons ensemble. Que Dieu vous bénisse. Que Dieu vous bénisse mes amis. Mon amour est toujours avec vous. Que Dieu vous bénisse.
 <small>
 
 1. <large id=”f1”> Percy Hayes fut un des pionniers du mouvement de l’Amour Divin au Canada et a largement contribué à l’établissement de la communauté de Vancouver.[↩](#a1)
+
+2. <large id="f1"> Percy Hayes s'est exprimé dans les messages suivants : [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|--
+Percy Hayes | [Salutations de Percy depuis le Royaume d'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-12-1-af-percy-hayes/) | 12 Octobre 2017
+Percy Hayes | [Percy Hayes annonce son entrée dans le Royaume Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-27-2-af-percy-hayes/) | 27 Janvier 2021
+
 
 ### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
 

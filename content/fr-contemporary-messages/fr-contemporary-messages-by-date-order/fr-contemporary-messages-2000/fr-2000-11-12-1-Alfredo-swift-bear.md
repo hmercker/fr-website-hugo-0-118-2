@@ -9,7 +9,7 @@ weight:
 ---
 ### Votre relation avec Dieu
 
-Swift Bear - reçu par Alfredo le 12 Novembre 2000, Séville, Espagne.
+Ouson Véloce - reçu par Alfredo le 12 Novembre 2000, Séville, Espagne.
 
 Nous nous demandons tous comment développer une relation intime avec Dieu. Chacun s’efforce, dans une mesure plus ou moins grande, d’atteindre ce but de la meilleure façon possible. Nous cherchons dans une infinité de croyances, de rites religieux, de philosophies, etc., nous sentant souvent désillusionnés par la longue liste d’adversités que nous trouvons dans chacun d’eux. Cependant, si nous y réfléchissons, nous nous rendons compte qu’elles peuvent contenir une part de vérité, et nous pensons alors : *« C’est cette partie qui m’intéresse. »*
 
@@ -35,8 +35,17 @@ Ainsi, nous réalisons quelque chose de fondamental, en obtenant une relation é
 
 Que Dieu vous couvre de riches bénédictions dans son amour infini.
 
-De la part de votre frère Swift Bear.
+De la part de votre frère Ourson Véloce.
+<small>
 
+1. <large id="f1"> Ourson Véloce s'est exprimé dans les messages suivants : [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Ourson Véloce  | [Pourquoi les gens accusent-ils Dieu du mal dans ce monde ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-9-8-2-Alfredo-swift-bear/) | 8 Septembre 2000
+Ourson Véloce  | [Au fond de mon cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-9-23-1-Alfredo-swift-bear/) | 23 Septembre 2000
+Ourson Véloce  | [Notre développement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-11-2-1-Alfredo-swift-bear/) | 2 Novembre 2000
+Ourson Véloce  | [Guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-7-17-1-alfredo-swift-bear/) | 17 Juillet 2001
 
 ### [**Lien vers les messages des années 2000**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/)
 

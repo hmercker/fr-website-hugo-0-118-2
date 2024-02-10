@@ -38,10 +38,9 @@ Comme le derviche tourneur
 Vous êtes
 Le Danseur de Dieu
 Hafiz.
-
 <small>
 
-1. <large id="f1"> Afiz (Afez s'est également exprimé dans les messages suivants :  [↩](#a1)
+1. <large id="f1"> Afiz (Afez) s'est également exprimé dans les messages suivants :  [↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---

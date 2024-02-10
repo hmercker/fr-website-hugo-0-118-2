@@ -11,7 +11,7 @@ weight:
 
 Robert James Lees - reçu par Jimbeau Walsh le 9 Juillet 2021, Punalu’u, Oahu, Hawaii, USA.
 
-Je suis Robert J. Lees.<sup id="a1">[1](#f1)</sup> J’ai écouté votre discussion d’aujourd’hui et toutes ses considérations en réfléchissant à ce que j’ai reçu <sup id=”a2”>[2](#f2)</sup>. Aphraar essayait de brosser un tableau très large afin que chaque âme, à sa manière, puisse comprendre non seulement le fonctionnement du libre arbitre, mais aussi l’ignorance volontaire, car Dieu ne punit pas. Les humains font leur propre lit et Dieu attend qu’ils se réveillent et sortent du rêve de la mort, des ravages du péché, pour entrer dans la lumière de Son amour et de Sa compassion et dans le glorieux voyage à travers les sphères, jusqu’à la source de Son amour et de Sa Grâce.
+Je suis Robert James Lees.<sup id="a1">[1](#f1)</sup> J’ai écouté votre discussion d’aujourd’hui et toutes ses considérations en réfléchissant à ce que j’ai reçu <sup id=”a2”>[2](#f2)</sup>. Aphraar essayait de brosser un tableau très large afin que chaque âme, à sa manière, puisse comprendre non seulement le fonctionnement du libre arbitre, mais aussi l’ignorance volontaire, car Dieu ne punit pas. Les humains font leur propre lit et Dieu attend qu’ils se réveillent et sortent du rêve de la mort, des ravages du péché, pour entrer dans la lumière de Son amour et de Sa compassion et dans le glorieux voyage à travers les sphères, jusqu’à la source de Son amour et de Sa Grâce.
 
 Il suffit de lire ces écrits avec votre âme. Il n’est pas nécessaire de trop réfléchir à ces choses et, en fait, le langage dans lequel ils sont écrits est conçu pour déconcentrer le mental, dans une certaine mesure, afin que l’âme puisse saisir le sens profond des vérités présentées. N’est-ce pas merveilleux ? Ce fut un grand cadeau pour moi et comme je l’ai dit, je suis plus que ravi que vous le partagiez entre vous et que vous souhaitiez le partager avec d’autres.
 
@@ -29,7 +29,7 @@ Mes chers amis, c’est un honneur et une joie pour moi d’être avec vous. Que
 3. <large id="f3"> Robert James Lees s'est également exprimé lors des messages suivants [↩](#a3)
 
 **Auteur** | **Titre du message** | **Date du message**  
---|---|---
+---|---|---
 Robert James Lees | [L’auteur de « A travers les brumes » est très reconnaissant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-13-1-jw-robert-james-lees/) | 13 Avril 2021
 Robert James Lees | [Veuillez mettre à jour mon livre dont le texte est périmé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-25-1-jw-robert-james-lees/) | 25 Mai 2021
 Robert James Lees | [Je vous guiderai](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-18-2-jw-robert-james-lees/) | 18 Juin 2021

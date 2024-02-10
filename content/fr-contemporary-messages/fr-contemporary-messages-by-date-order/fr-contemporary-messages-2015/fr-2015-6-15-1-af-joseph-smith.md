@@ -28,6 +28,8 @@ Il y a beaucoup de travail à faire, mes bien-aimés, beaucoup de travail à fai
 
 1. <large id="f1"> Joseph Smith s'est également exprimé dans les messages suivants : [↩](#a1)
 
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
 Joseph Smith | [Fondateur de la foi mormone](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-13-1969-7-14-anonymous-joseph-smith/) | 14 Juillet 1969
 Joseph Smith | [Il est important d'apporter la vérité à l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-16-5-af-joseph-smith/) | 16 Novembre 2017
 

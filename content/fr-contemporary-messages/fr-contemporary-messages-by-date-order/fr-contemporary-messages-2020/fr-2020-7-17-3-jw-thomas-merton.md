@@ -25,7 +25,7 @@ Je vous remercie de m’avoir accordé ce temps et je suis honoré d’être ici
 2. <large id="f2"> Thomas Merton s'est également exprimé dans les messages suivants :[↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**  
---|---|---
+---|---|---
 Thomas Merton | [Si vous aviez une croyance pour vous porter](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-24-2-jw-thomas-merton/) | 24 Mai 2020
 Thomas Merton | [Le pouvoir des mots](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-27-1-jw-thomas-merton/) | 27 Juin 2020
 Thomas Merton | [La simplicité de la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-31-1-jw-thomas-merton/) | 31 Mai 2021

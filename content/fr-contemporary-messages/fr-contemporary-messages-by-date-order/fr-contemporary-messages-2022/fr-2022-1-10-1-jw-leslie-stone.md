@@ -28,10 +28,17 @@ Ne vous inquiétez pas de savoir où vous en êtes sur le chemin. Sachez seuleme
 Je vous remercie de m’avoir accordé ce temps et je vous assure que si vous trébuchez, nous sommes là pour vous relever et nous le ferons. Que l’Amour de Dieu soit avec vous maintenant et toujours.
 Je suis votre frère dans le Christ et ma Marie est ici avec moi comme beaucoup d’entre nous dans cette prière avec vous. Allez avec Dieu.
 
-Soyez en paix. Je suis Leslie Stone.
+Soyez en paix. Je suis Leslie Stone.<sup id="a2">[2](#f2)</sup>
 <small>
 
 1. <large id=”f1”> <u>Note du médium</u> : Le Dr Stone m’a dit en privé dans la prière qu’il s’est retrouvé, après sa transition vers la vie spirituelle, dans la troisième sphère. Il voulait me faire savoir que c’est la première sphère de l’Amour Divin mais que c’est aussi une sphère d’amour naturel et qu’il n’y a pas deux 3e sphères distinctes. Peu après, Il a progressé vers la Cinquième sphère et finalement vers le Royaume Céleste.[↩](#a1)
+
+2. <large id="f2"> Leslie Stone s'est également exprimé dans les messages suivants : [↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Leslie Stone | [Leslie Stone est très haut dans les Cieux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-11-7-2-fab-leslie-stone/) | 7 Novembre 2005
+Leslie Stone | [La mission de Leslie Stone](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-9-19-2-fab-leslie-stone/) | 19 Septembre 2007
 
 ### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
 

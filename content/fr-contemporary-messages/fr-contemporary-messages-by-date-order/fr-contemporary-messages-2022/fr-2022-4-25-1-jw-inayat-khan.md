@@ -31,7 +31,7 @@ Je suis votre frère en chanson, votre ami musicien, Inayat Khan.sup id="a2">[2]
 2. <large id="f2"> Hazrat Inayat Khan s'est également exprimé lors des messages suivants [↩](#a21)
 
 **Auteur** | **Titre du message** | **Date du message**  
---|---|---
+---|---|---
 Hazrat Inayat Khan | [Gardez une chanson dans votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-9-1-jw-hazrat-inayat-khan/) | 9 Novembre 2021
 Hazrat Inayat Khan | [Le chant du cœur et la danse de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-2-1-jw-inayat-khan/) | 2 Mai 2022
 Hazrat Inayat Khan | [Amants et bien-aimés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-9-2-jw-inayat-khan/) | 9 Septembre 2022

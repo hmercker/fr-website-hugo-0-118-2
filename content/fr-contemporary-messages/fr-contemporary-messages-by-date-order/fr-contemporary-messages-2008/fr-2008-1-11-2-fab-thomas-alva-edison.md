@@ -44,7 +44,7 @@ La bonté a souvent eu du mal à se maintenir dans la vie des mortels, mais le t
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-Thomas Alva Edison | [La bonté de Dieu et de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-11-2-fab-thomas-alva-edison/) | 11 Janvier 2008
+Thomas Alva Edison | [La bonté de Dieu et de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-11-1-fab-thomas-alva-edison/) | 11 Janvier 2008
 Thomas Alva Edison | [Les scientifiques du monde de l'Esprit souhaitent contribuer aux efforts de la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-3-3-af-thomas-edison/) | 3 Novembre 2017
 
 ### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)

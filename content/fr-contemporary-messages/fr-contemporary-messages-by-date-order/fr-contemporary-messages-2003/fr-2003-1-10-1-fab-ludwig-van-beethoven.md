@@ -33,10 +33,19 @@ Vous vous demandez pourquoi j’ai été choisi pour discuter de ce sujet. Eh bi
 
 Passez une excellente soirée.
 
-Avec amour, Beethoven.<sup id=”a1”>[1](#f1)</sup>
+Avec amour, Beethoven.
 <small>
 
-1. <large id=”f1”> Beethoven avait prédemment communiqué [le 03 Janvier 2003](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-3-1-fab-ludwig-van-beethoven/), il a ultérieurement communiqué [le 13 Janvier 2003](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-13-1-fab-ludwig-van-beethoven/) et [le 27 Janvier 2003](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-27-2-fab-ludwig-van-beethoven/)[↩](#a1)
+1. <large id="f1"> Ludwig van Beethoven s'est également exprimé dans les messages suivants : [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Ludwig van Beethoven | [Beethoven a toujours fait confiance à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-3-1-fab-ludwig-van-beethoven/) | 3 Janvier 2003
+Ludwig van Beethoven | [La musique dans les Cieux Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-13-1-fab-ludwig-van-beethoven/) | 13 Janvier 2003
+Ludwig van Beethoven | [La passion musicale dans les Cieux Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-27-2-fab-ludwig-van-beethoven/) | 27 Janvier 2003
+Ludwig van Beethoven | [Le don de la musique fera partie de ce plan](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-21-3-af-ludwig-van-beethoven/) | 21 Novembre 2017
+
+
 
 ### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
 

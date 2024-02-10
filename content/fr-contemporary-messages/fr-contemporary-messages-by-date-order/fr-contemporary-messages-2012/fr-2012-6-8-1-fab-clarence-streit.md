@@ -23,7 +23,7 @@ Vous avez commencé cette canalisation avec l’idée préconçue que j’étais
 
 Cependant, je n’ai pas échappé à la Loi de Compensation. Aucun esprit ne le peut.
 
-Note : **Clarence Kirschmann Streit** est né le 21 janvier 1896 à California dans le Missouri et il est décédé le 6 Juillet 1986 à Washington D.C. Streit. Il était un journaliste et atlantiste qui a joué un rôle de premier plan dans le mouvement atlantique. 
+<u>Note</u> : **Clarence Kirschmann Streit** est né le 21 janvier 1896 à California dans le Missouri et il est décédé le 6 Juillet 1986 à Washington D.C. Streit. Il était un journaliste et atlantiste qui a joué un rôle de premier plan dans le mouvement atlantique. 
 
 Clarence Streit, d'origine palatine, a déménagé avec sa famille à Missoula, Montana en 1911. À Missoula, il a fondé le Konah, un journal de lycée qui est aujourd'hui l'un des plus anciens des États-Unis à paraître en continu. Alors qu'il était étudiant à la Montana State University (aujourd'hui l'Université du Montana), il s'est porté volontaire pour le service militaire pendant la Première Guerre mondiale, servant dans une unité de renseignement en France et assistant la délégation américaine à la Conférence de Versailles. Il fut boursier Rhodes à l'Université d'Oxford en 1920. Il épousa Jeanne Defrance à Paris en 1921, après quoi il devint correspondant étranger du New York Times.
 

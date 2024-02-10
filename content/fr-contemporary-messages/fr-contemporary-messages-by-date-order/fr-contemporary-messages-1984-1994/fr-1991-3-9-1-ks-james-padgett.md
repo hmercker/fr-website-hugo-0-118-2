@@ -15,7 +15,7 @@ James Padgett - reçu par Kathryn Stokes le 9 Mars 1991, Santa Cruz, Californie,
 
 *[M. Padgett a établi un rapport avec moi avant que je ne finisse d’écrire ma prière. La différence entre l’écriture et « l'aide » reçue par écrit en est la preuve]*
 
-Bonjour, ma chère sœur en Christ. Cela fait plusieurs années que je n’ai pas eu le privilège d’écrire à travers toi de cette manière. Je suis ton ami et frère en Christ, qui est souvent avec toi pour t’aider dans ce travail très important de diffusion des Vérités de l’Amour de Dieu dans le monde des hommes, James E. Padgett, un vrai disciple de Jésus de Nazareth qui est Maître des Cieux Célestes.
+Bonjour, ma chère sœur en Christ. Cela fait plusieurs années que je n’ai pas eu le privilège d’écrire à travers toi de cette manière. Je suis ton ami et frère en Christ, qui est souvent avec toi pour t’aider dans ce travail très important de diffusion des Vérités de l’Amour de Dieu dans le monde des hommes, James E. Padgett<sup id="a1">[1](#f1)</sup>, un vrai disciple de Jésus de Nazareth qui est Maître des Cieux Célestes.
 
 Je te remercie, chère sœur, ainsi que notre frère Jésus, pour ta foi en nos soins affectueux à ton égard, pour avoir su dans ton toi, âme que nous sommes avec toi, te protégeant et te guidant à travers toutes ces controverses qui t’ont fait perdre courage dans l’œuvre que tu cherches à accomplir.
 
@@ -65,6 +65,9 @@ Je suis votre ami et votre frère dans le Christ, James E. Padgett, un vrai disc
 <small>
 
 1. <large id="f1"> Malheureusement, une idée aussi simple que celle de permettre aux deux volumes de coexister au sein d’une même organisation n’était pas acceptable pour certains membres de la F.C.D.T. telle qu’elle existait à l’époque, et ils sont partis pour ressusciter la F.C.N.B. qui, à ce jour, n’autorise toujours aucune modification, même celles qui sont évidentes du point de vue typographique, et qui ne soutient pas non plus la médiumnité contemporaine. L'histoire de ces deux églises [peut être trouvée ici](/fr-james-padgett-messages/1-11-fr-churches-based-on-james-padgetts-messages/).[↩](#a1)
+
+2. <large id="f2"> L'ensemble des messages communiqués par James Padgett  est disponible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-12-fr-family-and-friends-of-james-padgett/)[↩](#a2) 
+
 
 ### [**Lien vers les messages des années 1984 à 1994**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/)
 

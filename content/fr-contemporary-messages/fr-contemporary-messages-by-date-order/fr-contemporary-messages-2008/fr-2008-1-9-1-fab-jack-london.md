@@ -11,7 +11,7 @@ weight:
 
 Jack London <sup id="a2">[2](#f2)</sup> - reçu par FAB le 9 Janvier 2008, Santa Cruz, Californie, USA.
 
-C’est moi, Jack London.
+C’est moi, Jack London.<sup id="a3">[3](#f3)</sup>
 
 Beaucoup de temps s’est écoulé depuis le temps où j’ai vécu sur la terre, j’ai changé sur certains points, tout en restant le même pour d’autres points. Je suis resté le même dans mon engagement passionné pour le bien-être humain.
 
@@ -24,13 +24,13 @@ Cette réaction se manifeste sous différentes configurations. Ainsi, par exempl
 Cette loi est parfois perçue par les mortels comme travaillant trop lentement, voire pas du tout. Mais en dépit du laps de temps, la loi fonctionne – en effet, elle doit, étant donné que la définition d’une loi, c’est quelle doit fonctionner conformément à sa propre nature donnée par le créateur.
 
 Mon opinion est que CETTE LOI MORALE EST INÉVITABLE, et il serait bon pour tous les mortels de comprendre cette loi et ses conséquences inévitables. Et permettez-moi d’ajouter que si les gens sont ignorants de la présente loi, cela ne fait aucune différence, parce qu’elle va tout de même fonctionner.
-
-**Note :** Un [message ultérieur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-10-2-fab-jesus/) Jésus explique le nom correct pode la Loi Morale.
 <small>
 
 1. <large id="f1"> Dans un [message ultérieur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-10-2-fab-jesus/) Jésus explique le vrai sens de la loi morale à laquelle Jack London a fait référence.[↩](#a1)
 
 2. <large id="f2"> **Jack London** (12 Janvier 1876 – 22 Novembre 1916), est un écrivain Américain qui a écrit *« l’appel de la forêt »* et d’autres livres. Il fut un pionnier dans le monde alors grandissant des magazines de  fiction commerciale, dans le sens où il fut un des premiers américains à faire une carrière lucrative exclusivement par l’écriture. (Source : Wikipédia)[↩](#a2)
+
+3. <large id="f3"> Jack London s'est également exprimé ultérieurement dans un message commuiqué [le 17 Juillet 2010](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-7-17-1-fab-jack-london/)
 
 ### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
 

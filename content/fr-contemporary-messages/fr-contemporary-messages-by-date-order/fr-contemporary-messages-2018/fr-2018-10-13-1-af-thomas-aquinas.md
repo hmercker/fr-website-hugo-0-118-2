@@ -11,7 +11,7 @@ weight:
 
 Thomas d'Aquin - reçu par Al Fike le 13 Octobre 2018, Gibsons, Colombie-Britannique, Canada.
 
-Je suis Thomas d’Aquin. Je vous souhaite la bienvenue en cette belle journée alors que je parle au nom de mes compatriotes dans cette œuvre pour vous dire que nous vous aimons. Nous sommes avec vous alors que vous continuez à vous élever toujours plus haut vers Dieu, que vous continuez à aspirer à l’éveil de vos âmes et à rechercher le plus haut. Cependant certains parmi vous spéculent et ruminent avec vos pensées, cherchent la clarté et cherchent des réponses à ces questions profondes auxquelles seule l’âme peut vraiment répondre. Car les réponses à vos questions, mes bien-aimés, ont de nombreuses couches et facettes, et ce n’est qu’en communiquant avec les facultés de votre âme en alignement avec vos esprits matériels que cette compréhension profonde et riche de la vérité peut venir.
+Je suis Thomas d’Aquin.<sup id="a1">[1](#f1)</sup> Je vous souhaite la bienvenue en cette belle journée alors que je parle au nom de mes compatriotes dans cette œuvre pour vous dire que nous vous aimons. Nous sommes avec vous alors que vous continuez à vous élever toujours plus haut vers Dieu, que vous continuez à aspirer à l’éveil de vos âmes et à rechercher le plus haut. Cependant certains parmi vous spéculent et ruminent avec vos pensées, cherchent la clarté et cherchent des réponses à ces questions profondes auxquelles seule l’âme peut vraiment répondre. Car les réponses à vos questions, mes bien-aimés, ont de nombreuses couches et facettes, et ce n’est qu’en communiquant avec les facultés de votre âme en alignement avec vos esprits matériels que cette compréhension profonde et riche de la vérité peut venir.
 
 L’âme est multidimensionnelle, le mental ne l’est pas. Ainsi, essayer de comprendre mentalement les vérités les plus profondes de la Création du Père ne peut que conduire à des pensées circulaires et à des spéculations, tournant sans cesse comme un chien qui essaie d’attraper sa propre queue. Jusqu’à ce que ces parties de votre mental relâchent cet effort par épuisement, réalisant que les réponses ne sont pas présentes, que cela permet à l’âme d’avoir son mot à dire, d’apporter la vérité, à condition d’être en prière, dans un état de réceptivité et d’avoir le désir des choses les plus élevées et les plus vraies. Le mental de l’âme existe et ses capacités de vérité sont illimitées une fois qu’il est enflammé par l’Amour de Dieu.
 
@@ -22,6 +22,22 @@ C’est ce dont parlent les mystiques, mes bien-aimés. C’est ce dont a parlé
 Vous avez un festin devant vous, mes bien-aimés, un festin merveilleux de vérité, de bénédictions, de guérison et d’amour. En votre temps, selon vos propres désirs, vous ingérerez ces fruits de vérité. Cette eau de vie, ces bouchées qui nourrissent l’âme, l’esprit et le corps, sont toutes déposées devant vous, mes bien-aimés. Que votre faim grandisse et que votre capacité à être dans ce flux d’Amour, de Vérité et de Lumière de Dieu continue à éveiller vos âmes. Dieu ne limite pas ce que vous pouvez consommer à cet égard, Sa largesse est illimitée. Son désir pour votre croissance et votre bonheur, votre joie et votre renforcement continue à assurer que vous êtes nourris, que vous recevez tout ce dont vous avez besoin pour être éveillés et pour que votre nouvelle et tendre âme grandisse jusqu’à la maturité et au-delà. Vous êtes bénis mes amis, tellement bénis. Acceptez les offrandes de Dieu, ayez faim des fruits de son âme, buvez les eaux de l’Esprit Saint, éveillez-vous à la nouvelle aube de vérité qui émerge en vous.
 
 Que Dieu vous bénisse, mes amis. Je suis Thomas et je vous aime. Que Dieu vous bénisse.
+<small>   
+
+1. <large id="f1"> Thomas d'Aquin s'est également exprimé dans les messages suivants : [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Thomas d'Aquin | [Seule la vérité nous sauvera](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-18-1-fab-thomas-aquinas/) | 18 Septembre 2008
+Thomas d'Aquin | [S'accorder les uns avec les autres apporte une puissante harmonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-29-1-af-thomas-aquinas/) | 29 Octobre 2017
+Thomas d'Aquin | [Beaucoup dans ce monde sont endormis](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-15-4-af-thomas-aquinas/) | 15 Novembre 2017
+Thomas d'Aquin | [Progression vers le sommet de la colline](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-25-2-af-thomas-aquinas/) | 25 Novembre 2017
+Thomas d'Aquin | [Un nouveau jour se lève](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-2-2-af-thomas-aquinas/) | 2 Décembre 2017
+Thomas d'Aquin | [Des bénédictions au centuple pour les efforts que vous avez déployés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-15-2-af-thomas-aquinas/) | 15 Décembre 2017
+Thomas d'Aquin | [Choisirez-vous de commencer le voyage de l’éveil de l’âme ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-17-2-af-thomas-aquinas/) | 17 Février 2018
+Thomas d'Aquin | [Connaître Dieu avec le mental de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-13-1-af-thomas-aquinas/) | 13 Octobre 2018
+Thomas d'Aquin | [Le travail se poursuit si vous restez dévoué à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-17-5-af-thomas-aquinas/) | 17 Octobre 2018
+Thomas d'Aquin | [Vous avez bien fait](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-26-5-af-thomas-aquinas/) | 26 Octobre 2018
 
 ### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
 

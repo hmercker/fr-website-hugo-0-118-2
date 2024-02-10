@@ -11,7 +11,7 @@ weight:
 
 Jean Sébastian Bach - reçu par FAB le 31 Décembre 2002, Santa Cruz, Californie, USA.
 
-C'est moi, Jean Sebastian Bach.
+C'est moi, Jean Sebastian Bach.<sup id="a1">[1](#f1)</sup>
 
 Je vous salue en ce dernier jour de l'année pour vous dire mon amour. J'ai vécu une expérience spirituelle assez heureuse, et je réside maintenant dans les Cieux Célestes.
 
@@ -34,6 +34,14 @@ Ma vie fut très chargée. Avec tous les enfants et mes différents postes, j'av
 J'étais fier de mes enfants lorsqu'ils réussissaient, et j'ai été encouragé par le fait que quatre de mes fils se soient tournés vers la composition.
 
 [J'écrirai à nouveau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-27-1-fab-johann-sebastian-bach/). Permettez-moi de terminer en vous souhaitant une bonne année.
+<small>
+
+1. <large id="f1"> Jean Sebastien Bach s'est également exprimé dans les messages suivants : [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Jean Sébastien Bach | [La foi inébranlable de Bach en Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-27-1-fab-johann-sebastian-bach/) | 27 Février 2003
+Jean Sébastien Bach | [Les expériences de Jean Sébastian Bach](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-26-1-na-johann-sebastian-bach/) | 26 Janvier 2008
 
 ### [**Lien vers les messages des années 2002**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/)
 

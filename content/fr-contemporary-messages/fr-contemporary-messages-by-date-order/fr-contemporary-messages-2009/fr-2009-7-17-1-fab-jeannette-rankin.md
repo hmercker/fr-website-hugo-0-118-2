@@ -37,7 +37,6 @@ Certains jugeraient défavorablement plusieurs de mes actions, et je peux le com
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Jeannette Rankin | [L’image que se fait d’elle-même une politicienne américaine – 1](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-16-1-fab-jeannette-rankin/) | 16 Juillet 2009
-Jeannette Rankin | [L’image que se fait d’elle-même une politicienne américaine – 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-17-1-fab-jeannette-rankin/) | 17 Juillet 2009
 Jeannette Rankin | [L’opinion de Jeannette Rankin sur ses biographes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-17-2-fab-jeannette-rankin/) | 17 Juillet 2009
 
 ### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)

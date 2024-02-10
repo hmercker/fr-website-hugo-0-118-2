@@ -26,7 +26,7 @@ Je vous laisse maintenant avec mon amour et ma gratitude pour le travail que vou
 Que Dieu vous bénisse. Je suis Kathryn Stokes et je suis une enfant de Dieu, une enfant de mon Père Céleste dont l’Amour a touché mon âme et continue à apporter la Lumière en moi, un cadeau. Je vous aime et je vous encourage tous. Que Dieu vous bénisse.
 <small>
 
-1. <large id="f1"> Kathryn Stokes est une belle âme, une adepte de l’Amour Divin de très longue date et quelqu’un qui a grandement contribué à la diffusion du message de l’Amour Divin dans les années 60, 70 et au-delà. Elle a cependant fait l’objet d’un message canalisé (soi-disant) très désagréable qui a été clairement falsifié après sa mort. C’était donc une excellente nouvelle pour ceux d’entre nous qui aiment Kathryn que ce message soit transmis par Al.[↩](#a1)
+1. <large id="f1"> Kathryn Stokes est une belle âme, une adepte de l’Amour Divin de très longue date et quelqu’un qui a grandement contribué à la diffusion du message de l’Amour Divin dans les années 60, 70 et au-delà. Elle a cependant fait l’objet d’un message canalisé (soi-disant) très désagréable qui a été clairement falsifié après sa mort. C’était donc une excellente nouvelle pour ceux d’entre nous qui aiment Kathryn que ce message soit transmis par Al Fike.[↩](#a1)
 
 ### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
 

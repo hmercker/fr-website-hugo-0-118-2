@@ -32,7 +32,12 @@ Je sais que vous ne vous attendiez pas à un tel message ce soir, mais la vie es
 Amour, Bach.
 <small>
 
-1. <large id="f1"> Jean Sébastien Bach s'est également exprimé à travers les messages communiqués [le 31/12/2002](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-12-31-1-fab-johann-sebastian-bach/) et [le 26/01/2008](). [↩](#a1)
+1. <large id="f1"> Jean Sebastien Bach s'est exprimé dans les messages suivants : [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Jean Sébastien Bach | [Les expériences de Jean Sébastian Bach](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-12-31-1-fab-johann-sebastian-bach/) | 31 Décembre 2002
+Jean Sébastien Bach | [Les expériences de Jean Sébastian Bach](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-26-1-na-johann-sebastian-bach/) | 26 Jjanvier 2008
 
 ### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
 

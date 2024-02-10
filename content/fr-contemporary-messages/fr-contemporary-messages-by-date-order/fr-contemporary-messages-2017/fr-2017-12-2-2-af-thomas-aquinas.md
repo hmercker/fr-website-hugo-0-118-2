@@ -27,9 +27,24 @@ Vous poursuivez ce voyage d'éveil, vous portez la flamme de la Vérité. Il n'y
 
 Beaucoup plus est à venir. Vous sentez la lumière vacillante poindre en vous et il en sera ainsi jour après jour, moment après moment, alors que Dieu déverse Ses bénédictions en vous et vous conduit dans votre Vérité et votre réalité de Vérité. Dieu vous bénit dans ce voyage, âmes bien-aimées, courageuses que vous êtes, volontaires que vous êtes dans ce voyage, ce voyage pour connaître vraiment l'Amour.
 
-Vous regarderez en arrière sur ce temps avec une grande joie et gratitude pour ce que Dieu a créé en vous, dans la Lumière et l'Amour. Que Dieu vous bénisse, mes bien-aimés. Je suis Thomas d'Aquin. J'ai un grand Amour pour vous et moi aussi je me tiens près de vous, vous apportant mon Amour et ma chaleur alors que vous vous éveillez à un nouveau jour, un nouvel éveil de votre véritable moi.
+Vous regarderez en arrière sur ce temps avec une grande joie et gratitude pour ce que Dieu a créé en vous, dans la Lumière et l'Amour. Que Dieu vous bénisse, mes bien-aimés. Je suis Thomas d'Aquin.<sup id="a1">[1](#f1)</sup> J'ai un grand Amour pour vous et moi aussi je me tiens près de vous, vous apportant mon Amour et ma chaleur alors que vous vous éveillez à un nouveau jour, un nouvel éveil de votre véritable moi.
 
 Que Dieu vous bénisse mes bien-aimés et je vous aime. Que Dieu vous bénisse.
+<small>   
+
+1. <large id="f1"> Thomas d'Aquin s'est également exprimé dans les messages suivants : [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Thomas d'Aquin | [Seule la vérité nous sauvera](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-18-1-fab-thomas-aquinas/) | 18 Septembre 2008
+Thomas d'Aquin | [S'accorder les uns avec les autres apporte une puissante harmonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-29-1-af-thomas-aquinas/) | 29 Octobre 2017
+Thomas d'Aquin | [Beaucoup dans ce monde sont endormis](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-15-4-af-thomas-aquinas/) | 15 Novembre 2017
+Thomas d'Aquin | [Progression vers le sommet de la colline](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-25-2-af-thomas-aquinas/) | 25 Novembre 2017
+Thomas d'Aquin | [Des bénédictions au centuple pour les efforts que vous avez déployés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-15-2-af-thomas-aquinas/) | 15 Décembre 2017
+Thomas d'Aquin | [Choisirez-vous de commencer le voyage de l’éveil de l’âme ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-17-2-af-thomas-aquinas/) | 17 Février 2018
+Thomas d'Aquin | [Connaître Dieu avec le mental de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-13-1-af-thomas-aquinas/) | 13 Octobre 2018
+Thomas d'Aquin | [Le travail se poursuit si vous restez dévoué à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-17-5-af-thomas-aquinas/) | 17 Octobre 2018
+Thomas d'Aquin | [Vous avez bien fait](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-26-5-af-thomas-aquinas/) | 26 Octobre 2018
 
 ### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
 

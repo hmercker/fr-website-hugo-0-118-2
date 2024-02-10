@@ -11,7 +11,7 @@ weight:
 
 Walt Whitman - reçu par FAB le 4 Janvier 2005, Santa Cruz, Californie, USA.
 
-Je suis Walt Whitman.
+Je suis Walt Whitman.<sup id="a1">[1](#f1)</sup>
 
 C'est la première fois que j'écris par votre intermédiaire, et je suis heureux de vous appeler mon cher ami. Vos intérêts m'ont attiré. Tout comme vous, j'ai profondément réfléchi à la signification de l'Amérique et, tout comme vous, j'ai vu un type particulier de Providence caché derrière ses nombreux péchés. Bien que plus de cent ans se soient écoulés depuis ma mort, je suis toujours, dans une certaine mesure, préoccupé par notre pays, non pas d'une manière basse sur le plan terrestre, mais d'une manière élevée, si magnifiquement et si éloquemment exprimée dans le livre que vous lisez *[« L'âme américaine » de Jacob Needleman]*.
 
@@ -27,9 +27,17 @@ Vous voyez donc que le processus de rédemption s'est poursuivi ici, et que les 
 
 Je sais que vous vous attendiez à ce que ce premier message me soit entièrement consacré. Eh bien, mon ami, de nombreuses et merveilleuses surprises vous attendent. Je vais m'arrêter ici. Je vous remercie beaucoup de l'intérêt que vous portez à ma vie. Je l'ai noté dès le début.
 
-Avec amour, Walt Whitman.
+Avec amour, Walt Whitman.<sup id="a2">[2](#f2)</sup>
+<small>
 
-**Walter Whitman**, plus connu sous le nom de Walt Whitman, (Né le 31 Mai 1819 à West Hills, New York (Long Island) et mort le 26 Mars 1892 à Camden (New Jersey)), est un poète, romancier, journaliste, éditeur américain. Son recueil de poèmes Feuilles d'herbe (Leaves of Grass) est considéré comme son chef-d'œuvre. 
+1. <large id="f1"> **Walter Whitman**, plus connu sous le nom de Walt Whitman, (Né le 31 Mai 1819 à West Hills, New York (Long Island) et mort le 26 Mars 1892 à Camden (New Jersey)), est un poète, romancier, journaliste, éditeur américain. Son recueil de poèmes Feuilles d'herbe (Leaves of Grass) est considéré comme son chef-d'œuvre.[↩](#a1) 
+
+2. <large id="f2"> Walt Whitman s'est également expimé par l'intermédiaire des messages suivants :[↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Walt Whitman | [Le mysticisme et les expériences personnelles en esprit de Walt Whitman](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-1-5-1-fab-walt-whitman/) | 5 Janvier 2005
+Walt Whitman | [La personnalité de Whitman en tant que poète et personne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-28-1-fab-walt-whitman/) | 28 Avril 2008
 
 ### [**Lien vers les messages des années 2005**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/)
 

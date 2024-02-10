@@ -11,7 +11,7 @@ weight:
 
 James Reid - reçu par Al Fike le 24 Juin 2021, Gibsons, Colombie-Britannique, Canada.
 
-Je m’appelle James Reid. Je suis venu parce que je souhaite partager avec vous un grand triomphe dans ma vie spirituelle dans le monde de l’esprit, et c’est que je suis sur le point d’entrer dans le Royaume Céleste. Je réside actuellement dans la septième sphère et je me suis frayé un chemin jusqu’au sommet de cette sphère de vie à plusieurs niveaux et je vais m’embarquer dans le Royaume Céleste très prochainement.
+Je m’appelle James Reid. <sup id="a1">[1](#f1)</sup> Je suis venu parce que je souhaite partager avec vous un grand triomphe dans ma vie spirituelle dans le monde de l’esprit, et c’est que je suis sur le point d’entrer dans le Royaume Céleste. Je réside actuellement dans la septième sphère et je me suis frayé un chemin jusqu’au sommet de cette sphère de vie à plusieurs niveaux et je vais m’embarquer dans le Royaume Céleste très prochainement.
 
 Je souhaite vous remercier tous pour vos efforts de prière pour le monde. C’est un moment crucial, comme vous le savez bien, et un moment où la prière est grandement nécessaire.
 
@@ -41,6 +41,14 @@ Je sais que vous me rejoindrez un jour dans ce grand paradis d’amour, et nous 
 Je vous aime tous les deux, et je vous remercie tous les deux pour vos efforts, pour votre dévouement, pour votre amour. Puissiez-vous continuer à libérer ces conditions du monde matériel en faveur de votre âme, éveillée, libérée, et remplie de joie.
 
 Que Dieu vous bénisse, mes amis. Je suis votre ami, James, et je vous aime. Que Dieu vous bénisse. Je suis proche. Sachez que je suis proche. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> James Reid s'est également exprimé dans les messages suivants : [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+James Reid | [La valeur de la connaissance de vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-27-3-af-james-reid/) | 27 Novembre 2016
+James Reid | [Nous travaillons ensemble au service de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-15-2-af-james-reid/) | 15 Novembre 2018
 
 ### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
 

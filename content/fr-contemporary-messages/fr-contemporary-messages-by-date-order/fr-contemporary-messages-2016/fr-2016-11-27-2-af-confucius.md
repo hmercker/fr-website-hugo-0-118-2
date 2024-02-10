@@ -9,9 +9,9 @@ weight:
 ---
 ### Confucius accueille le troupeau
 
-Confucius<sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 27 Novembre 2016, Hawaii, USA.
+Confucius - reçu par Al Fike le 27 Novembre 2016, Hawaii, USA.
 
-C’est moi, Confucius.
+C’est moi, Confucius.<sup id="a1">[1](#f1)</sup>
 
 Mes petits oiseaux, vous vous êtes rassemblés une fois de plus et comme nous nous réjouissons lorsque cela se produit. Lorsque vous venez prier ensemble et que vous venez former un grand canal d’amour, un portail de lumière pour ce monde.
 

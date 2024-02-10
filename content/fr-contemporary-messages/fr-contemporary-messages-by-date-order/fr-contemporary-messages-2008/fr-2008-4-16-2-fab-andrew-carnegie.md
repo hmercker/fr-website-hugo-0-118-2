@@ -23,7 +23,6 @@ Ainsi, si l'on fait une bonne chose qui n'est pas liée à une autre action qui 
 ---|---|---
 Andrew Carnegie | [Souffrances d’un industriel américain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-3-1-fab-andrew-carnegie/) | 3 Mars 2008
 Andrew Carnegie | [La souffrance d'un industriel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-14-1-fab-andrew-carnegie/) | 14 Avril 2008
-Andrew Carnegie | [La loi morale est exacte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-16-2-fab-andrew-carnegie/) | 16 Avril 2008
 Andrew Carnegie | [La loi morale et le fait de gagner de l’argent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-3-7-1-fab-andrew-carnegie/) | 7 Mars 2009
 Andrew Carnegie | [Le matérialisme d'un industriel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-9-14-1-fab-andrew-carnegie/) | 14 Septembre 2009
 

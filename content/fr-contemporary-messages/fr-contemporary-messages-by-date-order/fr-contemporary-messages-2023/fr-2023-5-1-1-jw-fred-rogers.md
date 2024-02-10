@@ -25,7 +25,7 @@ Que Dieu bénisse chacun de vous. Je suis votre frère et ami en Christ sur le c
 2. <large id="f2"> Fred Rogers s'est également exprimé dans les messages suivants :  [↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**  
---|---|---
+---|---|---
 Fred Rogers | [Rappelez-vous l’importance de guider les enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-5-1-jw-fred-rogers/) | 5 Juillet 2021
 Fred Rogers | [Travailler avec les petits enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-12-1-jw-fred-rogers/) | 12 Octobre 2021
 Fred Rogers | [Amis imaginaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-29-1-jw-fred-rogers/) | 29 Septembre 2022

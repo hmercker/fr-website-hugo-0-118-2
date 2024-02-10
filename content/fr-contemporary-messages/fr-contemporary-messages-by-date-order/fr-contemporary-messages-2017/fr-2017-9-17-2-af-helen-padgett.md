@@ -11,7 +11,7 @@ weight:
 
 Helen Padgett - reçu par Al Fike le 17 Septembre 2017, Gibsons, Colombie-Britannique, Canada
 
-Je suis Hélène, Hélène Padgett. Je prends ce temps pour vous parler, car souvent c'est mon mari qui parle mais je désire parler aussi à mes amis dans la chair car je suis proche de vous et souvent avec vous. Je continue à servir beaucoup de personnes dans ce monde qui poursuivent la Vérité de l'Amour de Dieu. C'est un tel cadeau de service que d'être avec ceux dont les âmes sont désireuses de recevoir ce cadeau.
+Je suis Hélène, Hélène Padgett.<sup id="a1">[1](#f1)</sup> Je prends ce temps pour vous parler, car souvent c'est mon mari qui parle mais je désire parler aussi à mes amis dans la chair car je suis proche de vous et souvent avec vous. Je continue à servir beaucoup de personnes dans ce monde qui poursuivent la Vérité de l'Amour de Dieu. C'est un tel cadeau de service que d'être avec ceux dont les âmes sont désireuses de recevoir ce cadeau.
 
 C'est une grande joie pour moi de prier avec ceux qui reçoivent ce don de l'Amour Divin de Dieu et d'observer vos progrès et vos efforts pour apporter la Vérité de l'Amour de Dieu dans ce monde.
 
@@ -34,6 +34,9 @@ Lorsque vous rencontrez ceux qui veulent vous faire obstacle, qui projettent de 
 Je suis votre amie, Hélène. Je vous aime tous. J'ai été proche de vous tous, car j'ai un vif intérêt pour les efforts que vous faites tous pour apporter la Vérité de l'Amour de Dieu à ce monde. Mon mari était timide et réservé lorsqu'il s'agissait d'apporter les vérités à l'humanité. Il ne savait pas comment procéder. Il s'est rendu compte qu'il était réticent, qu'il craignait le jugement. À votre époque, vous ne l'êtes plus, car le monde est plus ouvert à votre pensée. Oui, en effet, certains vous jugent et ont peur de vous, mais en outre, il y a une grande ouverture aux nouvelles pensées et idées, et une grande soif de spiritualité véritable. Vous avez tant à donner à cet égard et, contrairement à mon mari, vous allez courageusement aller dans le monde et apporter votre vérité, sans vous soucier de ce que les autres pourraient penser.
 
 Cette ouverture et cette confiance en Dieu, alors que vous avancez dans la foi et le désir de servir conformément à la volonté de Dieu, vous ferez de nombreuses percées dans ce monde. Vous franchirez de nombreuses portes ouvertes et vous vous connecterez avec beaucoup, beaucoup d'âmes. Les mots que vous prononcez, la vérité que vous donnez, doivent toujours être informés par votre amour et votre lumière. Rappelez-vous ceci, mes bien-aimés, parlez avec votre cœur. Acceptez tous ceux qui viennent vers vous. Aimez, aimez toujours, aimez toujours. Que Dieu vous bénisse. Je vous aime, mes précieux amis dans ce monde. Je vous aime tellement. Je suis Hélène. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> L'ensemble des messages communiqués par hélène Padgett  est disponible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-12-fr-family-and-friends-of-james-padgett/)[↩](#a1) 
 
 ### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
 

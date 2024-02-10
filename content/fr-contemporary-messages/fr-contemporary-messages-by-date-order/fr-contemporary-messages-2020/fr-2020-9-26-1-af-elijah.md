@@ -9,7 +9,7 @@ weight:
 ---
 ### Une partie du plan de Dieu est la manifestation de Ses Anges sur la Terre
 
-Élie - reçu par Al Fike le 26 Septembre 2020, Gibsons, Colombie-Britannique, Canada.
+Élie<sup id="a1">[1](#f1)</sup>- reçu par Al Fike le 26 Septembre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Oui, je suis venu pour affirmer l’expérience de la chère et bien-aimée âme (S) qui reçoit un message à travers moi en ce qui concerne ce don de Voix Directe ou les manifestations des esprits à travers les individus là où elle réside et dans d’autres endroits du monde. En ce moment, il y a une activité intense des anges dans le ciel dans la correspondance et les efforts pour être avec les mortels sur la Terre. Ce tourbillon et ces efforts sont à l’origine d’une grande vague de changement qui s’annonce. Nous souhaitons établir des liens plus profonds avec vous tous et initier des efforts et des actions qui sont en accord avec le plan de Dieu pour le salut de l’humanité.
 

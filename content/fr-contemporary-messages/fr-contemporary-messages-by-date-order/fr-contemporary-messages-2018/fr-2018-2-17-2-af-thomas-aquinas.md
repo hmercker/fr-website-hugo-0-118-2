@@ -13,7 +13,7 @@ Thomas d'Aquin - reçu par Al Fike le 17 Février 2018, Hollis Woods Community C
 
 ![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-eveil-spirituel3.jpg)
 
-Je m’appelle Thomas d’Aquin et je suis membre du Royaume Céleste. Mon âme a été transformée par l’Amour du Père. Je réside maintenant dans ce bel endroit rempli d’amour et de joie. Je suis venu vous dire, âmes bien-aimées, comment Dieu désire toucher chaque âme jamais créée avec Son Amour, avec le toucher de Son Amour pour amener la guérison profonde de l’âme, pour amener les potentiels de l’âme à sortir et à s’exprimer dans ce monde qui a tellement besoin, tellement besoin d’Amour.
+Je m’appelle Thomas d’Aquin<sup id="a1">[1](#f1)</sup> et je suis membre du Royaume Céleste. Mon âme a été transformée par l’Amour du Père. Je réside maintenant dans ce bel endroit rempli d’amour et de joie. Je suis venu vous dire, âmes bien-aimées, comment Dieu désire toucher chaque âme jamais créée avec Son Amour, avec le toucher de Son Amour pour amener la guérison profonde de l’âme, pour amener les potentiels de l’âme à sortir et à s’exprimer dans ce monde qui a tellement besoin, tellement besoin d’Amour.
 
 Jamais auparavant l’humanité n’a apporté une telle obscurité sur cette belle planète. Votre monde est accablé, mes bien-aimés, par ces conditions. Pourtant, l’approche implacable de l’humanité sur ce monde continue à apporter la disharmonie dans l’ordre naturel et un manque d’amour parmi l’humanité. Nous venons donc dans ces petits cercles de Lumière pour vous encourager, âmes bien-aimées, à rechercher Dieu, à rechercher l’harmonie en vous-mêmes, car comment le monde peut-il changer si chaque individu ne fait aucun effort pour changer, pour apporter une plus grande harmonie en lui-même ? C’est le pouvoir du toucher de Dieu qui allume cette flamme à l’intérieur, commençant un voyage d’éveil de l’âme.
 
@@ -28,6 +28,21 @@ Soyez forts, âmes bien-aimées. Cherchez la Lumière, cherchez à être une fla
 Voulez-vous vivre une vie de médiocrité, mes bien-aimés, ou souhaitez-vous une vie qui soit remplie de l’expérience de la connaissance de Dieu, de la connaissance de vous-mêmes et de l’expérience de la Lumière dans toute sa magnificence ? Dieu vous donne le choix, âmes bien-aimées. Il n’insiste pas sur quoi que ce soit. Il offre simplement, mais vous vous ouvrez aux cadeaux qu’Il a à offrir, que vous désirez et que vous êtes alignés avec cette Lumière. C’est à vous de décider, comme c’est le cas pour chaque âme. Puissiez-vous continuer à rechercher le Plus Haut, à aimer de tout votre cœur et de toute votre âme, à continuer à grandir dans l’Amour de Dieu et à entendre la guidance que Dieu a à donner chaque jour alors qu’Il continue à vous bénir pour que vous continuiez à vous éveiller, pour que vos âmes puissent s’épanouir dans l’Amour.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Thomas d’Aquin et je suis heureux de vous parler en ce jour. Je souhaite que vous sachiez que même si un cercle très modeste se tient dans cette pièce, plusieurs centaines d’esprits sont avec vous, que de nombreuses bénédictions découlent de vos échanges et de vos prières et que de nombreuses bénédictions se répandent dans le monde. En effet, lorsqu’un groupe d’âmes sincères se réunit pour créer un cercle de Lumière, Dieu utilise ces âmes pour apporter des bénédictions aux autres, en touchant leurs âmes. Puissiez-vous continuer à prier ensemble, mes bien-aimés, à travailler ensemble et à chercher à apporter les changements nécessaires à ce monde en écoutant la volonté de Dieu dans votre vie. Que Dieu vous bénisse. Que Son Amour continue à toucher vos âmes toujours plus profondément, infusant chaque chambre de votre âme, libérant toutes les conditions qui ne sont pas de l’Amour. Que Dieu vous bénisse. Que Dieu vous bénisse.
+<small>   
+
+1. <large id="f1"> Thomas d'Aquin s'est également exprimé dans les messages suivants : [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Thomas d'Aquin | [Seule la vérité nous sauvera](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-18-1-fab-thomas-aquinas/) | 18 Septembre 2008
+Thomas d'Aquin | [S'accorder les uns avec les autres apporte une puissante harmonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-29-1-af-thomas-aquinas/) | 29 Octobre 2017
+Thomas d'Aquin | [Beaucoup dans ce monde sont endormis](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-15-4-af-thomas-aquinas/) | 15 Novembre 2017
+Thomas d'Aquin | [Progression vers le sommet de la colline](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-25-2-af-thomas-aquinas/) | 25 Novembre 2017
+Thomas d'Aquin | [Un nouveau jour se lève](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-2-2-af-thomas-aquinas/) | 2 Décembre 2017
+Thomas d'Aquin | [Des bénédictions au centuple pour les efforts que vous avez déployés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-15-2-af-thomas-aquinas/) | 15 Décembre 2017
+Thomas d'Aquin | [Connaître Dieu avec le mental de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-13-1-af-thomas-aquinas/) | 13 Octobre 2018
+Thomas d'Aquin | [Le travail se poursuit si vous restez dévoué à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-17-5-af-thomas-aquinas/) | 17 Octobre 2018
+Thomas d'Aquin | [Vous avez bien fait](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-26-5-af-thomas-aquinas/) | 26 Octobre 2018
 
 ### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
 

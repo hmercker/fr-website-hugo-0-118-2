@@ -23,7 +23,7 @@ Cet Amour Divin est le plus grand cadeau, et cela vous le savez, et cette connai
 1. <large id="f1"> Fred Rogers s'est également exprimé dans les messages suivants :  [↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**  
---|---|---
+---|---|---
 Fred Rogers | [Rappelez-vous l’importance de guider les enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-5-1-jw-fred-rogers/) | 5 Juillet 2021
 Fred Rogers | [Amis imaginaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-29-1-jw-fred-rogers/) | 29 Septembre 2022
 Fred Rogers | [Habitudes, Dépendances  et Guérisson](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-3-1-jw-fred-rogers/) | 3 Avril 2023

@@ -53,9 +53,9 @@ Et c’est ce que vous dites.
 
 Nous nous excusons maintenant et vous souhaitons une bonne journée, jusqu’à peut-être une autre fois.
 
-Ce serait un plaisir pour moi.
+Ce serait un plaisir pour moi.<sup id="a2">[2](#f2)</sup>.
 
-Je signe, J. R. R. TOLKIEN <sup id="a2">[2](#f2)</sup>.
+Je signe, J. R. R. TOLKIEN <sup id="a3">[3](#f3)</sup>.
 
 Je vois que tu n’as plus de papier.
 
@@ -69,6 +69,14 @@ Je t’aime Papa.
 1. <large id="f1"> Le Silmarillion n’était pas facile à lire.[↩](#a1)
 
 2. <large id="f2"> Oui, j’ai mal orthographié son nom de famille deux fois en écrivant ce message. Voir le message [du 24 Mars 2003](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-3-24-1-pjr-tolkien/) pour en savoir plus. PJR[↩](#a2)
+
+3. <large id="f3"> Tolkien s'est également exprimé dans les messages suivants : [↩](#a3)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Tolkien | [Tolkien fait son rapport](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-7-29-1-pjr-tolkien/) | 29 Juillet 2002
+Tolkien | [La guerre, et l’armée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-3-24-1-pjr-tolkien/) | 24 Mars 2003
+
 
 ### [**Lien vers les messages des années 2002**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/)
 
