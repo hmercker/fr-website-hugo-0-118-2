@@ -35,7 +35,7 @@ Benjamin Franklin | [Les changements de rapport de force](/fr-contemporary-messa
 Benjamin Franklin | [Les Pères fondateurs en tant que classe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-6-14-1-fab-benjamin-franklin/) | 14 Juin 2008
 Benjamin Franklin | [Providence Divine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-18-1-fab-benjamin-franklin/) | 18 Avril 2008
 Benjamin Franklin | [Sur les Pères fondateurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-1-16-1-fab-benjamin-franklin/) | 16 Janvier 2010
- | <p align="center">**John Adams 2ème président**</p> | 
+ | <p align="center">**John Adams 2ème président**</p> |
 John Adams | [La crise de la liberté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-11-3-fab-john-adams/) | 11 Janvier 2008
  | <p align="center">**Thomas Jefferson 3ème président**</p> |
 Thomas Jefferson | [L’intérêt angélique pour la vie mortelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-10-8-1-fab-thomas-jefferson/) | 8 Octobre 2011
