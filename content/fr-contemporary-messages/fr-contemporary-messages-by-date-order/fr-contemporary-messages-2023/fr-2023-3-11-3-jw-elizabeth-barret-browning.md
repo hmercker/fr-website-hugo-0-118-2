@@ -9,7 +9,7 @@ weight:
 ---
 ### Dans les bras du Ciel, tu demeureras
 
-Elizabeth Barret Browning - reçu par Jimbeau Walsh le 11 Mars 2023, Nashville, TN, USA.
+Elizabeth Barret Browning<sup id="a1">[1](#f1)</sup> - reçu par Jimbeau Walsh le 11 Mars 2023, Nashville, TN, USA.
 
 ![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-elizabeth-barret-browning.jpg)
 
@@ -66,11 +66,13 @@ Vers les siens en récompense
 Là où tout n’est qu’amour au sens de l’Esprit
 
 Une âme perçue et comprise
-Dieu est grand, Dieu est bon.
+Dieu est grand, Dieu est bon.<sup id="a2">[2](#f2)</sup>
+<small>
 
-Elizabeth Barrett Browning, est née le 6 Mars 1806 à Coxhoe Hall, dans le comté de Durham. Elle est décédée le 29 Juin 1861 à Florence, est une poétesse, essayiste et pamphlétaire britannique. (Wikipédia)
+1. <large id="f1"> **Elizabeth Barrett Browning** est née le 6 Mars 1806 à Coxhoe Hall, dans le comté de Durham. Elle est décédée le 29 Juin 1861 à Florence, est une poétesse, essayiste et pamphlétaire britannique. (Wikipédia)[↩](#a1)
 
-Elizabeth Barrett Browning s'était précédemment exprimée [le 31 Décember 2022](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-31-2-jw-elizabeth-barret-browning/).
+2. <large id="f2">Elizabeth Barrett Browning s'était précédemment exprimée [le 31 Décembre 2022](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-31-2-jw-elizabeth-barret-browning/).[↩](#a2)
+
 
 ### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
 

@@ -17,6 +17,6 @@ Ayez pitié de ceux qui souffrent. Cet amour, cet Amour Divin, ouvre le cœur en
 
 Comme toujours, nous vous demandons de rester sur cette marche avec nous et dans ces moments où vous êtes dans la peur, le doute, l'inquiétude, la colère, le manque d'harmonie, sonnez la cloche de la prière. Arrêtez-vous, prenez ce moment pour être en relation avec votre Créateur et vous verrez la différence que fait l'Amour de Dieu. Vous le savez, vous pouvez le vivre. Avec tout mon amour et mes bénédictions, je suis votre ami et frère éternel dans les Cieux Célestes, un disciple du maître, une âme transformée, je suis Judas. Que Dieu vous bénisse !
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

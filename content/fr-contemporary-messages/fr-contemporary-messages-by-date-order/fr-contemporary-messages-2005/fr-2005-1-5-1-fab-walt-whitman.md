@@ -11,7 +11,7 @@ weight:
 
 Walt Whitman - reçu par FAB le 5 Janvier 2005, Santa Cruz, Californie, USA.
 
-C'est moi, Walt Whitman.
+C'est moi, Walt Whitman.<sup id="a1">[1](#f1)</sup>
 
 Je viens ce soir pour dire que nos destins sont inextricablement liés. Oh, comme j'ai aimé l'Amérique - la haute Amérique des nobles idéaux et des nobles aspirations, pas l'Amérique du matérialisme et de l'hypocrisie. Comme le dit le livre *[« The American Soul » (l'Âme Américaine) de Jacob Needleman]*, ce sont deux faces complètement différentes de notre pays.
 
@@ -28,7 +28,7 @@ Mais ces luttes ont été accompagnées de ma vision mystique, qui m'a suivi ici
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-Walt Whitman | [Le mysticisme et les expériences personnelles en esprit de Walt Whitman](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-1-5-1-fab-walt-whitman/) | 5 Janvier 2005
+Walt Whitman | [Walt Whitman et les Amérindiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-1-4-1-fab-walt-whitman/) | 4 Janvier 2005
 Walt Whitman | [La personnalité de Whitman en tant que poète et personne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-28-1-fab-walt-whitman/) | 28 Avril 2008
 
 ### [**Lien vers les messages des années 2005**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/)

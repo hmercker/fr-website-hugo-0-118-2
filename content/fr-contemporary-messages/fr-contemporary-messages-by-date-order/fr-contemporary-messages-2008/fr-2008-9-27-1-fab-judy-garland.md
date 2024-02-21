@@ -11,7 +11,7 @@ weight:
 
 Judy Garland - reçu par FAB le 27 Septembre 2008, Santa Cruz, Californie, USA
 
-C’est moi, Judy Garland.<sup id="a1">[1](#f1)</sup
+C’est moi, Judy Garland.<sup id="a1">[1](#f1)</sup>
 
 [Vous m’avez bien canalisée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-19-1-fab-judy-garland/). J’ai dû faire face à mes addictions.
 

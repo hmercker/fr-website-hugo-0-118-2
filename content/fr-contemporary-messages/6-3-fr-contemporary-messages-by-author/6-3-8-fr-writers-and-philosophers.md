@@ -27,6 +27,8 @@ Arthur Conan Doyle | [Il y a beaucoup de travail à faire](/fr-contemporary-mess
 Bertrand Russell | [La simplicité de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-24-2-af-bertrand-russell/) | 24 Novembre 2017
 Bram Stoker | [L'auteur de Dracula a changé ses croyances](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-11-1-fab-bram-stoker/) | 11 Août 2008
 Carl Jung | [L'expérience de Jung](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-29-1-fab-carl-jung/) | 29 Mai 2009
+Elizabeth Barret Browning | [Comment Dieu vous aime t-il ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-31-2-jw-elizabeth-barret-browning/) | 31 Décembre 2022
+Elizabeth Barret Browning | [Dans les bras du Ciel, tu demeureras](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-11-3-jw-elizabeth-barret-browning/) | 11 Mars 2023
 Emerson | [Emerson ne croit toujours pas à l’Amour Divin.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-15-1-fab-emerson/) | 15 Juillet 2006
 Erasmus | [Érasme et la Réforme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-17-2-fab-erasmus/) | 17 Février 2009
 Erich Maria Remarque | [Un auteur Allemand trouve la confirmation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-5-1-fab-erich-maria-remarque/) | 5 Septembre 2008
@@ -147,6 +149,7 @@ Voltaire | [Voltaire a trouvé le Dieu vivant.](/fr-contemporary-messages/fr-con
 Walt Whitman | [Walt Whitman et les Amérindiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-1-4-1-fab-walt-whitman/) | 4 Janvier 2005
 Walt Whitman | [Le mysticisme et les expériences personnelles en esprit de Walt Whitman](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-1-5-1-fab-walt-whitman/) | 5 Janvier 2005
 Walt Whitman | [La personnalité de Whitman en tant que poète et personne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-28-1-fab-walt-whitman/) | 28 Avril 2008
+Shakespeare | [La curiosité de Shakespeare](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-24-2-fab-shakespeare/) | 24 Janvier 2003
 William Shakespeare | [Shakespeare - L'enfance et la Bible](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-12-1-fab-william-shakespeare/) | 12 Août 2007
 William Shakespeare | [La vie de Shakespeare](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-12-2-fab-william-shakespeare/) | 12 Août 2007
 William Shakespeare | [Shakespeare - Adolescence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-13-1-fab-william-shakespeare/) | 13 Août 2007

@@ -23,6 +23,6 @@ Ce don est offert gratuitement. Puissiez-vous accepter ce cadeau et l’attirer 
 
 Je suis Jésus, et je prie avec vous, bien-aimés, en ce jour qui commémore le moment du grand afflux de l’Amour de Dieu dans les âmes des apôtres. Il en est ainsi, et il en sera ainsi pour tous ceux qui souhaitent que ce don soit, mes bien-aimés. Ouvrez-vous largement à ce don, et il vous sera donné. Que Dieu vous bénisse et vous garde dans Son Amour. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

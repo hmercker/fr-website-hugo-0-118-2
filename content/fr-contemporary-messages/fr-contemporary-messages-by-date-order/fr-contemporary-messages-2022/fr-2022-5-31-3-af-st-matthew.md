@@ -19,6 +19,6 @@ Vous êtes vraiment Ses enfants. Vous continuez à être éveillés, à trouver 
 
 Bien-aimés, soyez en alignement avec Dieu. Cherchez cet alignement à chaque respiration et tout le reste suivra. Vous êtes bénis, âmes bien-aimées, vous êtes vraiment bénis. Je suis Matthieu. Mon amour pour vous est grand. Vous êtes vraiment nécessaires dans ce monde, vraiment une lumière. Soyez en paix et sachez que la main de Dieu est sur vous. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

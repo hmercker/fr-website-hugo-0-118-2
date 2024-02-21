@@ -9,7 +9,7 @@ weight:
 ---
 ### Les vraies prières à Dieu
 
-André - reçu par Al Fike le 1 Octobre 2019, Gibsons, Colombie-Britannique, Canada.
+André - reçu par Al Fike le 1<sup>er</sup> Octobre 2019, Gibsons, Colombie-Britannique, Canada.
 
 Âmes aimées, je suis André. En ces temps lointains où nous marchions avec notre frère Jésus, il nous a appris à prier. Nous avions prié comme un Juif prie en utilisant les mots, les mots appris par cœur qui sont donnés dans cette religion. Mais, comme beaucoup d’autres personnes impliquées dans la pratique religieuse, nous avons prononcé ces mots sans vraiment tenir compte de leur intention ou de leur signification. Notre cher et bien-aimé frère Jésus a donc dû nous enseigner ce qu’est une prière du cœur et à quel point cette prière est importante lorsqu’on a l’intention d’atteindre Dieu et de sentir et de connaître la présence de Dieu.
 

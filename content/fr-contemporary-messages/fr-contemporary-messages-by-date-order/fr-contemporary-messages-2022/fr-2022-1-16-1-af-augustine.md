@@ -31,6 +31,6 @@ Vous avez reçu de nombreuses bénédictions, vous avez vu votre chemin à trave
 
 L’âme aspire à Dieu. Puissiez-vous écouter ce désir, et puissiez-vous écouter la réponse de Dieu alors qu’Il s’avance dans l’Amour et embrasse chacun de vous, pleinement, profondément, en guérissant, en élevant et en apportant la paix. Tout cela vient de Son Amour pour vous. Soyez vraiment Ses enfants, âmes bien-aimées, et nous marcherons ensemble sur ce chemin de lumière, joyeusement, joyeusement. Que Dieu vous bénisse. Je suis votre enseignant Augustin, et nous continuons tous à nous joindre à vous dans la prière et à marcher avec vous dans la lumière. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

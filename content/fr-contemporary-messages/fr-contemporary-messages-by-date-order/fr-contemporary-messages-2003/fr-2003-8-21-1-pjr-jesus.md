@@ -9,7 +9,7 @@ weight:
 ---
 ### Au bord d’une rivière
 
-Jésus - reçu par PJR le 21 Août 2003, New York, USA.
+Jésus - reçu par PJR<sup id="a1">[1](#f1)</sup> le 21 Août 2003, New York, USA.
 
 Si j’entendais dire que tu pourrais marcher près d’une rivière
 

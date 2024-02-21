@@ -9,7 +9,7 @@ weight:
 ---
 ### Assaisonnez votre vie avec l'Amour de Dieu
 
-Augustin - reçu par Al Fike le 1 Novembre 2022, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 1<sup>er</sup> Novembre 2022, Gibsons, Colombie-Britannique, Canada.
 
 Soyez bénis, âmes bien-aimées, je suis votre enseignant, Augustin. Tout dans votre vie a ses saisons. Vous avez entendu cette phrase de temps à auttre, selon laquelle en effet, dans votre vie spirituelle, il y a des hauts et des bas, différents aspects de vos efforts exprimés d’une manière qui leur est propre, reflétant la condition de votre âme et l’intention de votre esprit de servir Dieu. Ainsi, ces saisons se reflètent dans vos choix de libre arbitre, la condition de votre âme et la trajectoire de développement et d’éveil de votre âme.
 

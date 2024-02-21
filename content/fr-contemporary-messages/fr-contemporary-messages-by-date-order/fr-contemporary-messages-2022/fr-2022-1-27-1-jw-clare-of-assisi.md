@@ -11,7 +11,7 @@ weight:
 
 Claire d'Assise - reçu par Jimbeau Walsh le 27 Janvier 2022, Punalu’u, Oahu, HI, USA.
 
-![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-nepal1.jpeg)
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-nepal1.jpg)
 
 Mes chères, mes chères souris aimables, je suis votre sœur dans l’Amour de Dieu, Claire.
 
@@ -25,6 +25,6 @@ Alors, que vos âmes soient remplies, que votre chant soit vrai, saint et plein 
 
 Avec tout mon amour et mes bénédictions, je suis votre sœur dans le Christ. Je suis Claire d’Assise, désormais ange Céleste et vraiment votre amie éternelle. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -19,7 +19,10 @@ Une âme ne peut pas mourir dans le sens où elle disparaît, ou que sa vie s’
 
 Mais une âme peut être tellement dépravée que la vie ressemble à la mort. Il existe de nombreuses âmes de ce type sur terre et dans les sphères spirituelles. Des âmes dont la vie se trouve dans l’obscurité totale. Ces âmes sont certes mortes mais jamais perdues. Il y a toujours de l’espoir. Il y a toujours quelqu’un, que ce soit un humain ou un ange, qui tendra une main secourable à une telle âme. N’oubliez pas que je ne vous laisserai jamais seuls. Moi et mes anges veillons constamment sur vous, à la recherche d’une petite fente pour que la lumière puisse entrer. Nous ne manquons jamais une occasion de répandre un peu de lumière sur une telle âme. Je ne laisserai jamais un de mes enfants seul dans l’obscurité. Je vous aime tous, peu importe à quel point votre âme est dépravée. Je vous aime.
 
-Amour pour tous, votre Père d’espoir.
+Amour pour tous, votre Père d’espoir.<sup id="a1">[1](#f1)</sup>
+<small>
+
+1. <large id="f1"> L'ensembe des messages communiqués par le Père Céleste  est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-13-fr-the-heavenly-father/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
 

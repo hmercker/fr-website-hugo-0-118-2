@@ -9,9 +9,9 @@ weight:
 ---
 ### Tacite fait l'expérience de la Nouvelle Naissance
 
-Tacitus <sup id="a1">[1](#f1)</sup> - reçu par FAB le 13 Mai 2006, Santa Cruz, Californie, USA.
+Tacitus - reçu par FAB le 13 Mai 2006, Santa Cruz, Californie, USA.
 
-Je suis Tacite.
+Je suis Tacite.<sup id="a1">[1](#f1)</sup>
 
 Oui, j'ai vu la futilité et l'immoralité de la Rome antique. Et dans mon cœur, j'aspirais à quelque chose, je ne savais pas quoi. Eh bien, j'ai trouvé ce quelque chose - la Nouvelle Naissance. Dieu soit loué !
 <small>

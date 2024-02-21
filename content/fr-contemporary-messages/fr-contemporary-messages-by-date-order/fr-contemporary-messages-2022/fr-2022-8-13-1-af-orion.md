@@ -43,6 +43,6 @@ Le moment est venu de se libérer des chaînes de la condition humaine. Il est t
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Orion. Mon amour pour vous est grand. Sachez que vous êtes aimés. Chacun d’entre vous est aimé si tendrement et profondément, apprécié pour ce qu’il est, et pour la façon dont il a surmonté tant de choses jusqu’à présent. Franchissez la barrière, car les murs sont vraiment très fins en ce moment. Avancez dans la pureté et la beauté de la lumière et de la vérité et vous connaîtrez une telle profondeur de joie dans votre cœur que vous danserez, chanterez et vous exprimerez dans cette joie. Bénédictions à vous, mes amis. Que Son Amour continue à vous éveiller, à vous donner du pouvoir et à vous transformer. Que Dieu vous bénisse. Que Dieu vous bénisse dans ce voyage. Orion est ici et j’aime chacun de vous, âmes bien-aimées.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

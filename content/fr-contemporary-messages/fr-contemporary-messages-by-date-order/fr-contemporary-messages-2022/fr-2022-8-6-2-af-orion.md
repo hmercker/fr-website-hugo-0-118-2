@@ -37,6 +37,6 @@ Nous continuons à vous soutenir, à vous appuyer et à prier pour vous. Dieu co
 
 Que Dieu vous bénisse, mes amis. Je suis Orion. Mon amour est avec vous. Je continue à être votre ami, à marcher avec vous tous. Que Dieu vous bénisse dans ce voyage de lumière. Que Dieu vous bénisse dans ce qui est et sera un grand déploiement du plan de Dieu pour vous. Que Dieu vous bénisse, mes amis. Nous cheminons ensemble.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

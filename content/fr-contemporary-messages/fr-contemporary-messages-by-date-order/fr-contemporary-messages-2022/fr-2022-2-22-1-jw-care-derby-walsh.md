@@ -19,6 +19,6 @@ Permettez à votre cœur d’être ouvert et à Dieu d’éclairer le chemin. Ma
 
 Que l’Amour de Dieu soit avec vous tous et vous porte dans un avenir glorieux. Je vous aime. Je suis Care.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

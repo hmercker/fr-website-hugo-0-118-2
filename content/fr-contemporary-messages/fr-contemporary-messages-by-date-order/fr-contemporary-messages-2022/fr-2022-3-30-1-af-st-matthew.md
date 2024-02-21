@@ -43,6 +43,6 @@ Bien-aimés, nous sommes toujours avec vous. Vous n’êtes jamais seuls et vous
 
 Que Dieu vous bénisse, âmes aimées et courageuses, âmes belles et fortes, âmes éclairées par l’amour, la sagesse et la grâce. Puissiez-vous continuer à grandir dans la lumière et à être cette lumière. Que Dieu vous bénisse, bien-aimés. Je suis Matthieu et je marche avec vous tous. Que Dieu vous bénisse. Que Son amour continue à grandir en vous et que cet amour brise toutes les illusions, toutes les erreurs, toutes les distorsions et produise une telle clarté et une telle force que vous soyez vraiment un canal impressionnant d’amour dans le monde, beau et fort, clair et lumineux. Que Dieu vous bénisse, âmes bien-aimées, que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -21,6 +21,6 @@ Libérez tout ce qui n’est pas en harmonie avec la Création de Dieu, avec l�
 
 Que Dieu vous bénisse dans ce voyage. Je suis Orion, et en tant qu’observateur qui n’est pas de ce monde, je suis impressionné par sa beauté. Je suis émerveillé par ce que Dieu a créé. Puissiez-vous vous joindre à moi dans cette véritable appréciation de la Création de Dieu. Que Dieu vous bénisse, mes amis. Que Dieu bénisse ce monde et tout ce qu’il contient. Je vous remercie, je vous remercie. Je vous aime.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

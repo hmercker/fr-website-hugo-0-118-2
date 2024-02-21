@@ -61,7 +61,7 @@ Jésus avait pris le gant jeté par les Pharisiens.
 
 Jésus a souri et déclara doucement :
 
-*Comment, alors, pouvez-vous m’expliquer que David fut inspiré par l’Esprit de l’appeler Seigneur ?* - [Il dit](https://saintebible.com/psalms/110-1.htm) :
+*Comment, alors, pouvez-vous m’expliquer que David fut inspiré par l’Esprit de l’appeler Seigneur ?* - [Il dit dans le psaume 110](https://saintebible.com/psalms/110-1.htm) :
 
 > *« Le Seigneur a dit à mon Seigneur, assieds-toi à ma droite, jusqu’à ce que j’ai mis  tes ennemis sous tes pieds. »*
 

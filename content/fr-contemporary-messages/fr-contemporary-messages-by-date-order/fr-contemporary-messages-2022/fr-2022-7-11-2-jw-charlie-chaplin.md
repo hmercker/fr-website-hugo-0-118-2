@@ -21,6 +21,6 @@ Nous qui sommes sur ce chemin de l’Amour Divin, nous ferions bien de nous souv
 
 Découvrez vos dons, trouvez vos aspirations. Et si vous sentez que vous n’avez pas d’aspirations, priez et aspirez à en avoir afin que vos dons puissent s’épanouir et que la joie de l’amour dans votre âme puisse toucher ce monde. N’oubliez pas, mes frères, de remuer vos moustaches et mes chères sœurs de rire dans l’Amour de Dieu. Je suis votre frère et ami dans ce voyage. Charlie Chaplin, Que Dieu vous bénisse, que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous serons avec vous au cours de vos défis
 
-Mahatma Gandhi - reçu par Maureen Cardoso le 1 Décembre 2019, Waianae, Oahu, Hawaii, USA.
+Mahatma Gandhi - reçu par Maureen Cardoso le 1<sup>er</sup> Décembre 2019, Waianae, Oahu, Hawaii, USA.
 
 Je suis Gandhi. Puis-je dire que ce cher instrument conversait avec moi avant de me permettre de parler. Elle me demandait :  - « Que vas-tu dire ? »  Elle s’interroge donc sur le fait que j’utilise son instrumentalité et que je partage quelque chose avec vous, non pas qu’il doute que je n’aie pas quelque chose à dire qui serait important pour toucher vos cœurs et vous inspirer à continuer sur ce chemin d’éveil avec l’Amour de Dieu. Mais il est arrivé un moment où on lui a demandé d’aller plus loin dans sa médiumnité, dans le sens de simplement sentir un esprit et de permettre à cet esprit de délivrer un message d’amour et d’inspiration. Je la remercie donc pour sa volonté de se lancer avec une ardoise vierge.
 

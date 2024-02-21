@@ -41,7 +41,7 @@ J'étais fier de mes enfants lorsqu'ils réussissaient, et j'ai été encouragé
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Jean Sébastien Bach | [La foi inébranlable de Bach en Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-27-1-fab-johann-sebastian-bach/) | 27 Février 2003
-Jean Sébastien Bach | [Les expériences de Jean Sébastian Bach](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-26-1-na-johann-sebastian-bach/) | 26 Janvier 2008
+Jean Sébastien Bach | [Artisans Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-26-1-na-johann-sebastian-bach/) | 26 Janvier 2008
 
 ### [**Lien vers les messages des années 2002**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/)
 

@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Avec le temps, le filet d'amour de Dieu dans votre âme deviendra un fleuve puissant
+### Avec le temps, le filet d'Amour de Dieu dans votre âme deviendra un fleuve puissant
 
 Augustin - reçu par Al Fike le 16 Février 2020, Gibsons, Colombie-Britannique, Canada.
 

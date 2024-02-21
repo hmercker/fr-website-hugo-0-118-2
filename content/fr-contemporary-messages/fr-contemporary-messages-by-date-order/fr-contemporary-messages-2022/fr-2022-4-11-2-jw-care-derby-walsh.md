@@ -19,6 +19,6 @@ Je vous demande de ne jamais penser que nous sommes loin, car nous répondons à
 
 Alors, prenez courage mes chers amis. Espérons que tous s’éveillent dans l’Amour de Dieu. Permettez à cet amour d’imprégner votre être en y ouvrant vos cœurs et vos âmes afin que Dieu puisse vous bénir dans un amour sans fin. Je suis votre sœur dans le Christ et votre amie éternelle, et je vous remercie. Je suis Care. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

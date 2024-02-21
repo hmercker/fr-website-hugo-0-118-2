@@ -33,7 +33,7 @@ Au fur et à mesure que je progressais dans mon voyage spirituel, Dieu m’a fou
 
 J’ai découvert que j’avais une nature psychique, et c’est ainsi que j’étais en relation avec Lui. Grâce à cette nature psychique, je me renseignais souvent sur de nombreuses choses, et Dieu répondait invariablement à chaque question en m’apportant des situations qui fournissaient la réponse.
 
-Bon, je vais m’arrêter là.
+Bon, je vais m’arrêter là.<sup id="a2">[2](#f2)</sup>
 <small>
 
 1. <large id="f1"> Brooder dans le texte originel.[↩](#a1)

@@ -37,6 +37,6 @@ Je vous invite à considérer ceci et, en le considérant, à croire que la poss
 
 Puissiez-vous trouver votre chemin, mes amis. Je suis Augustin. Mon amour pour vous est grand. Je continue à venir sur la Terre pour enseigner les voies de Dieu et les voies de l’âme. Puissiez-vous trouver ces voies et les exprimer dans votre vie. Je vous remercie et je vous aime et je suis proche et je serai proche de vous tous qui cherchez la plus haute lumière, la plus grande vérité qui est l’amour. Que Dieu vous bénisse. Que Dieu vous bénisse tous.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

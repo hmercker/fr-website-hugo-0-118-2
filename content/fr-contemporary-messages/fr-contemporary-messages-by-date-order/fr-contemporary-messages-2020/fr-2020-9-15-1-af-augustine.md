@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### La tension entre la volonté de Dieu et la résistance de l’humanité
+### La tension entre la Volonté de Dieu et la résistance de l’humanité
 
 Augustin - reçu par Al Fike le 15 Septembre 2020, Gibsons, Colombie-Britannique, Canada.
 

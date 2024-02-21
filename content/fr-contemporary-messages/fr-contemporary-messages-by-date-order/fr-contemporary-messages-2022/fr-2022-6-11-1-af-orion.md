@@ -21,6 +21,6 @@ Bien que vous ne soyez pas parfaits et que vous ayez et portiez ces blessures et
 
 Merci pour vos efforts, âmes bien-aimées. Merci d’être qui vous êtes, des âmes de lumière, des âmes qui aspirent et prient pour le grand cadeau de l’Amour de Dieu. Vous êtes bénis, mes amis, vous êtes bénis. Que Dieu vous bénisse. Je suis Orion et je continue à être avec vous en ces temps de prière, aspirant à atteindre ce lieu de pureté et de lumière, l’expression de vos dons, pour apporter à l’humanité ce qui l’inspirera et l’ouvrira à différents paradigmes de vérité, de pensée et d’action. Que Dieu vous bénisse et vous garde dans la lumière. Mon amour est avec vous tous. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

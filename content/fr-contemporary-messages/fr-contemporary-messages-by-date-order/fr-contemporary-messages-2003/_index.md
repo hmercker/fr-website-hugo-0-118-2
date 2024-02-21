@@ -67,7 +67,7 @@ St Jean | [Esprit Divin (Suite)](/fr-contemporary-messages/fr-contemporary-messa
 St Pierre | [L’amour est la clé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-6-24-1-cc-st-peter/) | 24 Juin 2003
 Judas | [Le monde d’un enfant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-6-29-1-hr-judas/) | 29 Juin 2003
 Judas | [La suite des pensées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-6-30-1-hr-judas/) | 30 Juin 2003
-Solomon | [Bouclez votre ceinture](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-6-30-2-cc-solomon/) | 30 Juin 2003
+Salomon | [Bouclez votre ceinture](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-6-30-2-cc-solomon/) | 30 Juin 2003
 Jésus | [Surfez sur la vague du changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-7-10-1-cc-jesus/) | 10 Juillet 2003
 Marie | [Voir le monde avec les yeux de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-7-19-1-cc-mary/) | 19 Juillet 2003
 Marie & Jean | [L’amour est notre cause](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-8-1-1-cc-mary-john/) | 1 Août 2003
@@ -77,7 +77,7 @@ Jésus | [Au bord d’une rivière](/fr-contemporary-messages/fr-contemporary-me
 PSR | [Fatigué et distrait](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-8-28-1-pjr-psr/) | 28 Août 2003
 PSR | [Ces Limites sont tes limites](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-9-2-1-pjr-psr/) | 2 Septembre 2003
 Jésus | [Anxieux pour demain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-9-3-1-pjr-jesus/) | 3 Septembre 2003
-Solomon | [Humilité et confiance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-9-4-1-cc-solomon/) | 4 Septembre 2003
+Salomon | [Humilité et confiance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-9-4-1-cc-solomon/) | 4 Septembre 2003
 Divers | [Il voit ton désir de le trouver](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-9-8-1-pjr-various/) | 8 Septembre 2003
 St Pierre | [Laisse Dieu prendre le contrôle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-9-9-1-ks-st-peter/) | 9 Septembre 2003
 Divers | [L’amour agit dans toutes les dimensions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-9-16-1-pjr-various/) | 16 Septembre 2003
@@ -104,8 +104,3 @@ Jacques | [Le pouvoir de s’élever au-dessus.](/fr-contemporary-messages/fr-co
 ### [**Lien vers les messages des années 2004**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
-
-[Lien vers les messages de l’année 2004](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/)
-<br>
-<br>
-[Lien vers la liste des messages contemporains classées par année]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

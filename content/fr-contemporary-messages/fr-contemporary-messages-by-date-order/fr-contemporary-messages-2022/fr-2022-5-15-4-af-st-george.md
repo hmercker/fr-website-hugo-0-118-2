@@ -27,6 +27,6 @@ Puissiez-vous travailler à ces fins, mes amis. Trouvez votre chemin vers Dieu, 
 
 Merci de m’avoir écouté. Je m’appelle George, et je suis heureux de revenir en ce lieu. Bien sûr, là où je demeure, je ne suis pas un roi. Je ne suis pas un saint. Je ne suis qu’une autre âme de Dieu, qui cherche à servir et à être un serviteur. Que Dieu vous bénisse, mes amis, et qu’il vous apporte du courage, car vous avez tous besoin de courage pour avancer à contre-courant de la vie, qui est contraire à cela. Le courage vient de Dieu, et avec le courage viendra l’amour, abondant et beau. Que Dieu vous bénisse et vous garde dans l’amour.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

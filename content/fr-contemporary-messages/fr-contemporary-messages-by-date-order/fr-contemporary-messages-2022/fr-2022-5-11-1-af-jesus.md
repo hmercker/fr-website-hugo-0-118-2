@@ -15,6 +15,6 @@ Que les bénédictions de Dieu soient sur vous, mes bien-aimés. Je suis Jésus,
 
 Connaissez Sa Bénédiction sur vous, âmes bien-aimées, éveillez-vous à elle. Embrassez l’étreinte aimante de Dieu, afin que votre âme et la Sienne puissent fusionner et que vous puissiez vous ouvrir à Sa grande bénédiction d’Amour, en vous éveillant et en vous éveillant à la grande lumière qui attend toutes les âmes qui ont demandé à être bénies de cette façon. C’est pour vous, âmes bien-aimées. C’est pour vous d’être bénies. Que Dieu vous bénisse. Je suis votre frère et ami, Jésus, et je viens pour être avec mes frères et sœurs dans le monde.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -32,7 +32,7 @@ Jésus | [Quelle est la vérité sur l'évolution - 3](/fr-contemporary-messages
 Jésus | [Quelle est la vérité sur l'évolution - 4](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-6-2-fab-jesus/) | 6 Février 2008
 Phil Ochs | [L'expérience d'un chanteur populaire américain dans le monde de l’esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-8-1-fab-phil-ochs/) | 8 Février 2008
 Élie | [La véritable âme sœur de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-11-1-na-elijah/) | 11 Février 2008
-George Bernard Shaw | [Shaw a réexaminé sa vie sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-21-1-fab-george-bernard-shaw/) | 21 Février 2008
+George Bernard Shaw | [George Bernard Shaw a réexaminé sa vie sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-21-1-fab-george-bernard-shaw/) | 21 Février 2008
 Charles I | [Un roi anglais fait le bilan de son règne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-21-2-fab-charles-i/) | 21 Février 2008
 Jacques Ier | [Un roi anglais est humble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-21-3-fab-james-i/) | 21 Février 2008
 Jésus | [L’holocauste Nazi et l’Empire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-21-4-fab-jesus/) | 21 Février 2008

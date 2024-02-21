@@ -9,7 +9,7 @@ weight:
 ---
 ### Permettez à l'Amour de Dieu de réveiller votre âme
 
-Lotus Blossom - reçu par Maureen Cardoso le 11 Octobre 2019, FUSC, Burnaby, Colombie-Britannique, Canada.
+Fleur de Lotus - reçu par Maureen Cardoso le 11 Octobre 2019, FUSC, Burnaby, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, âmes bien-aimées. Je vous rejoins dans votre cercle où vous aspirez à attirer l’Amour de Dieu dans votre âme. Lorsque vous êtes assis dans le cercle et que vous vous concentrez sur l’essence de votre âme qui est touchée par la Grâce de Dieu, la puissance de votre désir et de votre aspiration attire l’Amour Divin dans votre âme. Il attire les anges Célestes, les esprits brillants et les esprits de toutes les sphères de notre côté de la vie.
 

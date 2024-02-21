@@ -27,6 +27,6 @@ Il y a beaucoup de travail à faire, âmes bien-aimées, tant de choses pour ann
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis avec vous. Nous portons cette vérité ensemble. La torche de la vérité brûle brillamment parmi vous. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse. Je suis Jésus, et je viens prier avec vous en ce jour et chaque jour. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -9,7 +9,7 @@ weight:
 ---
 ### Discours sur l’esprit et le pouvoir de l’amour
 
-Nicolas Tesla - reçu par Al Fike le 15 Mai 2022, Lee Chapel Monet, Guernesey, Royaume Uni.
+Nicolas Tesla<sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 15 Mai 2022, Lee Chapel Monet, Guernesey, Royaume Uni.
 
 ![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-spiritualite_8.jpg)
 
@@ -64,6 +64,6 @@ Je suis Nicolas Tesla. Je viens en effet sur Terre pour aider les autres. J’en
 
 1. <large id="f1"> Nicolas Tesla s'était également exprimé dans un premier message communiqué [le 3 Novembre 2017](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-3-4-af-nikola-tesla/)[↩](#a1)
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

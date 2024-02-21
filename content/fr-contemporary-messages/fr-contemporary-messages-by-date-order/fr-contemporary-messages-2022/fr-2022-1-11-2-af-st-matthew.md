@@ -35,6 +35,6 @@ L’année à venir vous apportera de nombreuses bénédictions, mes amis bien-a
 
 Que Dieu vous bénisse, mes amis. Je suis Matthieu. Mon amour pour vous est grand. Je vous aime tendrement. Nous marchons tous ensemble. En effet, le temps passe mais en effet, le voyage se déroule. Que Dieu vous bénisse, âmes bien-aimées. Matthew vous aime. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

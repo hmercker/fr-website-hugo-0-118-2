@@ -45,7 +45,7 @@ Moïse | [Vivre selon des vérités simples](/fr-contemporary-messages/fr-contem
 Moïse | [Le peuple élu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-7-1-ar-moses/) | 7 Avril 2002
 Moïse | [Moïse partage ses expériences](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-12-30-1-fab-moses/) | 30 Décembre 2002
 Moïse | [Moïse dans le désert](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-8-1-fab-moses/) | 8 Janvier 2003
-11 Janvier 2003
+Moïse | [Le récit de l’Exode](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-9-1-fab-moses/) | 9 Janvier 2003
 Moïse | [Les premières années de Moîse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-21-1-fab-moses/) | 21 Janvier 2003
 Moïse | [Un médium Juif attire les mêmes esprits Juifs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-9-1-fab-moses/) | 9 Avril 2006
 Moïse | [Moïse sur le Judaïsme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-10-23-1-fab-moses/) | 23 Octobre 2006

@@ -9,13 +9,16 @@ weight:
 ---
 ### Vous êtes mes anges sur terre
 
-Le Père Céleste - reçu par Enfant de Dieu le 1er Avril 2013.
+Le Père Céleste - reçu par Enfant de Dieu le 1er Avril 2013.<sup id="a1">[1](#f1)</sup>
 
 Mes chers enfants. Vous êtes mes anges sur la terre. Vous êtes mon espoir. Votre amour pour moi me touche profondément. Vous rayonnez, vous guidez les aveugles dans leurs ténèbres. Chacun d’entre vous détient des aspects du réveil de l’humanité. Chacun d’entre vous détient une pièce du puzzle. Ensemble, vous êtes un tout. Chacun de vous touche les autres avec sa propre saveur unique. Votre façon unique de m’aimer ouvre la voie à beaucoup. Vous êtes tous indispensables et ne pouvez être remplacés. Je tiens chacun d’entre vous dans mes bras aimants, je vous guide et vous protège. Il y a une force puissante d’anges qui vous soulève et vous encourage. Tenez bon et soyez forts. Je suis avec vous.
 
 Sachez que je vous tiens pour toujours. Je vous aime infiniment.
 
 Votre père.
+<small>
+
+1. <large id="f1"> L'ensembe des messages communiqués par le Père Céleste  est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-13-fr-the-heavenly-father/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2013**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/)
 

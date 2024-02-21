@@ -1,13 +1,13 @@
 ---
-title: "Tous vos proches seront bénis"
+title: "Nous sommes nécessaires pour répandre la lumière dans le monde"
 menu_title: ""
-description: "Tous vos proches seront bénis"
+description: "Nous sommes nécessaires pour répandre la lumière dans le monde"
 date: 2022-06-01 06:00:01+00:1616
 draft: False
 hidden: True
 weight:
 ---
-### Tous vos proches seront bénis
+### Nous sommes nécessaires pour répandre la lumière dans le monde
 
 Augustin - reçu par Al Fike le 29 Août 2021, Gibsons, Colombie-Britannique, Canada.
 

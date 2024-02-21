@@ -9,7 +9,7 @@ weight:
 ---
 ### Un fleuve puissant commence par une goutte d'eau
 
-Samuel - reçu par Al Fike le 1 Décembre 2019, Waianae, Oahu, Hawaii, USA.
+Samuel - reçu par Al Fike le 1<sup>er</sup> Décembre 2019, Waianae, Oahu, Hawaii, USA.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Samuel et je viens vous dire que mon message commence comme une goutte d’eau. Alors que chaque goutte se rassemble créant le filet d’eau qui coule dans le ruisseau qui se jette alors dans le grand fleuve puissant. Ainsi, vous, âmes bien-aimées, vous rassemblez un flot de forces dans le monde qui continueront à se fortifier et à se multiplier. Et le temps crée un fleuve si large, et si vaste, qu’il impliquera la terre et vous ferez partie de la grande transformation de votre monde.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Le réseau d'Amour
 
-Le Père Céleste - reçu par Helge Mercker le 9 Janvier 2013, Elim, Namibie.
+Le Père Céleste - reçu par Helge Mercker le 9 Janvier 2013, Elim, Namibie.<sup id="a1">[1](#f1)</sup>
 
 Je suis ton Père.
 
@@ -18,6 +18,9 @@ Mon enfant, Je veux te parler. Tu es encouragée à tendre la main et à constru
 Atteignez ceux qui veulent être enveloppés par lui, par Mon amour. Tu es Mon enfant, il y a beaucoup d’enfants, jouez ensemble dans le reflet de Mon sourire, car vous savez tous combien Je vous aime !
 
 Je suis ton père – dors Mon enfant, doux sommeil.
+<small>
+
+1. <large id="f1"> L'ensembe des messages communiqués par le Père Céleste  est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-13-fr-the-heavenly-father/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2013**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/)
 

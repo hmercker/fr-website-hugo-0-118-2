@@ -70,6 +70,6 @@ Esprit : Goldie
 
 Je sais que notre Maître bien-aimé parle de choses sérieuses mais je veux rappeler à ceux qui connaissent vraiment leur âme que lorsque vous recevez la bénédiction de l’Amour de Dieu, une grande joie jaillit de l’intérieur. Même dans les conditions les plus difficiles et les plus dures, cette joie éclipsera ces choses et vous en viendrez à connaître une paix et une joie qui ne peuvent être détruites ou affectées par le monde extérieur, mais qui sont si fortes et si belles que vous êtes retirés des conditions sombres du monde. Cela vient avec une âme éveillée par l’amour de Dieu. Cela vient comme une bénédiction de la Main de Dieu sur vous, vous apportant la paix, apportant tout ce qui est édifiant et de lumière. C’est votre cadeau. Il est à vous en permanence. Chaque fois que vous le désirez, il vous sera donné. Que Dieu vous bénisse. Je suis Goldie et je vous aime tous. Nous sommes tous proches de vous, mes bien-aimés, proches pour vous élever et vous soutenir dans l’amour. Que Dieu vous bénisse. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -66,7 +66,7 @@ Tu sais que l’interprétation qui est donnée aux choses dépend de la perspic
 
 Je veux analyser avec toi et montrer comment cette parabole est relatée et interprétée dans le livre d’Urantia. Écris le texte ici, et j’insérerai mes observations. « Allons-y  ».
 
-> Le livre d’Urantia :
+> <u>Le livre d’Urantia</u> :
 <br>
 <br>
 > Ce soir-là, beaucoup  se rassemblèrent autour de Jésus et des deux apôtres pour leur poser des questions auxquelles bon nombre d’apôtres ont répondu, les autres étant discutées par le Maître. Au cours de la soirée, un docteur de la loi, qui cherchait à entraîner Jésus dans une discussion compromettante, lui dit : *« Maître, je voudrais vous demander ce que je dois faire pour hériter de la vie éternelle ? »*
@@ -80,20 +80,20 @@ Je veux analyser avec toi et montrer comment cette parabole est relatée et inte
 <br>
 > Jésus dit alors : *« Tu as bien répondu ; si tu fais vraiment cela, tu gagneras la vie éternelle. »*
 
-Judas :
+**Judas** :
 
 *« Connaissant les enseignements de Jésus et des Pharisiens »*, bien sûr, parce que le docteur de la loi était un Pharisien. Et la réponse qu’il a donné nous montre même à quelle faction de cette secte il appartenait. Ce qu’il a dit, c’était exactement ce que Hillel de Babylone avait proclamé : *« Aime le Seigneur Dieu avec tout ton cœur, toute ton âme, tout ton esprit et toute ta force et aime ton prochain comme toi-même »*. C’était toute la Torah (la Loi), qu’il avait enseignée, tout le reste n’était que de simples commentaires.
 
-> Le livre d’Urantia :
+> <u>Le livre d’Urantia</u> :
 <br>
 <br>
 > Mais le docteur de la loi n’étant pas vraiment sincère en posant cette question, désirant seulement se justifier et espérant également embarrasser Jésus, osa poser encore une question. S’approchant un peu plus près du maître, il dit : *« Maître, je voudrais que vous m’expliquiez un peu plus qui est mon prochain ? »* Le docteur de la loi posait cette question dans l’espoir de piéger Jésus en l’amenant à faire une déclaration qui contreviendrait à la loi Juive qui définissait son prochain comme *« les enfants de son peuple »*. Les Juifs considéraient tous les autres comme des « chiens gentils. » Ce docteur de la loi était quelque peu familier avec les enseignements de Jésus, il savait  donc très bien que le Maître pensait différemment ; il espérait ainsi l’amener à dire quelque chose qui pourrait être interprété comme une attaque contre la Loi sacrée.
 
-Judas :
+**Judas** :
 
 Certainement. Dans l’Ancien Testament, tu peux lire, dans de nombreux cas, comment la loi définit un traitement différent des Juifs et des non-Juifs. Ce qui n’était pas légal de faire à un Juif pouvait être légal de le faire à un païen.
 
-> Le livre d’Urantia :
+> <u>Le livre d’Urantia</u> :
 <br>
 <br>
 > Mais Jésus discerna le motif du docteur de la loi et, au lieu de tomber dans le piège, il se mit à raconter à ses auditeurs une histoire, une histoire qui pourrait être pleinement appréciée par n’importe quel auditoire de Jéricho.
@@ -107,7 +107,7 @@ Certainement. Dans l’Ancien Testament, tu peux lire, dans de nombreux cas, com
 <br>
 > Le docteur de la loi a répondu, *« Celui qui a montré de la miséricorde »* évitant de prononcer  ce mot odieux, Samaritain. Le docteur de la loi fut obligé de donner, lui-même, la réponse à la question : *« Qui est mon prochain ? »* que Jésus souhaitait donner, et laquelle, si Jésus l’avait alors affirmé, l’aurait directement amené à être accusé d’hérésie. Non seulement Jésus a confondu le docteur de la loi malhonnête, mais il a raconté, à ses auditeurs, une histoire qui était en même temps une belle exhortation pour tous ses disciples et un superbe reproche à tous les Juifs au sujet de leur attitude envers les Samaritains. Et cette histoire a continué à promouvoir l’amour fraternel entre tous ceux qui ont cru par la suite dans l’Évangile de Jésus.
 
-Judas :
+**Judas** :
 
 Ce n’était pas une hérésie de désigner un Samaritain comme « son prochain ». Mais logiquement, compte tenu de l’opinion des Juifs envers les Samaritains, cette déclaration était très provocatrice, même scandaleuse. Et ce fut le Pharisien qui eut à la prononcer, en raison de l’ingénieuse stratégie de Jésus.
 

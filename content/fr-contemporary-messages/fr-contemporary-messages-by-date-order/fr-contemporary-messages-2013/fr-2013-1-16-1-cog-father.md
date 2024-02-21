@@ -9,7 +9,7 @@ weight:
 ---
 ### Seul l’amour peut dissoudre l’illusion
 
-Le Père Céleste - reçu par Enfant de Dieu le 16 Janvier 2013.
+Le Père Céleste - reçu par Enfant de Dieu le 16 Janvier 2013.<sup id="a1">[1](#f1)</sup>
 
 Sentez-vous Mon bonheur ? Mon amour déborde pour vous Mes chers enfants qui allez bientôt vous rassembler en Mon Nom et Mon Amour. Sentez le tissage du grand amour entre nous. Imaginez le monde inondé de notre amour. Sentez comme nous sommes reliés dans l’Amour.
 
@@ -24,6 +24,10 @@ Je veille sur vous. Rien ne peut vous faire du mal.
 Votre Père.
 
 <u>Note</u> : Le sous-entendu est que ceux qui ont l'Amour Divin dans leur âme sont invités à s'avancer et à tendre la main à leurs frères et sœurs qui portent également l'Amour. Le temps de la solitude est révolu. Beaucoup d'entre nous ont appris à marcher seuls sur leur chemin spirituel, mais le temps est venu de nous unir, de partager l'amour et de le répandre.
+<small>
+
+1. <large id="f1"> L'ensembe des messages communiqués par le Père Céleste  est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-13-fr-the-heavenly-father/)[↩](#a1)
+
 
 ### [**Lien vers les messages des années 2013**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/)
 

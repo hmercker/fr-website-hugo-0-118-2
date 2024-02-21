@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Message de clôture de la retraite VD (2021- Voix Directe II)
+### Message de clôture de la retraite VD (Séminaire Voix Directe 2021)
 
 Orion - reçu par Al Fike le 25 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 

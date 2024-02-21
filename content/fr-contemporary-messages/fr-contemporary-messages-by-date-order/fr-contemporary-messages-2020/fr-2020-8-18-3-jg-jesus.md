@@ -11,7 +11,7 @@ weight:
 
 Jésus (Yeshua ben Yosef) - reçu par Jane Gartshore le 18 Août 2020.
 
-![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-lotus.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-fleur-de-lotus.jpg)
 
 Je suis venu. Yeshua. Notre sujet ce soir est l’Amour. Il y a beaucoup de choses que je peux dire à ce sujet, mais je commencerai par ce que vous devez savoir: cette vérité dans sa forme la plus simple c’est l’Amour, et cet Amour est la vérité la plus élevée. Qu’est-ce que je veux dire par là, que l’Amour est la plus haute vérité? On en revient toujours à Dieu, n’est-ce pas, le créateur de toutes choses? Dieu est amour. Le définir autrement c’est blasphémer.
 

@@ -25,6 +25,6 @@ C'est le chemin de l'âme que vous recherchez et le chemin de l'âme que nous so
 
 Mes amis bien-aimés, je suis André et je vous aime, chacun de vous, des âmes si précieuses, des enfants de Dieu. Nous vous observons alors que vous vous éveillez. Nous sommes témoins du miracle du toucher de Dieu sur votre âme et en cela nous sommes remplis de joie. Nous apprenons à connaître la beauté de la création de Dieu à travers vous, cette fleur unique qu'est votre âme. Que Dieu vous bénisse, mes bien-aimés, que Dieu vous bénisse de son Amour.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

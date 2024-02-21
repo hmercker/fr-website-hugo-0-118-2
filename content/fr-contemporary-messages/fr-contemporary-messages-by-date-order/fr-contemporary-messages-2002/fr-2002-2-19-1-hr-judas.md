@@ -63,7 +63,7 @@ Les mots Araméens permettaient parfois un excellent jeu de mots, lequel a total
 
 > Car il y a des eunuques, qui sont nés ainsi du ventre de leur mère : et il y a des eunuques qui ont été faits eunuques d’hommes : et il y aura les eunuques, qui se seront fait eunuques pour le Royaume de l’Amour du Ciel. Celui qui est capable de le recevoir, qu’il le reçoive.
 
-Cela est également traité par Jésus dans un [message reçu par le Dr Samuels](/fr-samuels-messages/fr-revelations/fr-rev-16-1955-9-27-samuels-jesus/). Mais j’ai voulu aller un peu plus profondeur, parce qu’une fois de plus, nous trouvons un mot Araméen avec un double sens. Dans un autre cas, nous trouvons le mot eunuque<sup id=”a1”>[1](#f1)</sup> dans les Actes des Apôtres :
+Cela est également traité par Jésus dans un [message reçu par le Dr Samuels](/fr-samuels-messages/fr-revelations/fr-rev-16-1955-9-27-samuels-jesus/). Mais j’ai voulu aller un peu plus profondeur, parce qu’une fois de plus, nous trouvons un mot Araméen avec un double sens. Dans un autre cas, nous trouvons le mot eunuque<sup id="a1">[1](#f1)</sup> dans les Actes des Apôtres :
 
 > Et voici un homme d'Éthiopie, un eunuque ayant une grande autorité auprès de Candace, reine des Éthiopiens, qui avait la garde de tous ses trésors, et qui était venu à Jérusalem pour adorer
 
@@ -80,7 +80,7 @@ Le temps est venu de se dire au revoir. Puisse Dieu te bénir toujours.
 Judas de Kerioth.
 <small>
 
-1. <large id=”f1”> Rappel : Homme castré chargé de fonctions administratives et militaires importantes, ainsi que de la garde des harems impériauxour text for the reference.[↩](#a1)
+1. <large id="f1"> Rappel : Homme castré chargé de fonctions administratives et militaires importantes, ainsi que de la garde des harems impériauxour text for the reference.[↩](#a1)
 
 © Geoff Cutler 2013
 

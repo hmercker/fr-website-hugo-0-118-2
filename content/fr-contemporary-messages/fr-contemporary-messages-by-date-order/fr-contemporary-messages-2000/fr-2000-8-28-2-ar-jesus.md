@@ -1,13 +1,13 @@
 ---
-title: "Alfredo et swift bear"
+title: "Alfredo et Ourson Véloce"
 menu_title: ""
-description: "Alfredo et swift bear"
+description: "Alfredo et Ourson véloce"
 date: 2022-06-01 06:00:01+00:22
 draft: False
 hidden: True
 weight:
 ---
-### Alfredo et Swift Bear
+### Alfredo et Ourson Véloce
 
 Jésus - reçu par Amada Réza le 28 Août 2000, Aptos, Californie, USA.
 
@@ -28,7 +28,6 @@ Les anges qui demandent toujours à faire mon travail sont conscients qu’ils d
 Je vous aime, mes disciples. Prenez courage et soyez joyeux car le jour vient et vous apporterez la vérité aux âmes de toute l’humanité.
 
 Je suis Jésus, votre frère et ami et participant à l’Amour Divin de notre Père Céleste.
-
 
 ### [**Lien vers les messages des années 2000**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/)
 

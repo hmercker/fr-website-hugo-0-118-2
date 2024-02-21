@@ -15,7 +15,7 @@ C'est moi, David Ben-Gourion.
 
 Alors que vous lisez le livre "The Israel Lobby and U.S. Foreign Policy (Le lobby Israélien et la politique étrangère américaine)" vous découvrez qu'il y a eu d'autres facteurs dans la guerre israélo-arabe de 1967 qui semblent montrer qu'Israël a eu tort.
 
-J'ai canalisé [mon message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-8-7-1-fab-david-ben-gurion/) parce que vous étiez confus, et je voulais vous donner un peu de clarté, en plus de vouloir partager mes propres pensées avec le monde. J'essayais de vous donner une perspective différente sur un sujet difficile et volatile, une perspective qui ne vient pas de la terre, mais du monde des esprits.
+J'ai canalisé mon message du [07 Août 2006](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-8-7-1-fab-david-ben-gurion/) parce que vous étiez confus, et je voulais vous donner un peu de clarté, en plus de vouloir partager mes propres pensées avec le monde. J'essayais de vous donner une perspective différente sur un sujet difficile et volatile, une perspective qui ne vient pas de la terre, mais du monde des esprits.
 
 J'ai dit dans cette canalisation : *« La situation est que les Arabes qui sont hostiles à Israël, ne veulent pas qu'il existe. Ces Arabes créent donc les lois spirituelles par lesquelles les semailles et les récoltes entrent en jeu, ainsi que les lois de la justice. »*
 
@@ -40,7 +40,6 @@ Au fur et à mesure que l'histoire évolue, la vérité continuera à faire surf
 ---|---|---
 David Ben-Gurion | [Le conflit Israelo-Palestinien](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-8-7-1-fab-david-ben-gurion/) | 7 Août 2006
 David Ben-Gurion | [Un dirigeant israélien complète son message précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-20-1-fab-david-ben-gurion/) | 20 Juillet 2007
-David Ben-Gurion | [Le Moyen-Orient et la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-10-31-1-fab-david-ben-gurion/) | 31 Octobre 2007
 
 ### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
 

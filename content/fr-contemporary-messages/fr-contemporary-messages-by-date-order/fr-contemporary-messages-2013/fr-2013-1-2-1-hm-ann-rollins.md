@@ -22,7 +22,7 @@ Je suis tellement heureuse de cette lettre et nous pratiquerons plus souvent, ca
 C’est Anne Rollins, ta sœur en Christ, au revoir.
 <small>
 
-1. <large id="f1"> Les différents messages communiqués par Anne Rollins sont accessibles par l'intermédiaire de [ce lien](fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-12-fr-family-and-friends-of-james-padgett/)[↩](#a1)
+1. <large id="f1"> Les différents messages communiqués par Anne Rollins sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-12-fr-family-and-friends-of-james-padgett/)[↩](#a1)
 
 
 

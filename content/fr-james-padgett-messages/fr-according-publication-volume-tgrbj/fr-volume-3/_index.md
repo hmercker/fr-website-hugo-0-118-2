@@ -17,5 +17,7 @@ Toute la difficulté, pour un certain nombre d’esprits qui sont très heureux 
 
 Outre le thème de l’absolue nécessité de rechercher l’Amour Divin, les thèmes abordés, dans ce 3ème volume, concernent l’importance de l’amour entre âmes sœurs, la compréhension des grandes lois spirituelles, l’importance de la Prière, la vie et la progression dans le monde des esprits et de nombreux témoignages d’esprits qui ont progressé des ténèbres vers la lumière.
 
+[Voici un lien de téléchargement pour le troisième volume  des messages.](/13-fr-publications-and-downloads/13-2-1-fr-french-spiritual-books/fr-true-gospel-revealed-anew-volume-3-fr.pdf)
+
 1. [Volume III des messages reçus par James Padgett - Première Partie](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-3/fr-volume-3-i/)
 2. [Volume III des messages reçus par James Padgett - Deuxième Partie](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-3/fr-volume-3-ii/)

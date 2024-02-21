@@ -9,7 +9,7 @@ weight:
 ---
 ### Ce qui n'est pas en harmonie avec la création de Dieu s'écroulera
 
-Tahlia - reçu par Al Fike le 10 Mars 2019, Meyersdale, PA, USA.
+Tahlia<sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 10 Mars 2019, Meyersdale, PA, USA.
 
 Je viens avec une bénédiction de guérison pour vous. Je viens vous dire, mes amis, que vous devez être forts. Je viens vous dire que de grands changements interviendront, prochainement, pour chacun d’entre vous, que cette vie confortable que vous vivez sera affectée par les tempêtes qui se profilent à l’horizon et qu’il est important que vous vous y prépariez dès maintenant. Vous devez être forts, priants et à l’écoute du Créateur. Dieu se servira de vous de bien des manières surprenantes, des manières inattendues, afin daider vos frères et sœurs à traverser ces temps de changement et ces périodes de transition.
 

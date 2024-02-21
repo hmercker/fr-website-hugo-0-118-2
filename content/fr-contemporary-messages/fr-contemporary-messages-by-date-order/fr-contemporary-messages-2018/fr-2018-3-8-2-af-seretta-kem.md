@@ -1,13 +1,13 @@
 ---
-title: "Connaître les potentialités de l'amour de Dieu est un voyage infini"
+title: "Connaître les potentialités de l'Amour de Dieu est un voyage infini"
 menu_title: ""
-description: "Connaître les potentialités de l'amour de Dieu est un voyage infini"
+description: "Connaître les potentialités de l'Amour de Dieu est un voyage infini"
 date: 2022-06-01 06:00:01+00:347
 draft: False
 hidden: True
 weight:
 ---
-### Connaître les potentialités de l'amour de Dieu est un voyage infini
+### Connaître les potentialités de l'Amour de Dieu est un voyage infini
 
 Seretta Kem - reçu par Al Fike le 8 Mars 2018, Punaluua, Oahu, HI, USA.
 

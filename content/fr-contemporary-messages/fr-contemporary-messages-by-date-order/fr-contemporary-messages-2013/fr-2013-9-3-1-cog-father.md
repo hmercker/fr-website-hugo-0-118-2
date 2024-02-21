@@ -9,7 +9,7 @@ weight:
 ---
 ### Laissez Mon Amour être votre fondement
 
-Le Père Céleste - reçu par Enfant de Dieu le 3 Septembre 2013.
+Le Père Céleste - reçu par Enfant de Dieu le 3 Septembre 2013.<sup id="a1">[1](#f1)</sup>
 
 Construis ta vie sur Mon Amour. Laisse Mon Amour être ta fondation. Lorsque tu pourras faire pleinement confiance et ressentir que Mon Amour est là pour toujours, tu ne te sentiras plus jamais seul. Mon Amour allégera tes fardeaux. La douleur s’estompera. Dans ton cœur et dans ton âme, la paix te trouvera.
 
@@ -18,6 +18,9 @@ Tu peux avoir l’impression que tu dois tout abandonner pour laisser Mon Amour 
 C’est le moment de faire confiance. C’est le moment de porter haut ton espoir. Honore-toi pour ton courage et ton honnêteté. Ne laisse pas ta douleur se mettre entre nous. Je sens ta résistance. Laisse-la tomber. Laisse Mon Amour remplir chaque chambre de ton cœur. Laisse Mon Amour porter tes blessures jusqu’aux Cieux. Laisse ton âme se reposer dans la quiétude de Mon Amour. Laisse Mon Amour te réconforter. Je suis là. Comme toujours.
 
 Ton Père Céleste.
+<small>
+
+1. <large id="f1"> L'ensembe des messages communiqués par le Père Céleste  est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-13-fr-the-heavenly-father/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2013**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/)
 

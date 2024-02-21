@@ -21,6 +21,6 @@ Cela se produit quotidiennement, les changements progressifs qui font partie de 
 
 Vous êtes toutes bénies, âmes bien-aimées, vous êtes toutes bénies dans un monde qui a grand besoin de vous et de votre lumière. Que Dieu vous bénisse. Je suis André, et je vous parle aujourd’hui pour vous aider à élever, à soutenir et à renforcer la Vérité qui vit en chacun de vous.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

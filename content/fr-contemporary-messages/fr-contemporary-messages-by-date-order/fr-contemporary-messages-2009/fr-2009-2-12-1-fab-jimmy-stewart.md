@@ -24,7 +24,7 @@ Non, très certainement, Jimmy Stewart était taillé dans une étoffe inférieu
 
 1. <large id="f1"> **James Maitland Stewart** (20 Mai 1908 - 2 Juillet 1997), plus connu sous le nom de Jimmy Stewart, est un acteur de cinéma et de théâtre américain, connu pour sa personnalité effacée. Au cours de sa carrière, il a joué dans de nombreux films considérés comme des classiques. Il a été nommé pour cinq Oscars, en a remporté un en compétition et un autre pour l'ensemble de sa carrière. Il était une grande vedette sous contrat de la MGM. Il a également eu une carrière militaire remarquable, atteignant le rang de général de brigade dans la réserve de l'armée de l'air américaine. Il est décédé en 1997, laissant derrière lui un héritage de performances classiques, et est considéré comme l'un des meilleurs acteurs de « l'âge d'or d'Hollywood ». Il a été nommé troisième plus grande star masculine de tous les temps par l'American Film Institute. (Source : Wikipedia)[↩](#a1)
 
-2. <large id="f2"> Jimmy Stewart s'est également exprimé [le 22 Décemebre 2009](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-22-1-fab-jimmy-stewart/)
+2. <large id="f2"> Jimmy Stewart s'est également exprimé [le 22 Décembre 2009](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-22-1-fab-jimmy-stewart/)
 
 ### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
 

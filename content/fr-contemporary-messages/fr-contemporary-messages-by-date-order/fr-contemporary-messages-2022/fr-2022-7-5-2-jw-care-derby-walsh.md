@@ -19,6 +19,6 @@ Tout moment peut être une invitation à être simplement dans la grâce. *« Me
 
 Alors, je vais vous demander ceci, peut-être demain, à un moment de votre journée, lorsque quelqu’un qui apparaît dans votre champ de vision, ou d’audition, ou physiquement, envoyez-lui une bénédiction, intérieurement de votre âme,  » Dieu te bénit. Que l’amour et la paix de Dieu soient sur toi. » Si vous procédez ainsi, alors tous les mots que vous prononcerez porteront une belle bénédiction de votre âme à une autre. Comme toujours, je suis ravi d’être ici. Je suis avec vous et je vous aime, plus que vous ne le savez. Je suis Care.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

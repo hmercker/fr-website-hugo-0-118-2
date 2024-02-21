@@ -18,7 +18,7 @@ C’était ma mission sur terre et elle se poursuit alors que je progresse à tr
 Cela ne veut pas dire qu’il y a un manque d’humour, mais certains ont un don. Le message que je vous adresse est donc le suivant : Découvrez vos dons et partagez-les avec les autres dans l’amour de Dieu, avec l’amour dans vos âmes et avec la joie dans votre cœur, car l’amour conquiert tout et dissipe les ténèbres. Ne vous inquiétez pas, car vous êtes tellement bénis et aimés par tous ici, et surtout, par le Créateur. Merci de m’avoir ouvert la porte aujourd’hui. Je vais danser en sortant. Voulez-vous vous joindre à moi ? Je vous aime. Je suis votre frère et ami dans l’amour de Dieu sur le chemin Céleste. Je m’appelle Charles. Merci.
 <small>
 
-1. <large id=”f1”> Humour.[↩](#a1)
+1. <large id="f1"> Humour.[↩](#a1)
 
 ### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
 

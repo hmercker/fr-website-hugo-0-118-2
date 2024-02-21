@@ -17,6 +17,6 @@ Le toucher sacré de Dieu est sur vous, âmes bien-aimées. Ouvrez grand et sent
 
 Que Dieu vous bénisse, âmes bien-aimées. Le moment est venu d’être pleinement avec Dieu, en s’ouvrant à Ses dons. Absorber tout ce que Dieu a à vous donner. La grande abondance de Son amour et de Ses bénédictions pour vous est à votre portée. Ouvrez grand et soyez dans la grâce de Son contact. Que Dieu vous bénisse, âmes bien-aimées. Nous sommes ensemble en ce moment de prière.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -1,13 +1,13 @@
 ---
-title: "Le voyage de la nouvelle naissance"
+title: "Le voyage de la Nouvelle Naissance"
 menu_title: ""
-description: "Le voyage de la nouvelle naissance"
+description: "Le voyage de la Nouvelle Naissance"
 date: 2022-06-01 06:00:01+00:22
 draft: False
 hidden: True
 weight:
 ---
-### Le voyage de la nouvelle naissance
+### Le voyage de la Nouvelle Naissance
 
 Jésus - reçu par Maureen Cardoso le 4 Février 2023, Abbotsford, Colombie-Britannique, Canada.
 

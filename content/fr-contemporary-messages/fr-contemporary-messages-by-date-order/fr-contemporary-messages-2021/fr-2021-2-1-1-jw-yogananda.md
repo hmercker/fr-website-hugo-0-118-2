@@ -9,7 +9,7 @@ weight:
 ---
 ### Être libre des préoccupations terrestres
 
-Yogananda - reçu par Jimbeau Walsh le 1 Février 2021, Punalu’u, Oahu, Hawaii, USA.
+Yogananda - reçu par Jimbeau Walsh le 1<sup>er</sup> Février 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis votre frère et ami dans l’amour de Dieu. Je suis Yogananda. Chers frères et sœurs qui êtes venus dans ce cercle de lumière pour être dans la paix et la sécurité de l’étreinte de Dieu, permettez à vos cœurs de s’ouvrir, afin que Dieu puisse ouvrir vos âmes, pour remplir chacun de la gloire de Son amour, du rayonnement de Sa lumière et de la paix au-delà de la compréhension humaine.
 

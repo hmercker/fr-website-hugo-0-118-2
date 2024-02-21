@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Le conflit Israelo-Palestinien
+### Le conflit Israélo-Palestinien
 
 David Ben-Gurion <sup id="a1">[1](#f1)</sup> - reçu par FAB le 7 Août 2006, Santa Cruz, Californie, USA.
 

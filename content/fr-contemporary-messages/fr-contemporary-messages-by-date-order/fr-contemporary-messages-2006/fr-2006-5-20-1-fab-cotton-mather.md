@@ -9,11 +9,11 @@ weight:
 ---
 ### Expériences d’un puritain colonial
 
-Cotton Mather <sup id="a1">[1](#f1)</sup> - reçu par FAB le 20 Mai 2006, Santa Cruz, Californie, USA.
+Cotton Mather - reçu par FAB le 20 Mai 2006, Santa Cruz, Californie, USA.
 
 ![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-cotton-mather.jpg)
 
-Je suis Cotton Mather.
+Je suis Cotton Mather.<sup id="a1">[1](#f1)</sup> 
 
 C’est pour moi un plaisir particulier de communiquer au monde des mortels un acte qui, à mon époque, aurait entraîné les plus terribles sanctions. Et c’est d’autant plus agréable que vous êtes maintenant en train de lire une biographie de moi. Je note le plaisir intense que vous tirez de la lecture des biographies. Cela cimente le rapport que vous avez établi avec les sujets de ces biographies.
 
@@ -29,7 +29,7 @@ Je continue à faire de mon mieux pour réparer les dommages que j’ai causés,
 
 Je sais que vous n’avez jamais été très clair sur une situation comme celle-ci. Vous vous êtes demandé comment un pécheur qui enseignait l’erreur pouvait ne pas avoir à continuer à payer la pénalité, puisque tant de personnes étaient détournées de la Vérité par ses enseignements erronés ?
 
-Eh bien, maintenant vous savez que les deux lois fonctionnent simultanément – l’erreur doit continuer à être renversée par l’esprit qui en est à l’origine, mais la condition intérieure de l’âme de cet esprit est complètement différente.
+Eh bien, maintenant vous savez que les deux lois fonctionnent simultanément – l’erreur doit continuer à être renversée par l’esprit qui en est à l’origine, mais la condition intérieure de l’âme de cet esprit est complètement différente.<sup id="a2">[2](#f2)</sup>
 <small>
 
 1. <large id="f1"> **Cotton Mather**, (12 Février 1663 - 13 Février 1728 ; A.B. 1678, Harvard College ; A.M. 1681, doctorat honorifique 1710, Université de Glasgow) était un ministre puritain de Nouvelle-Angleterre socialement et politiquement influent, un auteur prolifique et un pamphlétaire. Connu pour son soutien vigoureux aux procès des sorcières de Salem, il a également laissé un héritage scientifique grâce à ses expériences d'hybridation et sa promotion de l'inoculation pour la prévention des maladies. Il s'est ensuite vu refuser la présidence du Harvard College que son père, Increase, avait occupée. (Source : Wikipedia)[↩](#a1)

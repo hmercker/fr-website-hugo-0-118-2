@@ -57,10 +57,12 @@ Tu sais qui Je suis,
 qui a écrit ce matin,
 et moi aussi.
 
-Avec mon amour et le tien, Amen.
+Avec mon amour et le tien, Amen.<sup id="a2">[2](#f2)</sup>
 <small>
 
 1. <large id="f1"> Commentaire de PJR : Inutile de dire que j’ai été plus que surpris de recevoir une réponse aussi claire et directe à mon approche claire et directe. Peut-être le Père aurait-il pu continuer à me « parler » directement, à la première personne. Mais quelqu’un a eu la gentillesse d’intervenir et de sauver la situation, après avoir vu à quel point j’étais soudainement désorienté. J’ai toujours supposé que toute communication directe de Sa part ne se ferait pas avec des mots ou même des pensées, mais qu’elle prendrait la forme d’un désir et d’une intention modulés, transmis d’âme à âme. J’ai également supposé que tous les mots que je pourrais écrire ne seraient, par nécessité, que le résultat de mon interprétation de Lui et, par conséquent, ne viendraient pas directement de Lui. Cette expérience a ébranlé cette supposition, qui reste néanmoins, ni étayée ni réfutée.[↩](#a1)
+
+2. <large id="f2"> L'ensembe des messages communiqués par le Père Céleste  est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-13-fr-the-heavenly-father/)[↩](#a2)
 
 ### [**Lien vers les messages des années 2004**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/)
 

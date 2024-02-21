@@ -21,11 +21,14 @@ Tu as des sentiments pour une raison. Rien n’est créé sans but. Le but de te
 
 Tu es confus à propos de ce message et tu te demandes si tu as tout compris. C’est suffisant. Je t’aime.
 
-Ton Père Céleste qui te ressent.
+Ton Père Céleste qui te ressent.<sup id="a1">[1](#f1)</sup>
 
 **Commentaire du webmaster du site New-Birth.net:** La différence entre les sentiments et les émotions n’est pas si facile à définir. On pense que les sentiments sont ressentis pendant de courtes périodes de temps. Si vous touchez une surface chaude, votre main peut être brûlée. Au bout de quelques minutes, vous ne sentirez plus cette chaleur, bien que vous puissiez maintenant ressentir une douleur, qui est encore une autre sensation physique. Si quelqu’un vous surprend, vous serez surpris, mais cela passera vite. De même, le sentiment d’excitation disparaîtra une fois l’événement terminé. Il est souvent dit que les émotions sont des états à long terme. Si vous êtes amoureux, cette émotion peut durer des années. Le chagrin, lui aussi, peut prendre beaucoup de temps à s’estomper. Les émotions étant internes, vous devez changer votre état d’esprit pour changer votre émotion et ce processus prendra du temps. Mais certains états, comme la colère, peuvent ne pas durer longtemps, tout en restant des états émotionnels. Cependant, certaines définitions suggèrent que les sentiments sont déclenchés de l’extérieur et les émotions de l’intérieur. Ce message n’indique pas une telle différence.
 
 Il est possible qu’une émotion ait plusieurs composantes. Par exemple, si vous éprouvez une forte aversion (pas tout à fait de la haine) pour quelqu’un, celle-ci peut avoir plusieurs composantes, comme la méfiance, qui peut être basée sur vos expériences passées avec cette personne ou simplement avec la vie en général. Elle peut aussi être basée sur une nature compétitive. Il est toujours utile d’examiner dans quelle mesure nos expériences passées peuvent jouer un rôle dans toute réponse émotionnelle que nous pouvons discerner. Peut-être pourrions-nous dire qu’une émotion peut être composée d’un certain nombre de sentiments ? Je ne suis pas sûr d’avoir vu une telle définition, mais l’idée n’est pas dénuée de sens.(Geoff Cutler)
+<small>
+
+1. <large id="f1"> L'ensembe des messages communiqués par le Père Céleste  est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-13-fr-the-heavenly-father/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
 

@@ -11,7 +11,7 @@ weight:
 
 Inayat Khan - reçu par Jimbeau Walsh le 2 Mai 2022, Boscobel, WI, USA.
 
-C’est moi votre frère en chanson sur le chemin de l’Amour Divin du cœur. Je reviens, je suis Inayat Khan. Les prières qui ont été adressées à notre cher frère <sup id=”a1”>[1](#f1)</sup> ont amené beaucoup d’entre nous à ses côtés, influençant les soignants et le soulevant en réponse à vos prières. Comme toujours, quand vous appelez, nous venons, et nous continuerons.
+C’est moi votre frère en chanson sur le chemin de l’Amour Divin du cœur. Je reviens, je suis Inayat Khan. Les prières qui ont été adressées à notre cher frère <sup id="a1">[1](#f1)</sup> ont amené beaucoup d’entre nous à ses côtés, influençant les soignants et le soulevant en réponse à vos prières. Comme toujours, quand vous appelez, nous venons, et nous continuerons.
 
 J’ai parlé de la musique et du chant, du son de votre voix et de l’ouverture aux guérisons, et je voulais continuer ici pour vous rappeler de garder un chant dans votre cœur. Cela peut être un chant de louange comme dans ce cercle. Cela peut être un chant de deuil pour réconforter ceux qui sont en deuil. Il peut s’agir d’un chant de réjouissance pour un événement, pour votre âme, pour la vie. J’ai parlé de la façon dont, dans les traditions, nous dirons les traditions spirituelles, y compris les religions mais au-delà, de l’importance des vibrations d’un chant qui ont été et continuent d’être, apportant l’harmonie dans un lieu, dans une âme, dans un groupe. Il suffit donc de dire qu’il existe de nombreux chants pour de nombreuses occasions.
 
@@ -24,7 +24,7 @@ Mais pour vous, mes chers frères et sœurs, tout ce que je demande, c’est que
 Je souhaite ajouter à l’éloquence de mon cher frère sur le chant de l’âme et souhaite simplement dire ceci. Que la danse de l’âme est le désir ardent de se libérer de la force gravitationnelle de la terre et du corps dans l’exaltation et l’amour. Dieu vous bénisse Je suis Kahlil Gibran.
 <small>
 
-1. <large id=”f1”> Prières pour Louie à Phoenix.[↩](#a1)
+1. <large id="f1"> Prières pour Louie à Phoenix.[↩](#a1)
 
 2. <large id="f2"> Hazrat Inayat Khan s'est également exprimé lors des messages suivants [↩](#a2)
 
@@ -35,6 +35,6 @@ Hazrat Inayat Khan | [Gardez un chant dans votre cœur](/fr-contemporary-message
 Hazrat Inayat Khan | [Amants et bien-aimés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-9-2-jw-inayat-khan/) | 9 Septembre 2022
 Inayat Khan  | [Le chant et la danse Divins](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-20-1-jw-inayat-khan/) | 20 Février 2023
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

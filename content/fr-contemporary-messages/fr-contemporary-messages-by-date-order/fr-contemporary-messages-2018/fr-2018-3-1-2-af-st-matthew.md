@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Cherchez l'amour de Dieu et tout viendra
+### Cherchez l'Amour de Dieu et tout viendra
 
 St Matthieu - reçu par Al Fike le 1 Mars 2018, Homosassa Springs, FL, USA.
 

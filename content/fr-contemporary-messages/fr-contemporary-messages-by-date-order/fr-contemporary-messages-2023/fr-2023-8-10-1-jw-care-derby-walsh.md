@@ -11,7 +11,7 @@ weight:
 
 Care Derby Walsh - reçu par Jimbeau Walsh le 10 Août 2023, Nashville, TN, USA.
 
-C’est moi, Care. Je viens avec une grande joie dans mon cœur. Non seulement à cause du lieu où je réside, mais pour vous voir tous édifiés et commencer à voir le voyage à venir à travers vos lectures de progrès et de progression dans le monde des esprits <sup id=”a1”>[1](#f1)</sup>. Car vous quitterez certainement ce monde où vous demeurez et plus vous pourrez connecter votre âme à l’Amour de Dieu et à ceux d’entre nous qui habitent les Cieux Célestes ainsi qu’à ceux qui progressent vers la source de l’Amour de Dieu, plus vous pourrez diriger et fixer votre attention, les attentions de votre cœur sur ce voyage, plus nous pourrons être avec vous.
+C’est moi, Care. Je viens avec une grande joie dans mon cœur. Non seulement à cause du lieu où je réside, mais pour vous voir tous édifiés et commencer à voir le voyage à venir à travers vos lectures de progrès et de progression dans le monde des esprits <sup id="a1">[1](#f1)</sup>. Car vous quitterez certainement ce monde où vous demeurez et plus vous pourrez connecter votre âme à l’Amour de Dieu et à ceux d’entre nous qui habitent les Cieux Célestes ainsi qu’à ceux qui progressent vers la source de l’Amour de Dieu, plus vous pourrez diriger et fixer votre attention, les attentions de votre cœur sur ce voyage, plus nous pourrons être avec vous.
 
 Lorsque vous lisez ou qu’il vous est dit que les mortels co-créent souvent avec les esprits, qu’ils soient dans l’amour naturel ou qu’ils soient divins, il vous est rappelé qu’il existe une multitude d’aides Célestes disponibles. Lorsque vous luttez et croyez que vous êtes seul et que vous tendez la main à Dieu, nous venons car nous sommes Ses protégés et nous venons dans Son amour. Et donc, comme vous venez de lire à propos de ceux qui ignorent Dieu, ignorent Sa présence, la magnificence de Sa création, de Son omniprésence et de Son omniscience, sachez que les anges sont toujours prêts à être avec vous. Ainsi, comme vous êtes conscient de Dieu, s’il vous plaît soyez conscient de Ses aides.
 
@@ -22,8 +22,7 @@ Puissiez-vous reposer dans la grâce de Dieu et être assuré de mon amour ainsi
 Que Dieu vous bénisse. Je suis Care.
 <small>
 
-1. <large id=”f1”> En référence à Robert J Lees (Gate of Heaven – Les portes du Ciel) et au livre Judas de Kerioth (reçu par H.R)
-.[↩](#a1)
+1. <large id="f1"> En référence à Robert James Lees [Gate of Heaven – Les portes du Ciel](/13-fr-publications-and-downloads/13-4-fr-extracts-from-spiritual-books/) et au livre [Judas de Kerioth](/3-fr-judas-of-kerioth-messages/*\3-1-fr-the-book-of-juda/) (reçu par H.R).[↩](#a1)
 
 ### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
 

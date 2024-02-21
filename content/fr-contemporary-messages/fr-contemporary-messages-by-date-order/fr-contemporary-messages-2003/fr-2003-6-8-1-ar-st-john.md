@@ -41,7 +41,7 @@ Je vous aime et vous remercie tous pour vos prières sincères pour que l’amou
 
 Je suis votre sœur et amie, Marie. Je suis votre frère, Jean.
 
-Ceci est la suite de [ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-5-16-1-ar-mary-john/).
+Ceci est la suite du message communiqué [le 16 Mai dernier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-5-16-1-ar-mary-john/).
 
 ### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
 

@@ -17,7 +17,10 @@ Mon Amour a vécu en silence pendant de nombreuses années. Il y a eu beaucoup d
 
 J’ai besoin de vous. J’ai besoin que vous sortiez du lot. Vous êtes les Seuls. Je ne peux pas le faire pour vous. Utilisez vos dons particuliers pour changer le monde. Ressentez Mon Amour dans votre cœur et laissez cet Amour toucher le monde. Vous pouvez le faire. Je suis avec vous comme toujours. Vous n’avez pas besoin d’être pleinement conscient de votre destination pour faire le premier pas. Laissez-le se dérouler. Ayez confiance et ayez la foi.
 
-Ton Père qui t’aime tendrement.
+Ton Père qui t’aime tendrement.<sup id="a1">[1](#f1)</sup>
+<small>
+
+1. <large id="f1"> L'ensembe des messages communiqués par le Père Céleste  est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-13-fr-the-heavenly-father/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
 

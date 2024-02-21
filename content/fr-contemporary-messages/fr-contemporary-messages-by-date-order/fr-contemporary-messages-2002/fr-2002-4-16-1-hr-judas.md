@@ -47,7 +47,7 @@ Le pain de vie, c’est-à-dire, les enseignements du Maître, qui nous entretie
 
 Et puis, la levure des Pharisiens et des Sadducéens. Eh bien, cette formule *« des Pharisiens et des Sadducéens »* ou *« des Pharisiens et des Scribes »* est une citation monolithique et stéréotypée d’un temps postérieur, lorsque les adversaires de Jésus ont été symbolisés au moyen de cette expression. Mais de nouveau, Jésus compare ses enseignements à de la levure ou à de la nourriture. Les gens comprenaient cela.
 
-Dans une autre partie du Nouveau Testament [Matthieu 15:11](https://saintebible.com/matthew/15-11.htm)tu peux lire :
+Dans une autre partie du Nouveau Testament [Matthieu 15:11](https://saintebible.com/matthew/15-11.htm) tu peux lire :
 
 > Ce n’est pas ce qui entre dans la bouche qui souille l’homme. Mais ce qui sort de la bouche, c’est ce qui souille l’homme. Ne comprenez-vous pas que tout ce qui entre dans la bouche va dans le ventre, puis est jeté dans les lieux secrets ? Mais ce qui sort de la bouche vient du cœur et de l’esprit, et c’est ce qui souille l’homme.
 

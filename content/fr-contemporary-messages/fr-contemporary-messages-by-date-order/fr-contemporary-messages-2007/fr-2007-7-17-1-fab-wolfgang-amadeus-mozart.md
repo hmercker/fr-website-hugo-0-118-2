@@ -1,13 +1,13 @@
 ---
-title: "Mozart complète son message precedent"
+title: "Mozart complète son message précédent"
 menu_title: ""
-description: "Mozart complète son message precedent"
+description: "Mozart complète son message précédent"
 date: 2022-06-01 06:00:01+00:136
 draft: False
 hidden: True
 weight:
 ---
-### Mozart complète son message precedent
+### Mozart complète son message précédent
 
 Wolfgang Amadeus Mozart - reçu par FAB le 17 Juillet 2007, Santa Cruz, Californie, USA.
 

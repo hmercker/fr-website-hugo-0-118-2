@@ -11,7 +11,7 @@ weight:
 
 Ishmirama - reçu en 1970, Vancouver, Colombie-Britannique, Canada.
 
-Bonsoir mes amis, c'est Ishmirama.
+Bonsoir mes amis, c'est Ishmirama.<sup id="a1">[1](#f1)</sup>
 
 Je suis très heureux d'être avec vous ici ce soir pour me joindre à vous dans votre heure de communion. Mes amis, je veux vous parler ce soir de la façon de vous détendre et de libérer les choses.
 
@@ -30,6 +30,15 @@ Je suis heureux d'être ici ce soir, car en étant ici avec vous, je vois beauco
 C'est une condition merveilleuse, et pensez seulement combien votre Terre peut être merveilleuse lorsque l'homme a cette connaissance et le désir de ne faire qu'un avec son Créateur. Lorsque l'homme est renouvelé par l'Amour Divin de Dieu, il n'y a pas de place pour les actes indignes de l'homme. L'homme est élevé à de si grandes hauteurs qu'il ne désire que faire le bien. D'être aimable, attentionné et serviable, de ne jamais critiquer ou condamner.
 
 Alors, pensez mes amis, quelle chance nous avons tous de pouvoir nous unir dans un lien commun, le lien de la vie, votre vie et ma vie avec le désir de ne faire qu'un avec Dieu. Bonne nuit et que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> Ishmirama s'est également exprimé dans les messages suivants : [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Ishmirama | [Exposé sur la Relaxation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-164-1970-anonymous-ishmirama/) |   1970
+Ishmirama & Keea Atta Kem | [Allez vers Dieu dans la méditation silencieuse et désirez un afflux de son Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-154-1970-anonymous-ishmirama-keea-atta-kem/) |   1970
+
 
 
 

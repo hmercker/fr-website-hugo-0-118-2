@@ -1,7 +1,7 @@
 ---
-title: "Orientations sur les préparations pour perfusion intraveineuse"
+title: "Orientations sur les préparations pour la Voix Directe"
 menu_title: ""
-description: "Orientations sur les préparations pour perfusion intraveineuse"
+description: "Orientations sur les préparations pour la Voix Directe"
 date: 2022-06-01 06:00:01+00:129
 draft: False
 hidden: True

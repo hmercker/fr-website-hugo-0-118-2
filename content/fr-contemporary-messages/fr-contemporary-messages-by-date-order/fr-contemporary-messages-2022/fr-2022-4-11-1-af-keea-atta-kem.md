@@ -17,6 +17,6 @@ Que Son Amour continue à vous éveiller, mes amis, transformant vos âmes, appo
 
 Bénédictions à vous, mes amis bien-aimés, bénédictions et amour à chacun de mes précieux amis qui parcourent le chemin de l’unification avec Dieu. Dieu vous bénisse, mes bien-aimés, je vous aime. Grand amour pour chacun de vous. Que Dieu vous bénisse. Je suis Keea Atta Kem. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

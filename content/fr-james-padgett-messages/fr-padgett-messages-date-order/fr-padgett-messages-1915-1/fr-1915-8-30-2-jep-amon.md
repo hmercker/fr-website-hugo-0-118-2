@@ -11,9 +11,7 @@ weight:
 
 Amon - reçu par James Padgett le 30 Août 1915, Washington, USA.
 
-Amon.
-
-Je suis la première mère de toute la race humaine, et je veux que vous sachiez qu’avant Aman et moi-même, aucun être humain n’a jamais existé. Nous avons été créés par Dieu en même temps, et nous étions prêts, juste après notre création, à vivre la vie des êtres naturels. Ainsi nous n’avons pas été créés à partir d’autres créatures ou choses. Je sais qu’il a été dit que le premier homme n’a pas été créé mais s’est développé à partir d’un animal d’ordre inférieur, et, à mesure que le processus d’évolution se poursuivait, cet être devint finalement un homme, avec tout le merveilleux organisme et la structure de son corps, mais je veux vous dire que ce n’est pas vrai.
+Je suis Amon, la première mère de toute la race humaine, et je veux que vous sachiez qu’avant Aman et moi-même, aucun être humain n’a jamais existé. Nous avons été créés par Dieu en même temps, et nous étions prêts, juste après notre création, à vivre la vie des êtres naturels. Ainsi nous n’avons pas été créés à partir d’autres créatures ou choses. Je sais qu’il a été dit que le premier homme n’a pas été créé mais s’est développé à partir d’un animal d’ordre inférieur, et, à mesure que le processus d’évolution se poursuivait, cet être devint finalement un homme, avec tout le merveilleux organisme et la structure de son corps, mais je veux vous dire que ce n’est pas vrai.
 
 Lorsque j’ai été créée, j’étais aussi parfaite dans ma constitution physique que je le suis devenue par la suite ou comme n’importe quel homme ou femme l’est devenu depuis cette époque jusqu’à aujourd’hui. En fait, je crois qu’au moment de notre création, nous étions plus parfaits que l’humanité ne l’est maintenant, parce que nous n’avions pas besoin de nourriture, nous ne souffrions d’aucune maladie ou d’aucune difformité.
 

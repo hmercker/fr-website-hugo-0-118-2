@@ -69,6 +69,6 @@ Vous pouvez voir cela comme étant faible et inefficace, mais sur le chemin de l
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre frère et ami, Jésus, Maître des Cieux Célestes. Je viens à vous avec beaucoup d’amour, d’inquiétude et de sollicitude pour chacune et chacun d’entre vous, âmes bien-aimées. Sachez que je suis proche et que je ne vous quitterai jamais. Dieu ne vous quittera jamais, mais c’est à vous de vous rapprocher de plus en plus de cette grande lumière d’amour et de vérité. Vous arriverez vraiment à connaître Dieu à travers vos âmes et à être en alignement avec Sa Grande Âme. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse. Mon amour est avec vous.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

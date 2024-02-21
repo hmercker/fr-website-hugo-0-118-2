@@ -20,7 +20,7 @@ Ainsi, comme la chère sœur l’a fait remarquer précédemment, « c’est si 
 Jusqu’à ce que nous nous rencontrions à nouveau, que vous soyez tous bénis dans la prière pour l’Amour de Dieu, embrassés dans l’Amour de Dieu, élevés dans la Grâce. Je suis votre frère et ami dans le Christ. Je suis Judas. Allez avec Dieu !
 <small>
 
-1. <large id="f1"> Référence au livre de messages de Judas publié sous le nom de "Judas de Kerioth" [examiné ici avec des liens sur les endroits où il peut être obtenu](/fr-judas-of-kerioth-messages/fr-the-book-of-judas/).[↩](#a1)
+1. <large id="f1"> Référence au livre de messages de Judas qui peut être consulté et téléchargé par [ce lien](/3-fr-judas-of-kerioth-messages/\3-1-fr-the-book-of-judas/).[↩](#a1)
 
 ### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
 

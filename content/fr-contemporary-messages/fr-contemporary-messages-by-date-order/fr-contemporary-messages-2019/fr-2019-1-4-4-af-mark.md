@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Se concentrer sur la volonté de Dieu et avoir la foi
+### Se concentrer sur la Volonté de Dieu et avoir la foi
 
 Marc - reçu par Al Fike le 4 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
 

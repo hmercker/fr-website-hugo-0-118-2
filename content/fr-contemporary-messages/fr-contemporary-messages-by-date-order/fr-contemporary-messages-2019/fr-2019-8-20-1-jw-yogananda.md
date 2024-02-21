@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Il n'y a pas de yoga plus élevé que le yoga de l'amour de Dieu
+### Il n'y a pas de yoga plus élevé que le yoga de l'Amour de Dieu
 
 Yogananda - reçu par Jimbeau Walsh le 20 Août 2019, Boscobel, WI, USA.
 

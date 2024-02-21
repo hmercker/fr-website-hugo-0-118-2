@@ -91,6 +91,6 @@ Vous marchez maintenant sur un terrain solide, âmes bien-aimées, mais à l’a
 
 Que Dieu vous bénisse, mes bien-aimés, en vous gardant dans Sa Lumière, en vous montrant le chemin de la vérité, en vous fournissant les voies et moyens pour que vous puissiez vraiment grandir dans l’amour et être un instrument et un canal d’amour. Vous êtes vraiment bénis. Tous ceux qui choisissent la lumière, la vérité et l’amour seront vraiment bénis. Que Dieu vous bénisse, mes bien-aimés. Je suis votre frère et votre ami. Je viens vous enseigner et vous assurer de la route vers l’éveil et la rédemption de l’âme. Puissiez-vous trouver votre chemin. Je suis Jésus et je vous aime. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

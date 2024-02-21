@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Détails de la vie d’Hélène Padgett
+### Détails de la vie d’Hélène Padgett<sup id="a1">[1](#f1)</sup>
 
 Hélène Padgett - reçu par Al Fike le 18 Juillet 2014, Vancouver, Colombie-Britannique, Canada.
 

@@ -67,7 +67,7 @@ Comme je l’ai mentionné précédemment, Jésus a profité des soirées et des
 
 Je veux parler maintenant, afin de terminer le message, d’un de ces enseignements, parce qu’aujourd’hui tu as justement écrit une lettre sur le sujet. Je veux parler du divorce.
 
-[Jésus a déjà livré un message sur le sujet](https://lanouvellenaissance.wordpress.com/2017/07/06/13eme-revelation-matthieu-a-ecrit-sur-le-divorce/), dans lequel il confirme ce que Matthieu a écrit sur le sujet. J’ai également écrit à ce sujet. Cependant, cette fois, je voudrais approfondir les mots tels qu’ils apparaissent dans l’Évangile. Dans [Matthieu 5: 31,32](https://saintebible.com/matthew/5-31.htm) tu peux lire :
+[Jésus a déjà livré un message sur le sujet](/fr-samuels-messages/fr-revelations/fr-rev-13-3-6-january-1955-samuels-jesus.md/), dans lequel il confirme ce que Matthieu a écrit sur le sujet. J’ai également écrit à ce sujet. Cependant, cette fois, je voudrais approfondir les mots tels qu’ils apparaissent dans l’Évangile. Dans [Matthieu 5: 31,32](https://saintebible.com/matthew/5-31.htm) tu peux lire :
 
 > Il a également dit : *« Si quelqu’un répudie sa femme, qu’il lui donne un avis écrit de divorce. Mais je vous dis que tout homme qui répudie sa femme, sauf pour cause d’infidélité lui fait commettre l’adultère, et celui qui épouse une femme répudiée commet un adultère. »*
 

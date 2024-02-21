@@ -75,6 +75,6 @@ Vous deviendrez les lumières, les signes avant-coureurs du grand changement qui
 
 Que Dieu vous bénisse, âmes bien-aimées. Puissiez-vous trouver l’harmonie de l’âme. Puissiez-vous vraiment vous connaître et être en paix. Mon amour est avec vous. Je suis votre frère et ami, Jésus, et je suis heureux de vous délivrer un autre message, une leçon que vous pouvez appliquer à votre vie. Que vous puissiez vraiment renaître dans l’amour. Que Dieu vous bénisse, âmes bien-aimées.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -22,7 +22,7 @@ Comme Cliff et Dorothé l’ont mentionné, les messages que j’ai reçus véhi
 C’est donc avec une profonde gratitude que je vous remercie et que je vous encourage à explorer et à prier. Vous recevrez sûrement lorsque vous demanderez à votre âme. Que Dieu vous bénisse avec le grand afflux de l’Amour Divin. Je suis votre véritable frère et ami dans les Cieux Célestes. Je suis James Padgett. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> L'ensemble des messages communiqués par James Padgett  est disponible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-12-fr-family-and-friends-of-james-padgett/)[↩](#a2) 
+1. <large id="f1"> L'ensemble des messages communiqués par James Padgett  est disponible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-12-fr-family-and-friends-of-james-padgett/)[↩](#a1) 
 
 ### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
 

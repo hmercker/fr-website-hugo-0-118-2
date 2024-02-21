@@ -22,9 +22,9 @@ Les Chrétiens devraient être tellement bénis, ou se sentir tellement bénis, 
 Rappelez-vous, nous sommes toujours avec vous, vous guidant sur le chemin de l’Amour Divin. Bonne journée à vous, mes amis.<sup id="a3">[3](#f3)</sup>
 <small>
 
-1. <large id="f1"> Cette communication est une confirmation fascinante de mes propres recherches sur le Kriya Yoga et la vie de Yogananda qui m’ont amené à conclure qu’il possédait effectivement l’Amour Divin.(Geoff Cutler)[↩](#a1)
+1. <large id="f1"> Cette communication est une confirmation fascinante de mes propres recherches sur le Kriya Yoga et la vie de Yogananda qui m’ont amené à conclure qu’il possédait effectivement l’Amour Divin. Familiètement, Sri Yukteswar est aussi appelé Sri Yarisupta. (Geoff Cutler)[↩](#a1)
 
-2. <large id="f2"> **Yukteswar Giri (également écrit yuktesvara, Sri Yukteswar)** (10 Mai 1855 – 9 Mars 1936) est le nom monastique de Priya Nath Karar, le gourou de Satyananda Giri et de Paramahansa Yogananda. Yukteswar était un éducateur, un astronome, un Jyotisha (astrologue védique), un yogi et un spécialiste de la Bhagavad Gita et de la Bible. Il était un disciple de Lahiri Mahasaya de Varanasi et un membre de la branche Giri de l’ordre des swamis. Yogananda considérait Yukteswar comme Jnanavatar, ou « Incarnation de la Sagesse ». (Source : Wikipedia)[↩](#a2)
+2. <large id="f2"> **Yukteswar Giri (également écrit Sri Yuktesvara, Sri Yukteswar)** (10 Mai 1855 – 9 Mars 1936) est le nom monastique de Priya Nath Karar, le gourou de Satyananda Giri et de Paramahansa Yogananda. Yukteswar était un éducateur, un astronome, un Jyotisha (astrologue védique), un yogi et un spécialiste de la Bhagavad Gita et de la Bible. Il était un disciple de Lahiri Mahasaya de Varanasi et un membre de la branche Giri de l’ordre des swamis. Yogananda considérait Yukteswar comme Jnanavatar, ou « Incarnation de la Sagesse ». (Source : Wikipedia)[↩](#a2)
 
 3. <large id="f3"> Sri Yukteswar a s'est également exprimé dans les messages suivants : [↩](#a3)
 
@@ -34,8 +34,8 @@ Sri Yukteswar | [La loi de la création et Sathya Sai Baba](/fr-contemporary-mes
 Sri Yukteswar | [Réponses aux questions sur la guérison par l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-26-3-af-sri-yarisupta/) | 26 Janvier 2019
 Sri Yarisupta | [Qu’y a-t-il dans un nom ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-27-4-af-sri-yarisupta/) | 27 Janvier 2019
 Sri Yukteswar | [La dualité de l'âme et de l'esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-4-9-2-af-sri-yukteswar/) | 9 Avril 2019
-Sri Yukteswar | [Sri Yukteswar honors Yogananda](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-18-1-jw-sri-yukteswar/) | 18 Septembre 2020
-Sri Yukteswar | [L'instrumentalité de Lorraine se manifeste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-15-2-af-sri-yuktesar/) | 15 Octobre 2022
+Sri Yukteswar | [Sri Yukteswar rend hommage à Yogananda](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-18-1-jw-sri-yukteswar/) | 18 Septembre 2020
+Sri Yukteswar | [L'instrumentalité de Lorraine se manifeste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-15-3-af-sri-yuktesar/) | 15 Octobre 2022
 
 ### [**Lien vers les messages des années 2014**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/)
 

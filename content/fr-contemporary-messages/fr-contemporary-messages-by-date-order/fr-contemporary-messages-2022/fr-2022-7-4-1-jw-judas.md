@@ -23,6 +23,6 @@ Nous continuerons à vous guider et à vous éduquer, pour vous donner de l’es
 
 Je vais me retirer pour être avec vous dans la grâce de Dieu. Je suis votre frère et ami éternel, Judas, autrefois de Kerioth, maintenant un habitant et du royaume Céleste. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

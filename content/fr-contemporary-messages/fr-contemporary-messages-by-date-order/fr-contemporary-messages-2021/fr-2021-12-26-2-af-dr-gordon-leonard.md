@@ -52,7 +52,6 @@ Je vous remercie de m’avoir écouté aujourd’hui. Je suis le Dr Gordon Leona
 ---|---|---
 Dr Gordon Leonard | [L'Amour Divin de Dieu, le chemin du bonheur et de la santé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-112-1969-anonymous-dr-gordon-leonard/) |   1969
 Dr Gordon Leonard | [Comment rester en bonne santé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-92-1970-anonymous-dr-gordon-leonard/) |   1970
-Dr Gordon Leonard  | [Le pouvoir de la foi pour guérir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-26-2-af-dr-gordon-leonard/) | 26 Décembre 2021
 
 ### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
 

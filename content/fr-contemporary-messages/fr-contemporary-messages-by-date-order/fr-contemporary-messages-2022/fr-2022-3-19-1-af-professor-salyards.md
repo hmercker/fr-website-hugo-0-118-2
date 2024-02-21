@@ -25,6 +25,6 @@ Alors que vous continuez à suivre ce grand élan qui se construit, vos cœurs s
 
 Je vous remercie pour les efforts que vous avez faits jusqu’à présent et je souhaite vous encourager davantage. Je suis là pour vous soutenir, votre professeur Salyards est toujours là pour vous soutenir et, je l’espère, vous guider alors que vous continuez à vous soutenir mutuellement dans cette belle aventure d’amour. Que Dieu vous bénisse, mes amis, que Dieu vous bénisse et je serai bientôt avec vous tous alors que vous vous réunirez dans vos Cercles de Lumière et je parlerai s’il y a une opportunité de le faire. Je vous remercie tous pour votre ouverture aimante, vos belles âmes, votre foi et votre dévouement à Dieu et à Son Amour. Que Dieu vous bénisse et vous garde dans la lumière, amis bénis et magnifiques. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -77,6 +77,6 @@ Puisse l’humanité trouver son chemin de plein gré vers une plus grande harmo
 
 Puissiez-vous être réceptifs à tout ce que Dieu a à vous offrir et qui vous apportera l’harmonie. Puissiez-vous être en paix, âmes bien-aimées, et puisse le monde trouver la paix et l’harmonie dans les temps à venir. Que Dieu vous bénisse. Je suis votre frère et ami, Jésus, et je viens dans l’amour, la préoccupation et le désir d’aider à enseigner l’humanité vers une plus grande lumière et harmonie. Je viens parce que je vous aime. Je viens parce que vous avez besoin d’amour. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse vraiment de Son amour.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

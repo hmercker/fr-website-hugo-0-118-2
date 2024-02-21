@@ -23,7 +23,10 @@ Je t’assure, tu ne dois pas avoir peur. Ton avenir est brillant et tu vas conn
 
 C’est le début d’une nouvelle période dans votre relation. Il vous faudra du courage à tous les deux pour franchir cette nouvelle étape. Mais vous devez le faire. Vous en éprouverez bientôt tous deux la valeur.
 
-Avec tout mon amour, ton Père.
+Avec tout mon amour, ton Père.<sup id="a1">[1](#f1)</sup>
+<small>
+
+1. <large id="f1"> L'ensembe des messages communiqués par le Père Céleste  est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-13-fr-the-heavenly-father/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
 

@@ -17,7 +17,7 @@ Je voudrais parler au sujet de l’harmonie. En fait, il y a deux formes d’har
 
 Dans le monde des esprits, il est très facile d’expliquer cela. Nous savons qu’il y a des endroits qui sont totalement en désaccord avec les lois et la volonté de Dieu au sujet de la morale, de l’éthique et de l’amour, que ce soit l’amour naturel ou l’Amour Divin. Nous appelons ces lieux l’enfer. Les esprits qui manquent de l’harmonie correspondant à leur état d’âme sont contraints de vivre dans ces lieux, parce que là, ils trouvent au moins une  relative harmonie. La loi déterminante, c’est la Loi de l’Attraction. Elle a pour conséquence de regrouper les esprits dans des collectivités où règne une relative harmonie entre tous les membres, et où tous les esprits ont la même absence ou le même degré d’harmonie absolue.
 
-La deuxième loi qui s’applique dans ce contexte est la Loi de compensation ou Loi de l’indemnisation.<sup id=”a1”>[1](#f1)</sup>  Cette loi a pour fonction d’établir une harmonie absolue et ses méthodes sont douloureuses. Mais cette douleur pousse les esprits à tenter d’améliorer leur situation. Lorsque cela se produit, les esprits changent de lieu de vie et progressent vers un autre lieu où règne l’harmonie absolue et où ils peuvent vivre dans une relative harmonie avec leurs compagnons.
+La deuxième loi qui s’applique dans ce contexte est la Loi de compensation ou Loi de l’indemnisation.<sup id="a1">[1](#f1)</sup>  Cette loi a pour fonction d’établir une harmonie absolue et ses méthodes sont douloureuses. Mais cette douleur pousse les esprits à tenter d’améliorer leur situation. Lorsque cela se produit, les esprits changent de lieu de vie et progressent vers un autre lieu où règne l’harmonie absolue et où ils peuvent vivre dans une relative harmonie avec leurs compagnons.
 
 La Loi de compensation opère sur la tension provoquée par le manque d’harmonie absolue. La méthode douloureuse, c’est à dire l’environnement désagréable et les souvenirs vifs qui obligent les esprits à confronter leurs actions et leurs pensées, etc., est la même pour tous. Le résultat est spécifique à chaque individu, car la vie menée par chaque esprit est différente de la vie de tous les autres.
 
@@ -54,7 +54,7 @@ Merci H____ pour le temps que tu m’as accordé et pour m’avoir permis d’ex
 Ton frère en esprit, Judas.
 <small>
 
-1. <large id=”f1”> <u>Note du traducteur</u> : dans le texte original, l’expression *« Law of Compensation »* est utilisée. Je l’ai traduite le plus souvent par *« Loi de l’Indemnisation »*, bien que parfois j’ai également utilisé l’expression *« Loi de compensation »*..[↩](#a1)
+1. <large id="f1"> <u>Note du traducteur</u> : dans le texte original, l’expression *« Law of Compensation »* est utilisée. Je l’ai traduite le plus souvent par *« Loi de l’Indemnisation »*, bien que parfois j’ai également utilisé l’expression *« Loi de compensation »*..[↩](#a1)
 
 © Geoff Cutler 2013
 

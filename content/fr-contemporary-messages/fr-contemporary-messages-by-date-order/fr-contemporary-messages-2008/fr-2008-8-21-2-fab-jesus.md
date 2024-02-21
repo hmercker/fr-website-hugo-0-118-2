@@ -21,4 +21,6 @@ Deuxièmement, dans le monde de Dieu, les tragédies terrestres ne sont pas auss
 
 J'ai compris très tôt que si je continuais à prêcher, j'encourrais la colère des autorités, ce qui me conduirait à la crucifixion. J'ai quand même continué, car je devais être fidèle à moi-même. Ainsi, de même que mon exécution n'avait rien à voir avec le plan de Dieu, de même elle était sans rapport avec mon message de la Nouvelle Naissance de l'âme dans l'Amour Divin.
 
-Eschyle | [Un dramaturge de la Grèce antique a trouvé la voie Divine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-12-2-fab-aeschylus/) | 12 Août 2008
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -18,7 +18,7 @@ Il y a beaucoup de gens qui portent le même fardeau que moi dans ce monde. Il n
 Que Dieu vous bénisse, mes amis. Puissiez-vous trouver un grand succès dans vos entreprises. Que je puisse trouver l'occasion de m'exprimer de cette façon. Que Dieu vous bénisse. Que Dieu vous bénisse.
 <small>
 
-1. <large id="f1"> Rock Hudson s'était exprimé antérieurement dans un message communiqué [le 9 Octobre 2011](contemporary-messages-2011/fr-2011-10-9-1-fab-rock-hudson/)[↩](#a1)
+1. <large id="f1"> Rock Hudson s'était exprimé antérieurement dans un message communiqué [le 9 Octobre 2011](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-10-9-1-fab-rock-hudson/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
 

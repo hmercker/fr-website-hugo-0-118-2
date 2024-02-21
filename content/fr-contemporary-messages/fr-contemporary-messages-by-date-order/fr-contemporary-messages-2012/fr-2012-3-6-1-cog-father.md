@@ -29,7 +29,11 @@ Ta question :  *« Pourquoi t’es-tu séparé de moi ? »* Il n’est pas possi
 
 Tu es fatigué, tu ne dors pas bien ces jours-ci. Tu devrais sortir dans la nature et te remplir de nature, ouvrir tous tes sens aux sens de la nature – fais cela.
 
-Amour de ton Père dans les Cieux.
+Amour de ton Père dans les Cieux.<sup id="a1">[1](#f1)</sup>
+<small>
+
+1. <large id="f1"> L'ensembe des messages communiqués par le Père Céleste  est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-13-fr-the-heavenly-father/)[↩](#a1)
+
 
 ### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
 

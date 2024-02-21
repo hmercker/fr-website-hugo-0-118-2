@@ -35,6 +35,6 @@ Continuez, mes chers et beaux amis. Nous avons beaucoup de travail à faire et p
 
 Merci âmes bien-aimées, nous sommes avec vous dans ce voyage. Nous t’aimons. Je suis Orion. Bénédictions à vous tous et à l’univers de Vérité, d’Amour, de Lumière et de tout ce qui accompagne ces merveilleuses choses que Dieu a créées pour Ses enfants. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -41,7 +41,7 @@ Cette *« gueule de bois »* est comme la vague de froid que tu trouves maintena
 
 C’est exactement cette frustration, résultant de *« l’ouverture de l’œil de l’âme »*,  qui *« brouille notre ciel »* et empêche la chaleur de Dieu de continuer à venir en nous. Mais n’oublie pas que tu peux disperser les nuages de ton âme, afin que les rayons chauds du soleil du Père puissent entrer à nouveau.
 
-Je vais écrire à nouveau [ce que je t’ai déjà écrit il y a plusieurs mois](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-5-1-hr-judas/) :
+Je vais écrire à nouveau ce que je t’ai déjà écrit [le 5 Novembre 2001](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-5-1-hr-judas/) :
 
 > Lorsque tu parviens à te convertir à cette attitude, celle d’aller au Père, dans une partie de ta vie, ta spiritualité ne sera plus comme des montagnes russes, avec des hauts et des bas. Te rappelles-tu ce que tu as lu dans [le message de Marie Madeleine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-4-2-ar-mary-magdalene/) à Amada Reza ?
 <br>

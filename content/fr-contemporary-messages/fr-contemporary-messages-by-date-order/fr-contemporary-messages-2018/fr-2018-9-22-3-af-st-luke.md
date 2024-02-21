@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### La vérité passe par l'âme éveillée par l'amour de Dieu
+### La vérité passe par l'âme éveillée par l'Amour de Dieu
 
 St Luc - reçu par Al Fike le 22 Septembre 2018, Gibsons, Colombie-Britannique, Canada.
 

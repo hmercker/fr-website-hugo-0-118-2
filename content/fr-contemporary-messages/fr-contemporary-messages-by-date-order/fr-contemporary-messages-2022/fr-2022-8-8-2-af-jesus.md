@@ -23,6 +23,6 @@ Bien-aimés, ne voyez-vous pas l’avenir de l’humanité ? C’est vers la lum
 
 Vous êtes bénies, âmes bien-aimées. Béni soit ce monde alors que chacun d’entre vous prie pour sa guérison et son élévation dans la lumière et l’harmonie. Ainsi vos prières seront exaucées, ainsi le monde sera guéri, ainsi l’amour abondera sur ce monde. Âmes bien-aimées, puissiez-vous avoir la vision de l’avenir qui vient et puissiez-vous trouver un grand réconfort et une grande joie dans cette vision. Nous cherchons tous à servir Dieu à notre manière, et nous le ferons. Pour l’instant et pour toujours, nous serons les serviteurs de Dieu dans l’amour. Dieu vous bénisse, mes bien-aimés, je suis votre frère et ami, Jésus. Je vous embrasse tous dans l’amour et je prie avec vous tous, pour votre réveil et le réveil de ce monde. Je vous aime, je vous aime tendrement. Je vous aime. Que Dieu vous bénisse, âmes bien-aimées, que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

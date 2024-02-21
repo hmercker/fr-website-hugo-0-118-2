@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Egaux dans l'Amour de Dieu
+### Égaux dans l'Amour de Dieu
 
 St François d'Assise - reçu par Jimbeau Walsh le 19 Juin 2023, Nashville, TN, USA.
 

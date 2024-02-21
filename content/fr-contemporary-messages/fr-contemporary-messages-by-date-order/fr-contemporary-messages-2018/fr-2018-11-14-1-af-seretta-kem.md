@@ -28,7 +28,7 @@ Que Dieu vous bénisse, mes amis. Je suis heureux de vous saluer et nous continu
 Que Dieu vous bénisse. Je suis Seretta Kem. Je suis avec vous, amis bien-aimés. Que Dieu vous bénisse.
 <small>
 
-1. <large id="f1"> Al Fike et Jimbeau Walsh ont rendu une charmante visite à Geoff Cutler à Sydney. Les trois amis ![↩](#a1)
+1. <large id="f1"> Al Fike et Jimbeau Walsh ont rendu une charmante visite à Geoff Cutler à Sydney. Les trois amis![↩](#a1)
 
 ### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
 

@@ -19,10 +19,10 @@ Laissez-vous attirer par la lumière et l’Amour du Père, et alors même que v
 
 Que la communion des âmes qui se réunissent en prière avec nous pour recevoir l’Amour de Dieu reçoive le don de la foi et la connaissance dans leurs âmes de la réalité et de la vérité de l’Amour Divin du Père. Nous sommes tous Ses enfants et Il répand Sa Lumière et Sa Grâce sur tous. Je vous remercie d’avoir pris le temps de me laisser passer.
 
-Je suis votre frère dans l’Amour de Dieu et un disciple du Maître comme vous l’êtes. Je suis Jean le Bien-Aimé. Allez en Paix et sachez que c’est moi qui ai touché votre épaule avec Marie lorsque nous vous sommes apparus il y a tant d’années avec votre bien-aimé Care <sup id=”a1”>[1](#f1)</sup>. Maintenant vous savez, mais vous le saviez déjà, n’est-ce pas ? Que Dieu vous bénisse ! Allez en paix ! Nous vous aimons ! Dieu vous aime !
+Je suis votre frère dans l’Amour de Dieu et un disciple du Maître comme vous l’êtes. Je suis Jean le Bien-Aimé. Allez en Paix et sachez que c’est moi qui ai touché votre épaule avec Marie lorsque nous vous sommes apparus il y a tant d’années avec votre bien-aimé Care <sup id="a1">[1](#f1)</sup>. Maintenant vous savez, mais vous le saviez déjà, n’est-ce pas ? Que Dieu vous bénisse ! Allez en paix ! Nous vous aimons ! Dieu vous aime !
 <small>
 
-1. <large id=”f1”> En référence à l’apparition de deux anges à ce médium en 1987.[↩](#a1)
+1. <large id="f1"> En référence à l’apparition de deux anges à ce médium en 1987.[↩](#a1)
 
 ### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez l'agent actif du changement de Dieu
 
-Aron - reçu par Al Fike le 9 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
+Aaron - reçu par Al Fike le 9 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Aaron et je viens vous parler aujourd’hui des changements dans le monde qui se produisent en ce moment et qui continueront à proliférer tout au long de votre séjour sur ce monde. Le changement est une constante dans le monde. Le changement est une constante dans l’univers de Dieu. Le changement est souvent une réponse aux conditions et aux facteurs de stress qui se développent dans un environnement particulier. Il y a toujours un besoin d’équilibre dans l’Univers de Dieu, pour les énergies, pour les matériaux, même les aspects physiques du monde, de rechercher l’équilibre, d’arriver à ce lieu de neutralité ou un lieu de capitulation à quelque chose de nouveau. Ainsi, mes amis, dans votre monde d’aujourd’hui, il y a beaucoup de facteurs de stress, beaucoup de choses qui se poussent les unes contre les autres, créant une condition qui n’est pas en harmonie avec les Lois de la Création de Dieu. Il y a donc un besoin de rechercher l’harmonie et l’équilibre dans le monde.
 

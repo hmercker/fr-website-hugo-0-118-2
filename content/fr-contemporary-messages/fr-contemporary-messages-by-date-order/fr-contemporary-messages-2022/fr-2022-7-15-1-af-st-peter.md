@@ -25,6 +25,6 @@ Que pourriez-vous souhaiter de plus, âmes bien-aimées, qu’une âme éveillé
 
 Que Dieu vous bénisse, mes amis. Je suis Pierre et je prie pour chacun de vous, pour ce monde, car il est temps pour ce monde de relâcher le joug de la condition humaine et de marcher dans la liberté et la joie de la vérité. Puisse-t-il en être ainsi, et puissiez-vous continuer à prier pour cela, comme je prie et comme beaucoup prient, pour la libération de votre monde des ténèbres à la lumière. Que Dieu vous bénisse bien aimés. Que Dieu vous bénisse. Mon amour est avec vous tous.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

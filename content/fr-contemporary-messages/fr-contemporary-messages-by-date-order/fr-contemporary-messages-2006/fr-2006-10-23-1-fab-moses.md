@@ -13,9 +13,9 @@ Moïse - reçu par FAB le 23 Octobre 2006, Santa Cruz, Californie, USA.
 
 C’est moi, Moïse.
 
-Permettez-moi de commenter la déclaration que j’ai faite (et je l’ai vraiment fait) dans un message que j’ai communiqué à James Padgett le 9 Novembre 1915 :
+Permettez-moi de commenter la déclaration que j’ai faite (et je l’ai vraiment fait) dans un message que j’ai communiqué à James Padgett [le 9 Novembre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-9-1-jep-moses/) :
 
-> …et le judaïsme, dans son aspect religieux, disparaîtra progressivement, et les Juifs deviendront [une partie de la grande fraternité religieuse des hommes](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-11-9-1-jep-moses/)…
+> …et le judaïsme, dans son aspect religieux, disparaîtra progressivement, et les Juifs deviendront une partie de la grande fraternité religieuse des hommes ...
 
 Je sais que cette phrase vous a dérangé car, même si vous ne pouvez absolument pas, vous-même, vous identifier au Judaïsme traditionnel en tant que Juif, vous reconnaissez néanmoins que beaucoup de Juifs s’y identifient très bien et en tirent réellement un sens et un réconfort.
 

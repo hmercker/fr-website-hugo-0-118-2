@@ -17,6 +17,6 @@ Mes amis, il y a beaucoup de travail qui doit être fait sur votre planète. Nou
 
 Puissiez-vous être bénis, mes amis, par la sagesse, la lumière et l’amour, et marcher dans le monde comme un instrument de ces choses et de ces bénédictions. De cette façon, vous trouverez une grande joie, un grand épanouissement, une grande paix. Beaucoup peut être donné à ceux qui ont des intentions et des désirs purs d’être dans la lumière et de servir leur prochain. Que vous soyez bénis, mes amis. Puissiez-vous être bénis. Je suis Orion et je suis proche, très proche. Je vous bénis.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

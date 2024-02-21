@@ -11,7 +11,7 @@ weight:
 
 Le Père Céleste - reçu par Enfant de Dieu le 7 Mai 2012.
 
-Mon enfant, tu étais [un peu confus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-5-1-cog-father/) quant au lien entre les sentiments et ton âme et mon âme. Nous parlerons de ce sujet à une autre occasion. Aujourd’hui, nous allons parler de ta capacité à recevoir Mon amour. Nous en avons parlé plus tôt, et nous le ferons à nouveau aujourd’hui.
+Mon enfant, tu étais, avant-hier, [un peu confus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-5-1-cog-father/) quant au lien entre les sentiments et ton âme et mon âme. Nous parlerons de ce sujet à une autre occasion. Aujourd’hui, nous allons parler de ta capacité à recevoir Mon amour. Nous en avons parlé plus tôt, et nous le ferons à nouveau aujourd’hui.
 
 Si tu peux demander, tu peux recevoir. Il en est ainsi dans ton monde et il en est ainsi avec mon amour. Si vous demandez Mon Amour, mais que vous ne vous sentez pas digne, alors vous ne serez pas en mesure de recevoir. Lorsque votre cœur et votre âme souffrent d’expériences non aimantes qui vous laissent un sentiment d’indignité, peut-être même le sentiment que vous avez mérité toutes les difficultés et les punitions, il est difficile de ressentir et de recevoir mon amour.
 
@@ -23,7 +23,10 @@ Il est vrai que c’est en donnant que l’on reçoit. Beaucoup d’entre vous p
 
 Donne-toi ton amour et reçois le mien.
 
-Ton père.
+Ton père.<sup id="a1">[1](#f1)</sup>
+<small>
+
+1. <large id="f1"> L'ensembe des messages communiqués par le Père Céleste  est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-13-fr-the-heavenly-father/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
 

@@ -46,10 +46,10 @@ Jerry Falwell | [La tristesse de Jerry Falwell](/fr-contemporary-messages/fr-con
 John Bricker | [L’espoir du sénateur John Bricker](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-3-25-2-fab-john-bricker/) | 25 Mars 2012
 John Brown | [Le destin de John Brown](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-11-23-1-fab-john-brown/) | 23 Novembre 2007
 John C. Calhoun | [Le racisme est contre Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-23-1-fab-john-c-calhoun/) | 23 Avril 2008
-John F Kennedy | [Les expériences d'un Kennedy en esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-16-1-fab-john-f-kennedy/) | 16 Octobre 2008
-John F Kennedy | [Les expériences d'un Kennedy en esprit - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-17-1-fab-john-f-kennedy/) | 17 Octobre 2008
-John F Kennedy | [La pensée réconfortante d’un président](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-25-1-fab-john-f-kennedy/) | 25 Mars 2013
-John F Kennedy | [De grands projets sont en préparation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-14-1-af-john-f-kennedy/) | 14 Novembre 2017
+John F Kennedy Jr.| [Les expériences d'un Kennedy en esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-16-1-fab-john-f-kennedy/) | 16 Octobre 2008
+John F Kennedy Jr. | [Les expériences d'un Kennedy en esprit - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-17-1-fab-john-f-kennedy/) | 17 Octobre 2008
+John Fitzgerald Kennedy | [La pensée réconfortante d’un président](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-25-1-fab-john-f-kennedy/) | 25 Mars 2013
+John Fitzgerald Kennedy | [De grands projets sont en préparation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-14-1-af-john-f-kennedy/) | 14 Novembre 2017
 John Wilkes Booth | [Le meurtre [d’Abraham Lincoln] est pardonné.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-12-31-2-fab-john-wilkes-booth/) | 31 Décembre 2005
 John Wilkes Booth | [Comprendre un fanatique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-9-5-1-fab-john-wilkes-booth/) | 5 Septembre 2013
 Juan Jose Arevalo | [Une victime de l’Empire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-6-16-1-fab-juan-jose-arevalo/) | 16 Juin 2012

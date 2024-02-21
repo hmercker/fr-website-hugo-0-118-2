@@ -11,7 +11,7 @@ weight:
 
 Jésus (Yeshua ben Yosef) - reçu par Jane Gartshore le 18 Août 2020.
 
-![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-energiejoie.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-energie-joie.jpg)
 
 Je suis ici. Je souhaite parler de la joie. Pour beaucoup, la joie est insaisissable en ces temps. L’insécurité face à l’avenir provoque un affaiblissement de l’esprit, et le sentiment que tout va bien fait largement défaut.
 
@@ -20,6 +20,7 @@ Je vous demande de regarder au-delà de votre situation actuelle. Votre monde es
 Je suis venu vous dire cela parce que beaucoup de personnes doutent. Elles doutent que leur Père choisisse de s’occuper de chaque individu plutôt que du monde dans son ensemble.
 
 Dieu est amour. Et il est pleinement capable de pourvoir aux besoins de chaque âme sur cette planète, si elle le lui permet.
+
 Alors pourquoi la souffrance persiste-t-elle ? Les gens, en général, ne font pas confiance à leur Dieu. Certains croient qu’ils ne sont pas dignes de bonheur. Et c’est exactement ce qui est alors créé dans leur expérience.
 
 L’amour et les bénédictions de Dieu doivent être invités pour qu’ils fassent partie de votre expérience. Il n’est pas nécessaire que cette invitation soit exprimée consciemment pour qu’elle soit valable. L’âme saine, celle qui n’a pas été endommagée par les abus et la condamnation, sait qu’elle est digne d’amour et de toute forme de bonté. Lorsqu’une âme est punie – non pas par Dieu (comme je l’ai dit, Dieu ne punit pas), mais par l’homme – elle se contracte. Elle cherche à se mettre à l’abri d’une nouvelle punition.

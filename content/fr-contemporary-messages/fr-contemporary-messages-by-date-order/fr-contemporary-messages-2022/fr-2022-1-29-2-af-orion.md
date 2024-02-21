@@ -31,6 +31,6 @@ Que Dieu vous bénisse ainsi sur votre chemin. Nous sommes avec vous. Nous somme
 
 main dans la main vers ce destin, âmes bien-aimées. Des bénédictions pour vous et l’amour, l’amour qui règnera en maître dans vos cœurs, dans vos vies, et avec le temps, dans votre monde. Que Dieu vous bénisse. Je suis Orion. Mon amour est toujours avec vous, amis bien-aimés de la Terre, bénédictions de lumière et d’amour toujours.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

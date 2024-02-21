@@ -32,7 +32,7 @@ L’amour est une énergie universelle qui résonne dans toute création. **Ce n
 Je vous mon cher ami et je sais que vous pouvez le sentir. Que Dieu bénisse votre ouverture à la réception. Que Sa Lumière brille à travers vous et illumine cet univers. Je suis votre ami Céleste, Joseph, père de Jésus.
 <small>
 
-1. <large id="f1"> Ce message aborde de nombreuses points qui m’ont laissé perplexe ces derniers temps. *Tout d’abord*, il y avait évidemment la question de savoir s’il faut revoir ces souvenirs pour être guéri de leurs effets. *La deuxième question*, qui n’a pas été posée, est celle de savoir **QUAND** cela doit se produire. Il est très clair qu’il y a un bon moment pour le faire, et que cela nécessite une certaine maturité spirituelle. Il est également évident que ce n’est pas la première étape sur le chemin de la croissance spirituelle, comme certains le suggèrent et l’enseignent.(Geoff Cutler)[↩](#a1)
+1. <large id="f1"> Ce message aborde de nombreuses points qui m’ont laissé perplexe ces derniers temps. **Tout d’abord**, il y avait évidemment la question de savoir s’il faut revoir ces souvenirs pour être guéri de leurs effets. **La deuxième question**, qui n’a pas été posée, est celle de savoir **QUAND** cela doit se produire. Il est très clair qu’il y a un bon moment pour le faire, et que cela nécessite une certaine maturité spirituelle. Il est également évident que ce n’est pas la première étape sur le chemin de la croissance spirituelle, comme certains le suggèrent et l’enseignent.(Geoff Cutler)[↩](#a1)
 
 ### [**Lien vers les messages des années 2014**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/)
 

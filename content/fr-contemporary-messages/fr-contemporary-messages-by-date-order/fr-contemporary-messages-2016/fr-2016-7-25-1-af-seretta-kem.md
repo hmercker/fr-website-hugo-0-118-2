@@ -13,7 +13,7 @@ Seretta Kem - reçu par Al Fike le 25 Juillet 2016, Gibsons, Colombie-Britanniqu
 
 La puissance de la multiplication des prières.
 
-Je suis Seretta Kem et je vous remercie de m’autoriser à parler ce soir et ce que je vais vous dire va illustrer les efforts que vous fournissez dans ces [cercles de prière pour la guérison de ce monde](/fr-spiritual-subjects/fr-circles-of-light/).
+Je suis Seretta Kem et je vous remercie de m’autoriser à parler ce soir et ce que je vais vous dire va illustrer les efforts que vous fournissez dans ces [cercles de prière pour la guérison de ce monde](/10-fr-spiritual-subjects/10-2-fr-circles-of-light/).
 
 Oui, beaucoup de guérisseurs, d’anges guérisseurs sont avec vous et beaucoup de cercles de prières parmi les sphères spirituelles vous rejoignent dans vos prières et vos efforts pour ce monde.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Ne vous laissez pas distraire par des questions secondaires
 
-Leslie Stone <sup id=”a1”>[1](#f1)</sup> - reçu par Jimbeau Walsh le 10 Janvier 2022, Punalu’u, Oahu, HI, USA.
+Leslie Stone <sup id="a1">[1](#f1)</sup> - reçu par Jimbeau Walsh le 10 Janvier 2022, Punalu’u, Oahu, HI, USA.
 
 C’est moi, votre frère en Christ, Leslie Stone. J’ai souvent été présent auprès de James Padgett lorsqu’il recevait ce qu’on appelle des messages Célestes de Jésus et de tant d’autres.
 
@@ -31,7 +31,7 @@ Je suis votre frère dans le Christ et ma Marie est ici avec moi comme beaucoup 
 Soyez en paix. Je suis Leslie Stone.<sup id="a2">[2](#f2)</sup>
 <small>
 
-1. <large id=”f1”> <u>Note du médium</u> : Le Dr Stone m’a dit en privé dans la prière qu’il s’est retrouvé, après sa transition vers la vie spirituelle, dans la troisième sphère. Il voulait me faire savoir que c’est la première sphère de l’Amour Divin mais que c’est aussi une sphère d’amour naturel et qu’il n’y a pas deux 3e sphères distinctes. Peu après, Il a progressé vers la Cinquième sphère et finalement vers le Royaume Céleste.[↩](#a1)
+1. <large id="f1"> <u>Note du médium</u> : Le Dr Stone m’a dit en privé dans la prière qu’il s’est retrouvé, après sa transition vers la vie spirituelle, dans la troisième sphère. Il voulait me faire savoir que c’est la première sphère de l’Amour Divin mais que c’est aussi une sphère d’amour naturel et qu’il n’y a pas deux 3e sphères distinctes. Peu après, Il a progressé vers la Cinquième sphère et finalement vers le Royaume Céleste.[↩](#a1)
 
 2. <large id="f2"> Leslie Stone s'est également exprimé dans les messages suivants : [↩](#a2)
 
@@ -40,6 +40,6 @@ Soyez en paix. Je suis Leslie Stone.<sup id="a2">[2](#f2)</sup>
 Leslie Stone | [Leslie Stone est très haut dans les Cieux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-11-7-2-fab-leslie-stone/) | 7 Novembre 2005
 Leslie Stone | [La mission de Leslie Stone](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-9-19-2-fab-leslie-stone/) | 19 Septembre 2007
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

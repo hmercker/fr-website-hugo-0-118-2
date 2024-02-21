@@ -22,7 +22,6 @@ Reboham | [Dieu est Amour](/fr-contemporary-messages/fr-contemporary-messages-by
 Thérèse | [Cherchez l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-12-1969-7-14-anonymous-therese/) | 14 Juillet 1969
 Joseph Smith | [Fondateur de la foi mormone](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-13-1969-7-14-anonymous-joseph-smith/) | 14 Juillet 1969
 Samuel | [Renforcez ce lien entre vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-14-1969-7-17-anonymous-samuel/) | 17 Juillet 1969
-Jacques | [Instructions sur la Voix Ddirecte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-15-1969-anonymous-james/) |   1969
 Keea Atta Kem | [Les lois de Dieu sont universelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-16-1969-7-24-anonymous-keea-atta-kem/) | 24 Juillet 1969
 Samuel | [La vérité ne peut jamais échouer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-17-1969-8-1-anonymous-samuel/) | 1 Août 1969
 Augustin | [Recherchez ce don d'Amour Divin pour vous-mêmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-18-1969-8-11-anonymous-augustine/) | 11 Août 1969
@@ -56,6 +55,7 @@ Confucius | [Désir de parler à mon peuple](/fr-contemporary-messages/fr-contem
 André | [Lien d'unité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-45-1969-12-17-anonymous-andrew/) | 17 Décembre 1969
 Samuel | [Parler aux esprits de la terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-46-1969-12-22-anonymous-samuel/) | 22 Décembre 1969
 Augustin | [Parler à deux étrangers pour la première fois](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-47-1969-12-anonymous-augustine/) | 22 Décembre 1969
+Jacques | [Instructions sur la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-15-1969-anonymous-james/) |   1969
 Francis Fenelon | [Instruction pour les débutants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-55-1969-anonymous-francis-fenelon/) |   1969
 Samuel | [Désirer en vous de servir Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-56-1969-anonymous-samuel/) |   1969
 Keea Atta Kem | [Contrôle de l'instrument](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-57-1969-anonymous-keea-atta-kem/) |   1969
@@ -81,7 +81,7 @@ Fleur de Lotus | [J'ai un grand amour pour la Chine](/fr-contemporary-messages/f
 St Paul | [Nous devons enseigner à tous ceux qui le souhaitent comment se libérer de la peur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-77-1969-anonymous-st-paul/) |   1969
 Mario Lanza | [Je suis reconnaissant pour les prières et l'amour qui me sont envoyés de la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-78-1969-anonymous-mario-lanza/) |   1969
 Shandor | [Cherchez l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-79-1969-anonymous-shandor/) |   1969
-Josef | [Vous devez aller de l'avant comme Jésus l'a fait](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-80-1969-anonymous-joseph/) |   1969
+Joseph| [Vous devez aller de l'avant comme Jésus l'a fait](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-80-1969-anonymous-joseph/) |   1969
 Jean-Baptiste | [Nous travaillons pour servir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-81-1969-anonymous-john-the-baptist/) |   1969
 Keea Atta Kem | [Leçon sur la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-82-1969-anonymous-keea-atta-kem/) |   1969
 Silver Birch | [Première salutation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-83-1969-anonymous-silver-birch/) |   1969
@@ -89,7 +89,7 @@ Shandor | [Nous n'avons pas besoin de grands édifices pour accomplir l'œuvre d
 Goldie | [Une mission spéciale de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-108-1969-anonymous-goldie/) |   1969
 Augustin | [Cherchez la sagesse du Père](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-109-1969-anonymous-augustine/) |   1969
 Augustin | [Fais Ton chemin, Seigneur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-110-1969-anonymous-augustine/) |   1969
-Nuage Blanc et Eau Christalline | [Nuage blanc, eau cristalline](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-111-1969-anonymous-white-cloud-crystal-water/) |   1969
+Nuage Blanc et Eau de Chrystal | [Nuage blanc, eau de Chrystal](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-111-1969-anonymous-white-cloud-crystal-water/) |   1969
 Dr Gordon Leonard | [L'Amour Divin de Dieu, le chemin du bonheur et de la santé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-112-1969-anonymous-dr-gordon-leonard/) |   1969
 Confucius | [Votre Créateur et le mien](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-113-1969-anonymous-confucius/) |   1969
 Nuage Blanc| [Aidez les autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-114-1969-anonymous-white-cloud/) |   1969
@@ -97,7 +97,7 @@ Augustin | [Un avertissement des choses à venir](/fr-contemporary-messages/fr-c
 Shandor | [Le secret de la vie sur terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-116-1969-anonymous-shandor/) |   1969
 St Luc | [Parle de la Bible, de la guérison et de l'Orientation Correcte.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-117-1969-anonymous-st-luke/) |   1969
 Augustin | [L'homme doit avoir ces lois de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-119-1969-anonymous-augustine/) |   1969
-St Paul | [Puissiez-vous être un véritable exemple de ce que ces bénédictions peuvent faire pour l'humanité.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-120-1969-anonymous-st-paul/) |   1969
+St Paul | [Puissiez-vous être un véritable exemple de ce que ces bénédictions peuvent faire pour l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-120-1969-anonymous-st-paul/) |   1969
 Jésus | [L'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-121-1969-anonymous-jesus/) |   1969
 André | [Apporter sa lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-122-1969-anonymous-andrew/) |   1969
 Keea Atta Kem & Augustin | [Prévoyez la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-123-1969-anonymous-keea-atta-kem-augustine/) |   1969

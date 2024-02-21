@@ -23,6 +23,6 @@ Je peux vous dire que de toutes les choses de la terre que vous pouvez posséder
 
 Je suis ravie d'être ici avec mon petit-fils et mon cher Jimbeau. Je suis si heureuse qu'il ait fait appel à moi aujourd'hui. Je vous remercie. Je vais vous laisser maintenant pour être dans la gloire de votre prière dans la Grâce de Dieu. Je vous laisse avec tout mon amour et mes bénédictions. Je suis votre sœur dans le Christ et un ange Divin glorieusement heureuse. Je suis Care. Allez avec Dieu. Allez en paix.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

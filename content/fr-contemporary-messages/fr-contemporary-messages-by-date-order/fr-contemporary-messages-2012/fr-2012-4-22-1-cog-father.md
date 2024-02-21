@@ -21,9 +21,12 @@ Beaucoup d’entre vous ont oublié la loi de leur libre arbitre et sont totalem
 
 Beaucoup d’entre vous tombent malades parce que vous ne faites pas confiance à vos sentiments et que vous vous dites que vos sentiments ne sont pas valables parce que vous les considérez comme gênants. Vous devez changer votre façon de vivre et vivre selon vos sentiments, et non selon les attentes de la société. Vous oubliez que vous ÊTES effectivement la société. Vous avez construit cette société sur de fausses croyances. Il est encore temps de changer cela.
 
-Je vous aime dans Mon Cœur.
+Je vous aime dans Mon Cœur.<sup id="a1">[1](#f1)</sup>
 
 Père.
+<small>
+
+1. <large id="f1"> L'ensembe des messages communiqués par le Père Céleste  est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-13-fr-the-heavenly-father/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
 

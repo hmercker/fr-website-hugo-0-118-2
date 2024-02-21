@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Soyez un instrument de l’amour de Dieu
+### Soyez un instrument de l’Amour de Dieu
 
 St Matthieu - reçu par Al Fike le 4 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
 

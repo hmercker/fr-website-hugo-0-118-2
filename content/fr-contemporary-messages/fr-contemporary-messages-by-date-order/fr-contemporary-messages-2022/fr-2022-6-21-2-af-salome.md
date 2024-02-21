@@ -37,10 +37,10 @@ Que Dieu vous bénisse, âmes bien-aimées, et vous garde dans la lumière. Je s
 1. <large id="f1"> Salome s'est exprimée dans les messages suivants : [↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**  
----|---|--
+---|---|---
 Salome | [Les désirs de notre âme en alignement avec la volonté de Dieu (2021 Voix directe II)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-17-1-af-salome/) | 17 Septembre 2021
 Salome | [Le monde a besoin de vos prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-21-2-af-salome/) | 21 Juin 2022
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -9,7 +9,7 @@ weight:
 ---
 ### Il est difficile de se débarrasser des bagages
 
-Yogananda - reçu par Jimbeau Walsh le 1 Novembre 2019, Punalu’u, Oahu, Hawaii, USA.
+Yogananda - reçu par Jimbeau Walsh le 1<sup>er</sup> Novembre 2019, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis votre frère et ami dans l'Amour de Dieu, Yogananda. Ce monde est si enveloppé dans le désir matériel, dans la peur, avec tant d'obscurité. Et pourtant, nous sommes assis ici dans la lumière de l'Amour de Dieu. Si nous observons le monde matériel et ses attractions, ses distractions, ses enchevêtrements, nous n'avons pas besoin de voir autre chose que les amusements de la plupart des gens. Nous pouvons regarder les films, les jeux, les passe-temps et nous voyons la violence, le drame, la romance, l'échec et la cupidité. Toutes ces choses du monde qui finissent par briser la détermination d'une personne à réussir dans n'importe lequel de ces domaines et elle se tourne alors vers la lumière.
 

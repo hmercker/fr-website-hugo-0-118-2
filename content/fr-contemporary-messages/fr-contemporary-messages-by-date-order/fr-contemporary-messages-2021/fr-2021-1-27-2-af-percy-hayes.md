@@ -9,7 +9,7 @@ weight:
 ---
 ### Percy Hayes annonce son entrée dans le Royaume Céleste
 
-Percy Hayes <sup id=”a1”>[1](#f1)</sup> - reçu par Al Fike le 27 Janvier 2021, Gibsons, Colombie-Britannique, Canada
+Percy Hayes <sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 27 Janvier 2021, Gibsons, Colombie-Britannique, Canada
 
 Mes amis, c’est Percy. Cela fait un certain temps que je ne vous ai pas parlé à tous. Je veux donner mon amour à mes chères filles et leur dire que je suis proche, que je les aime tendrement et je vois qu’elles ont avec elles de beaux anges qui les protègent et les guident, elles et leurs familles. Elles sont en sécurité, elles sont bénies et elles continuent à progresser sur le Chemin Divin.
 
@@ -28,12 +28,12 @@ Ainsi, Dieu apporte des bénédictions à travers vous et pour vous alors que vo
 Bénédictions à vous tous. Bénédictions à ma famille. Sachez que je suis proche, que je viens protéger vos proches. Que moi aussi, je suis un instrument de Dieu et que je le fais avec la joie dans mon cœur et l’amour dans mon âme. Que Dieu vous bénisse et vous garde dans son amour. Votre ami Percy <sup id="a2">[2](#f2)</sup>  est avec vous. Et oui, je suis souvent avec votre bien-aimée Barbara. Nous avons beaucoup de conversations ensemble et parfois nous travaillons ensemble. Que Dieu vous bénisse. Que Dieu vous bénisse mes amis. Mon amour est toujours avec vous. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> Percy Hayes fut un des pionniers du mouvement de l’Amour Divin au Canada et a largement contribué à l’établissement de la communauté de Vancouver.[↩](#a1)
+1. <large id="f1"> Percy Hayes fut un des pionniers du mouvement de l’Amour Divin au Canada et a largement contribué à l’établissement de la communauté de Vancouver.[↩](#a1)
 
 2. <large id="f1"> Percy Hayes s'est exprimé dans les messages suivants : [↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**  
----|---|--
+---|---|---
 Percy Hayes | [Salutations de Percy depuis le Royaume d'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-12-1-af-percy-hayes/) | 12 Octobre 2017
 Percy Hayes | [Percy Hayes annonce son entrée dans le Royaume Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-27-2-af-percy-hayes/) | 27 Janvier 2021
 

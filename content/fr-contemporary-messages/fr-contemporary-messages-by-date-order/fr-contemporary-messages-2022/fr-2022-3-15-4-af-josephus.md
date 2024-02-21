@@ -21,6 +21,6 @@ Peu de gens trouveront leur chemin sans cette aide et cette assistance. Nous dem
 
 Beaucoup de travail vous attend, la transformation de l’humanité est imminente et vous découvrirez les grands avantages et bénédictions de cette transformation, cette lumière éclatante qui apportera de grands changements. Que Dieu vous bénisse chacun dans vos voyages, vos efforts, vos désirs, vos expressions d’âme. Sachez que nous sommes avec vous, le serons toujours et ne partirons jamais. Vous pouvez compter sur les anges de Dieu pour vous soutenir et vous protéger, pour vous guider et vous bénir. C’est le don de Dieu pour vous, Ses soins d’amour sur vous. Puissiez-vous vraiment être bénis profondément, profondément, afin que le changement puisse avoir lieu en vous en tant qu’avant-garde de la vérité et du changement à venir. Mon amour est avec vous. Mon amour est avec vous, belles âmes. Je suis Flavius Josèphe. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

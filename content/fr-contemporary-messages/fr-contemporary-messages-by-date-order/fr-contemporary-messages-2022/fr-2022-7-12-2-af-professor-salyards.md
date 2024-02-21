@@ -27,6 +27,6 @@ Que Dieu vous bénisse dans ce voyage. Puissiez-vous parvenir à voir votre vér
 
 Que Dieu vous bénisse, mes amis, je suis le professeur Salyards. C’est un honneur pour moi de faire partie de ce groupe d’âmes, à la fois dans l’esprit et dans la chair, qui travaillent ensemble pour apporter la lumière au monde, la vérité au monde, pour ouvrir chaque âme à Dieu et aux merveilles du toucher et de l’Amour de Dieu sur eux. Que Dieu vous bénisse, mes amis, mon amour est toujours avec vous. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

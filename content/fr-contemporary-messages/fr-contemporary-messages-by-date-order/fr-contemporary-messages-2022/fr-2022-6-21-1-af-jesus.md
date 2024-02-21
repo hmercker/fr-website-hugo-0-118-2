@@ -67,6 +67,6 @@ Mes chers et beaux amis, mes frères et sœurs du monde, sachez que beaucoup de 
 
 Sur ce, je termine cet entretien et je reviendrai un autre jour pour parler de choses qui assureront l’humanité et apporteront la paix et la vérité. Je suis votre frère et ami, Jésus, et je vous aime tous. Que Dieu vous bénisse. Que Dieu vous bénisse tous.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -39,6 +39,8 @@ Ceci forme un ensemble cohérent, et cependant très simple, d’enseignements q
 
 Christian Blandin
 
+[Voici un lien de téléchargement pour le premier volume  des messages.](/13-fr-publications-and-downloads/13-2-1-fr-french-spiritual-books/fr-true-gospel-revealed-anew-volume-1-fr.pdf)
+
 **Page** | **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---|---
 I | Dr Stone | [Le témoignage du Dr. Leslie Ribbon Stone](/fr-james-padgett-messages/1-14-fr-the-testimony-of-dr-leslie-stone/) |

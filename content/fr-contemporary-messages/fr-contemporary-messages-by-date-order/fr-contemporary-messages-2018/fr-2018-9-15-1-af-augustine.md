@@ -32,7 +32,7 @@ Nous devons être patients et avoir une grande foi. Nous devons continuer à nou
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant, Augustin. Je vous aime tendrement. Vous êtes des âmes si loyales et si gracieuses, cherchant toujours à servir, cherchant toujours à être dans la Lumière de Son Amour, à dire toujours la Vérité de Son Amour, à connaître et à grandir dans la puissance et la gloire de Son Amour. Que Dieu vous bénisse, mes amis bien-aimés. Je suis votre maître Augustin. Je vous aime.
 <small>
 
-1. <large id="f1"> L' A.R.E.I est l'Institut de recherche et d'éducation sur la vie après la mort.[↩](#a1)
+1. <large id="f1"> [L' A.R.E.I](https://fr.search.yahoo.com/search?fr=mcafee&type=E210FR0G0&p=Afterlife+Research+and+Education+Institute) est l'Institut de recherche et d'éducation sur la vie après la mort.[↩](#a1)
 
 ### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
 

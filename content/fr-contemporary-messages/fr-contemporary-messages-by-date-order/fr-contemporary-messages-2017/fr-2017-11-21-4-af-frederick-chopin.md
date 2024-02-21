@@ -18,7 +18,7 @@ Je souhaite avoir l'opportunité de révéler le don de la musique inspirante à
 Que Dieu continue à vous bénir, chers amis, et à nous bénir tous dans ce grand effort pour élever l'humanité et éveiller les âmes de beaucoup. Que Dieu vous bénisse.
 <small>
 
-1. <large id="f1"> Frédéric Chopin  s'était préalablement exprimé [au cours de l'année 1970](/fr-contemporary-messages/fr-contemporary-messags-by-date-order/fr-contemporary-messages-1970/fr-107-1970-anonymous-frederick-chopin/)
+1. <large id="f1"> Frédéric Chopin  s'était préalablement exprimé [au cours de l'année 1970](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-107-1970-anonymous-frederick-chopin/)
 
 ### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
 

@@ -28,7 +28,7 @@ C’est à cela que vous arriverez avec le temps, mes amis. J’espère avoir ex
 Que Dieu vous bénisse, mes amis, et vous garde dans son amour. Je suis Copernic<sup id="a2">[2](#f2)</sup> et je suis aussi un Ange Céleste et j’aimerais, j’aimerais beaucoup, pouvoir vous transmettre davantage cette compréhension des voies de l’univers qui est en harmonie et fonctionne pleinement et complètement dans les Lois de la Création et de l’Amour de Dieu. Mais nous essayons, nous essayons, mes amis, de vous aider à comprendre, de vous aider à vous interroger, à demander vous-mêmes à Dieu : *« Puissé-je connaître ces vérités de mon âme. »* Et dans cette expérience de l’âme, vous comprendrez vraiment. Que Dieu vous bénisse et vous garde dans son amour. Dieu vous bénisse, chers amis, et mon amour est avec vous. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> Nous appellerions cela des esprits « liés à la terre ». (G.C.).[↩](#a1)
+1. <large id="f1"> Nous appellerions cela des esprits « liés à la terre ». (G.C.).[↩](#a1)
 
 2. <large id="f2"> Copernic s'était également exprimé dans les messages suivants : [↩](#a1)
 

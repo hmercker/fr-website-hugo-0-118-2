@@ -9,13 +9,13 @@ weight:
 ---
 ### Humilité et confiance
 
-Solomon - reçu par CC le 4 Septembre 2003, New York, USA.
+Salomon - reçu par CC le 4 Septembre 2003, New York, USA.
 
 Bonjour CC, nous sommes nombreux ici, demande simplement qui tu aimerais entendre.
 
 J’ai dit « Salomon ».<sup id="a1">[1](#f1)</sup>
 
-Cher fils, c’est un plaisir de venir te voir. J’étais avec toi lorsque tu as réfléchi à la note personnelle ([Cf message du 30/06/2003](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-6-30-2-cc-solomon/)) que je t’ai adressée il y a deux mois. Il y a des connaissances que l’on peut posséder et des événements que l’on peut faire connaître à un enfant avant qu’ils ne se déroulent, mais parfois (la plupart du temps) il est préférable que ces connaissances ne leur parviennent qu’au moment le plus opportun.
+Cher fils, c’est un plaisir de venir te voir. J’étais avec toi lorsque tu as réfléchi à la note personnelle ([Voir message du 30/06/2003](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-6-30-2-cc-solomon/)) que je t’ai adressée il y a deux mois. Il y a des connaissances que l’on peut posséder et des événements que l’on peut faire connaître à un enfant avant qu’ils ne se déroulent, mais parfois (la plupart du temps) il est préférable que ces connaissances ne leur parviennent qu’au moment le plus opportun.
 
 Un enfant qui progresse est très bien guidé et lorsqu’il est humble et confiant, la connaissance des événements et la connaissance des choses lui parviendront au moment le plus avantageux. L’enfant réussit le mieux lorsqu’il fait entièrement confiance à Dieu et à Ses Lois, qui lui apporteront certainement les meilleurs et les plus grands résultats. Souvent, un enfant réceptif observe des « coïncidences », ce qui devrait lui rappeler qu’il est guidé et que les lois de Dieu agissent sans cesse. Les lois de Dieu sont parfaites et elles fonctionnent sans effort, sans interruption, lorsque l’enfant est humble et confiant.
 
@@ -30,7 +30,7 @@ J’ai aimé la façon dont tu as parlé une fois des perceptions de l’âme co
 Je sens que tu as somnolant. Je vais donc te laisser te reposer. Nous te remercions de nous avoir donné l’occasion d’exprimer nos pensées et nous prions pour tous nos frères et sœurs qui recherchent la bonne nutrition pour leurs âmes.
 <small>
 
-1. <large id="f1"> Il est possible de lire les divers messages commuiqués par Salomon par l'intermédiaire de [ce lien](fr-contemporary-messages\6-3-fr-contemporary-messages-by-author\6-3-10-fr-historical-figures.md) :[↩](#a1)
+1. <large id="f1"> Il est possible de lire les divers messages commuiqués par Salomon par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-10-fr-historical-figures/) :[↩](#a1)
 
 ### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
 

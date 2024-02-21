@@ -28,7 +28,7 @@ Vous avez ensuite découvert que « entos » signifie bien « à l’intérieur 
 Ainsi, tout ce que la phrase implique, c’est que, dans cette phrase particulière, « entos » signifiait « au milieu de ». Non, « entos » ne signifiait pas « au sein de, ou « à l’intérieur de » comme ce fut le cas dans d’autres contextes.
 <small>
 
-1. <large id="f1"> [Daniel G Samuels](/fr-samuels-messages\2-0-fr-about-dr-daniel-g-samuels/) fut un médium prolifique dans les années 1950 et 1960, et le médium par lequel [de nombreux messages ont été reçus](/fr-samuels-messages/) entre les années 1954 et 1965.[↩](#a1)
+1. <large id="f1"> [Daniel G Samuels](/fr-samuels-messages/2-0-fr-about-dr-daniel-g-samuels/) fut un médium prolifique dans les années 1950 et 1960, et le médium par lequel [de nombreux messages ont été reçus](/fr-samuels-messages/) entre les années 1954 et 1965.[↩](#a1)
 
 2. <large id="f2">  Dr Samuels avait précédemment communiqué [le 21 Septembre 2006](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-9-21-1-dl-dr-samuels-jesus/).[↩](#a2)
 

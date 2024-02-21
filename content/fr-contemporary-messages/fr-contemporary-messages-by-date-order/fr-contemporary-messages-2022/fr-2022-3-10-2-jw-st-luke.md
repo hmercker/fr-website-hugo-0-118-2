@@ -23,6 +23,6 @@ Nous aimons souvent citer ce que le Maître a dit à propos de « celui qui gagn
 
 Alors, envoyez votre amour au monde entier car il n’y a pas de frontière dans l’Amour de Dieu. Attendez-vous à un miracle et soyez de bonne humeur. Ne vous inquiétez pas. Je suis votre frère en Christ, une âme rachetée depuis longtemps dans les Cieux Célestes et je vous aime. Je suis Luc. Allez en paix.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

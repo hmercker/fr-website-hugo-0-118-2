@@ -25,6 +25,6 @@ Puissiez-vous réaliser que chaque pas que vous faites, chaque prière que vous 
 
 Nous sommes proches, mes chers. Je suis proche de vous. Continuez vos efforts. Priez souvent. Priez avec sérieux et amour pour votre Créateur et tout coulera abondamment. Vous ferez l’expérience du grand courant de Sa volonté et de Son amour dans votre vie. Nous sommes unis dans ce but, bien-aimés. Nous avançons ainsi comme un seul corps, une seule expression, une seule vérité qui repose sur le fondement de l’amour. Que Dieu vous bénisse. Je suis votre frère et ami Jésus et je suis venu marcher avec vous, être avec vous et prier avec vous. Que Dieu vous bénisse ! Je suis proche de vous et je vous aime. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

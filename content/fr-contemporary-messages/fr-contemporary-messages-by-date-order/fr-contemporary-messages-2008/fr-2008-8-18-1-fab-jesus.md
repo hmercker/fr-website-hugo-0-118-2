@@ -37,4 +37,6 @@ Dieu a veillé sur ma vie depuis le début, et il m'a donné des parents aimants
 
 Je veux dire par là que ma jeune vie, comme toute nouvelle vie, avait besoin d'être nourrie par des figures parentales.
 
-Eschyle | [Un dramaturge de la Grèce antique a trouvé la voie Divine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-12-2-fab-aeschylus/) | 12 Août 2008
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

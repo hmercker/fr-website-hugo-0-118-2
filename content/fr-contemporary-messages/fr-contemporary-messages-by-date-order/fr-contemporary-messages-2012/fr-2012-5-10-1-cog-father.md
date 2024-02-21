@@ -21,7 +21,10 @@ Votre mental a une partie ego, qui a peur d’abandonner le pouvoir. Votre ego p
 
 Lorsque votre ego dirige votre monde, votre âme souffre. Vous vous sentez en colère et frustré. Ces sentiments sont des signaux de votre âme indiquant que vous vivez en dehors de la vérité. Que pouvez-vous faire à ce sujet ? Encore une fois, reconnaissez les sentiments, sachez qu’ils sont tout aussi valables que n’importe quels autres sentiments, et prenez vos responsabilités. Soyez reconnaissant d’avoir eu l’occasion de voir les choses plus clairement et agissez en conséquence. Changez-vous. Ne continuez pas à vivre comme vous le faisiez lorsque vous savez que vous vivez en dehors de la Vérité. Soyez responsables de votre nouvelle connaissance et changez-vous. Changez votre façon de vivre. Vos sentiments sont le médiateur des vrais désirs de votre âme. Votre âme connaît la Vérité.
 
-Votre Père aimant.
+Votre Père aimant.<sup id="a1">[1](#f1)</sup>
+<small>
+
+1. <large id="f1"> L'ensembe des messages communiqués par le Père Céleste  est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-13-fr-the-heavenly-father/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
 

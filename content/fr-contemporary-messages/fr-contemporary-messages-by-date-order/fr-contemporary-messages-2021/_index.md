@@ -13,7 +13,7 @@ weight:
 ---|---|---
 St François d'Assise | [Ce chemin exige que vous sachiez ce qui est important](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-1-1-jw-st-francis-of-assisi/) | 1 Janvier 2021
 Professeur Salyards | [Permettez-vous l'amour, la patience et la persévérance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-2-1-af-professor-salyards/) | 2 Janvier 2021
-St Matthieu | [Comment cela s'aligne-t-il sur la volonté de Dieu?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-2-2-af-st-matthew/) | 2 Janvier 2021
+St Matthieu | [Comment cela s'aligne-t-il sur la Volonté de Dieu?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-2-2-af-st-matthew/) | 2 Janvier 2021
 Yogananda | [Bienvenue à toutes les âmes avec amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-3-1-jw-yogananda/) | 3 Janvier 2021
 St Matthieu | [Puissiez-vous vraiment comprendre le voyage que vous entreprenez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-3-2-af-st-matthew/) | 3 Janvier 2021
 Baal Shem Tov | [Laissez vos prières s’approfondir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-4-1-jw-baal-shem-tov/) | 4 Janvier 2021
@@ -85,7 +85,7 @@ Claire d'Assise | [La pratique rend parfait](/fr-contemporary-messages/fr-contem
 Augustin | [Franchir le seuil](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-6-1-af-augustine/) | 6 Mars 2021
 Yogananda | [Cherchez à connaître les dons que Dieu vous a donnés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-7-1-af-yogananda/) | 7 Mars 2021
 Yogananda | [Laissez votre lumière briller sur chaque être](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-8-1-jw-yogananda/) | 8 Mars 2021
-Marie | [Nous sommes unis par l’amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-9-1-af-mary/) | 9 Mars 2021
+Marie | [Nous sommes unis par l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-9-1-af-mary/) | 9 Mars 2021
 Augustin | [Les anges seront avec nous pendant les changements terrestres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-10-1-af-augustine/) | 10 Mars 2021
 Jésus | [Session de questions et réponses n° 4 : Changements de la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-11-1-af-jesus/) | 11 Mars 2021
 Judas | [Lâcher prise et laisser faire, s'en remettre à Dieu pour tout](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-12-1-jw-judas/) | 12 Mars 2021
@@ -97,9 +97,9 @@ James Padgett | [Ce qui est important](/fr-contemporary-messages/fr-contemporary
 Jésus | [Dernier message de Jésus au monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-18-1-af-jesus/) | 18 Mars 2021
 Yogananda | [Joie et guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-18-2-jw-yogananda/) | 18 Mars 2021
 Care Derby Walsh | [Quand vous appelez, nous venons !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-18-3-jw-care-derby-walsh/) | 18 Mars 2021
-Pierre | [En mémoire de Charlie Thomson](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2021-3-19-1-af-peter/) | 19 Mars 2021
+Pierre | [En mémoire de Charlie Thomson](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-19-1-af-peter/) | 19 Mars 2021
 Augustin | [Conseils pour accueillir des cercles de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-20-1-af-augustine/) | 20 Mars 2021
-Jésus | [Bénédiction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2021-3-21-1-af-jesus/) | 21 Mars 2021
+Jésus | [Bénédiction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-21-1-af-jesus/) | 21 Mars 2021
 St François d'Assise | [Marchez dans la grâce ! C'est simple](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-22-1-jw-st-francis-of-assisi/) | 22 Mars 2021
 Charlie Chaplin | [Découvrez vos dons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-23-1-jw-charlie-chaplin/) | 23 Mars 2021
 Augustin | [La vérité se découvre à travers votre âme et non votre esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-23-2-af-augustine/) | 23 Mars 2021
@@ -135,7 +135,7 @@ Eileen Caddy | [Allez à l’intérieur et permettez à Dieu d’ouvrir votre â
 André | [Les Bénédictions de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-20-4-jw-andrew/) | 20 Avril 2021
 Jésus | [La puissance de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-23-1-af-jesus/) | 23 Avril 2021
 Jésus | [Concentrez-vous sur votre conscience](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-25-1-af-jesus/) | 25 Avril 2021
-St Luc | [L'amour de Dieu ouvre le cœur et transforme l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-26-1-jw-st-luke/) | 26 Avril 2021
+St Luc | [L'Amour de Dieu ouvre le cœur et transforme l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-26-1-jw-st-luke/) | 26 Avril 2021
 Jésus | [Leçon 5 : Le pouvoir de l’âme pour amener quelqu’un à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-27-1-af-jesus/) | 27 Avril 2021
 Keea Atta Kem | [Nos prières sont importantes pour le service de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-28-1-af-keea-atta-kem/) | 28 Avril 2021
 James Padgett | [Une ampoule dans une pièce sombre (2021 Groupe d’étude James Padgett)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-29-1-jw-james-padgett/) | 29 Avril 2021
@@ -174,13 +174,13 @@ Yogananda | [De nombreux saints ont prié de tout leur cœur pour l'amour de Die
 Seretta Kem | [Encourager le developpement de la voix directe dans le Monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-27-2-af-seretta-kem/) | 27 Mai 2021
 Yogananda | [De nombreux saints ont prié de tout leur cœur pour l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-27-3-jw-yogananda/) | 27 Mai 2021
 Jésus | [Leçon 10 : Voyage vers une âme éveillée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-28-1-af-jesus/) | 28 Mai 2021
-Seretta Kem | [Bienvenue et présentation d'un nouveau groupe de voix directes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-29-1-af-seretta-kem/) | 29 Mai 2021
+Seretta Kem | [Bienvenue et présentation d'un nouveau groupe de Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-29-1-af-seretta-kem/) | 29 Mai 2021
 Seretta Kem | [Satisfait des nouveaux développements de la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-30-1-af-seretta-kem/) | 30 Mai 2021
 Thomas Merton | [La simplicité de la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-31-1-jw-thomas-merton/) | 31 Mai 2021
 Jésus | [Priant pour nous à genoux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-1-1-af-jesus/) | 1 Juin 2021
 Jésus | [Leçon 11 : L’humanité se réveillera avec les changements terrestres à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-2-1-af-jesus/) | 2 Juin 2021
 Hafiz | [Océan infini](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-2-2-jw-hafiz/) | 2 Juin 2021
-Aron | [Nous supplie de faire notre part pour être intégrés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-2-3-af-aaron/) | 2 Juin 2021
+Aaron | [Nous supplie de faire notre part pour être intégrés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-2-3-af-aaron/) | 2 Juin 2021
 Jésus | [Comment je vous aime](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-2-4-jw-jesus/) | 2 Juin 2021
 Keea Atta Kem | [Vos prières apporteront de la clarté lors des changements à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-4-1-af-keea-atta-kem/) | 4 Juin 2021
 Marie | [Soyez l’ami affectueux de l’autre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-5-1-af-mary/) | 5 Juin 2021
@@ -211,7 +211,7 @@ Jésus | [Leçon 13 : Changements terrestres à venir](/fr-contemporary-messages
 Seretta Kem | [Instructions sur la façon de se préparer à Direct Voice (2021 Voix Directe II)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-26-1-af-seretta-kem/) | 26 Juin 2021
 Hafiz | [Poèmes de Haffiz](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-27-1-jw-hafiz/) | 27 Juin 2021
 Seretta Kem | [Changements terrestres et changements que nous remarquerons en nous-mêmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-27-2-af-seretta-kem/) | 27 Juin 2021
-St François d'Assise | [Partager l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-28-1-jw-st-francis-of-assisi/) | 28 Juin 2021
+St François d'Assise | [Partager l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-28-1-jw-st-francis-of-assisi/) | 28 Juin 2021
 Jésus | [Jésus nous appelle à être ses disciples](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-29-1-af-jesus/) | 29 Juin 2021
 Jésus | [Venez prier avec nous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-30-1-af-jesus/) | 30 Juin 2021
 Amon | [Avoir de l’espoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-2-1-jw-amon/) | 2 Juillet 2021
@@ -220,11 +220,11 @@ Jésus | [Se concentrer sur ce qui est nécessaire](/fr-contemporary-messages/fr
 St Jean | [L’Amour Divin est le rocher de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-4-1-af-st-john/) | 4 Juillet 2021
 Marc | [Bénédictions pour la Première Eglise Spiritualiste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-4-2-af-mark/) | 4 Juillet 2021
 Fred Rogers | [Rappelez-vous l’importance de guider les enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-5-1-jw-fred-rogers/) | 5 Juillet 2021
-Yogananda | [Transcender tout est le don de l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-5-2-jw-yogananda/) | 5 Juillet 2021
+Yogananda | [Transcender tout est le don de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-5-2-jw-yogananda/) | 5 Juillet 2021
 Confucius | [Bénédictions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-6-1-af-confucius/) | 6 Juillet 2021
 Robert James Lees | [Et si un ange venait dans votre maison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-9-1-jw-robert-james-lees/) | 9 Juillet 2021
 Seretta Kem | [Encouragement de nos efforts et notre auto-compassion dans le développement de la voix directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-10-1-af-seretta-kem/) | 10 Juillet 2021
-Aron | [Le plus grand obstacle à la lumière dans votre monde est l’ignorance et l’apathie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-11-1-af-aaron/) | 11 Juillet 2021
+Aaron | [Le plus grand obstacle à la lumière dans votre monde est l’ignorance et l’apathie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-11-1-af-aaron/) | 11 Juillet 2021
 Jésus | [L’innocence pure de l’amour réside dans votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-13-1-af-jesus/) | 13 Juillet 2021
 St François d'Assise | [Allez en paix, ne soyez pas troublés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-13-2-jw-st-francis-of-assisi/) | 13 Juillet 2021
 Jacques | [Le seul moyen d’obtenir la lumière et la protection est de s’aligner avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-16-1-af-james/) | 16 Juillet 2021
@@ -234,7 +234,7 @@ Jésus | [Nous sommes tous des points de lumière](/fr-contemporary-messages/fr-
 Marie | [Nous sommes ensemble dans ce ce grand cercle de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-20-1-af-mary/) | 20 Juillet 2021
 Care Derby Walsh | [Suivez la joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-22-1-jw-care-derby-walsh/) | 22 Juillet 2021
 Judas | [La prière est la réponse à tous les problèmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-22-2-jw-judas/) | 22 Juillet 2021
-André | [Bénédictons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-23-1-jw-andrew/) | 23 Juillet 2021
+André | [Bénédictions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-23-1-jw-andrew/) | 23 Juillet 2021
 Judas | [La présence de l’Amour dans nos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-26-1-jw-judas/) | 26 Juillet 2021
 St Luc | [Cherchez d’abord le Royaume, et tout le reste vous sera donné](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-27-1-jw-st-luke/) | 27 Juillet 2021
 St Matthieu | [La prière est le levier pour ouvrir la porte à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-27-2-af-st-matthew/) | 27 Juillet 2021
@@ -244,7 +244,7 @@ Confucius | [Bénédictions](/fr-contemporary-messages/fr-contemporary-messages-
 Seretta Kem | [Satisfaits de nos progrès](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-31-1-af-seretta-kem/) | 31 Juillet 2021
 Jésus | [Vous avez choisi d’être des lumières dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-1-1-af-jesus/) | 1 Août 2021
 Yogananda | [Votre cœur vous conduira à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-2-1-jw-yogananda/) | 2 Août 2021
-Augustin | [Encouragement à parler de l'amour de Dieu à ses amis et à sa famille](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-3-1-af-augustine/) | 3 Août 2021
+Augustin | [Encouragement à parler de l'Amour de Dieu à ses amis et à sa famille](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-3-1-af-augustine/) | 3 Août 2021
 Robert James Lees | [Mes livres sont vraiment approuvés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-5-1-jw-robert-james-lees/) | 5 Août 2021
 Jésus | [Leçon 15 : Affecter le changement dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-6-1-af-jesus/) | 6 Août 2021
 Keea Atta Kem | [Le treillis de lumière apporte la lumière au monde entier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-6-2-af-keea-atta-kem/) | 6 Août 2021
@@ -315,21 +315,21 @@ Seretta Kem | [Groupe de douze, Aussie VD et Lightbringers réunis (2021 Voix Di
 Orion | [Toutes les âmes de l’univers sont créées avec le libre arbitre de suivre la voie naturelle ou divine (Retraite Voix Directe 202I)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-23-1-af-orion/) | 23 Septembre 2021
 Augustin | [Félicitations pour la création d'un Phare de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-24-1-af-augustine/) | 24 Septembre 2021
 Seretta Kem | [Franchir une nouvelle étape (Retraite Voix Directe 2021)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-24-2-af-seretta-kem/) | 24 Septembre 2021
-Seretta Kem | [Message de clôture de la retraite DV (2021 Voix Directe II)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-25-1-af-seretta-kem/) | 25 Septembre 2021
+Seretta Kem | [Message de clôture de la retraite VD (2021 Voix Directe II)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-25-1-af-seretta-kem/) | 25 Septembre 2021
 Orion | [Message de clôture de la retraite VD (2021- Voix Directe II)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-25-2-af-orion/) | 25 Septembre 2021
 Jésus | [Message de clôture de la retraite VD (Séminaire Voix Directe 2021)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-25-3-af-jesus/) | 25 Septembre 2021
 Seretta Kem | [Dons de médiumnité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-26-1-af-seretta-kem/) | 26 Septembre 2021
 Orion | [Possibilités du Don](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-27-1-af-orion/) | 27 Septembre 2021
 George Gurdjieff | [Manifestations et expériences Sprituelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-28-1-af-george-gurdjieff/) | 28 Septembre 2021
 Jésus | [Leçon 17 : Les changements à venir dans votre monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-1-1-af-jesus/) | 1 Octobre 2021
-Orion | [Se présente à l'OCL - Ils sont ici pour aider la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-1-2-af-orion/) | 1 Octobre 2021
+Orion | [Orion se présente - Ils sont ici pour aider la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-1-2-af-orion/) | 1 Octobre 2021
 Seretta Kem | [L'intégration et le développement se poursuivent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-2-1-af-seretta-kem/) | 2 Octobre 2021
 Jésus | [Bénédictions dans l'Amour Divin (2021 Cercle de prière en ligne)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-3-1-af-jesus/) | 3 Octobre 2021
 Joseph Babinsky | [Décrit sa vie dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-4-1-jw-joseph-babinsky/) | 4 Octobre 2021
 Orion | [Orion se décrit et décrit sa planète – Jésus affirme qu’Orion est là pour nous aider sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-5-1-af-orion/) | 5 Octobre 2021
 Jésus | [Affirme qu’Orion est là pour nous aider sur Terre (Cercle de Prière en ligne)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-5-2-af-jesus/) | 5 Octobre 2021
 Orion | [Prière pour notre monde (2021 Cercle de prière en ligne)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-8-1-af-orion/) | 8 Octobre 2021
-Aron | [Nous rappelle nos engagements et ce qu'il faut faire pour surmonter nos difficultés (2021 Groupe des douze)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-9-1-af-aaron/) | 9 Octobre 2021
+Aaron | [Nous rappelle nos engagements et ce qu'il faut faire pour surmonter nos difficultés (2021 Groupe des douze)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-9-1-af-aaron/) | 9 Octobre 2021
 Jésus | [Le pouvoir de la prière (Cercle de prière en ligne)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-10-1-af-jesus/) | 10 Octobre 2021
 St Pierre | [Considérer ce que c’est que d’être transformé en Amour Divin (Cercle de prière de Gibson)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-11-1-jw-st-peter/) | 11 Octobre 2021
 Thérèse | [Chaque prière crée un sanctuaire invisible (Cercle de Prière de Gibsons)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-11-2-jw-therese/) | 11 Octobre 2021
@@ -345,7 +345,7 @@ Robert James Lees | [Le monde bénéficierait de ce que j'ai reçu](/fr-contempo
 André | [Décrit le libre arbitre - Les anges n'interviendront pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-21-1-af-andrew/) | 21 Octobre 2021
 Arthur Conan Doyle | [Il y a beaucoup de travail à faire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-22-1-jw-arthur-conan-doyle/) | 22 Octobre 2021
 Care Derby Walsh | [Encouragements à terminer les projets](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-22-2-jw-care-derby-walsh/) | 22 Octobre 2021
-St Matthieu | [Le monde a besoin de l’amour de Dieu pour survivre aux changements à venir (Cercle de prière en ligne)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-22-3-af-st-matthew/) | 22 Octobre 2021
+St Matthieu | [Le monde a besoin de l’Amour de Dieu pour survivre aux changements à venir (Cercle de prière en ligne)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-22-3-af-st-matthew/) | 22 Octobre 2021
 Orion & Jésus | [Décrit la tendresse de leur approche pour travailler avec nous (2021 Gardiens de la Lumière)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-23-1-af-orion-jesus/) | 23 Octobre 2021
 Jésus | [Les anges sont à vos côtés (2021 Cercle de prière en ligne)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-24-1-af-jesus/) | 24 Octobre 2021
 Hafiz | [Soyez la vraie vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-25-1-jw-hafiz/) | 25 Octobre 2021
@@ -372,7 +372,7 @@ Orion | [Notre développement se poursuit dans l'Amour de Dieu (Projet Orion 202
 Robert James Lees | [Une chose à la fois](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-10-1-jw-robert-james-lees/) | 10 Novembre 2021
 Orion | [Suite de Questions et Réponses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-11-1-af-orion/) | 11 Novembre 2021
 Robert James Lees | [Tous sont dignes de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-11-2-jw-robert-james-lees/) | 11 Novembre 2021
-St Matthieu | [Prier pour l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-12-1-af-st-matthew/) | 12 Novembre 2021
+St Matthieu | [Prier pour l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-12-1-af-st-matthew/) | 12 Novembre 2021
 Seretta Kem | [L'éveil de votre âme sera renforcé par l'exercice de votre foi (2021 Groupe des douze)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-13-1-af-seretta-kem/) | 13 Novembre 2021
 Orion | [L’Amour Divin est la vérité universelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-14-1-af-orion/) | 14 Novembre 2021
 Yogananda | [Le voyage du cœur est véritablement le voyage de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-15-1-jw-yogananda/) | 15 Novembre 2021

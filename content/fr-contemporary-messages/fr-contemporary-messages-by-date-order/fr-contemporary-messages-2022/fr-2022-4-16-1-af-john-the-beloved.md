@@ -23,6 +23,6 @@ Puissiez-vous trouver votre chemin, mes bien-aimés. Puissiez-vous trouver votre
 
 Que Dieu vous bénisse, mes bien-aimés, que Dieu vous bénisse profondément dans son Amour qui est maintenant présent. Buvez profondément de ces eaux vives, buvez profondément, et sachez que l’âme a soif et que cette soif n’est jamais étanchée, elle sera toujours avec vous. Cherchez à boire l’Essence de Dieu et elle vous sera donnée. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse. Je suis Jean, mon amour est avec vous. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

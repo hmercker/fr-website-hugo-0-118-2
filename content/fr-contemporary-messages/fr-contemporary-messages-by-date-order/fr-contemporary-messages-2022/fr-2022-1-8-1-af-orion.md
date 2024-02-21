@@ -41,6 +41,6 @@ Nous continuons à progresser vers la lumière. Nous travaillons tous en tant qu
 
 Que Dieu vous bénisse, mes amis, je suis Orion. Mon amour pour vous est grand. Je vous remercie d’avoir écouté mon petit discours aujourd’hui pour vous aider sur votre chemin vers une plus grande lumière. Que Dieu vous bénisse, mes amis. Que Son Amour continue à se déverser dans votre âme en si grande abondance que vous soyez vraiment et complètement guéris et éveillés et que vous progressiez vers l’harmonisation avec le grand Créateur de l’Univers. Que Dieu vous bénisse. Que Dieu vous bénisse, mes amis. Orion vous aime.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

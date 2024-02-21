@@ -83,6 +83,6 @@ Que les dons de Dieu vous touchent profondément, âmes bien-aimées. Puissiez-v
 
 Je vous remercie de m'avoir écouté aujourd'hui, pour présenter une autre leçon au monde. Puisse le monde s'éveiller à la réalité de Dieu et à tout ce que cela implique, car c'est et ce sera la guérison du monde, le changement de conscience, l'éveil de l'âme. Que Dieu vous bénisse, mes bien-aimés. Mon amour est avec vous. Je suis avec vous. Dieu est avec vous. Que Dieu vous bénisse. Je suis votre frère et ami, Jésus. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

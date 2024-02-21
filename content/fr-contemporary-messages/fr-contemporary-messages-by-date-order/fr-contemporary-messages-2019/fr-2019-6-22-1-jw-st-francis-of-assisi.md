@@ -1,13 +1,13 @@
 ---
-title: "Lorsque vous voyez avec vote âme"
+title: "Lorsque vous voyez avec votre âme"
 menu_title: ""
-description: "Lorsque vous voyez avec vote âme"
+description: "Lorsque vous voyez avec votre âme"
 date: 2022-06-01 06:00:01+00:753
 draft: False
 hidden: True
 weight:
 ---
-### Lorsque vous voyez avec vote âme
+### Lorsque vous voyez avec votre âme
 
 St François d'Assise - reçu par Jimbeau Walsh le 22 Juin 2019, Island of Guernsey, UK.
 

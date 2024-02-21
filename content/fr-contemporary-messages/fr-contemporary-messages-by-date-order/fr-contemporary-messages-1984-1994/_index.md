@@ -28,9 +28,9 @@ Jésus | [Le progrès de l'humanité](/fr-contemporary-messages/fr-contemporary-
 Jésus | [Son église sur la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-5-13-1-dl-jesus/) | 13 Mai 1987
 Jésus | [La loi de l'activation (Première partie)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-5-20-1-dl-jesus/) | 20 Mai 1987
 Jésus | [La loi de l'activation (Deuxième partie)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-5-28-1-dl-jesus/) | 28 Mai 1987
-Jésus | [La loi de l'activation (3ème partie)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-6-4-1-dl-jesus/) | 4 Juin 1987
+Jésus | [La loi de l'activation (Troisième partie)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-6-4-1-dl-jesus/) | 4 Juin 1987
 Jésus | [Notre ministère tout au long de la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-6-11-1-dl-jesus/) | 11 Juin 1987
-Jésus | [Sur la loi du progrès, du hangemeny et de la Croissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-6-17-1-dl-jesus/) | 17 Juin 1987
+Jésus | [Sur la loi du progrès, du changement et de la Croissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-6-17-1-dl-jesus/) | 17 Juin 1987
 Jésus | [L'influence des mauavis esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-6-25-1-dl-jesus/) | 25 Juin 1987
 Jésus | [Sur la guérison, la loi changemenyt et la croissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-7-2-1-dl-jesus/) | 2 Juillet 1987
 Jésus | [Le grand réseau de communication.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-7-9-1-dl-jesus/) | 9 Juillet 1987

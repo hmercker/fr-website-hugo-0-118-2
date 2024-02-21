@@ -1,4 +1,4 @@
-««---
+---
 title: "Les Anges soutiennent notre choix pour la Voix Directe"
 menu_title: ""
 description: "Les Anges soutiennent notre choix pour la Voix Directe"

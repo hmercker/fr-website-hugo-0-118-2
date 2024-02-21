@@ -19,6 +19,6 @@ Nous sommes proches, âmes bien-aimées, et nous nous approcherons de plus en pl
 
 Que Dieu vous bénisse sur ce chemin. Puissiez-vous apprendre à connaître le véritable moi qui réside en vous, votre âme qui aspire à un nouvel éveil, à une nouvelle habilitation, à une nouvelle transformation, à de nouvelles bénédictions. Réveillez-vous, mes bien-aimés, réveillez-vous dans l’amour. Nous sommes toujours avec vous, nous vous aimons toujours. Je suis André. Que Dieu vous bénisse profondément dans vos âmes. Portez la lumière de la vérité et soyez de beaux et clairs canaux d’amour. Que Dieu vous bénisse. Que Dieu vous bénisse tous.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

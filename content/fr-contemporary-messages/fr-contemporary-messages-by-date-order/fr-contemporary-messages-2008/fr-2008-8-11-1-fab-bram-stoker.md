@@ -9,9 +9,9 @@ weight:
 ---
 ### L'auteur de Dracula a changé ses croyances
 
-Bram Stoker <sup id="a1">[1](#f1)</sup> - reçu par FAB le 11 Août 2008, Santa Cruz, Californie, USA.
+Bram Stoker - reçu par FAB le 11 Août 2008, Santa Cruz, Californie, USA.
 
-Je suis Bram Stoker.
+Je suis Bram Stoker.<sup id="a1">[1](#f1)</sup>
 
 Je suis très heureux que vous ayez pris plaisir à relire mon roman Dracula. Le temps et l'expérience vous ont apporté plus de connaissances et de perspicacité, de sorte que votre appréciation de mon œuvre a été plus grande et plus profonde cette fois-ci.
 

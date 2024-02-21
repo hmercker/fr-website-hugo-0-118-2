@@ -9,7 +9,7 @@ weight:
 ---
 ### Les expériences d'un Kennedy en esprit - 2
 
-John F Kennedy - reçu par FAB le 17 Octobre 2008, Santa Cruz, Californie, USA.
+John F Kennedy Jr - reçu par FAB le 17 Octobre 2008, Santa Cruz, Californie, USA.
 
 Je suis ici, John Kennedy Jr.
 

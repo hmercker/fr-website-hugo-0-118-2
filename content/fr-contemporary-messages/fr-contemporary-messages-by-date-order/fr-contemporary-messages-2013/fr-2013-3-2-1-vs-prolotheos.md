@@ -1,13 +1,13 @@
 ---
-title: "Evolution"
+title: "Évolution"
 menu_title: ""
-description: "Evolution"
+description: "Évolution"
 date: 2022-06-01 06:00:01+00:33
 draft: False
 hidden: True
 weight:
 ---
-### Evolution
+### Évolution
 
 **Prolotheos** - reçu par Valdir Soares <sup id="a1">[1](#f1)</sup> le 2 Mars 2013
 
@@ -37,7 +37,6 @@ Ophélius | [La couleur dans la mosaïque de la vie](/fr-contemporary-messages/f
 Soigneur | [Efficacité de la planète](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-11-18-1-gmb-a-carer/) | 18 Novembre 2011
 Ajusteur de Pensée | [Méditer et prier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-7-31-1-oscar-thought-adjuster/) | 31 Juillet 2012
 Orion | [Création et évolution revisitées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-8-6-1-gmb-orion/) | 6 Août 2012
-Prolotheos | [Evolution](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-2-1-vs-prolotheos/) | 2 Mars 2013
 Le bien-aimé | [Votre plan de vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-5-11-2-lytske-the-beloved/) | 11 Mai 2016
 Jésus | [A propos de la Vérité Absolue](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-14-2-bettina-jesus/) | 14 Septembre 2016
 Le cercle des sept | [Les souvenirs dans la vie du sommeil de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-2-12-2-cm-the-circle-of-seven/) | 12 Février 2017

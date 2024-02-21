@@ -23,7 +23,10 @@ Je veux que tu t’assoies chaque matin et que tu cherches les trésors au fond 
 
 Aime-toi toujours en premier. Développe cette capacité. Je sais que tu aspires à servir l’humanité et ton heure viendra, mais tu dois d’abord t’aimer toi-même. Retrouve ta joie et ton sens de l’émerveillement. Développe cela et quand tu auras assez d’amour et de confiance, le reste suivra. Je te montrerai ton chemin et tu sauras quand ton heure viendra. Jusque-là, aime et fais confiance.
 
-Ton Père dans les Cieux.
+Ton Père dans les Cieux.<sup id="a1">[1](#f1)</sup>
+<small>
+
+1. <large id="f1"> L'ensembe des messages communiqués par le Père Céleste  est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-13-fr-the-heavenly-father/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
 

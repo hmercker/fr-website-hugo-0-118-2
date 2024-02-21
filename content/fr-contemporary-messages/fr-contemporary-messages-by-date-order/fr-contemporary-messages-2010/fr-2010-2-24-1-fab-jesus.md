@@ -38,7 +38,6 @@ Permettez-moi donc de le reformuler autrement pour plus de clarté. Notre but av
 ---|---|---
 Jésus | [Sur l'abondance matérielle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-23-2-fab-jesus/) | 23 Février 2010
 Jésus | [Sur l'abondance matérielle - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-23-3-fab-jesus/) | 23 Février 2010
-Jésus | [Sur l'abondance matérielle - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-24-1-fab-jesus/) | 24 Février 2010
 Jésus | [Sur l'abondance matérielle - 4](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-24-2-fab-jesus/) | 24 Février 2010
 Jésus | [Sur l'abondance matérielle - 5](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-24-3-fab-jesus/) | 24 Février 2010
 Jésus | [Sur l'abondance matérielle - 6](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-24-4-fab-jesus/) | 24 Février 2010

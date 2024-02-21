@@ -44,7 +44,7 @@ Nous ne sommes pas revenus à Capharnaüm, mais Jésus s’est dirigé vers le s
 
 Le lendemain, nous sommes arrivés à un village appelé Naïm, près du Mont Thabor, en forme de cône qui s’est élevé brusquement des plaines, s’imposant majestueusement vers le ciel.
 
-La Bible nous dit : [Luc 07:11-16](https://saintebible.com/luke/7-11.htm)
+La Bible nous dit : [Luc 7:11-16](https://saintebible.com/luke/7-11.htm)
 
 > Le jour suivant, Jésus alla dans une ville appelée Nein (ou Naïm); ses disciples et une grande foule faisaient route avec lui. Lorsqu’il fut près de la porte de la ville, voici, on portait en terre un mort, fils unique de sa mère, qui était veuve; et il y avait avec elle beaucoup de gens de la ville. Le Seigneur, l’ayant vue, éprouva de la compassion pour elle, et lui dit: Ne pleure pas !… Il s’approcha, et toucha le cercueil. Ceux qui le portaient s’arrêtèrent. *« Jeune homme »*, a-t-il dit, *« Je te dis, lève-toi ! »* Le mort s’assit, et se mit à parler. Jésus le rendit à sa mère.…
 

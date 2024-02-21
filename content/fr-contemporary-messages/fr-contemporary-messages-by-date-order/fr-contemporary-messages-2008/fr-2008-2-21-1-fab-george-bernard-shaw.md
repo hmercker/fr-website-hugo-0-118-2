@@ -1,17 +1,17 @@
 ---
-title: "Shaw a réexaminé sa vie sur Terre"
+title: "George Bernard Shaw a réexaminé sa vie sur Terre"
 menu_title: ""
-description: "Shaw a réexaminé sa vie sur Terre"
+description: "George Bernard Shaw a réexaminé sa vie sur Terre"
 date: 2022-06-01 06:00:01+00:24
 draft: False
 hidden: True
 weight:
 ---
-### Shaw a réexaminé sa vie sur Terre
+### George Bernard Shaw a réexaminé sa vie sur Terre
 
-George Bernard Shaw <sup id="a1">[1](#f1)</sup> - reçu par FAB le 21 Février 2008, Santa Cruz, Californie, USA.
+George Bernard Shaw - reçu par FAB le 21 Février 2008, Santa Cruz, Californie, USA.
 
-Je suis George Bernard Shaw.
+Je suis George Bernard Shaw.<sup id="a1">[1](#f1)</sup> 
 
 Félicitations ! Vous avez survécu à mon livre et à mon manuel. [Le médium venait de lire sa pièce, L'homme et le surhomme, et le "Manuel du révolutionnaire" qui l'accompagnait]. Vous êtes entré dans un monde étranger au vôtre.
 
@@ -23,12 +23,12 @@ Aussi, lors de ma transition vers le monde spirituel, cela fut très difficile p
 
 Ne vous laissez donc pas détourner de votre optimisme naturel, que je vois que vous possédez. Allez de l'avant dans la foi, en sachant que ces problèmes dans votre pays et dans le monde, qui semblent maintenant insurmontables, ne le sont vraiment pas. Il est ironique que ce soit moi qui vous donne ce conseil.
 
-Que Dieu vous bénisse.
-
-**Note :** Georges Bernard Shaw avait [communiqué précéemment](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-8-13-1-fab-george-bernard-shaw/), à travers le même médium.
+Que Dieu vous bénisse.<sup id="a2">[2](#f2)</sup> 
 <small>
 
 1. <large id="f1"> **George Bernard Shaw** (26 Juillet 1856 - 2 Novembre 1950), connu à son insistance simplement comme Bernard Shaw, était un dramaturge, critique et polémiste Irlandais dont l'influence sur le théâtre, la culture et la politique occidentale s'est étendue des années 1880 à sa mort et au-delà. Il a écrit plus de soixante pièces de théâtre, dont des œuvres majeures telles que Man and Superman (1902), Pygmalion (1912) et Saint Joan (1923). Avec une gamme incorporant à la fois la satire contemporaine et l'allégorie historique, Shaw est devenu le principal dramaturge de sa génération, et a reçu en 1925 le prix Nobel de littérature. (Source : Wikipedia).[↩](#a1)
+
+2. <large id="f2"> Georges Bernard Shaw avait [communiqué précéemment](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-8-13-1-fab-george-bernard-shaw/), à travers le même médium.[↩](#a2)
 
 ### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
 

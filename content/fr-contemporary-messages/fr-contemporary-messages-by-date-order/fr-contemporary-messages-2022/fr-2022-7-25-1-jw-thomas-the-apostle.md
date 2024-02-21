@@ -21,6 +21,6 @@ Vous ne connaissez peut-être que trop bien l’histoire de Thomas le sceptique 
 
 Je remercie mon frère d’avoir accepté de prendre ce message et de comprendre que je ne souhaite pas juger mais clarifier une grande vérité. Que l’amour de Dieu remplisse chacun, éveille chacun, et transforme chacun. Je suis votre frère du Royaume céleste. Je suis Thomas l’Apôtre. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

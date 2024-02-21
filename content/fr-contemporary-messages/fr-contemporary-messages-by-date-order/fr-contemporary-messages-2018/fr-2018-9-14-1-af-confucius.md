@@ -18,7 +18,7 @@ Nous serons avec vous, mes bien-aimés. Continuez à prier pour le manteau de pr
 Rappelez-vous, nous sommes toujours là pour vous soutenir et vous épauler, mes bien-aimés. Gardez-nous avec vous dans votre conscience et vos prières et vous serez protégés. Que Dieu vous bénisse, mes bien-aimés, que Dieu vous bénisse. Confucius vous aime. Vous êtes mes petits oiseaux et je vous garde dans mon nid d’amour, mes bien-aimés.<sup id="a2">[2](#f2)</sup>
 <small>
 
-1. <large id="f1"> C’était à l’occasion de la conférence A.R.E.I. 2018. L' A.R.E.I est l'Institut de recherche et d'éducation sur la vie après la mort.[↩](#a1)
+1. <large id="f1"> C’était à l’occasion de la conférence A.R.E.I. 2018. [L' A.R.E.I](https://fr.search.yahoo.com/search?fr=mcafee&type=E210FR0G0&p=Afterlife+Research+and+Education+Institute) est l'Institut de recherche et d'éducation sur la vie après la mort.[↩](#a1)
 
 2. <large id="f2"> Les différents messages communiqués  par Confucius sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a2)
 

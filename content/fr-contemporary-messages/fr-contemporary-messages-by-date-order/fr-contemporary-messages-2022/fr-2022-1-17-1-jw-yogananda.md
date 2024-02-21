@@ -19,6 +19,6 @@ L’Univers est vaste mes amis et bien que vous ne puissiez pas percevoir son im
 
 Je suis votre frère et votre ami éternel. Je suis Yogananda. Allez en paix.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

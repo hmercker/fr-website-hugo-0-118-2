@@ -25,6 +25,6 @@ Oui, nous sommes sur la route, mes amis bien-aimés, nous sommes sur la route. N
 
 Que Dieu vous bénisse, mes amis. Je suis votre professeur Salyards. Je suis avec vous dans l’amour et l’encouragement, dans la fraternité et la sororité, et dans tout ce qui est de Dieu. Que Dieu vous bénisse, chers amis. Mon amour vous accompagne toujours. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

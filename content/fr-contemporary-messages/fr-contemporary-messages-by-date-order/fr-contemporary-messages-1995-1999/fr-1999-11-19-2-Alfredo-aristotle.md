@@ -26,7 +26,7 @@ Ces mêmes esprits influencent alors les hommes quant à leurs propres croyances
 Avec l’amour de votre frère Aristote.
 <small>
 
-1. <large id="f2"> Aristote s'est également exprimé dans un autre message communiqué [le 7 Mai 2009](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-7-1-fab-aristotle/)[↩](#a1)
+1. <large id="f2"> Aristote s'est également exprimé ultérieurement dans un message communiqué [le 7 Mai 2009](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-7-1-fab-aristotle/)[↩](#a1)
 
 ### [**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
 

@@ -28,7 +28,7 @@ Que Dieu continue à vous bénir, mes bien-aimés. Puissiez-vous continuer à ac
 Que Dieu vous bénisse, mes bien-aimés. Je suis Seretta Kem et je suis avec vous dans vos efforts comme le sont beaucoup de beaux anges qui marchent avec vous. Que Dieu vous bénisse. Que Dieu vous bénisse.
 <small>
 
-1. <large id="f1"> L' A.R.E.I est l'Institut de recherche et d'éducation sur la vie après la mort.[↩](#a1)
+1. <large id="f1"> [L' A.R.E.I](https://fr.search.yahoo.com/search?fr=mcafee&type=E210FR0G0&p=Afterlife+Research+and+Education+Institute) est l'Institut de recherche et d'éducation sur la vie après la mort.[↩](#a1)
 
 ### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
 

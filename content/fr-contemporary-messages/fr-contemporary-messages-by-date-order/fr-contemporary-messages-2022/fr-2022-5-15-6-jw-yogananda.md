@@ -19,6 +19,6 @@ La conscience de Dieu, et le désir de ne faire qu’un, apportent la transforma
 
 Que chaque âme soit bénie dans l’Amour de Dieu. Je suis votre frère et ami, maintenant et toujours. Je suis Yogananda.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

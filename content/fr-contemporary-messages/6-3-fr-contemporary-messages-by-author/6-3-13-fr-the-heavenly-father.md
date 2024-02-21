@@ -13,7 +13,9 @@ La dernière catégorie de messages correspond à une série de messages communi
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
+ | <p align="center">**Annéee 2004**</p> |
 Père | [Vos tentatives pour vous adresser à moi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-3-6-1-pjr-father/) | 6 Mars 2004
+ | <p align="center">**Annéee 2012**</p> |
 Père | [Découvre ta beauté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-3-3-1-cog-father/) | 3 Mars 2012
 Père | [La Loi de l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-3-6-1-cog-father/) | 6 Mars 2012
 Père | [Faire confiance au cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-3-21-1-cog-father/) | 21 Mars 2012
@@ -61,6 +63,7 @@ Père | [Aimer la création de Dieu](/fr-contemporary-messages/fr-contemporary-m
 Père | [Le Monde de l’Illusion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-2-1-cog-father/) | 2 Décembre 2012
 Père | [Retrouve ton innocence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-11-1-cog-father/) | 11 Décembre 2012
 Père | [L'amour imprègne le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-23-1-hm-father/) | 23 Décembre 2012
+ | <p align="center">**Annéee 2013**</p> |
 Père | [Reviens vers moi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-6-1-cog-father/) | 6 Janvier 2013
 Père | [L'Amour du Père](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-7-1-hm-father/) | 7 Janvier 2013
 Père | [Connaître la vraie liberté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-8-1-cog-father/) | 8 Janvier 2013
@@ -95,5 +98,7 @@ Père | [Laissez tes larmes couler comme des diamants](/fr-contemporary-messages
 Père | [Mon amour va guérir tes blessures](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-8-7-1-cog-father/) | 7 Août 2013
 Père | [Je t'ai entendu et j'ai répondu à ton appel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-8-8-1-cog-father/) | 8 Août 2013
 Père | [Laissez Mon Amour être votre fondement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-9-3-1-cog-father/) | 3 Septembre 2013
+ | <p align="center">**Annéee 2014**</p> |
 Père | [L’amour que je suis est l’amour que tu es](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-7-9-1-cog-father/) | 9 Juillet 2014
+ | <p align="center">**Annéee 2020**</p> |
 Père | [Échange de l'âme avec "L'Unique"](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-3-2-cog-father/) | 3 Décembre 2020

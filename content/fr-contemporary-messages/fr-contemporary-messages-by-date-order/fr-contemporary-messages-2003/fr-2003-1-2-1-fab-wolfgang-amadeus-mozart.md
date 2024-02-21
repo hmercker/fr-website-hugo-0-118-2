@@ -31,9 +31,11 @@ Merci beaucoup pour la réception de ce message. Cela a beaucoup compté pour mo
 
 Puissiez-vous être heureux dans les prochains jours.
 
-Amour, Mozart.
+Amour, Mozart.<sup id="a1">[1](#f1)</sup>
+<small>
 
-**Note :** [Un message plus récent a été reçu de la part de Mozart](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-17-1-fab-wolfgang-amadeus-mozart/)
+1. <large id="f1"> [Un message plus récent a été reçu de la part de Mozart](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-17-1-fab-wolfgang-amadeus-mozart/) [↩](#a1)
+
 
 ### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
 

@@ -26,7 +26,7 @@ Vous avez maintenant dans notre pays ceux qui ont appris leur leçon, de sorte q
 ---|---|---
 Martin Luther King jr | [La Terre Promise](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-12-1-fab-martin-luther-king-jr/) | 12 Janvier 2007
 Martin Luther King jr | [Encouragements de Martin Luther King pour Pâques](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-4-4-1-fab-martin-luther-king-jr/) | 4 Avril 2010
-Martin Luther King | [L'avenir s'annonce radieux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-15-1-af-martin-luther-king/) | 15 Décembre 2017
+Martin Luther King jr| [L'avenir s'annonce radieux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-15-1-af-martin-luther-king/) | 15 Décembre 2017
 Martin Luther King jr | [Gardez les yeux sur le prix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-17-2-jw-martin-luther-king-jr/) | 17 Août 2021
 
 

@@ -67,6 +67,6 @@ Puissiez-vous parvenir à comprendre véritablement votre propre conscience et v
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre frère et ami, Jésus, Maître du Royaume Céleste et votre humble serviteur. Que Dieu vous bénisse. Que Son Amour continue à couler dans vos âmes et à vous réveiller, comme il se doit. Que Dieu vous bénisse, mes bien-aimés. Je vous aime.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

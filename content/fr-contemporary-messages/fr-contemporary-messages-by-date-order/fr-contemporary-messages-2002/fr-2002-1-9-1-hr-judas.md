@@ -97,7 +97,7 @@ Bientôt après, [il avait déjà saisi le concept](/fr-james-padgett-messages/f
 
 > Ne soyez pas découragés ou déprimés car l’Esprit Saint comblera bientôt votre cœur avec l’Amour du Père…
 
-L’idée de punition pour les méchants a également commencé à [subtilement changer](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-29-1-jep-jesus/) :
+L’idée de punition pour les méchants a également commencé à [subtilement changé](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-29-1-jep-jesus/) :
 
 > L’Amour de Dieu tend la main à chaque homme afin que le plus vil soit l’objet de Ses soins.
 

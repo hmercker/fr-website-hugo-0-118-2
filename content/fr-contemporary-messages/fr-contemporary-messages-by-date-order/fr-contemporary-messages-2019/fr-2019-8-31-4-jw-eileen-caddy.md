@@ -22,7 +22,7 @@ Alors oui, nous avions un monde physique à gérer. Nous avons construit des cho
 Merci de m’avoir permis de venir et de partager avec vous. Je suis ravie d’être dans ce Portail de Lumière <sup id="a2">[2](#f2)</sup> avec tant de merveilleuses âmes. Je vous remercie. Que Dieu vous bénisse tous. Mon amour et mes bénédictions à tous. Je suis votre sœur et amie dans l’Amour de Dieu, Eileen Caddy. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> Son autobiographie « Flight into Freedom » est une fabuleuse explication à la fois de son voyage et de sa guidance, aussi étonnante qu’elle ait pu être. Je recommande ce livre à tout chercheur sérieux. (Geoff Cutler).[↩](#a1)
+1. <large id=”f1”> Son autobiographie « Flight into Freedom (Vol vers la liberté) » est une fabuleuse explication à la fois de son voyage et des conseils reçus, aussi étonnants qu’ils aient pu être. Je recommande ce livre à tout chercheur sérieux. (Geoff Cutler).[↩](#a1)
 
 2. <large id=”f2”> Il y avait un portail de lumière à Findhorn, et il existe encore aujourd’hui.[↩](#a2)
 

@@ -7,9 +7,9 @@ draft: False
 hidden: True
 weight:
 ---
-### La bénédiction transformatrice de l'amour de Dieu
+### La bénédiction transformatrice de l'Amour de Dieu
 
-Seretta Kem - reçu par Al Fike le 1 Octobre 2018, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 1<sup>er</sup> Octobre 2018, Gibsons, Colombie-Britannique, Canada.
 
 Ahh nous sommes proches de commencer, n’est-ce pas ? Je souhaite commenter la déclaration faite par cet instrument concernant les manifestations ectoplasmiques. Avec le niveau de manifestations dans lequel la chère âme qui a donné la conférence est engagée, ces aspects et éléments sont nécessaires comme il l’a suggéré. Ces individus, ce groupe qui a travaillé sur ce niveau de manifestation pendant de nombreuses années est tout à fait conscient de ce qui est requis. Pour vous, mes bien-aimés, vous vous lancez dans une aventure différente et ces aspects de l’information et les éléments requis pour cette forme de manifestation qui a été discutée ne sont pas pertinents pour cet effort.
 

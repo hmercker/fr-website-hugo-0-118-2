@@ -23,10 +23,12 @@ Je t’aime et ce que nous sommes sur le point de mettre au monde sera facile et
 
 Aime-toi complètement. Aime-toi comme je t’aime. Regarde-toi à travers mes yeux. Tu es magnifique. Tu es la plus merveilleuse de toutes mes créations. Tu es celle que j’adore. T’aimer toi-même est ton plus beau cadeau pour Moi.
 
-Commençons, ton Père.
+Commençons, ton Père.<sup id="a1">[1](#f1)</sup>
 <small>
 
 1. <large id="f1"> Bien que ce message soit noté comme étant personnel, le même message a été délivré à tous ceux qui ont participé à la retraite de l'Amour Divin  qui s'est tenue à Vancouver en Juillet 2012. Le message était que le moment est venu. C'était Le temps d'aller de l'avant et de tendre la main au monde. [↩](#a1)
+
+2. <large id="f2"> L'ensembe des messages communiqués par le Père Céleste  est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-13-fr-the-heavenly-father/)[↩](#a2)
 
 ### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
 

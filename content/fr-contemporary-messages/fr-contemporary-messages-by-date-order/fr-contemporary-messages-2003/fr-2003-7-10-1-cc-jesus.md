@@ -21,4 +21,8 @@ Vous devez savoir que vos âmes ont le désir le plus grand et le plus pur de ce
 
 Plus vous recevrez l’Amour de Dieu, plus les changements qui se produiront seront nombreux, et vous n’aurez qu’à les accueillir et savoir que c’est en réponse à vos vrais désirs, qui s’accordent avec la Volonté du Père. Mettez-vous en rapport avec l’Amour du Père et trouvez ces changements qui causent de l’inconfort, se transformant en une chose désirée et embrassée. Je suis heureux d’avoir partagé mes pensées avec vous et j’attends l’occasion de revenir. Je vous laisse avec mon amour et je prie pour que l’amour du Père vous remplisse en abondance.
 
-[Liste des Messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003)
+### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+
+

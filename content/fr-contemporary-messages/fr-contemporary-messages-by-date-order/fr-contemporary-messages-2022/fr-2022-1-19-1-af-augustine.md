@@ -33,6 +33,6 @@ Il en sera ainsi, vous avancerez en effet, âmes aimées et belles. Que vous ava
 
 Que Dieu vous bénisse, âmes bien-aimées. Qu'il vous garde dans son amour. Gardez-vous dans sa proximité. Maintenez-vous dans la lumière et le flux de Sa volonté. Que Dieu vous bénisse, bien-aimés, je suis votre enseignant, Augustin, et vous savez que je vous aime profondément, chacun de vous, belles âmes, belles âmes. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

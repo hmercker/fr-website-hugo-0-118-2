@@ -1,4 +1,4 @@
----
+ Oc---
 title: "Le 19ème mille"
 menu_title: ""
 description: "Le 19ème mille"
@@ -11,7 +11,7 @@ weight:
 
 Keea Atta Kem - reçu par Al Fike le 24 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
-Que Dieu vous bénisse, mes bien-aimés. Je suis Keea-Atta-Kem. Oui j'ai écouté votre discussion sur l'énergie et notre bien-aimée Fleur de Lotus a très bien exprimé les concepts dans [son message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-29-2-af-lotus-blossom/). À bien des égards, c'est ce que nous traitons dans votre groupe et votre cercle pour la voix directe. Couleur et énergie, âmes bien-aimées, couleur et énergie, l'une reflète l'autre. Et comme cela a été dit, il y a une myriade d'énergies dans chaque corps humain, esprit et âme. Toutes interagissent les unes avec les autres avec une telle complexité et subtilité, et c'est dans ces interactions, ces manifestations d'énergies en vous que nous devons travailler pour apporter l'harmonie à ces énergies.
+Que Dieu vous bénisse, mes bien-aimés. Je suis Keea-Atta-Kem. Oui j'ai écouté votre discussion sur l'énergie et notre bien-aimée Fleur de Lotus a très bien exprimé les concepts dans son message [du 29 Octobre 2017](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-29-2-af-lotus-blossom/). À bien des égards, c'est ce que nous traitons dans votre groupe et votre cercle pour la voix directe. Couleur et énergie, âmes bien-aimées, couleur et énergie, l'une reflète l'autre. Et comme cela a été dit, il y a une myriade d'énergies dans chaque corps humain, esprit et âme. Toutes interagissent les unes avec les autres avec une telle complexité et subtilité, et c'est dans ces interactions, ces manifestations d'énergies en vous que nous devons travailler pour apporter l'harmonie à ces énergies.
 
 Pour apporter une vibration dans ces énergies qui s'harmoniserait et vibrerait en synchronicité. C'est très difficile, mes bien-aimés, que les longueurs d'onde d'énergie, les longueurs d'onde de couleur se fondent ensemble pour créer une vague harmonieuse parmi vous. De cette façon, l'énergie, la vibration, la longueur d'onde est augmentée. L'amplitude des ondes est raccourcie et la manifestation se produit grâce à cette harmonisation des énergies parmi vous. C'est une question très complexe en effet mes amis, pour chacun d'entre vous il y a tellement d'aspects, de systèmes énergétiques en vous qui sont individuels par nature, en termes de leurs vibrations, amplitudes et couleurs. A bien des égards, c'est comme une pelote de ficelle nouée qui doit être séparée et rassemblée de manière à ce que tout s'assemble sans obstruction et sans causer de disharmonie.
 

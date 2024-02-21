@@ -9,7 +9,7 @@ weight:
 ---
 ### L'éveil de l'âme, une nouvelle naissance
 
-Keea Atta Kem - reçu par Al Fike le 1 Octobre 2018, Gibsons, Colombie-Britannique, Canada.
+Keea Atta Kem - reçu par Al Fike le 1<sup>er</sup> Octobre 2018, Gibsons, Colombie-Britannique, Canada.
 
 Je suis heureux que vous ayez eu cette prière afin que je puisse parler. Cet instrument n’a pas besoin de prendre la responsabilité de l’absence de ma présence plus tôt, car je n’étais pas présent. J’ai été appelé au loin par une chère âme de votre monde qui me demandait de l’assister. Cela se produit parfois, mes bien-aimés, car nous avons beaucoup de personnes que nous assistons dans votre monde et dans le monde de l’esprit. Parfois, nous ne pouvons pas être avec vous. Il y a toujours des anges avec vous, bien-aimés, donc vous ne devez pas vous inquiéter d’être abandonnés à tout moment, car vous ne l’êtes pas.
 

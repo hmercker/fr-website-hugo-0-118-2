@@ -9,7 +9,7 @@ weight:
 ---
 ### Avancer dans la foi
 
-St Luc - reçu par Jimbeau Walsh le 1 Novembre 2021, Punalu’u, Oahu, Hawaii, USA.
+St Luc - reçu par Jimbeau Walsh le 1<sup>er</sup> Novembre 2021, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, votre frère en Christ, Luc. Lorsque vous aimez vraiment un autre, cela le stimule, car vous rayonnez l’amour véritable. Et pour ceux qui sont ouverts, ils ressentent votre amour. Cela leur donne de l’espoir, cela les soutient, les réconforte.
 

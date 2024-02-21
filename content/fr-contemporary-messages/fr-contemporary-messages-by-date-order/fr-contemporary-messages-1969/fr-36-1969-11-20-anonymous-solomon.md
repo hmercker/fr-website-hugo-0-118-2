@@ -9,7 +9,7 @@ weight:
 ---
 ### Laissez les esprits de votre âme prendre le dessus (Salomon de l'Ancien Testament)
 
-Solomon - reçu le 20 Novembre 1969, Vancouver, Colombie-Britannique, Canada.
+Salomon - reçu le 20 Novembre 1969, Vancouver, Colombie-Britannique, Canada.
 
 Je veux être avec vous ce soir. Je veux continuer le mélange d'amour et le mélange de vos personnalités, le mélange de vos âmes, où nous pouvons permettre à notre mental de rester en sommeil lorsque le mental de l'âme est libéré. C'est la condition que je voudrais avoir parmi vous. Vous, de ce groupe, pour permettre à vos esprits de céder, vous devez avoir beaucoup d'amour les uns pour les autres, l'amour qui est construit sur la confiance et la compréhension mutuelle et cela prend une période de temps pour vous de la Terre. Nous, les esprits, pouvons voir en un instant la condition de l'âme avec laquelle nous entrons en contact. Certains d'entre vous ici n'ont pas l'expérience nécessaire pour le faire et donc les conditions doivent être construites en vous progressivement. Une condition d'amour pour que nous puissions renforcer cet amour avec l'Amour de Dieu et la Paix et la Puissance de Dieu. 
 

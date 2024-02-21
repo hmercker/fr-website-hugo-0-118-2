@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Le yoga le plus important est d'être ouvert à l'amour de Dieu
+### Le yoga le plus important est d'être ouvert à l'Amour de Dieu
 
 Yogananda - reçu par Jimbeau Walsh le 6 Août 2019, Monroeville, PA, USA.
 

@@ -29,7 +29,7 @@ Que Dieu vous bénisse dans ce voyage. Que vous continuiez à suivre la rivière
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Nuage Blanc | [Vous devez chercher et vous préparer à recevoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-72-1969-anonymous-white-cloud/) |   1969
-Nuage Blanc et Eau Christalline | [Nuage blanc, eau cristalline](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-111-1969-anonymous-white-cloud-crystal-water/) |   1969
+Nuage Blanc et Eau de Chrystal | [Nuage blanc, eau de Chystal](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-111-1969-anonymous-white-cloud-crystal-water/) |   1969
 Nuage Blanc | [Aidez les autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-114-1969-anonymous-white-cloud/) |   1969
 Nuage Blanc | [L'importance de la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-124-1969-anonymous-white-cloud/) |   1969
 Nuage Blanc | [Apprenez à lancer des pensées d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-143-1970-anonymous-white-cloud/) |   1970

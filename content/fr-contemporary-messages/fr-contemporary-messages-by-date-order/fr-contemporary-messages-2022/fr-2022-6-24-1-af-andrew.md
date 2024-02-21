@@ -19,6 +19,6 @@ Dieu vous demande de faire partie de son grand effort, de ce plan pour éveiller
 
 Âmes bien-aimées, vous êtes bénies et vous êtes aimées. Sachez que nous vous aimons, que nous vous aimons et que nous sommes les canaux des Bénédictions de Dieu envers vous. Dieu vous bénit. Je suis André et je vous aime. Que Dieu vous bénisse, mes bien-aimés, que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

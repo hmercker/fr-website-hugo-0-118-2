@@ -1,13 +1,13 @@
 ---
-title: "Vous êtes digne de Son amour"
+title: "Vous êtes digne de Son Amour"
 menu_title: ""
-description: "Vous êtes digne de Son amour"
+description: "Vous êtes digne de Son Amour"
 date: 2022-06-01 06:00:01+00:911
 draft: False
 hidden: True
 weight:
 ---
-### Vous êtes digne de Son amour
+### Vous êtes digne de Son Amour
 
 Yogananda - reçu par Jimbeau Walsh le 16 Novembre 2019, Ancient Gardens, Eudlo, QLD, Australie.
 

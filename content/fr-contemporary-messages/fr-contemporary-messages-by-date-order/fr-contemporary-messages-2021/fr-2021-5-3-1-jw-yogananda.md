@@ -19,7 +19,7 @@ Ne vous préoccupez pas des visions et des manifestations, car certains les auro
 
 Celui à travers qui je parle, ne souhaite pas toujours utiliser des mots et je vois qu’il y en a beaucoup ici qui ressentent la même chose à cause du profond désir de vos cœurs d’être dans l’amour. Comme c’est merveilleux ! Je le remercie donc d’avoir pris ce message et je me joins à vous maintenant dans ce beau cercle, dans cette belle prière.
 
-Je suis votre frère et humble serviteur dans l’amour de Dieu pour toujours, je suis Yogananda.
+Je suis votre frère et humble serviteur dans l’Amour de Dieu pour toujours, je suis Yogananda.
 
 ### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
 

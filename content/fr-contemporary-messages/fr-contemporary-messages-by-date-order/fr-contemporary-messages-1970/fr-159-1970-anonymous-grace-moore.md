@@ -22,10 +22,7 @@ En écoutant vos aspirations et en ressentant vos désirs sincères d'Amour Divi
 Que Dieu vous bénisse et merci mes amis. Bonne nuit. Grace Moore.
 <small>
 
-1. <large id="f1"> **Grace Moore**, née le 5 décembre 1898 à Slabtown (Tennessee) et morte le 26 janvier 1947 dans un accident d'avion à l'aéroport de Copenhague au Danemark. Elle était une actrice et chanteuse américaine. [↩](#a1)
-
-
-
+1. <large id="f1"> **Grace Moore**, née le 5 Décembre 1898 à Slabtown (Tennessee) et décédée le 26 Janvier 1947 dans un accident d'avion à l'aéroport de Copenhague au Danemark. Elle était une actrice et chanteuse américaine. [↩](#a1)
 
 ### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
 

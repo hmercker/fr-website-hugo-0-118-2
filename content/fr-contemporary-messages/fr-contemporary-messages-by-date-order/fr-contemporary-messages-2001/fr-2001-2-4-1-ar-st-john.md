@@ -1,13 +1,13 @@
 ---
-title: "Laisse-toi aller et sois juste l'amour"
+title: "Laissez-vous aller et soyez juste Amour"
 menu_title: ""
-description: "Laisse-toi aller et sois juste l'amour"
+description: "Laissez-vous aller et soyez juste Amour"
 date: 2022-06-01 06:00:01+00:04
 draft: False
 hidden: True
 weight:
 ---
-### Laisse-toi aller et sois juste l'amour
+### Laissez-vous aller et soyez juste Amour
 
 St Jean - reçu par Amada Reza le 4 Février 2001, Aptos, Californie, USA.
 

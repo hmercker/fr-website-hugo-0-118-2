@@ -27,6 +27,6 @@ Que Dieu vous bénisse, mes âmes bien-aimées, et vous garde sur ce chemin, san
 
 Que Dieu vous bénisse. Je suis avec vous. Sachez que je suis avec vous, que de nombreux anges marchent aussi avec vous, sur un chemin de lumière et d’illumination. Cela vient à chaque pas. Elle est à vous, non pas au-delà de votre portée, mais à votre portée. Embrassez la vérité, mes bien-aimés, et libérez tout ce qui est erroné. Nous sommes avec vous dans l’amour, toujours. Que Dieu vous bénisse, âmes bien-aimées, que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

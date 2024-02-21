@@ -73,6 +73,6 @@ Que Dieu vous bénisse, âmes bien-aimées, dans ce voyage vers plus de lumière
 
 Que Dieu vous bénisse, âmes bien-aimées, sur le chemin vers la grande lumière. Puissiez-vous être remplies de joie, sachant et comprenant ce que c’est et ce que cela peut apporter. Vous êtes vraiment bénis, mes bien-aimés. Vous êtes vraiment bénis et aimés. Portez la lumière. Portez la torche de la vérité. Portez-vous vers Dieu dans la prière constante et le désir de servir et vous connaîtrez toutes les récompenses dont je parle, tous les dons manifestés. Tout ce que nous souhaitons apporter au monde viendra par le biais de Ses enfants dévoués de vérité et d’amour. Que Dieu vous bénisse, mes bien-aimés. Je suis Jésus. Je suis votre ami et votre professeur et je suis avec vous dans ces efforts. Mon amour est avec vous tous. Allez en paix et sachez que vous êtes aimés.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

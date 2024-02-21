@@ -21,6 +21,6 @@ Tant d’opportunités s’offrent à chacun de vous, si seulement vous vous per
 
 Puisse cette bénédiction venir sur vous à chaque instant et puissiez-vous ressentir l’élévation, la joie et la beauté de l’Amour de Dieu pour vous et ses bénédictions sur vous, âmes bien-aimées. Je suis Keea Atta Kem et je suis avec vous. Mon amour est grand pour chacun de vous. Amis bien-aimés sur la Terre, nous marchons ensemble dans la lumière et recherchons l’amour ensemble et cherchons à servir Dieu ensemble. Que Dieu vous bénisse, bien-aimés. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

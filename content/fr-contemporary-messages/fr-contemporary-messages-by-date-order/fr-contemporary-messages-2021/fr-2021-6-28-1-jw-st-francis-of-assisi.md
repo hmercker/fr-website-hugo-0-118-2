@@ -1,13 +1,13 @@
 ---
-title: "Partager l'amour de Dieu"
+title: "Partager l'Amour de Dieu"
 menu_title: ""
-description: "Partager l'amour de Dieu"
+description: "Partager l'Amour de Dieu"
 date: 2022-06-01 06:00:01+00:1557
 draft: False
 hidden: True
 weight:
 ---
-### Partager l'amour de Dieu
+### Partager l'Amour de Dieu
 
 St François d'Assise - reçu par Jimbeau Walsh le 28 Juin 2021, Punalu’u, Oahu, Hawaii, USA.
 

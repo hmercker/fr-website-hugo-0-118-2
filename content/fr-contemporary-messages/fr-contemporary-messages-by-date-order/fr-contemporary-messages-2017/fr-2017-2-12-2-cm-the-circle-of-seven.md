@@ -29,9 +29,9 @@ Paix à vous, « Le Cercle des Sept ».
 *© The 11:11 Progress Group.*<sup id="a3">[3](#f3)</sup>
 <small>
 
-1. <large id="f1"> Vous pouvez trouver plus d'informations, en anglais, sur l'état de sommeil en cliquant sur le lien suivant : https://new-birth.net/life-after-death/the-sleep-state/[↩](#a1)
+1. <large id="f1"> Vous pouvez trouver plus d'informations sur l'état de sommeil en cliquant sur [ce lien](/7-fr-life-after-death/7-5-fr-what-happens-when-we-sleep/)[↩](#a1)
 
-2. <large id="f2"> La notion de monde des maisons est une notion propre au livre d'Urantia. Plus d'explications sont disponibles par l'intermédiaire de ce lien : https://www.urantia.org/fr/le-livre-d-urantia/fascicule-47-les-sept-mondes-des-maisons.[↩](#a2)
+2. <large id="f2"> La notion de monde des maisons est une notion propre au livre d'Urantia. Plus d'explications sont disponibles par l'intermédiaire [de ce lien](https://www.urantia.org/fr/le-livre-d-urantia/fascicule-47-les-sept-mondes-des-maisons).[↩](#a2)
 
 3. <large id="f3"> Les différents messages émis par le "Progress group (Groupe de progrès)" sont listés ci-dessous  : [↩](#a3)
 
@@ -42,10 +42,9 @@ Ophélius | [La couleur dans la mosaïque de la vie](/fr-contemporary-messages/f
 Soigneur | [Efficacité de la planète](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-11-18-1-gmb-a-carer/) | 18 Novembre 2011
 Ajusteur de Pensée | [Méditer et prier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-7-31-1-oscar-thought-adjuster/) | 31 Juillet 2012
 Orion | [Création et évolution revisitées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-8-6-1-gmb-orion/) | 6 Août 2012
-Prolotheos | [Evolution](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-2-1-vs-prolotheos/) | 2 Mars 2013
+Prolotheos | [Évolution](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-2-1-vs-prolotheos/) | 2 Mars 2013
 Le bien-aimé | [Votre plan de vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-5-11-2-lytske-the-beloved/) | 11 Mai 2016
 Jésus | [A propos de la Vérité Absolue](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-14-2-bettina-jesus/) | 14 Septembre 2016
-Le cercle des sept | [Les souvenirs dans la vie du sommeil de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-2-12-2-cm-the-circle-of-seven/) | 12 Février 2017
 Ingénieur céleste Isaac | [L’ingénierie et le passé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-3-14-1-gmb-celestial-engineer-isaac/) | 14 Mars 2017
 Mère Terre-Gaïa | [C’est le temps de la purification](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-8-1-anyas-mother-earth-gaia/) | 8 Septembre 2017
 

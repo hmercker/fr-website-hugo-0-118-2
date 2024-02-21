@@ -57,6 +57,6 @@ Puissiez-vous en venir à vous voir comme une âme, une âme qui cherche à s’
 
 Soyez bénis. Je suis Orion et mon amour pour chacun de vous, chacun de vous est une âme précieuse. Que Dieu vous bénisse, mes amis. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -29,6 +29,6 @@ Que Ses bénédictions d’Amour continuent de se déverser dans votre âme et d
 
 Puissiez-vous connaître et ressentir cet amour, être édifié par cet amour. Que toute la sagesse et la vérité qui accompagnent l’afflux de cet amour dans vos âmes vous réveillent, chaque partie de vous-même, et vous apportent une grande harmonie, âmes bien-aimées. Que Dieu vous bénisse dans votre cheminement vers l’union avec le Créateur. Vous êtes aimés et vous êtes bénis. Que Dieu vous bénisse. Je suis André et je vous aime. Que Dieu vous bénisse, âmes bien-aimées.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

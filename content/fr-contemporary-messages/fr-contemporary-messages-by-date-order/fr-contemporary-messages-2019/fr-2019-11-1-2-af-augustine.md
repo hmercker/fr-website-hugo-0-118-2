@@ -9,7 +9,7 @@ weight:
 ---
 ### Les tests nous aident à discerner comment gérer les énergies négatives
 
-Augustin - reçu par Al Fike le 1 Novembre 2019, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 1<sup>er</sup> Novembre 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je suis de retour. Je vois que vous avez un test devant vous, mes bien-aimés, une situation où il n’y a pas d’approche claire car vous voulez chacun être un canal d’amour. Vous voulez tous faire ce qui est en harmonie avec l’amour. Pourtant, vous voyez que la personne dont vous vous occupez a un grand besoin et qu’elle absorbera vos efforts communs dans la prière pour répondre à ce besoin. Cela rend difficile la décision de garder vos distances ou d’être inclusif et aimant de la manière qu’elle préfère et désire.
 

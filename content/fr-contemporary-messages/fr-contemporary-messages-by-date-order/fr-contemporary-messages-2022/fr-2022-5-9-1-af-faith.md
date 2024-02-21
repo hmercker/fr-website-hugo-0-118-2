@@ -15,6 +15,6 @@ Je continue à servir Dieu, tout comme vous, mes amis. Et nous servirons Dieu en
 
 Nous servons Dieu dans l’amour. Nous servons pour apporter l’amour. Nous servons pour apporter la vérité et la sagesse. Et ainsi, nous servirons toujours ensemble, mes amis bien-aimés. Nous servirons toujours Dieu.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -72,8 +72,8 @@ Grover Cleveland | [L’écrivain exprime sa gratitude envers M. Padgett](/fr-ja
  | <p align="center">**Willam McKinley 25ème président**</p> |
 President McKinley | [President McKinley et d’autres dans le monde des esprits s’efforcent de mettre fin à la guerre](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-2-8-2-jep-president-mckinley/) | 8 Février 1917
  | <p align="center">**Théodore Roosevelt 26ème président**</p> |
-Théodore Roosevelt | [Théodore Roosevelt, la guerre et l'empire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-1-23-2-fab-theodore-roosevelt/) | 23 Janvier 2010
 Theodore Roosevelt | [Un président américain se confronte au monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-20-2-fab-theodore-roosevelt/) | 20 Décembre 2006
+Théodore Roosevelt | [Théodore Roosevelt, la guerre et l'empire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-1-23-2-fab-theodore-roosevelt/) | 23 Janvier 2010
  | <p align="center">**William Howard Taft 27ème président**</p>| 
 William Howard Taft | [Les politiciens dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-6-18-1-fab-william-howard-taft/) | 18 Juin 2008
 William Howard Taft | [Les politiciens dans le monde des esprits - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-6-18-2-fab-william-howard-taft/) | 18 Juin 2008

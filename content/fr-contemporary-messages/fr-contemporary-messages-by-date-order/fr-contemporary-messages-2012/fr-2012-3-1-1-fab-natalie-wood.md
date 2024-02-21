@@ -13,7 +13,7 @@ Natalie Wood - reçu par FAB le 1 Mars 2012, Berkeley, Californie, USA.
 
 C’est moi, Natasha *[Natalie Wood]*.
 
-Oui, je suis ici pour transmettre le message promis<sup id="a1">[1](#f1)</sup>, et je sais que vous le recevrez juste comme je le veux.
+Oui, je suis ici pour transmettre le message promis [le 26 Février dernier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-2-26-2-fab-natalie-wood/), et je sais que vous le recevrez juste comme je le veux.
 
 Comme vous le savez maintenant, je ne savais pas qui j’étais. Cela n’a jamais été retenu contre moi ici. Au contraire, il m’a été offert toutes les possibilités de satisfaire mon désir de me connaître. En apprenant davantage sur moi-même, il m’est venue une perception plus nette et plus complète de ma vie terrestre, et, comme vous l’avez deviné, alors que j’ai accompli sincèrement beaucoup de choses, j’ai malheureusement aussi réalisé que certaines choses que j’avais faites étaient incorrectes et dépourvues d’ harmonie.
 
@@ -32,9 +32,6 @@ Ma bonté demeure dans le cœur de ceux j’ai connus et touchés. Et je tiens �
 Je voudrais conclure en disant aux gens, si vous voulez vraiment quelque chose vous pouvez l’avoir. Et si vous voulez vraiment vous connaître, demandez, et vous recevrez.
 
 Je suis heureuse et reconnaissante que vous avez reçu correctement mon message et je vous souhaite une agréable soirée. Sachez que vos rêves se réaliseront également parce qu’ils correspondent à la volonté du Créateur.
-<small>
-
-1. <large id="f1"> Natalie Wood avait précédemment commmuniqué [le 26 Février 2012](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-2-26-2-fab-natalie-wood/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
 

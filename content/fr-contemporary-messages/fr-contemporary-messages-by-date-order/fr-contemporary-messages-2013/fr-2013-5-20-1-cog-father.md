@@ -9,7 +9,7 @@ weight:
 ---
 ### Tu as marché seul, maintenant réveille-toi à Mon Amour
 
-Le Père Céleste - reçu par Enfant de Dieu le 20 Mai 2013.
+Le Père Céleste - reçu par Enfant de Dieu le 20 Mai 2013.<sup id="a1">[1](#f1)</sup>
 
 Tu es un créateur d’amour. Laisse Mon Amour couler à travers toi, touchant chaque cellule de ton corps. Laisse Mon Amour laver tes péchés. Sens Mon Amour vivre en toi. Mon Amour est réel. Parle-Moi et Je te parlerai.
 
@@ -18,6 +18,9 @@ Nous sommes à jamais reliés par un cordon ombilical invisible d’Amour. Nous 
 Venez à la maison, mes enfants bien-aimés. Vous avez marché seuls, maintenant réveillez-vous à mon amour. Vous n’êtes pas seuls, je suis avec vous, toujours.
 
 Votre Père Céleste.
+<small>
+
+1. <large id="f1"> L'ensembe des messages communiqués par le Père Céleste  est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-13-fr-the-heavenly-father/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2013**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/)
 

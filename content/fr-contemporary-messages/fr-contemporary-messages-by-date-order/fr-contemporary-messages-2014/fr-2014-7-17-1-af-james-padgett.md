@@ -8,7 +8,7 @@ hidden: True
 weight:
 ---
 
-### Détails de la vie de James Padgett(<sup id="a1">[1](#f1)</sup>)
+### Détails de la vie de James Padgett<sup id="a1">[1](#f1)</sup>
 
 James Padgett - reçu par Al Fike le 17 Juillet 2014, Vancouver, Colombie-Britannique, Canada.
 

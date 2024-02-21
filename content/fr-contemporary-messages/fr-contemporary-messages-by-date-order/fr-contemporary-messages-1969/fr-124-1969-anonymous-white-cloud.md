@@ -9,7 +9,7 @@ weight:
 ---
 ### L'importance de la voix directe
 
-White Cloud - reçu en 1969, Vancouver, Colombie-Britannique, Canada.
+Nuage Blanc - reçu en 1969, Vancouver, Colombie-Britannique, Canada.
 
 Je suis là moi aussi, Nuage Blanc.<sup id="a1">[1](#f1)</sup>
 

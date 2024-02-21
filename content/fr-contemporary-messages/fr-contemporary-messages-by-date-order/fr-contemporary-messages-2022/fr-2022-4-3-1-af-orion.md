@@ -43,6 +43,6 @@ Dieu continuera et désire toujours l’harmonie, apportera les énergies de gu�
 
 Que Son Amour continue à vous éveiller. Que Son Amour soit votre force, votre fondement, car il est la force et le fondement de l’univers. Puissiez-vous apprendre à vous connaître non seulement vous-même, mais aussi les amis qui désirent être avec vous et connus de vous. Que Dieu vous bénisse, mes amis. Nous nous retrouverons encore et encore. Nous travaillerons ensemble et nous aiderons à guérir le monde. Que Dieu vous bénisse. Bénédictions à vous, mes amis, notre amour toujours avec nos frères et sœurs dans l’univers. Que Dieu vous bénisse. Je suis Orion et je suis souvent avec vous alors que vous considérez la vérité, l’amour et l’avenir de l’humanité dans cette lumière. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -11,7 +11,7 @@ weight:
 
 Guru Ram Das - reçu par Maureen Cardoso le 17 Mars 2019, Blackpool, United Kingdom.
 
-Je m’appelle Guru Ram Das <sup id=”a1”>[1](#f1)</sup> et je me joins à vous en cette heure de prière. Lorsque j’étais sur Terre, j’étais le quatrième Guru, le quatrième enseignant de la tradition sikhe. Je réside dans les Cieux Célestes et moi aussi, je recherche avec mon âme la grande bénédiction de l’Amour Divin. Car mes maîtres avant moi m’ont présenté cet amour et nous avons nous aussi rejoint le chemin Divin Céleste.
+Je m’appelle Guru Ram Das <sup id="a1">[1](#f1)</sup> et je me joins à vous en cette heure de prière. Lorsque j’étais sur Terre, j’étais le quatrième Guru, le quatrième enseignant de la tradition sikhe. Je réside dans les Cieux Célestes et moi aussi, je recherche avec mon âme la grande bénédiction de l’Amour Divin. Car mes maîtres avant moi m’ont présenté cet amour et nous avons nous aussi rejoint le chemin Divin Céleste.
 
 Certains d’entre vous sur Terre auront l’opportunité, le but et la mission d’embrasser d’autres cultures, celles qui portent les enseignements de ces religions orientales. Cet instrument à travers lequel je parle a une telle mission. Nous, dans les Cieux Célestes de la foi Sikh, l’observons de très près, car elle a cette capacité de puiser la Vérité et de ressentir de son âme les Vérités de cette tradition, de la manière dont elle a été introduite dans cette foi. Cette chère âme parle avec son cœur lorsqu’elle partage ses compréhensions.
 
@@ -25,10 +25,10 @@ C’est merveilleux d’être témoin lorsque vous, belles âmes, avez tant d’
 
 Lorsque le moment sera venu pour vous de passer de notre côté de la Lumière, mes amis, vous serez extraordinairement satisfaits de vos efforts profonds, sincères et véridiques. Je vous embrasse profondément et nous sommes aussi avec vous. Il y en a beaucoup dans les Cieux Célestes, issus de différentes traditions qu’ils ont pratiquées sur Terre. Pour la Lumière et l’Amour dont Dieu nous a bénis, nous voyons l’unité de l’humanité. Je vous remercie. Je vous remercie de m’avoir écouté. Je remercie cet instrument d’honorer son chemin.
 
-Je suis Guru Ram Das<sup id=”a2”>[2](#f2)</sup>, l’un de vos Anges Célestes qui vous aiment et vous guident. Sat nam.
+Je suis Guru Ram Das<sup id="a2">[2](#f2)</sup>, l’un de vos Anges Célestes qui vous aiment et vous guident. Sat nam.
 <small>
 
-1. <large id=”f1”> Guru Ram Das était le quatrième des dix Gurus du Sikhisme. Il est né le 24 septembre 1534 dans une famille basée à Lahore, en Inde.[↩](#a1)
+1. <large id="f1"> Guru Ram Das était le quatrième des dix Gurus du Sikhisme. Il est né le 24 septembre 1534 dans une famille basée à Lahore, en Inde.[↩](#a1)
 
 2. <large id="f2"> Guru Ram Das s'était antérieurement exprimé [le 11 Octobre 2018](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-11-3-mc-guru-ram-das/)[↩](#a2)
 

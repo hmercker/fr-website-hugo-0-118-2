@@ -20,7 +20,7 @@ Vous êtes porteurs de nombreux dons, et à votre manière, vous apportez de l�
 Sachez que nous sommes avec vous, que nous travaillons avec vous, que nous prions avec vous, et que nous marchons avec vous en permanence. Vous n’êtes pas seuls. Chacun d’entre vous a un ange à ses côtés. Vous n’êtes pas seuls. Marchez dans la foi, mes bien-aimés. Marchez avec la certitude que vous êtes un enfant de Dieu. Continuez à prier le Père Céleste de bénir vos âmes avec le flux de Son Essence Divine. Cela ouvrira vos yeux, éveillera vos âmes et vous montrera le chemin. Que Dieu vous bénisse, mes bien-aimés. Je suis Augustin et je vous aime. Que Dieu vous bénisse.
 <small>
 
-1. <large id="f1"> Les Cercles de Lumière sont décrits sur [cette page](/fr-spiritual-subjects/fr-circles-of-light/).[↩](#a1)
+1. <large id="f1"> Les Cercles de Lumière sont décrits sur [cette page](/10-fr-spiritual-subjects/10-2-fr-circles-of-light/).[↩](#a1)
 
 ### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
 

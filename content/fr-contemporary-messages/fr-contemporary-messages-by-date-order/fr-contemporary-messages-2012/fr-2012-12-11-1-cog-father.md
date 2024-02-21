@@ -17,7 +17,10 @@ Tu ne peux pas grandir sans douleur ni perte. Tu dois avoir confiance en ces tem
 
 Ta conscience croissante t’aide à donner un sens aux expériences difficiles de ta vie. Tu es né comme une âme pure, mais déjà infectée par les peurs et les défauts des humains. Tu dois reconquérir ton innocence. Ton innocence n’a jamais été perdue.
 
-Ton père qui t’aime.
+Ton père qui t’aime.<sup id="a1">[1](#f1)</sup>
+<small>
+
+1. <large id="f1"> L'ensembe des messages communiqués par le Père Céleste  est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-13-fr-the-heavenly-father/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
 

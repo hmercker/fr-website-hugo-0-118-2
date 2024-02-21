@@ -79,6 +79,6 @@ Cette conscience grandira avec chaque jour. Dans cette conscience de Dieu, viend
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre frère et ami, Jésus, et je continue à être avec vous sur vos chemins de vie, de service et d’amour. Je suis avec vous car vous êtes vraiment mes frères et sœurs. Vous comprenez ce que c’est que de cheminer vers l’union avec Dieu et nous cheminerons ensemble, mes bien-aimés, toujours ensemble. Que Dieu vous bénisse. Que Dieu vous bénisse tous.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

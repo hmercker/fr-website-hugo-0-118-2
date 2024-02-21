@@ -21,6 +21,6 @@ Mes amis, nous sommes avec vous. Nous poursuivons notre travail d’aide à l’
 
 Dieu vous bénisse, je suis Orion, et je suis avec vous, dans ce grand voyage d’amour, ce grand réveil de l’humanité, cet apport de vérité et de conscience de tout ce qui est de Dieu au monde. Nous travaillons ensemble. Nous sommes Ses instruments. Nous sommes ensemble et nous le serons toujours sur ce chemin d’amour pour l’éternité. Nous sommes un sur ce chemin, vraiment un. Que Dieu vous bénisse. Je suis Orion. Je suis avec vous, âmes bien-aimées.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

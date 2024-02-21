@@ -19,6 +19,6 @@ Ainsi, vous êtes les agents actifs de Dieu en ce lieu et vous pouvez être les 
 
 Âmes bien-aimées, soyez en paix, soyez en paix et baignez dans le toucher de Dieu en ouvrant vos âmes, chers bien-aimés, au toucher de Dieu. Que Dieu vous bénisse. Je suis Goldie et je serai avec vous pour vous chatouiller à l’occasion, pour aider à chatouiller les autres. Car sans joie, sans joie, comment la lumière peut-elle s’épanouir. Que Dieu vous bénisse, mes amis. Je t’aime. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

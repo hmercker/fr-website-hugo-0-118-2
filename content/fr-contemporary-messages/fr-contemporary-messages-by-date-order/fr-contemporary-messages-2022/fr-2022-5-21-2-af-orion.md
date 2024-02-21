@@ -31,6 +31,6 @@ Que Dieu vous bénisse dans ce voyage, mes amis. Nous sommes ici, nous sommes ic
 
 Cherchez à réaliser le désir le plus élevé de votre âme , et ce faisant, vous engagez tous les efforts, les ressources et les influences les plus élevées, la plus grande des âmes, la plus grande des lumières, le pouvoir de l’influence et des bénédictions divines. C’est à vous, mes chers amis bien-aimés, d’invoquer toutes ces choses avec vos prières et vos pensées, vos efforts communs. Puissiez-vous le faire de manière cohérente avec une grande diligence, et ainsi le déploiement, la floraison se poursuivra. Bénédictions à vous, mes amis, bénédictions et amour à vous tous.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

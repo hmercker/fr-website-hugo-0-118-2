@@ -23,7 +23,7 @@ Vous regardez maintenant en arrière et voyez les progrès que vous avez faits, 
 
 Dieu vous bénisse, mes amis, je suis Professeur Salyards et je marche avec vous, mes vrais et beaux amis sur la terre, comme le font beaucoup, beaucoup que vous ne connaissez pas encore mais que vous allez connaître – les anges du ciel qui se sont consacrés à ces grands efforts. Bénédictions et amour pour vous tous, mes amis. Dieu vous bénisse, Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

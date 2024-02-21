@@ -11,7 +11,7 @@ weight:
 
 Albert Einstein - reçu par Al Fike le 28 Janvier 2019, Gibsons, Colombie-Britannique, Canada
 
-Mes amis, je suis Albert Einstein, et vous vous demandez peut-être pourquoi nous nous intéressons tant à vous. Et je vous demande, combien d’opportunités y a-t-il dans votre monde pour communiquer avec les mortels ? Très peu en effet. Donc, nous travaillons avec les matériaux que nous avons, mes amis. Je vous dirai que vous vous sentirez guidés vers beaucoup d’âmes avec lesquelles nous vous encouragerons à vous connecter et à vous lier d’amitié. Ces âmes auront le potentiel d’apporter des informations que nous désirons tant donner au monde. Oui, vous n’êtes peut-être pas les intermédiaires directs de ces précieux éléments de vérité et d’information pour aider votre monde de cette façon. Vous serez les intermédiaires qui nous mettront en contact avec les précieuses âmes qui nous attendent <sup id="a1">[1](#f1)</sup>.
+Mes amis, je suis Albert Einstein,<sup id="a1">[1](#f1)</sup> et vous vous demandez peut-être pourquoi nous nous intéressons tant à vous. Et je vous demande, combien d’opportunités y a-t-il dans votre monde pour communiquer avec les mortels ? Très peu en effet. Donc, nous travaillons avec les matériaux que nous avons, mes amis. Je vous dirai que vous vous sentirez guidés vers beaucoup d’âmes avec lesquelles nous vous encouragerons à vous connecter et à vous lier d’amitié. Ces âmes auront le potentiel d’apporter des informations que nous désirons tant donner au monde. Oui, vous n’êtes peut-être pas les intermédiaires directs de ces précieux éléments de vérité et d’information pour aider votre monde de cette façon. Vous serez les intermédiaires qui nous mettront en contact avec les précieuses âmes qui nous attendent. <sup id="a2">[2](#f2)</sup>
 
 L’illustre maître Augustin parle du plan de Dieu et je vous le dis, nous faisons partie de ce plan d’ensemble qui a beaucoup de facettes et de possibilités à mettre en œuvre et à apporter dans votre monde. Voyez-vous, toutes les sphères supérieures de l’esprit et du Royaume Céleste sont engagées dans cette danse complexe que Dieu nous a proposée. Nous écoutons attentivement l’orchestre, ce qui doit s’exprimer dans ce beau ballet.
 
@@ -22,7 +22,17 @@ Nous sommes plus proches que vous ne le pensez. Nous trouverons tous notre chemi
 Dieu vous bénisse, mes amis. Que Dieu vous bénisse et vous remercie pour vos efforts. Votre ami Albert est avec vous dans tout ce que vous faites. Je prie pour votre succès, le succès de votre travail comme le font des milliers et des milliers de personnes de mon côté. Continuez, mes amis. Continuez dans votre travail et nous continuerons dans le nôtre, en travaillant ensemble comme un tout. Que Dieu vous bénisse. Que Dieu vous bénisse, mes âmes bien-aimées.
 <small>
 
-1. <large id="f1"> Le problème non formulé est que pour recevoir du matériel scientifique, le médium a besoin d'un esprit formé à la science. Nous n'avons pas de tels médiums dans notre mouvement.[↩](#a1)
+1. <large id="f1"> Einstein  s'est également exprimé dans les messages suivants : [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Albert Einstein | [Lumière et obscurité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-5-3-fab-albert-einstein/) | 5 Mars 2008
+Albert Einstein | [L'humanité est au bord du précipice](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-19-4-af-albert-einstein/) | 19 Novembre 2017
+Albert Einstein | [L'Amour universel est une force](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-8-2-ae-albert-einstein/) | 08 Janvier 2019
+Albert Einstein | [De nombreux scientifiques en esprit travaillent à l'établissement de meilleures communications entre les mondes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-25-1-af-albert-einstein/) | 25 Janvier 2019
+Albert Einstein | [Vos efforts sont nécessaires pour apporter le changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-9-4-af-albert-einstein/) | 9 Juillet 2019
+
+2. <large id="f2"> Le problème non formulé est que pour recevoir du matériel scientifique, le médium a besoin d'un esprit formé à la science. Nous n'avons pas de tels médiums dans notre mouvement.[↩](#a1)
 
 ### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
 
