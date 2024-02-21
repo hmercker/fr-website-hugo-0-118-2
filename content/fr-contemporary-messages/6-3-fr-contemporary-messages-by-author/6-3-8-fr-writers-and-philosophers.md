@@ -78,7 +78,7 @@ George Gurdjieff | [Vous ne pouvez pas vous révolter contre les ténèbres, mai
 George Gurdjieff | [Laissez entrer l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-12-3-jw-george-gurdjieff/) | 12 Octobre 2020
 George Gurdjieff | [Continuez à apporter cette lumière dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-14-1-jw-george-gurdjieff/) | 14 Juin 2021
 George Gurdjieff | [Manifestations et expériences Sprituelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-28-1-af-george-gurdjieff/) | 28 Septembre 2021
-George Gurdjieff | [Rester éveillé]( fr-contemporary-messages\fr-contemporary-messages-by-date-order\fr-contemporary-messages-2023\fr-2023-7-24-1-af-george-gurdjieff/) 24 Juillet 2023
+George Gurdjieff | [Rester éveillé]( fr-contemporary-messages\fr-contemporary-messages-by-date-order\fr-contemporary-messages-2023\fr-2023-7-24-1-af-george-gurdjieff/) | 24 Juillet 2023
 H.G. Wells | [Les expériences de H.G. Wells dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-9-13-1-fab-hg-wells/) | 13 Septembre 2011
 Hafiz | [Musulmans dans le Monde des Esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-3-3-1-fab-hafiz/) | 3 Mars 2011
 Hafiz | [Ma poésie est le reflet de ma communion avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-4-1-jw-hafiz/) | 4 Décembre 2019

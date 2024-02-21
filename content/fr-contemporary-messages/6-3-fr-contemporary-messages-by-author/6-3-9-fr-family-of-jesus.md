@@ -102,7 +102,7 @@ Marie | [L'Amour est la Vérité que nous recherchons](/fr-contemporary-messages
 Marie | [Un don à Dieu.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-9-3-1-ar-mary/) | 3 Septembre 2005
 Marie | [L'étoffe de l'éternité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-6-5-1-ar-mary/) | 5 Juin 2006
 Marie | [Je suis la chaleur de ton cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-7-18-1-cog-mary/) | 18 Juillet 2012
-Marie | [Se  soumetre à l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-7-1-hm-mary/) | 7 Décembre 2012
+Marie | [Se soumetre à l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-7-1-hm-mary/) | 7 Décembre 2012
 Marie | [Le soleil de l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-18-1-hm-mary/) | 18 Janvier 2013
 Marie | [Avancez dans cette rivière d’Amour et lâchez prise](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-19-1-af-mary/) | 19 Mai 2014
 Marie | [Utilisez votre don de la vie de manière optimale](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-15-1-af-mary/) | 15 Décembre 2014
@@ -112,12 +112,10 @@ Marie | [Les encouragements de Marie](/fr-contemporary-messages/fr-contemporary-
 Marie | [Comment marcher sur le Chemin Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-5-2-1-af-mary/) | 2 Mai 2016
 Marie | [L’amour apporte une solution aux problèmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-3-2-af-mary/) | 3 Septembre 2016
 Marie | [Tu seras guérie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-6-2-af-mary/) | 6 Septembre 2016
-Marie | [Soyez un canal transportant les eaux de l'amour](/fr-contemporary-
 Marie | [Je vous réunirai](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-21-2-af-mary/) | 21 Mai 2017
 Marie | [Dieu se sert de vous comme d'un canal](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-27-2-af-mary/) | 27 Septembre 2017
 Marie | [Beaucoup de travail en perspective](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-21-1-af-mary/) | 21 Octobre 2017
 Marie | [Les porteurs d'eau de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-11-3-af-mary/) | 11 Novembre 2017
-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-21-1-af-mary/) | 21 Novembre 2017
 Marie | [Les porteurs d'eau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-10-3-af-mary/) | 10 Décembre 2017
 Marie | [Je marche avec vous, soyez en paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-17-1-af-mary/) | 17 Février 2018
 Marie | [Le monde a besoin d'âmes aspirant à la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-1-1-af-mary/) | 1 Mars 2018
@@ -170,5 +168,3 @@ Marie & Jean | [Le parler en langues et les animaux dans le monde spirituel](/fr
 Marie & Jean | [Invitez-vous dans votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-2-2-ar-mary-john/) | 2 Février 2002
 Marie & Jean | [Esprit Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-5-16-1-ar-mary-john/) | 16 Mai 2003
 Marie & Jean | [L’amour est notre cause.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-8-1-1-cc-mary-john/) | 1 Août 2003
-
-

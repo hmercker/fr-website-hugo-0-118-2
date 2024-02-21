@@ -22,7 +22,7 @@ Alec Gaunt | [La loi du changement](/fr-contemporary-messages/fr-contemporary-me
 Alec Gaunt | [Débarrassez-vous de vos peurs et de ce qui vous encombre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-5-12-2-af-alec-gaunt/) | 12 Mai 2016
 Alec Gaunt | [Ne jugez pas la voie naturelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-5-25-1-af-alec-gaunt/) | 25 Mai 2016
 Alec Gaunt | [En progressant à l’intérieur de votre âme, vous serez en mesure de recevoir les changements qui arrivent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-21-1-af-alec-gaunt/) | 21 Décembre 2016
-Alec Gaunt | [Cherchez la vérité dans votre propre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-28-1-af-alec-gaunt/) | 28 Décembre 2016 
+Alec Gaunt | [Cherchez la vérité dans votre propre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-28-1-af-alec-gaunt/) | 28 Décembre 2016
 Alec Gaunt | [Les changements que vous allez vivre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-1-23-1-af-alec-gaunt/) | 23 Janvier 2017
 Alec Gaunt | [Comment être avec Dieu ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-1-25-1-af-alec-gaunt/) | 25 Janvier 2017
 Alec Gaunt | [Alec partage ses frustrations concernant le premier projet Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-6-12-1-af-alec-gaunt/) | 12 Juin 2017
@@ -187,7 +187,7 @@ Fleur de Lotus | [Permettez à l'Amour de Dieu de réveiller votre âme](/fr-con
 Fleur de Lotus | [Vos pensées ont un grand pouvoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-17-3-mc-lotus-blossom/) | 17 Novembre 2019
 Fleur de Lotus | [La foi est un instrument pour que la guérison se produise](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-3-3-mc-lotus-blossom/) | 3 Décembre 2019
 Fleur de Lotus  | [Comparaison des expiations entre les voies de l'Amour Divin et naturel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-20-2-af-lotus-blossom/) | 20 Mai 2020
-Fleur de Lotus  [Nous sommes à la fois récepteurs et donneurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-4-2-af-lotus-blossom/) | 4 Septembre 2020
+Fleur de Lotus | [Nous sommes à la fois récepteurs et donneurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-4-2-af-lotus-blossom/) | 4 Septembre 2020
 Frère Mandus Nyquist | [Vous allez remplir votre mandat de canal de l’Amour chez moi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-6-27-1-af-brother-mandus/) | 27 Juin 2016
 Frère Mandus Nyquist | [Une description de l’âme et de sa nature durable](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-8-27-1-af-brother-mandus/) | 27 Août 2016
 Frère Mandus Nyquist | [La porte de la grâce de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-10-1-jw-brother-mandus/) | 10 Octobre 2020
@@ -261,7 +261,7 @@ Keea Atta Kem | [Utiliser la gratitude pour éliminer les pensées négatives](/
 Keea Atta Kem | [Accepter chaque âme unique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-16-1-af-keea-atta-kem/) | 16 Janvier 2016
 Keea Atta Kem | [Le prisme de nos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-4-2-af-keea-atta-kem/) | 4 Avril 2016
 Keea Atta Kem | [Comment l’Amour Divin change l’Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-5-16-1-af-keea-atta-kem/) | 16 Mai 2016
-Keea atta Kem | [Faites briller votre lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-10-17-1-af-keea-atta-kem/) | 17 Octobre 2016
+Keea Atta Kem | [Faites briller votre lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-10-17-1-af-keea-atta-kem/) | 17 Octobre 2016
 Keea Atta Kem | [Soyez des scientifiques de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-5-2-af-keea-atta-kem/) | 5 Décembre 2016
 Keea Atta Kem | [Acceptez chaque âme unique, leurs différences ne vous feront pas de mal spirituellement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-1-16-1-af-keea-atta-kem/) | 16 Janvier 2017
 Keea Atta Kem | [Les couleurs de la guérison de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-20-1-af-keea-atta-kem/) | 20 Septembre 2017
@@ -286,7 +286,7 @@ Keea Atta Kem | [Demandez l'aide des anges](/fr-contemporary-messages/fr-contemp
 Keea Atta Kem | [L'éveil de l'âme, une nouvelle naissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-1-1-af-keea-atta-kem/) | 1 Octobre 2018
 Keea Atta Kem | [Communiquez d'âme à âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-6-2-mc-keea-atta-kem/) | 6 Octobre 2018
 Keea Atta Kem | [Compassion pour soi et pour les autres pendant l'éveil de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-11-4-mc-keea-atta-kem/) | 11 Octobre 2018
-Keea Atta Kem | [Keea-atta Kem se présente - Cercle de prière en ligne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-21-2-af-keea-atta-kem/) | 21 Octobre 2018
+Keea Atta Kem | [Keea Atta Kem se présente - Cercle de prière en ligne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-21-2-af-keea-atta-kem/) | 21 Octobre 2018
 Keea Atta Kem | [Intégrer les éveils de l'âme au corps et à l'esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-24-2-mc-keea-atta-kem/) | 24 Octobre 2018
 Keea Atta Kem | [L'éveil de l'âme par l'amour de Dieu est la clé de tous les dons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-26-6-af-keea-atta-kem/) | 26 Octobre 2018
 Keea Atta Kem | [L'Amour de Dieu nourrira votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-4-3-af-keea-atta-kem/) | 4 Novembre 2018
@@ -616,4 +616,3 @@ Seretta Kem | [Un développement plus important est nécessaire pour la manifest
 Seretta Kem | [Les fascinantes distractions de l'intégration de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-4-1-af-seretta-kem/) | 4 Mars 2023
 Seretta Kem | [Développer la conscience de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-18-1-af-seretta-kem/) | 18 Mars 2023
 Seretta Kem | [Trouver l'équilibre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-21-2-af-seretta-kem/) | 21 Mars 2023
-

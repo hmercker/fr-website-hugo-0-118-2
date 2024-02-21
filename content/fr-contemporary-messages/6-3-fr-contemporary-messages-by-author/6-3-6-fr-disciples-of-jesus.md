@@ -258,7 +258,7 @@ Judas | [Le baptême de Jésus](/fr-contemporary-messages/fr-contemporary-messag
 Judas | [Le retour à Capharnaüm](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-5-1-hr-judas/) | 5 Février 2002
 Judas | [Jésus rencontre Simon Pierre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-8-1-hr-judas/) | 8 Février 2002
 Judas | [Vivre dans ce monde, sans en faire partie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-14-1-hr-judas/) | 14 Février 2002
-Judas | [Jésus rencontre la famille Zebedee](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-15-1-hr-judas/) | 15 Février 2002 
+Judas | [Jésus rencontre la famille Zebedee](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-15-1-hr-judas/) | 15 Février 2002
 Judas | [Le vrai sens des paroles de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-19-1-hr-judas/) | 19 Février 2002
 Judas | [Judas et Jean le Baptiste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-20-1-hr-judas/) | 20 Février 2002
 Judas | [Judas rencontre le Maître](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-22-1-hr-judas/) | 22 Février 2002
