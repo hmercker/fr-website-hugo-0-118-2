@@ -78,11 +78,7 @@ Flavius Josèphe | [Nous encourage à prier pour combattre les forces des ténè
 Anna (Grand mère de Jésus) | [Le plus grand nombre possible d’anges tentent d’entrer en relation avec nous tous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-18-1-af-anna-grandmother-of-jesus/) | 18 Mars 2022
 Professeur Salyards | [L’élan se construit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-19-1-af-professor-salyards/) | 19 Mars 2022
 Orion | [Discerner entre la conscience de l’âme et la conscience de l’esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-19-2-af-orion/) | 19 Mars 2022
-<<<<<<< HEAD
 Care Darby Walsh | [Laissez derrière vous ce qui n'est pas digne de votre marche future](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-21-1-jw-care-derby-walsh.md) | 21 Mars 2022
-=======
-Care Derby Walsh | [Laissez derrière vous ce qui n'est pas digne de votre marche future](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-21-1-jw-care-derby-walsh/) | 21 Mars 2022
->>>>>>> 6d9e60d611a5669957a071d70effd391bf67763a
 Judas | [Revisiter les messages Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-22-1-jw-judas/) | 22 Mars 2022
 André | [Continuez à faire ressortir la Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-24-1-af-andrew/) | 24 Mars 2022
 Marie | [Tournée d'éveil de l'âme 2022](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-24-2-af-mary/) | 24 Mars 2022
@@ -103,7 +99,8 @@ Goldie | [Soyez joyeux dans l’Amour de Dieu](/fr-contemporary-messages/fr-cont
 Robert Hugh Benson | [Croyance mentale et perception de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-18-2-jw-robert-hugh-benson/) | 18 Avril 2022
 Robert Hugh Benson | [Les royaumes de l’esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-19-1-jw-robert-hugh-benson/) | 19 Avril 2022
 Orion | [Discussion sérieuse sur l’effondrement économique et l’élévation de la conscience sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-20-1-af-orion/) | 20 Avril 2022
-Jésus | [Bénédictions profondes de paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-23-1-af-jesus/) | 23 Inayat Khan | [Gardez un chant dans votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-25-1-jw-inayat-khan/) | 25 Avril 2022
+Jésus | [Bénédictions profondes de paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-23-1-af-jesus/) | 23 Avril 2022
+Inayat Khan | [Gardez un chant dans votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-25-1-jw-inayat-khan/) | 25 Avril 2022
 Augustin | [Comment savez-vous que vous recevez l'Amour Divin ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-25-2-af-augustine/) | 25 Avril 2022
 André | [Choix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-29-1-af-andrew/) | 29 Avril 2022
 Inayat Khan | [Le chant du cœur et la danse de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-2-1-jw-inayat-khan/) | 2 Mai 2022

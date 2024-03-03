@@ -168,13 +168,8 @@ George Gurdjieff | [Restez éveillé dans l'Amour Divin](/fr-contemporary-messag
 Jésus | [Invitation à se rassembler dans l'unité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-30-1-af-jesus/) | 30 Juillet 2023
 Yogananda | [Vivez dans la grâce en dehors de vos cases](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-31-1-jw-yogananda/) | 31 Juillet 2023
 Joseph | [Réflexion sur les sensibilités liées au fait d'avoir un fils différent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-1-1-af-joseph/) | 1 Août 2023
-<<<<<<< HEAD
 Care Darby Walsh | [Aide Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-10-1-jw-care-derby-walsh/) | 10 Août 2023
 Ann Rolins | [Influence spirituelle et loi de l’attraction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-14-1-af-ann-rolins/) | 14 Août 2023
-=======
-Care Derby Walsh | [Aide Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-10-1-jw-care-derby-walsh/) | 10 Août 2023
-Anne Rolins | [Influence spirituelle et loi de l’attraction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-14-1-af-ann-rolins/) | 14 Août 2023
->>>>>>> 6d9e60d611a5669957a071d70effd391bf67763a
 Aaron | [Commentaires sur notre discussion et nos défis avec les conditions terrestres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-18-1-af-aaron/) | 18 Août 2023
 Orion | [La foi opposée à la peur pendant le nettoyage du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-19-1-af-orion/) | 19 Août 2023
 St Matthieu | [Le pouvoir de l'Amour Divin élève toutes les situations](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-20-1-af-st-matthew/) | 20 Août 2023
