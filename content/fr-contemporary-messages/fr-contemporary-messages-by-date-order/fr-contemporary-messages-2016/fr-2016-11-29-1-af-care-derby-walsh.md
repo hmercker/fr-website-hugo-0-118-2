@@ -9,7 +9,7 @@ weight:
 ---
 ### Les potentiels en herbe de nos âmes
 
-Care Derby Walsh - reçu par Al Fike le 29 Novembre 2016, Hawaii, USA.
+Care Darby Walsh - reçu par Al Fike le 29 Novembre 2016, Hawaii, USA.
 
 ![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-bouquet-of-roses.jpg)
 

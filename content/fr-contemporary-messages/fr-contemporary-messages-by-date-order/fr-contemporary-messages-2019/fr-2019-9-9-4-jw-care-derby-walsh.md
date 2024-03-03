@@ -9,7 +9,7 @@ weight:
 ---
 ### Suivez le chemin le moins fréquenté, le chemin de l'Amour Divin
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 9 Septembre 2019, Gibsons, Colombie-Britannique, Canada.
+Care Darby Walsh - reçu par Jimbeau Walsh le 9 Septembre 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je suis ici votre sœur et amie dans l’amour de Dieu, Care. Mon cher Jimbeau est très heureux d’être autour de cette énergie, cette énergie féminine dans cette pièce. Mais je veux aborder les paroles de la chanson que cette chère sœur a chantée <sup id=”a1”>[1](#f1)</sup>. J’ai marché sur le chemin de l’Amour lorsque j’étais sur Terre. Je suis toujours sur ce chemin. Oui, c’est un chemin peu fréquenté, mais comme vous le savez, lorsque vous êtes dans l’Amour de Dieu, vous êtes dans le flux des choses. Vous êtes élevés au-dessus du monde matériel, même au-delà de la notion d’espace et de temps, car tout s’inscrit dans le temps de Dieu. Vos soucis s’envolent par la porte. Votre cœur s’ouvre. Vous ressentez la joie non seulement du monde naturel qui est en effet une bénédiction, mais la porte du Ciel s’ouvre et vous êtes touchés par la Grâce de l’Amour qui se déverse du Père Céleste dans vos âmes. Le flux de cet Amour vous met dans le flux de l’Amour et du temps du Père. Vous ouvrez votre cœur et votre âme s’ouvre à la compagnie des anges. Tout tombe à point nommé.
 

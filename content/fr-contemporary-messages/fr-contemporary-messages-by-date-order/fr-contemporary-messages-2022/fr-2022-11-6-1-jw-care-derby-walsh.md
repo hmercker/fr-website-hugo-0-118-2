@@ -9,7 +9,7 @@ weight:
 ---
 ### Faites connaitre les intentions de votre ame au monde entier
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 6 Novembre 2022, Nashville, TN, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 6 Novembre 2022, Nashville, TN, USA.
 
 C’est moi, Care. Je suis venue sur l’Amour de Dieu comme votre sœur en Christ. Je me décrivais parfois sur terre comme une guerrière de la prière, car c’était les armes que j’avais pour affronter le monde. Et comme vous le savez peut-être, mes prières m’ont bien servi et m’ont protégé, moi et ma famille. Et pourtant, comme tous les guerriers, j’ai eu des blessures. Mes blessures n’étaient pas tant physiques que spirituelles. À un moment donné, lorsque la pureté de mes intentions est devenue évidente, j’ai réalisé que je pouvais marcher dans la foi. Je pouvais abandonner ma timidité et mes blessures et apporter au monde les vérités de l’Amour de Dieu, les prières pour l’Amour de Dieu et mes conversations avec les anges, malgré les critiques que je pouvais recevoir, de sorte que chaque fois qu’une occasion de servir se présentait, je le faisais.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Le Vrai Bonheur
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 9 Septembre 2021, Punalu’u, Oahu, Hawaii, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 9 Septembre 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Que la Grâce de l’Amour de Dieu soit sur vous tous. Que son très Esprit saint apporte Son Amour dans vos âmes afin que vous puissiez être avec nous dans la paix au-delà de la compréhension humaine, au-delà de l’agitation de ce monde, et de tous ses attraits, enchevêtrements et troubles. Je vous dis avec tout l’Amour de mon âme que plus vous passez de temps à prier, à tendre la main avec votre âme pour ce don de l’Amour de Dieu, plus tout, tout don bon et parfait, vous sera donné. Ce qui est vrai devient apparent, et ce qui est dans l’erreur tombe. Si vous souhaitez le vrai bonheur, au-delà même des plaisirs momentanés de ce monde, il vous suffit de rester ouvert à l’Amour de Dieu. Vous pouvez continuer à profiter du monde, mais considérez vos priorités.
 

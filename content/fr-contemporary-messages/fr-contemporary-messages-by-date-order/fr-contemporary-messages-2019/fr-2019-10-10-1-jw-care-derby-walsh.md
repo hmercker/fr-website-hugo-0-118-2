@@ -9,7 +9,7 @@ weight:
 ---
 ### Choisir de vivre dans l'Amour de Dieu
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 10 Octobre 2019, Punalu’u, Oahu, Hawaii, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 10 Octobre 2019, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis là, attention. Imaginez, si vous le voulez bien, être dans l’état d’amour à chaque instant. Imaginez la joie et le bonheur que votre cœur ressent lorsque votre âme est élevée dans l’amour, lorsque vous recevez l’Amour du Père Céleste et que vous vous accrochez à Son étreinte. Il n’existe aucune force au monde qui puisse vous enlever cela. Nous vivons ici dans la présence aimante de notre merveilleux Créateur. Lorsque nous rendons visite aux plans terrestres ou aux esprits des sphères inférieures, nous ne sommes pas perturbés par leur état. Nous avons de la compassion et de l’amour pour eux. Lorsqu’ils sont prêts, nous partageons cela avec eux et la Vérité de l’Amour de Dieu.
 

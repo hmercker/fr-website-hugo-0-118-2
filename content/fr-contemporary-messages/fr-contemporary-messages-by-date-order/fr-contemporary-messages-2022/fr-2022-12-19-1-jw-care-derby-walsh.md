@@ -9,7 +9,7 @@ weight:
 ---
 ### La connexion divine
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 19 Décembre 2022, Nashville, TN, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 19 Décembre 2022, Nashville, TN, USA.
 
 C’est moi, Care, votre sœur et amie. Pour ceux qui luttent pour ressentir l’Amour de Dieu, pour ceux qui luttent contre la solitude ou le manque d’amour de soi, d’estime de soi, dirigez votre prière vers notre glorieux Créateur. Sachez que vous avez la compagnie de ses anges Célestes et la sécurité de ce cercle. Car un ami en Dieu est un ami éternel et l’Amour de Dieu est un don éternel.
 

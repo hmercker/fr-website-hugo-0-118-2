@@ -9,7 +9,7 @@ weight:
 ---
 ### Progression au-delà des flux et reflux de la vie terrestre
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 3 Octobre 2022, Nashville, TN, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 3 Octobre 2022, Nashville, TN, USA.
 
 C’est moi, votre sœur et amie, Care. Une bonne partie de mes jours sur Terre, je les ai passés en prière et plus je priais, moins les flux et reflux pouvaient m’affecter. Car la terre est tellement remplie de ténèbres et de lumière et je sais, mes amis, combien il est difficile de maintenir un état d’harmonie, un état de prière, permettant à votre volonté d’être dans la volonté et la grâce du Père. Chaque matin, je me suis réveillée dans la gratitude, louant Dieu, remerciant Dieu pour un autre jour, et demandant dans ma marche sur la Terre, de servir, d’être une bénédiction, comme tant d’entre vous le font dans votre pratique de la prière.
 

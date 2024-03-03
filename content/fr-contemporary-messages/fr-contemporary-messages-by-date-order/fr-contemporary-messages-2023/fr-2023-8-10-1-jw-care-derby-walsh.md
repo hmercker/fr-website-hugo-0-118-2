@@ -9,7 +9,7 @@ weight:
 ---
 ### Aide Céleste
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 10 Août 2023, Nashville, TN, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 10 Août 2023, Nashville, TN, USA.
 
 C’est moi, Care. Je viens avec une grande joie dans mon cœur. Non seulement à cause du lieu où je réside, mais pour vous voir tous édifiés et commencer à voir le voyage à venir à travers vos lectures de progrès et de progression dans le monde des esprits <sup id=”a1”>[1](#f1)</sup>. Car vous quitterez certainement ce monde où vous demeurez et plus vous pourrez connecter votre âme à l’Amour de Dieu et à ceux d’entre nous qui habitent les Cieux Célestes ainsi qu’à ceux qui progressent vers la source de l’Amour de Dieu, plus vous pourrez diriger et fixer votre attention, les attentions de votre cœur sur ce voyage, plus nous pourrons être avec vous.
 

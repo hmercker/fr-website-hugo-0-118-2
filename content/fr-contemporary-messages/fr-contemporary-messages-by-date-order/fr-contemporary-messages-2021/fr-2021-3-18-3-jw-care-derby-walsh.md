@@ -9,7 +9,7 @@ weight:
 ---
 ### Quand vous appelez, nous venons !
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 18 Mars 2021, Punalu’u, Oahu, Hawaii, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 18 Mars 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis votre sœur et amie, votre grand-mère, et votre bien-aimée. Je souhaite dire qu’à mesure que la lumière de ce cercle continue de s’étendre, nous pouvons voir la lumière de chaque âme devenir de plus en plus brillante, car il devient de plus en plus facile de s’ouvrir au flux de l’amour de Dieu.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Laissez derrière vous ce qui n'est pas digne de votre marche future
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 21 Mars 2022, Nashville, TN, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 21 Mars 2022, Nashville, TN, USA.
 
 C’est moi Care. Je ne souhaite pas perturber la belle paix et la grâce qui abondent dans ce cercle de prière, mais je souhaite vous rappeler, gentiment, que vous pouvez toujours laisser derrière vous ce qui n’est pas digne de votre marche vers l’avenir.  Ces choses qui étaient autrefois nécessaires, voire utiles, ces choses qui ne sont plus une bénédiction divine, vous pouvez les laisser. Il peut s’agir parfois de personnes, mais bien souvent, ce sont des choses matérielles qui ne vous servent plus.
 

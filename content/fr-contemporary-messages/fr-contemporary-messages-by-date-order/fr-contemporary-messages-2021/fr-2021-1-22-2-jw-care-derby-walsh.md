@@ -9,7 +9,7 @@ weight:
 ---
 ### La multiplicité des dons
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 22 Janvier 2021, Punalu’u, Oahu, Hawaii, USA
+Care Darby Walsh - reçu par Jimbeau Walsh le 22 Janvier 2021, Punalu’u, Oahu, Hawaii, USA
 
 C'est mo, Care. Luc est ici, Jean est ici, beaucoup, beaucoup sont ici. Car nous aimons ce que vous considérez comme un petit rassemblement et nous savons qu’il est assez grand. Multiple !!
 

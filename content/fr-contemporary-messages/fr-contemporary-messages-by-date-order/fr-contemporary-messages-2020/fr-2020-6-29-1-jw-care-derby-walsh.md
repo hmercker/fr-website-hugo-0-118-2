@@ -9,7 +9,7 @@ weight:
 ---
 ### Fou de Dieu
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 29 Juin 2020, Punalu’u, Oahu, Hawaii, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 29 Juin 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, votre sœur Care, dans la grâce de Dieu. Quand St François comme vous le connaissez, quand notre frère François s’est éloigné du monde… ils ont dit : *« Il est fou, il a perdu la tête, ça doit être la maladie. »*
 

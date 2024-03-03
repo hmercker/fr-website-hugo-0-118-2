@@ -9,7 +9,7 @@ weight:
 ---
 ### Le vrai bonheur
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 12 Juin 2023, Nashville, TN, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 12 Juin 2023, Nashville, TN, USA.
 
 C’est moi, Care, votre sœur en Christ. Ahh, le bonheur insaisissable que tous les humains recherchent. Pour certains, c’est aussi simple qu’un repas. Pour d’autres, c’est aussi important qu’une protection contre les ravages de la guerre, de la sécheresse ou de la famine. Pourtant, dans les environnements les plus difficiles, le bonheur des enfants est souvent perceptible, car leur innocence les relie à une sorte de gratitude pour chaque instant. Cela ne veut pas dire que les enfants du monde entier sont exempts de souffrance ou du poids du monde, mais ce que je souhaite exprimer, c’est la simplicité, la joie d’être tout simplement, et en outre la magnificence d’être dans l’Amour de Dieu. Le chemin que vous avez choisi est au-delà des édifices construits par les hommes, de leurs monuments de vanité et de leur dévotion au dogme. Ces ministères organisés et établis sont souvent jugés en fonction de leurs moyens matériels et du nombre de leurs fidèles, plutôt qu’en fonction des bénédictions spirituelles.  Dans le monde en général, nombreux sont ceux qui ne recherchent que le dollar tout-puissant.
 

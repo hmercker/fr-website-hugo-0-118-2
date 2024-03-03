@@ -9,7 +9,7 @@ weight:
 ---
 ### La vérité divine est l'Amour de Dieu
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 7 Août 2019, Monroeville, PA, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 7 Août 2019, Monroeville, PA, USA.
 
 J’ai été ici à l’écoute de votre conversation. Je veux remercier mon bien-aimé ici pour avoir partagé cette histoire sur les anges. Mais je veux corriger un peu son histoire car ce n’est pas que j’ai parlé aux anges, j’ai parlé à Dieu. Les anges m’ont parlé. Maintenant, je suis un esprit Céleste. Je suis dans les Cieux Célestes. J’ai donc le privilège de vous parler à tous.
 

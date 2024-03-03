@@ -9,7 +9,7 @@ weight:
 ---
 ### Je l'adore!
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 2 Août 2020, Punalu’u, Oahu, Hawaii, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 2 Août 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis ici Care. Je serai brève parce que mon cher Jimbeau est assez fatigué, mais je tiens à dire que lorsque j’ai entendu vos idées et vos conseils sur les livres audio et les messages *« J’adore ça ! Je l’adore ! J’aime ça ! »*
 

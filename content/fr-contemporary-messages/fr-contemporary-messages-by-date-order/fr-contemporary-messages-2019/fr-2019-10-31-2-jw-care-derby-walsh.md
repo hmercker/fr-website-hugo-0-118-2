@@ -9,7 +9,7 @@ weight:
 ---
 ### Votre connexion est d'âme à âme en esprit
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 31 Octobre 2019, Punalu’u, Oahu, Hawaii, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 31 Octobre 2019, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis ici dans le grand amour de Dieu, Care.
 

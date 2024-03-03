@@ -9,7 +9,7 @@ weight:
 ---
 ### Pas de regrets et service
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 3 Mars 2022, Punalu’u, Oahu, HI, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 3 Mars 2022, Punalu’u, Oahu, HI, USA.
 
 C’est moi Care. Ceux d’entre nous en esprit qui ont progressé dans les royaumes Célestes ont laissé derrière eux tous les regrets, bien que cela ne signifie pas que, lorsque nous avons traversé, nous n’en avions pas. En effet, chaque âme, dans une plus ou moins grande mesure, lorsqu’elle entre en esprit, a ces choses qu’elle aurait souhaité avoir faites (ou ne pas avoir faites). En général, il s’agit d’une bonne chose, d’aider les autres ou de faire un geste courageux, de découvrir quelque chose de bon pour l’humanité, et enfin, mais surtout, de servir les autres. Car, comme vous le savez, le service apporte une grande joie et ceux qui font un saut dans la foi et se trouvent en harmonie avec l’Amour de Dieu et ses lois remercient sans cesse Dieu et tous les Anges de les avoir inspirés à le faire. Ainsi, je vous souhaite à tous d’avoir très peu de regrets et d’accomplir vos vies avec les choses que vous avez toujours souhaité faire, dans la mesure où cela est possible.
 

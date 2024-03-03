@@ -9,7 +9,7 @@ weight:
 ---
 ### Marcher dans la foi
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 22 Février 2022, Punalu’u, Oahu, HI, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 22 Février 2022, Punalu’u, Oahu, HI, USA.
 
 Je suis ici pour soigner votre sœur dans l’amour de Dieu. Je souhaite vous dire que vous n’avez pas à vous inquiéter des événements de ce monde, bien que vous puissiez vous sentir impuissants et que vous n’ayez aucun contrôle. Il vous suffit d’envoyer de l’amour à ces dirigeants, à ces pays. Envoyez consciemment cet amour.
 
