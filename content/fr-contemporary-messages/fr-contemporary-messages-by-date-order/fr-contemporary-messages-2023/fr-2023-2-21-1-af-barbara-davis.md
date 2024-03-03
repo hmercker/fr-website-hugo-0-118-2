@@ -20,6 +20,8 @@ Souvenez-vous de cela, âmes bien-aimées, alors que vous continuez à vous effo
 Je vous encourage donc dans vos prières, dans vos pensées et dans les choses que vous faites dans le monde. Cherchez à servir Dieu, cherchez à servir vos frères et sœurs, cherchez à être dans la lumière. De cette manière, vous serez une lumière et vous apporterez une plus grande lumière dans votre quête du voyage de l’âme vers l’accord avec Dieu.
 
 Que Dieu vous bénisse, âmes bien-aimées, je suis Barbara. Je suis une habitante du Royaume Céleste et je suis heureuse de venir à vous aujourd’hui pour vous parler de choses spirituelles importantes, des moyens d’être une plus grande lumière et un plus grand service dans le monde. Que Dieu vous bénisse, ma belle famille d’amour, que Dieu vous bénisse et que je vous aime.
+<small>
+
 1. <large id="f1"> Barbara Davies s'est également exprimée dans les messages suivants : [↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**  

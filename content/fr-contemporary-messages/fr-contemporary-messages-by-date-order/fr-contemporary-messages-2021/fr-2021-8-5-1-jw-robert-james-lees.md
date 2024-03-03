@@ -20,7 +20,7 @@ Donc, ce que je dis et ce qui a été donné à vous et à travers celui-ci par 
 Le temps sur terre est essentiel et si vous souhaitez que la terre soit bénie, utilisez votre temps avec sagesse comme vous le faites dans ce cercle, dans cette prière, dans ce groupe. Vous m’honorez, moi et les autres, par votre dévotion à la vérité et par vos prières pour l’amour de Dieu. Et nous vous honorons d’être avec vous et de vous aider dans votre voyage chaque fois que vous appelez. Donc, encore une fois, avec tout mon amour et ma gratitude et les bénédictions de tous ici à la gloire de Dieu. Je vous dis adieu pour le moment. Allez dans la paix et la grâce avec amour. Je suis votre frère dans le Christ. Robert J. Lees.<sup id="a2">[2](#f2)</sup>
 <small>
 
-1. <large id=”f1”> Robert James Lees a écrit trois livres étonnants, à savoir [Through the Mists (A travers les brumes)](https://new-birth.net/other-stuff/books-we-love/books-on-life-after-death/#mists), [The Life Elysian (la vie Elyséenne)](https://new-birth.net/other-stuff/books-we-love/books-on-life-after-death/#elysian)  et [The Gate of Heaven (la Porte du Ciel)](https://new-birth.net/other-stuff/books-we-love/books-on-life-after-death/#gate). Des extraits de ces trois livres sont consultables par l'intermédiaire [de ce lien](/13-fr-publications-and-downloads/13-4-fr-extracts-from-spiritual-books/) .[↩](#a1)
+1. <large id="f1"> Robert James Lees a écrit trois livres étonnants, à savoir [Through the Mists (A travers les brumes)](https://new-birth.net/other-stuff/books-we-love/books-on-life-after-death/#mists), [The Life Elysian (la vie Elyséenne)](https://new-birth.net/other-stuff/books-we-love/books-on-life-after-death/#elysian)  et [The Gate of Heaven (la Porte du Ciel)](https://new-birth.net/other-stuff/books-we-love/books-on-life-after-death/#gate). Des extraits de ces trois livres sont consultables par l'intermédiaire [de ce lien](/13-fr-publications-and-downloads/13-4-fr-extracts-from-spiritual-books/) .[↩](#a1)
 
 2. <large id="f2"> Robert James Lees s'est également exprimé lors des messages suivants [↩](#a2)
 
@@ -33,7 +33,7 @@ Robert James Lees | [Et si un ange venait dans votre maison](/fr-contemporary-me
 Robert James Lees | [Le monde bénéficierait de ce que j'ai reçu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-19-2-jw-robert-james-lees/) | 19 Octobre 2021
 Robert James Lees | [Une chose à la fois](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-10-1-jw-robert-james-lees/) | 10 Novembre 2021
 Robert James Lees | [Tous sont dignes de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-11-2-jw-robert-james-lees/) | 11 Novembre 2021
-Robert James Lees | [Une synchronicite de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-1-1-jw-robert-james-lee/) | 1 Décembre 2022
+Robert James Lees | [Une synchronicité de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-1-1-jw-robert-james-lee/) | 1 Décembre 2022
 
 ### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
 

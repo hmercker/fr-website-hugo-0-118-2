@@ -9,7 +9,7 @@ weight:
 ---
 ### Vos mots sont les vôtres comme ils sont les miens
 
-Le Père Céleste - reçu par Enfant de Dieu le 19 Juillet 2013.
+Le Père Céleste - reçu par Enfant de Dieu le 19 Juillet 2013.<sup id="a1">[1](#f1)</sup>
 
 Tes mots sont les tiens comme ils sont les Miens. Ils émergent de l’endroit où nous sommes UN. Laisse les mots couler en toi comme une rivière silencieuse, façonnés par le désir de ton cœur, en t’ouvrant au mystère de la création. Partage ton don avec tes sœurs et tes frères car ils trouveront du réconfort dans ces mots. Partage ton don et le monde changera. Étape par étape – mot par mot.
 
@@ -18,6 +18,9 @@ Laisse tes mots voyager avec grâce, en partageant ton cœur aimant de cette fa�
 Tu peux faire confiance à ce don. Tu peux faire confiance à ce que tu apportes au monde. Tu as trouvé ton don ; utilise-le avec amour et sagesse. Laisse tes mots apporter la paix au cœur de l’humanité. Tes mots sont les vôtres comme ils sont les miens. Dans l’amour, nous partageons.
 
 Ton Père.
+<small>
+
+1. <large id="f1"> L'ensembe des messages communiqués par le Père Céleste  est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-13-fr-the-heavenly-father/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2013**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/)
 

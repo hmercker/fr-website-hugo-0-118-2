@@ -25,6 +25,6 @@ L’inspiration viendra, mes amis, une inspiration profonde et vous ne devez pas
 
 Que Dieu vous bénisse, mes amis, et vous garde dans Son bel Amour, dans Sa Volonté, Son plan, Son désir et Son intention pour l’humanité. Que Dieu vous bénisse. Que Son Amour continue à couler en vous. Que vous puissiez continuer à avoir les yeux ouverts, le cœur plein et l’âme remplie de joie et d’amour. Que Dieu vous bénisse. Je suis le professeur Salyards. Je suis heureux de travailler avec vous et d’être avec vous car je suis souvent proche, plus que vous ne le pensez, je suis proche de vous tous. Que Dieu vous bénisse, que Dieu vous bénisse tous.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

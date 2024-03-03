@@ -28,6 +28,6 @@ Reine Victoria | [Parle de la loyauté (Reine d'Angleterre)](/fr-contemporary-me
 Reine Victoria | [Soyez fidèles, mais surtout, soyez forts et sages dans l'amour de Dieu.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-162-1970-anonymous-queen-victoria/) |   1970
 Reine Victoria | [Beaucoup travaillent ensemble pour la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-3-2-af-queen-victoria/) | 3 Novembre 2017
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -37,7 +37,7 @@ Bien que vous voyiez beaucoup, que vos yeux puissent aussi voir et exprimer le p
 
 Que Dieu vous bénisse, mes amis, mes beaux amis. Je suis André et mon amour pour vous, mon amour pour vous est grand. Que Dieu vous bénisse, mes amis. Que Dieu vous embrasse profondément et pleinement, vous soulève et vous guérisse. Joie, joie bien-aimée, tout autour, tout à travers vous, coulant de vous, mes amis. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

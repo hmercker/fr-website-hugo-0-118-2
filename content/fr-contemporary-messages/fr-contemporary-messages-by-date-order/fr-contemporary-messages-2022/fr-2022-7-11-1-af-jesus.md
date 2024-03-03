@@ -67,6 +67,6 @@ Vous connaîtrez vraiment quelque chose de merveilleux, de joyeux, de magnifique
 
 Que Dieu vous bénisse dans ce voyage. Que l’humanité soit bénie dans son voyage d’éveil et dans la vérité qui en découle. Puissiez-vous être vraiment Ses enfants reflétant l’amour, la lumière et la joie. Tout est donné avec cette bénédiction qui est de l’Amour de Dieu. Tout viendra en harmonie avec cela, se manifestant vraiment dans l’harmonie et la grâce qui est la création de Dieu, Son intention pour chaque âme. Que Dieu vous bénisse, mes bien-aimés. Je suis votre frère et ami, Jésus, et je vous aime. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

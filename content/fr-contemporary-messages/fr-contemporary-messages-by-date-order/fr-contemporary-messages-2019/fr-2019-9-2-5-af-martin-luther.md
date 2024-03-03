@@ -11,7 +11,7 @@ weight:
 
 Martin Luther - reçu par Al Fike le 2 Septembre 2019, Gibsons, Colombie-Britannique, Canada.
 
-C’est moi Martin Luther. Je vous ai toutes accompagnées lors de vos voyages dans ce lieu d’une telle beauté et pourtant, d’une telle privation <sup id=”a1”>[1](#f1)</sup>. Je souhaite vous remercier, mes filles bien-aimées, pour les efforts que vous avez déployés pour soutenir ma protégée bien-aimée qui porte en effet un grand amour et qui souvent travaille seule. Mais vous, mes filles bien-aimées, vous lui avez témoigné beaucoup d’amour et de soutien comme vous l’avez fait pendant que vous résidiez ici, si loin. Mais c’est l’amour dans vos yeux, l’engagement, les dédicaces et les prières que vous avez faites ensemble qui ont été un grand soutien pour notre chère et tendre fille.
+C’est moi Martin Luther. Je vous ai toutes accompagnées lors de vos voyages dans ce lieu d’une telle beauté et pourtant, d’une telle privation <sup id="a1">[1](#f1)</sup>. Je souhaite vous remercier, mes filles bien-aimées, pour les efforts que vous avez déployés pour soutenir ma protégée bien-aimée qui porte en effet un grand amour et qui souvent travaille seule. Mais vous, mes filles bien-aimées, vous lui avez témoigné beaucoup d’amour et de soutien comme vous l’avez fait pendant que vous résidiez ici, si loin. Mais c’est l’amour dans vos yeux, l’engagement, les dédicaces et les prières que vous avez faites ensemble qui ont été un grand soutien pour notre chère et tendre fille.
 
 N’est-ce pas un beau cadeau que d’avoir une forme de service auquel vous pouvez consacrer votre temps et vos efforts, en aidant les âmes perdues, en aidant ceux qui ont faim et qui sont dans le besoin, en apportant de l’amour, en apportant vraiment de l’amour de nombreuses manières à de nombreuses âmes ? Je vous invite tous à vous consacrer d’une manière ou d’une autre à servir ceux qui sont perdus, à aider à élever les enfants du monde qui sont incapables, pour quelque raison que ce soit, de trouver leur chemin vers une vie meilleure.
 
@@ -30,7 +30,7 @@ Puissiez-vous toujours marcher dans la lumière du Toucher de Dieu, chers amis. 
 Que Dieu vous bénisse, mes amis bien-aimés. Je suis Martin Luther et j’ai été très souvent avec vous alors que vous continuez à servir Dieu, alors que vous continuez à grandir dans l’Amour de Dieu et la Vérité de Dieu. Nous sommes si nombreux à vous accompagner et à porter un grand intérêt à la croissance de votre âme et de votre esprit, à vos efforts pour servir et aimer. Que Dieu vous bénisse, mes amis, que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> La visite à l’orphelinat de Drimiopsis, Namibie.[↩](#a1)
+1. <large id="f1"> La visite à l’orphelinat de Drimiopsis, Namibie.[↩](#a1)
 
 ### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
 

@@ -25,6 +25,6 @@ Ainsi, nous construisons pas à pas, pièce par pièce, les aspects qui font vra
 
 Que Dieu vous bénisse, mes amis, et vous garde dans la grâce de Ses bénédictions, la beauté de Son amour, la joie qui accompagne cet alignement et l’ouverture de vos âmes. Tant de choses continuent à se déployer. Tant de choses sont destinées à se déployer en chacun de vous : des trésors de cadeaux, la vérité qui viendra et restera une partie de vous pour toute l’éternité, la lumière qui construit, et une âme qui s’ouvre à Dieu. Que Dieu vous bénisse, mes amis. Je suis Alec. Je suis avec vous dans ce grand voyage d’amour, de service et de lumière. Mon amour est avec vous. L’Amour de Dieu est avec vous. Puissions-nous continuer à briller et à rayonner dans cet amour. Que Dieu vous bénisse. Que Dieu vous bénisse, mes amis.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

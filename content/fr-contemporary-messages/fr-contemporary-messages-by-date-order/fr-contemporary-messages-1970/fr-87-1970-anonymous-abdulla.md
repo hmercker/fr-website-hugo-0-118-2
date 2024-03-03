@@ -9,7 +9,7 @@ weight:
 ---
 ### L'Amour Divin à l'intérieur de l'homme est la seule chose qui peut rendre l'homme libre de la peur
 
-Abdulla - reçu en 1970, Vancouver, Colombie-Britannique, Canada.
+Abdulla<sup id="a1">[1](#f1)</sup> - reçu en 1970, Vancouver, Colombie-Britannique, Canada.
 
 Le plus grand cadeau et le plus grand bonheur que l'homme puisse avoir est la conscience de l'Amour Divin de Dieu dans son âme. L'Amour Divin à l'intérieur de l'homme est la seule chose qui peut libérer l'homme de la peur et l'amener dans les domaines du grand bonheur.
 
@@ -18,8 +18,15 @@ C'est quelque chose que nous ne pouvons pas acheter. C'est quelque chose que nou
 Ce soir, je veux vous donner une idée des âmes qui se sont rapprochées de vous. Beaucoup attendent l'occasion d'enseigner à nouveau sur Terre. Beaucoup n'ont pas trouvé le bonheur sur Terre mais ont su que la plus grande force de toutes venait de Dieu. Et donc, vous mes amis, vous devez faire comme moi, en demandant toujours les bénédictions de Dieu et lorsque vous ressentez ce renouveau, vous devez aider les autres à le trouver aussi. Je suis rempli d'un grand bonheur ce soir, car je sens l'Amour de Dieu au milieu de vous, apporté par notre Maître Jésus. Si je pouvais vous peindre la scène merveilleuse de tous ces petits enfants assis, debout, heureux en présence de notre Maître qui se tient élevé au-dessus de votre groupe, entouré d'âmes sages et bien-aimées.
 
 Vous ne vous rendez pas compte de l'ampleur de ces rencontres, mes amis, mais nous le faisons et nous vous aiderons toujours. Nous devons aller de l'avant dans n'importe quelle sphère de la vie où nous nous trouvons et rassembler les perdus pour qu'ils puissent eux aussi se glorifier de cette grande sagesse qui vient avec l'amour. Que la paix et le bonheur éternels soient avec vous mes amis et que l'amour de Dieu trouve un canal clair dans vos âmes, éclairant votre aura à un tel point qu'il puisse pénétrer les lieux d'obscurité. Soyez bénis, mes enfants.
+<small>
 
+1. <large id="f1"> Abdulla s'est également exprimé dans les messages suivants : [↩](#a1)
 
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|--
+Abdulla | [Nous devons apprendre à ne pas construire de barrières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-88-1970-anonymous-abdulla/) |   1970
+Abdulla | [L'importance de la vie terrestre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-156-1970-anonymous-abdulla/) |   1970
+Abdulla | [Comment se préparer à recevoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-167-1970-anonymous-abdulla/) |   1970
 
 
 ### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)

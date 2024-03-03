@@ -9,7 +9,7 @@ weight:
 ---
 ### Sois Mon Amour pour changer le monde
 
-Le Père Céleste - reçu par Enfant de Dieu le 1 Mai 2013.
+Le Père Céleste - reçu par Enfant de Dieu le 1 Mai 2013.<sup id="a1">[1](#f1)</sup>
 
 Cherche-moi dans ton cœur et tu Me trouveras. Laisse Mon Amour rayonner sur toi. Tu rayonnes et tu entraînes beaucoup de monde. Sois assez courageux pour rester seul. Sois assez courageux pour demander de l’aide. Tenez vos cœurs, ma famille d’amour. Vous tissez un filet d’amour et êtes l’espoir de tant de personnes. Vous êtes mon espoir. Je ressens le désir de votre âme d’être mon amour. Je ressens votre douleur et votre combat. Vos larmes sont les miennes alors que vous marchez sur le chemin de l’amour. Nous vous tenons, nous vous élevons, mes chercheurs de Vérité.
 
@@ -20,6 +20,9 @@ Faites confiance à leur cœur qui aspire. Faites confiance à leur âme qui asp
 Soyez mon espoir de changement. Soyez mon amour pour changer le monde.
 
 En remerciement de votre amour, Votre Père.
+<small>
+
+1. <large id="f1"> L'ensembe des messages communiqués par le Père Céleste  est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-13-fr-the-heavenly-father/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2013**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/)
 

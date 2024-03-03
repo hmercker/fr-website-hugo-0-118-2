@@ -33,6 +33,6 @@ Plus l’âme grandit, plus ces capacités grandissent, plus ces dons grandissen
 
 Que Dieu vous bénisse, mes amis, dans ce merveilleux voyage. Mon amour est avec vous. Je suis souvent avec vous, et moi aussi je vous apporte les lumières de l’arc-en-ciel pour vous soutenir et vous donner de l’appui. Que Dieu vous bénisse. Mon amour est toujours avec vous. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

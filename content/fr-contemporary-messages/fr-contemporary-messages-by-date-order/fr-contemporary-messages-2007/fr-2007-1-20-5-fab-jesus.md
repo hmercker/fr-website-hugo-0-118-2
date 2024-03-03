@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Guerre et paix et le plan de Dieu Partie 3 <sup id="a1">[1](#f1)</sup>
+### Guerre et paix et le plan de Dieu Partie - 3 <sup id="a1">[1](#f1)</sup>
 
 Jésus - reçu par FAB le 20 Janvier 2007, Santa Cruz, Californie, USA.
 
@@ -48,7 +48,6 @@ Et, planant au-dessus des régions déchirées de la Terre, se trouve le Créate
 ---|---|---
 Jésus | [Guerre et paix et le plan de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-24-1-fab-jesus/) | 24 Décembre 2006
 Jésus | [Guerre et paix et le plan de Dieu - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-26-2-fab-jesus/) | 26 Décembre 2006
-Jésus | [Guerre et paix et le plan de Dieu Partie 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-20-5-fab-jesus/) | 20 Janvier 2007
 Jésus | [Guerre et paix et le plan de Dieu Partie 4](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-12-28-1-fab-jesus/) | 28 Décembre 2007
 Jésus | [Guerre et paix et le plan de Dieu Partie 5](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-11-5-fab-jesus/) | 11 Janvier 2008
 Jésus | [Guerre et paix et le plan de Dieu Partie 6](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-12-14-1-fab-jesus/) | 14 Décembre 2008

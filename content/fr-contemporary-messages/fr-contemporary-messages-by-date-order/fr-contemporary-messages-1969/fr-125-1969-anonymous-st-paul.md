@@ -19,9 +19,6 @@ Je viens ce soir pour vous encourager et vous dire les grands progrès qui ont �
 
 Vous, qui essayez si fort de devenir plus conscients de ce qui vous entoure, devez réaliser, mes enfants, que la plus grande chose pour tout homme est d'être capable d'attirer l'Amour de Dieu dans son âme. Nous avons besoin de travailleurs, mais nous devons avoir des travailleurs qui ont une base solide. Le fondement le plus solide de tout ce que l'homme entreprend, c'est l'Amour de Dieu dans son âme. Que Dieu vous bénisse tous et que la paix et la sagesse soient avec vous, mes enfants.
 
-
-
-
 ### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

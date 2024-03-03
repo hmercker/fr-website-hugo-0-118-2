@@ -9,9 +9,9 @@ weight:
 ---
 ### Pensées d'un leader Pèlerin
 
-William Bradford <sup id="a1">[1](#f1)</sup> - reçu par FAB le 14 Décembre 2006, Santa Cruz, Californie, USA.
+William Bradford - reçu par FAB le 14 Décembre 2006, Santa Cruz, Californie, USA.
 
-Je suis là, William Bradford.
+Je suis là, William Bradford.<sup id="a1">[1](#f1)</sup>
 
 Je viens ce soir pour vous réconforter et vous faire savoir que nous sommes tous avec vous, et que tout ceci aura une issue heureuse. Regardez dans votre passé, et vous vous souviedrez de tant de circonstances difficiles qui se sont bien terminées, et ceci se terminera bien aussi.
 

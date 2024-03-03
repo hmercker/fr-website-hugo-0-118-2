@@ -33,6 +33,6 @@ Que Dieu vous bénisse, mes amis, alors que vous poursuivez votre voyage vers un
 
 Que Dieu vous bénisse, chers amis. Que Dieu vous bénisse profondément, pleinement, puissamment, avec Son Essence. Réveillez-vous et soyez libres de la tyrannie de la condition humaine, de la tyrannie de l’esprit si conditionné à ce qui n’est pas en harmonie avec Dieu, et libérez-vous de votre propre douleur afin de connaître une grande joie. Bénédictions à vous, mes amis. Bénédictions et amour.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

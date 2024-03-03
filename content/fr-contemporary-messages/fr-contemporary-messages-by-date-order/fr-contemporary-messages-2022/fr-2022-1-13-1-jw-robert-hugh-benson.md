@@ -20,7 +20,7 @@ Je peux dire que nous sommes honorés que vous revisitiez ce qu'Anthony a reçu 
 Puissiez-vous apprécier ce voyage en esprit et qu'il vous donne une image de la beauté et de l'amour qui vous attendent. Je prie pour que chacun d'entre vous soit rempli de l'Amour de Dieu comme je le suis maintenant et comme le sont ceux qui sont ici et qui vous aiment et vous guident. C'est notre joie et je vous remercie de m'accorder, ainsi qu'à Anthony, ce temps. Que Dieu vous bénisse. Je suis Robert Hugh Benson.<sup id="a2">[2](#2)</sup>
 <small>
 
-1. <large id=”f1”> **Robert Hugh Benson**, à travers Anthony Borgia, a écrit plusieurs livres sur son expérience du monde des esprits à savoir « Life in the world unseen », « More about life in the world unseen » et « Here and Hereafter ». Ces trois livres forment une trilogie mais seulement les deux premiers ont été traduits en français sous les titres respectifs « Ma vie au Paradis » et « le Paradis retrouvé ». Des extraits de ces livres peuvent être lu par l'intermédiaire [de ce lien](/13-fr-publications-and-downloads/13-4-fr-extracts-from-spiritual-books/) [↩](#a1)
+1. <large id="f1"> **Robert Hugh Benson**, à travers Anthony Borgia, a écrit plusieurs livres sur son expérience du monde des esprits à savoir « Life in the world unseen », « More about life in the world unseen » et « Here and Hereafter ». Ces trois livres forment une trilogie mais seulement les deux premiers ont été traduits en français sous les titres respectifs « Ma vie au Paradis » et « le Paradis retrouvé ». Des extraits de ces livres peuvent être lu par l'intermédiaire [de ce lien](/13-fr-publications-and-downloads/13-4-fr-extracts-from-spiritual-books/) [↩](#a1)
 
 2. <large id="f2"> Robert Hugh Benson s'est également exprimé lors des messages suivants [↩](#a2)
 
@@ -30,7 +30,7 @@ Robert Hugh Benson | [La Septième Sphère est la porte d’entrée des Cieux C�
 Robert Hugh Benson | [Croyance mentale et perception de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-18-2-jw-robert-hugh-benson/) | 18 Avril 2022
 Robert Hugh Benson | [Les royaumes de l’esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-19-1-jw-robert-hugh-benson/) | 19 Avril 2022
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

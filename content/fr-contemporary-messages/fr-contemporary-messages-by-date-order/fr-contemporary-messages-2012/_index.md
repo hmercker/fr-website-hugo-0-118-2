@@ -56,7 +56,7 @@ Le Père Céleste | [Une âme peut-elle mourir ?](/fr-contemporary-messages/fr-c
 Jésus | [La vérité est simple. La vérité est libre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-9-1-cog-jesus/) | 9 Mai 2012
 Le Père Céleste | [Nous sommes connectés à travers votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-10-1-cog-father/) | 10 Mai 2012
 Jésus | [Vrais et faux enseignants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-10-2-cog-jesus/) | 10 Mai 2012
-Le Père Céleste  [Je ne t’ai jamais rejeté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-16-1-cog-father/) | 16 Mai 2012
+Le Père Céleste | [Je ne t’ai jamais rejeté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-16-1-cog-father/) | 16 Mai 2012
 Le Père Céleste | [Je ne choisirai jamais pour toi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-27-1-cog-father/) | 27 Mai 2012
 Martin Luther | [Continuez à tendre la main](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-29-1-jb-martin-luther/) | 29 Mai 2012
 Anne Rollins | [Les changements sont à votre portée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-29-2-jb-ann-rollins/) | 29 Mai 2012
@@ -88,7 +88,7 @@ Le Père Céleste | [Le but est que tu ressentes Mon Amour](/fr-contemporary-mes
 Franklin D Roosevelt | [Clarification de FDR](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-8-26-1-fab-franklin-d-roosevelt/) | 26 Août 2012
 Le Père Céleste | [N’oublie pas que nous sommes UN](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-8-27-1-cog-father/) | 27 Août 2012
 Le Père Céleste | [Tu demandes comment Me servir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-9-3-1-cog-father/) | 3 Septembre 2012
-Père | [Sentir Mon Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-9-4-1-cog-father/) | 4 Septembre 2012
+Le Père Céleste| [Sentir Mon Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-9-4-1-cog-father/) | 4 Septembre 2012
 Jésus | [Le réconfort du Maître](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-9-4-2-fab-jesus/) | 4 Septembre 2012
 Jésus | [Fais partie de notre voyage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-9-21-1-hm-jesus/) | 21 Septembre 2012
 Judas | [Les conseils viennent de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-9-22-1-hm-judas/) | 22 Septembre 2012
@@ -97,14 +97,14 @@ Jésus | [Ne néglige jamais ta relation avec le Père](/fr-contemporary-message
 Le Père Céleste | [Accepte l’amour pour faire grandir ton amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-11-11-1-cog-father/) | 11 Novembre 2012
 Le Père Céleste | [Laisse Mon amour t’envahir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-11-13-1-cog-father/) | 13 Novembre 2012
 Jésus | [Nous voyons vos luttes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-11-21-1-hm-jesus/) | 21 Novembre 2012
-Père | [Je parle à ceux qui entendent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-11-24-1-cog-father/) | 24 Novembre 2012
+Le Père Céleste | [Je parle à ceux qui entendent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-11-24-1-cog-father/) | 24 Novembre 2012
 Le Père Céleste | [Aimer la création de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-11-27-1-hm-father/) | 27 Novembre 2012
 Le Père Céleste | [Le Monde de l’Illusion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-2-1-cog-father/) | 2 Décembre 2012
 Marie | [Se  soumetre à l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-7-1-hm-mary/) | 7 Décembre 2012
 Judas | [Le vent du changement souffle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-9-1-hm-judas/) | 9 Décembre 2012
 Anne Rollins | [Sur la Foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-10-1-hm-ann-rollins/) | 10 Décembre 2012
 Le Père Céleste | [Retrouve ton innocence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-11-1-cog-father/) | 11 Décembre 2012
-Père | [L'amour imprègne le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-23-1-hm-father/) | 23 Décembre 2012
+Le Père Céleste | [L'amour imprègne le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-23-1-hm-father/) | 23 Décembre 2012
 
 ### [**Lien vers les messages des années 2013**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/)
 

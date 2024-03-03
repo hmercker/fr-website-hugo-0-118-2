@@ -24,11 +24,11 @@ Je souhaite également reconnaître cet endroit, ce portail lumineux et plein de
 Je suis votre amie et votre sœur dans l'amour de Dieu, Eileen Caddy. Je vous aime. Que Dieu vous bénisse.
 <small>
 
-<large id=”f1”> **Eileen Caddy** (26 Août 1917 – 13 Décembre 2006) est une des fondatrices de la Fondation Findhorn. Elle est également connue pour ses ouvrages de spiritualité, en particulier La petite voix, méditations quotidiennes qui fut un best-seller. En 2004, elle a reçu l'Ordre de l'Empire britannique par la reine d’Angleterre (grade de "membre" MBE).[↩](#a1)
+<large id="f1"> **Eileen Caddy** (26 Août 1917 – 13 Décembre 2006) est une des fondatrices de la Fondation Findhorn. Elle est également connue pour ses ouvrages de spiritualité, en particulier La petite voix, méditations quotidiennes qui fut un best-seller. En 2004, elle a reçu l'Ordre de l'Empire britannique par la reine d’Angleterre (grade de "membre" MBE).[↩](#a1)
 
-<large id=”f2”> Il s'agit d'une référence à un portail énergétique.[↩](#a2)
+<large id="f2"> Il s'agit d'une référence à un portail énergétique.[↩](#a2)
 
-<large id=”f3”> Fondateur du World Healing Centre à Blackpool.[↩](#a3)
+<large id="f3"> Fondateur du World Healing Centre à Blackpool.[↩](#a3)
 
 ### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
 

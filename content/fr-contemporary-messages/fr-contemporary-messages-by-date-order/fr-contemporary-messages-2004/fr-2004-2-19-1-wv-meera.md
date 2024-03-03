@@ -46,7 +46,7 @@ Je vois que vous souhaitez en finir maintenant et je respecte votre décision.
 Je suis votre sœur qui vous aime, Meera. Au revoir.
 small>
 
-1. <large id="f1"> Meera s'était également expimé dans un autre message communiqué [le 4 février 2004](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-2-4-2-wv-meera/)[↩](#a1)
+1. <large id="f1"> Meera s'était également expimé dans un autre message communiqué [le 4 Février 2004](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-2-4-2-wv-meera/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2004**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/)
 

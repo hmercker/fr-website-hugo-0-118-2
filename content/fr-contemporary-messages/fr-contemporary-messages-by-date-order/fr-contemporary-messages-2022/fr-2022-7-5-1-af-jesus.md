@@ -77,6 +77,6 @@ Nous venons à vous dans la mesure où nous sommes capables de nous approcher. N
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre frère. Je suis votre ami. Je marche vraiment avec vous. Je suis Jésus et je vous aime. Que Dieu vous bénisse, âmes bien-aimées.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 20222**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

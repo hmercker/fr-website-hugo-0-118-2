@@ -47,7 +47,7 @@ Puissiez-vous arriver à ce lieu de véritable intégration et d’éveil, en ac
 
 Que Dieu vous bénisse, mes amis. Je suis Orion et je suis témoin de la transformation dont vous faites partie et dont vous continuerez à faire partie. Que Dieu vous bénisse. Mon amour est avec vous. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

@@ -17,7 +17,10 @@ Nous sommes des âmes et nous pouvons donc communiquer. Je n’ai pas de voix, m
 
 Pour me connaître complètement, tu dois t’abandonner à l’infini de Mon amour. Tu dois Me toucher, tendre tes mains pour que je te prenne dans Mes bras. Je ne te forcerai pas. Tu dois demander. Laisse-moi t’aimer. Tu es mon enfant chéri et je te désire ardemment. Asseyons-nous ensemble et partageons notre amour. Tu en as besoin. Tu es trop fatigué pour parler. Repose-toi.
 
-Je t’aime ton Père.
+Je t’aime ton Père.<sup id="a1">[1](#f1)</sup>
+<small>
+
+1. <large id="f1"> L'ensembe des messages communiqués par le Père Céleste  est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-13-fr-the-heavenly-father/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
 

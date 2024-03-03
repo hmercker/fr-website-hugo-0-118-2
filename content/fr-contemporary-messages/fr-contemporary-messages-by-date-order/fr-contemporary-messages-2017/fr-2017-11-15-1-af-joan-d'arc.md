@@ -17,10 +17,10 @@ Je suis Jeanne d'Arc<sup id="a1">[1](#f1)</sup> et je vais mettre en avant ma pa
 1. <large id="f1"> Jeanne d'Arc s'est également exprimé dans les messages suivants :  [↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**  
---|---|---
+---|---|---
 Jeanne d'Arc | [La plus grande force vient de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-128-1969-anonymous-joan-darc/) |   1969
-Jeanne d'Arc | [Et si je [Jeanne d’Arc] n’avait pas été exécutée ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-26-3-gmb-joan-d'arc/) | 26 Décembre 2006
-Jeanne d'Arc | [La prière avec les Liens de l'Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-30-3-af-joan-d'arc/) | 30 Mars 2023
+Jeanne d'Arc | [Et si je [Jeanne d’Arc] n’avait pas été exécutée ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-26-3-gmb-joan-darc/) | 26 Décembre 2006
+Jeanne d'Arc | [La prière avec les Liens de l'Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-30-3-af-joan-darc/) | 30 Mars 2023
 
 ### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
 

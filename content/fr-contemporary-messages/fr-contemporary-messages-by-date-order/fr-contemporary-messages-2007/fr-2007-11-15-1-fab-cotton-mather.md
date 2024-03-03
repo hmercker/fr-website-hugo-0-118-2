@@ -28,7 +28,7 @@ Le monde gémit sous le poids de l'empire Américain, et Dieu a entendu leurs cr
 Comment puis-je le savoir, me demandez-vous ? Parce que l'activité par ici a été assez animée alors que le monde spirituel supérieur et bon se mobilise pour lancer un assaut contre les ténèbres. La délivrance viendra.
 <small>
 
-1. <large id="f1"> **Cotton Mather** a été impliqué dans le procès des sorcières de Salem, et est à l'origine de l'idée que les rêves (preuves spectrales) pouvaient être utilisés comme preuves dans les procès de sorcellerie. Dix-neuf hommes et femmes ont été pendus, un homme a été écrasé par des pierres et quatre autres sont morts en prison en attendant leur procès entre Juin et Septembre 1692 dans le Massachusetts. Cotton Mather a communiqué un [précédent message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-5-20-1-fab-cotton-mather/).[↩](#a1)
+1. <large id="f1"> **Cotton Mather** a été impliqué dans le procès des sorcières de Salem, et est à l'origine de l'idée que les rêves (preuves spectrales) pouvaient être utilisés comme preuves dans les procès de sorcellerie. Dix-neuf hommes et femmes ont été pendus, un homme a été écrasé par des pierres et quatre autres sont morts en prison en attendant leur procès entre Juin et Septembre 1692 dans le Massachusetts.[↩](#a1)
 
 2. <large id="2"> Cotton Mather s'est également exprimé par l'intermédiaire des messages suivants :[↩](#a2)
 

@@ -1,17 +1,17 @@
 ---
-title: "Prions pour la bénédiction de l'amour de Dieu"
+title: "Prions pour la bénédiction de l'Aamour de Dieu"
 menu_title: ""
-description: "Prions pour la bénédiction de l'amour de Dieu"
+description: "Prions pour la bénédiction de l'Amour de Dieu"
 date: 2022-06-01 06:00:01+00:871
 draft: False
 hidden: True
 weight:
 ---
-### Prions pour la bénédiction de l'amour de Dieu
+### Prions pour la bénédiction de l'Amour de Dieu
 
 Michael Collier - reçu par Al Fike le 6 Octobre 2019, Gibsons, Colombie-Britannique, Canada.
 
-Mes bien-aimées, je m’appelle Michael <sup id=”a1”>[1](#f1)</sup>. Je suis un habitant du Royaume Céleste et je prie, comme vous le faites, pour que l’Amour du Père entre dans mon âme, comme un afflux constant, transformant et éveillant sans cesse et faisant grandir mon âme dans Son Amour.
+Mes bien-aimées, je m’appelle Michael <sup id="a1">[1](#f1)</sup>. Je suis un habitant du Royaume Céleste et je prie, comme vous le faites, pour que l’Amour du Père entre dans mon âme, comme un afflux constant, transformant et éveillant sans cesse et faisant grandir mon âme dans Son Amour.
 
 J’étais avec ce cher instrument à son réveil, lui faisant comprendre combien il est important de continuer à répandre la parole de l’Amour de Dieu, la grande joie et la bénédiction qui accompagnent cette bénédiction de l’Amour de Dieu. Si peu connaissent ce don. Pourtant, vous, âmes bien-aimées, continuez à vous efforcer, à comprendre et à recevoir cette grande bénédiction de Dieu. Je vous dis, mes beaux amis, que c’est le début de quelque chose de très important et puissant dans votre monde. Dieu a en effet planté de nombreuses graines dans votre monde, espérant que ces graines prendront racine, grandiront et deviendront de puissants chênes de vérité. Chacun de vous a un grand potentiel, est rempli de nombreux dons, de possibilités d’expression de la vraie lumière spirituelle et de la vérité dans le monde.
 
@@ -28,7 +28,7 @@ Sachez que vous n’êtes jamais seuls, que lorsque vous cherchez, lorsque vous 
 Que Dieu vous bénisse, âmes bien-aimées, je suis Michel. Je suis heureux d’avoir l’opportunité de vous parler aujourd’hui, de vous apporter mon amour, de vous aider à vous guider sur votre chemin. Car c’est notre travail, n’est-ce pas, le travail des anges, de vous aider le long de votre chemin et de vous assister et d’aider à dégager les obstacles et les difficultés, afin que vous puissiez effectivement trouver votre chemin et trouver une joie profonde et une satisfaction de l’âme dans vos efforts. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> Bien que non enregistré, il s’agit probablement de Michael Collier.[↩](#a1)
+1. <large id="f1"> Bien que non enregistré, il s’agit probablement de Michael Collier.[↩](#a1)
 
 ### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
 

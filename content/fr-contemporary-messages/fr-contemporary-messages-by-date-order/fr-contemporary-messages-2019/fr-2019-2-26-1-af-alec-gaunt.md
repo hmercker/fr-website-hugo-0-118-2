@@ -11,7 +11,7 @@ weight:
 
 Alec Gaunt - reçu par Al Fike le 26 Février 2019, Homosassa Springs, FL, USA.
 
-Que Dieu vous bénisse, mes amis. Isis <sup id=”a1”>[1](#f1)</sup> ne réside pas dans les Royaumes Célestes. Cet instrument insiste pour que les Esprits Célestes soient ses compagnons pour parler à travers lui. Si vous souhaitez parler à cet individu, vous devez contacter quelqu’un qui est en accord avec ces esprits particuliers, car il s’agit d’une considération importante. Il doit y avoir un certain élément, un élément commun qui permet à cette communication d’avoir lieu. En ce qui concerne la communication Céleste, c’est la présence de l’Amour Divin dans le médium et le soutien de ceux qui entourent le médium qui attirent la bénédiction de l’Amour de Dieu apportant la puissance à cet endroit où la communication est possible.
+Que Dieu vous bénisse, mes amis. Isis <sup id="a1">[1](#f1)</sup> ne réside pas dans les Royaumes Célestes. Cet instrument insiste pour que les Esprits Célestes soient ses compagnons pour parler à travers lui. Si vous souhaitez parler à cet individu, vous devez contacter quelqu’un qui est en accord avec ces esprits particuliers, car il s’agit d’une considération importante. Il doit y avoir un certain élément, un élément commun qui permet à cette communication d’avoir lieu. En ce qui concerne la communication Céleste, c’est la présence de l’Amour Divin dans le médium et le soutien de ceux qui entourent le médium qui attirent la bénédiction de l’Amour de Dieu apportant la puissance à cet endroit où la communication est possible.
 
 Ce qui peut sembler facile de votre côté de la vie est en fait une affaire complexe. Nous n’avons pas beaucoup d’instruments de ce calibre à notre disposition, très peu en fait. Nous gardons bien notre instrument. Il sait très bien qu’il y a des limites et qu’il y a des exigences pour qu’une telle communication ait lieu. La médiumnité est un don et la direction que l’on prend est une étape cruciale dans ce qui peut être transmis. Ce médium a donc pris des mesures et des décisions qui l’ont amené à un endroit où les anges Célestes peuvent parler. C’est une rareté sur votre Terre, âmes bien-aimées, un cadeau de Dieu en effet.
 
@@ -48,7 +48,7 @@ C’est pourquoi nous, dans les Cieux Célestes, continuons à marcher avec vous
 Maintenant, je vais vous dire bonne nuit, mes bien-aimés. Je suis heureux de vous avoir parlé et j’espère avoir répondu à certaines de vos questions. Ah, l’esprit interrogateur du mortel. Je sais que cela pourrait être une conversation sans fin mais le rapport est limité et je dois vous dire bonne nuit.
 <small>
 
-1. <large id=”f1”> Ceci fait référence à Isis, la déesse égyptienne. La personne qui a posé la question (T) pense que cet esprit est l’un de ses guides.[↩](#a1)
+1. <large id="f1"> Ceci fait référence à Isis, la déesse égyptienne. La personne qui a posé la question (T) pense que cet esprit est l’un de ses guides.[↩](#a1)
 
 ### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
 

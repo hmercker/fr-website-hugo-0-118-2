@@ -49,7 +49,7 @@ Bien dit. Je pourrais ajouter que c’est toujours bon de prier, pour les raison
 
 Je pense qu’avec cela il est maintenant clair ce que le mot « oubli » signifie. Mais je veux ajouter une dernière chose.
 
-[Helen Padgett a, une fois, écrit à son mari](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-3-23-2-jep-helen-padgett/) :
+[Hélène Padgett a, une fois, écrit à son mari](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-3-23-2-jep-helen-padgett/) :
 
 > Alors, mon cher Ned, ne te laisses pas dominer par l’idée que tu dois rendre à chacun ce que tu penses lui être redevable, et t’empêcher de croire en la miséricorde et en l’Amour du Père.
 

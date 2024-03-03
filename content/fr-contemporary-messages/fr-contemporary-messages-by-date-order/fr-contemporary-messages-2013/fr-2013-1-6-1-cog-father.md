@@ -9,7 +9,7 @@ weight:
 ---
 ### Reviens vers moi
 
-Le Père Céleste - reçu par Enfant de Dieu le 6 Janvier 2013.
+Le Père Céleste - reçu par Enfant de Dieu le 6 Janvier 2013.<sup id="a1">[1](#f1)</sup>
 
 Reviens à moi, cher enfant. Laisse tomber tes distractions et plonge dans l’amour éternel avec moi. Je t’ai appelé de nombreuses fois, tu l’as ressenti et pourtant tu as décidé de poursuivre ta vie bien remplie. Reviens. Tu es digne de mon amour et je veux que tu écoutes et partages ce que tu entends. Tu ne peux pas être un canal de mon amour sans prendre du temps en silence avec moi. Oui, nous pouvons travailler ensemble mais tu dois faire un effort. Ton monde est plein de distractions. Je sais que ce n’est pas facile mais tu peux le faire. Tu dois surmonter les distractions et faire ce qui doit être fait, en prenant ton temps chaque jour pour t’asseoir dans une prière silencieuse.
 
@@ -18,6 +18,9 @@ Tu n’es jamais perdu. Les distractions que tu ressens, c’est ta peur. Tu as 
 Je te parle. Mais c’est vrai pour tous. Je ne te force jamais. Le manque d’accomplissement que tu ressens vient du fait que tu n’honores pas ton désir. Embrasse et suis ton désir. C’est ton véritable destin. Je suis avec toi tout au long du chemin.
 
 Dans l’amour, ton père.
+<small>
+
+1. <large id="f1"> L'ensembe des messages communiqués par le Père Céleste  est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-13-fr-the-heavenly-father/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2013**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/)
 

@@ -11,7 +11,7 @@ weight:
 
 Care Darby Walsh - reçu par Jimbeau Walsh le 8 Janvier 2021, Punalu’u, Oahu, Hawaii, USA
 
-![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-physique-et-spiritualite.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/physique-et-spiritualite.jpg)
 
 Je suis Care. Je suis votre sœur, votre amie, votre bien-aimée et une grand-mère. C’est peut-être la fête des grands-mères aujourd’hui ? En lisant le beau message d’Anne Rollins, quel esprit brillant et magnifique elle est, et aussi les belles paroles d’Eileen Caddy, sachez que nous sommes tous des anges Célestes, toutes des mères et des grand-mères.
 

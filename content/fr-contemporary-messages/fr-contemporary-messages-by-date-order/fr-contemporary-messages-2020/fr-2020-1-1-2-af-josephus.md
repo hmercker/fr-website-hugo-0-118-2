@@ -9,7 +9,7 @@ weight:
 ---
 ### Pourquoi Dieu permet-il la souffrance de l’innocent ?
 
-Flavius Joseph - reçu par Al Fike le 1 Janvier 2020, Gibsons, Colombie-Britannique, Canada.
+Flavius Joseph - reçu par Al Fike le 1<sup>er</sup> Janvier 2020, Gibsons, Colombie-Britannique, Canada.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-argent-et-spiritualite.jpg)
 

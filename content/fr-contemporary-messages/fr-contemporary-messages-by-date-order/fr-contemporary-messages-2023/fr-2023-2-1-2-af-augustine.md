@@ -9,7 +9,7 @@ weight:
 ---
 ### La rigueur de la douleur qui accompagne le libre arbitre
 
-Augustin - reçu par Al Fike le 1 Février 2023, Sechelt, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 1<sup>er</sup> Février 2023, Sechelt, Colombie-Britannique, Canada.
 
 Mes amis bien-aimés, je suis votre enseignant Augustin. Le libre arbitre est une force formidable dans votre monde. Il a déterminé le cours de l’histoire humaine depuis le commencement, où les premiers parents ont choisi leur destin. Et cette même disposition fut utilisée par chaque génération qui a suivi, créant ce que vous appelez la condition humaine à cette époque et en ce lieu. Oui, l’humanité a créé beaucoup de choses, à la fois sombres et claires, belles et laides. Elles se sont traitées avec amour et haine. Cette dualité continue de s’épanouir au sein de la condition humaine. En effet, Dieu ne peut pas empêcher l’humanité de faire ces choix. Il a créé un univers parfait dans sa construction. Pourtant, ce qu’Il a laissé à l’humanité, c’est un choix. L’individu est alors libre de choisir la lumière ou l’obscurité.
 

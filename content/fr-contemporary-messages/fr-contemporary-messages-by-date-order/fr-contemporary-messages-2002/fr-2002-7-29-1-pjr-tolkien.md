@@ -52,7 +52,7 @@ Avec mon amour pour vous, et l’amour du Père, je suis J. R. R. Tolkien.<sup i
 
 3. <large id="f3"> De toutes les malchances : mon stylo à bille était complètement sec vers la fin du message, et je n’avais pas d’autre instrument d’écriture.[↩](#a3)
 
-4. <large id="f1"> Tolkien s'est également exprimé dans les messages suivants : [↩](#a4)
+4. <large id="f4"> Tolkien s'est également exprimé dans les messages suivants : [↩](#a4)
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---

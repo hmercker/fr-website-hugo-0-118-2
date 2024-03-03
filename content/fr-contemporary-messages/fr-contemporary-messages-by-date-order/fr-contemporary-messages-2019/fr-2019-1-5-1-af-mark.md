@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Apporter la bénédiction de l'amour divin à ce sanctuaire
+### Apporter la bénédiction de l'Amour Divin à ce sanctuaire
 
 Marc - reçu par Al Fike le 5 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
 

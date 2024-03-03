@@ -13,7 +13,7 @@ Walt Disney - reçu par FAB le 21 Juin 2012, Berkeley, Californie, USA.
 
 C’est moi, Walt Disney.<sup id="a1">[1](#f1)</sup>
 
-Je souhaite commenter ce que j’ai dit [dans une récente canalisation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-1-6-1-fab-walt-disney/), à savoir que mon héritage était un geste d’amour de bonne volonté envers le monde.
+Je souhaite commenter ce que j’ai dit dans ma récente canalisation [du 6 Janvier 2011](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-1-6-1-fab-walt-disney/), à savoir que mon héritage était un geste d’amour de bonne volonté envers le monde.
 
 J’étais un homme d’affaires avec un produit à vendre. Mais j’étais aussi une personne avec un sens moral. Je savais que mon produit devait être divertissant. Au fur et à mesure que mon produit évoluait, je savais aussi que je devais présenter la vie d’une certaine manière véridique.
 

@@ -37,6 +37,6 @@ Que Dieu vous bénisse, mes amis. Je suis le professeur Salyards, et je vous rem
 
 Que Dieu vous bénisse, mes amis. Que Dieu vous bénisse. Je suis avec vous, pour vous aider à comprendre les vérités et les mécanismes de l’univers, de l’univers de Dieu, et je vous remercie de m’avoir écouté aujourd’hui. Mon amour est avec vous tous. Que Dieu vous bénisse. Que Dieu vous bénisse, belles âmes de l’univers de Dieu.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

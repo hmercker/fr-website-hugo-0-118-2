@@ -54,7 +54,7 @@ Je t’aime, ton père, et tes amis pour qui il parle en ce moment.<sup id="a1">
 PSR | [L’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-10-1-pjr-psr/) | 10 Avril 2002
 PSR | [Difficultés à atteindre le Père](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-24-1-pjr-psr/) | 24 Avril 2002
 PSR | [Fatigué et distrait](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-8-28-1-pjr-psr/) | 28 Août 2003
-PSR | [Ces Limites sont tes limites](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-9-2-1-pjr-psr/) | 2 Septembre 2003
+PSR | [C’est vraiment un seul endroit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-9-26-1-pjr-psr/) | 26 Septembre 2003
 PSR | [Tout n’est jamais perdu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-10-2-1-pjr-psr/) | 2 Octobre 2003
 
 ### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)

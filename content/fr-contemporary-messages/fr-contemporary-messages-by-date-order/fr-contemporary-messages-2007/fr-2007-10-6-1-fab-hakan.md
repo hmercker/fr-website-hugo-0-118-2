@@ -13,7 +13,7 @@ Hakan - reçu par FAB le 6 Octobre 2007, Santa Cruz, Californie, USA.
 
 Je suis là, Hakan.
 
-Oui, c’est vrai, vous avez bien reçu mon nom. Je suis le maître d’œuvre égyptien que Moïse a tué, et je souhaite confirmer tout ce qu’il vient de dire.
+Oui, c’est vrai, vous avez bien reçu mon nom. Je suis le maître d’œuvre égyptien que [Moïse a tué](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-10-6-2-fab-moses/), et je souhaite confirmer tout ce qu’il vient de dire.
 
 Lorsque je suis entré dans le monde des esprits, après la période d’adaptation initiale, je suis entré dans une sphère de ténèbres grossières. Ma cruauté envers les esclaves Hébreux m’est revenue en pleine figure. Et la haine que je nourrissais dans mon cœur à l’égard de Moïse n’a fait qu’attiser mon feu infernal.
 

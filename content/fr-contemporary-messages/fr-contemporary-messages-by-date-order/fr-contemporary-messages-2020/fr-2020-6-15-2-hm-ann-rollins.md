@@ -24,7 +24,7 @@ Notre venue vers vous qui êtes sur la Terre est également déterminée par les
 Exprime tes prières, chère fille, car tes prières seront exaucées. Dieu enverra ses anges pour venir t’aider à apporter sa touche bienveillante à ton monde. Nous sommes proches. Je suis avec toi dans la prière. Je reviendrai pour manifester ma présence de façon plus évidente, pour partager des vérités et pour te faire connaître mon amour et faire connaître ton travail. Ma fille, nous te saluons ce matin. Je suis avec toi. Que Dieu continue à te bénir, mon âme bien-aimée. Ton cher ange ami est proche, je suis ton aide et ton amie, Anne Rollins.
 <small>
 
-1. <large id="f1"> Les différents messages communiqués par Anne Rollins sont accessibles par l'intermédiaire de [ce lien](fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-12-fr-family-and-friends-of-james-padgett/)[↩](#a1)
+1. <large id="f1"> Les différents messages communiqués par Anne Rollins sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-12-fr-family-and-friends-of-james-padgett/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
 

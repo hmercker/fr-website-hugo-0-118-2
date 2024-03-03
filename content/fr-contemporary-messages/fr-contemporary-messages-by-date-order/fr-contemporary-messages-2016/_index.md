@@ -92,7 +92,7 @@ James Padgett | [Chacun de vous fait l’expérience de Dieu et de la Vérité d
 St Matthieu | [La différence entre le mental et l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-8-25-1-af-st-matthew/) | 25 Août 2016
 Frère Mandus Nyquist | [Une description de l’âme et de sa nature durable](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-8-27-1-af-brother-mandus/) | 27 Août 2016
 Seretta Kem | [La prière de groupe multiplie les bénédictions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-1-1-af-seretta-kem/) | 1 Septembre 2016
-Jésus | [Soyez ouverts à l’amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-1-2-af-jesus/) | 1 Septembre 2016
+Jésus | [Soyez ouverts à l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-1-2-af-jesus/) | 1 Septembre 2016
 Augustin | [L’amour naturel et l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-2-1-af-augustine/) | 2 Septembre 2016
 Confucius | [Dieu a allumé une étincelle en vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-2-2-af-confucius/) | 2 Septembre 2016
 Jésus | [Je suis votre frère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-2-3-af-jesus/) | 2 Septembre 2016

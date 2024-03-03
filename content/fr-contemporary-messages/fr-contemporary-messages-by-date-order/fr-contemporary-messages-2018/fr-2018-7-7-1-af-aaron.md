@@ -1,15 +1,15 @@
 ---
-title: "Les anges accompagnent tous ceux qui cherchent l'amour de Dieu"
+title: "Les anges accompagnent tous ceux qui cherchent l'Amour de Dieu"
 menu_title: ""
-description: "Les anges accompagnent tous ceux qui cherchent l'amour de Dieu"
+description: "Les anges accompagnent tous ceux qui cherchent l'Amour de Dieu"
 date: 2022-06-01 06:00:01+00:421
 draft: False
 hidden: True
 weight:
 ---
-### Les anges accompagnent tous ceux qui cherchent l'amour de Dieu
+### Les anges accompagnent tous ceux qui cherchent l'Amour de Dieu
 
-Aron - reçu par Al Fike le 7 Juillet 2018, Gibsons, Colombie-Britannique, Canada.
+Aaron - reçu par Al Fike le 7 Juillet 2018, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Aaron. Je viens reconnaître ma chère et bien-aimée sœur qui marque un autre pas sur le chemin de la vie et de l’amour. Qu’elle sache que les anges continuent de l’entourer, elle et sa chère sœur. Avec chaque jour qui vient, la main de Dieu repose sur vous deux et sur tous ceux qui sont ici et qui cherchent la lumière, qui cherchent à s’élever, qui cherchent l’amour de Dieu. La Main de Dieu repose en effet sur vous tous dans ce cercle et dans tous les cercles qui cherchent le plus haut.
 

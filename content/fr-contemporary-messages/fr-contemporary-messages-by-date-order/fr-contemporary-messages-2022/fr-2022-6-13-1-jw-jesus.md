@@ -19,6 +19,6 @@ Que votre amour tombe sur le juste et l’injuste, le mal et le bien, que votre 
 
 J’embrasse chacun, je bénis chacun, et je remercie celui-ci, mon frère réticent. Va en paix, reste dans l’Amour, je suis avec toi. Je suis ton frère et ton ami éternel, Maître des Cieux Célestes, Jésus.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

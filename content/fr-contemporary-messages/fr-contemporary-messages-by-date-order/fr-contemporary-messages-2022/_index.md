@@ -78,7 +78,11 @@ Flavius Josèphe | [Nous encourage à prier pour combattre les forces des ténè
 Anna (Grand mère de Jésus) | [Le plus grand nombre possible d’anges tentent d’entrer en relation avec nous tous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-18-1-af-anna-grandmother-of-jesus/) | 18 Mars 2022
 Professeur Salyards | [L’élan se construit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-19-1-af-professor-salyards/) | 19 Mars 2022
 Orion | [Discerner entre la conscience de l’âme et la conscience de l’esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-19-2-af-orion/) | 19 Mars 2022
+<<<<<<< HEAD
 Care Darby Walsh | [Laissez derrière vous ce qui n'est pas digne de votre marche future](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-21-1-jw-care-derby-walsh.md) | 21 Mars 2022
+=======
+Care Derby Walsh | [Laissez derrière vous ce qui n'est pas digne de votre marche future](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-21-1-jw-care-derby-walsh/) | 21 Mars 2022
+>>>>>>> 6d9e60d611a5669957a071d70effd391bf67763a
 Judas | [Revisiter les messages Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-22-1-jw-judas/) | 22 Mars 2022
 André | [Continuez à faire ressortir la Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-24-1-af-andrew/) | 24 Mars 2022
 Marie | [Tournée d'éveil de l'âme 2022](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-24-2-af-mary/) | 24 Mars 2022
@@ -249,7 +253,7 @@ Augustin | [Abstenez-vous de toute discussion politique ou relative aux changeme
 Mylora | [Soyez dans la grâce de Dieu ; cherchez son amour maintenant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-8-1-al-mylora/) | 8 Octobre 2022
 St Matthieu | [Encourage les nouveaux cercles de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-8-2-al-st-matthew/) | 8 Octobre 2022
 Jésus | [Bénis et encouragés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-8-3-al-jesus/) | 8 Octobre 2022
-James et Hélène Padgett | [Nous bénit et nous encourage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-9-1-al-james-helen-padgett/) | 9 Octobre 2022
+James et Hélène Padgett | [Nous bénissent et nous encouragent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-9-1-al-james-helen-padgett/) | 9 Octobre 2022
 Augustin | [Des conseils vous seront donnés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-9-2-al-augustine/) | 9 Octobre 2022
 St Matthieu | [Construire, étendre le portail pour amplifier les avantages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-15-1-af-st-matthew/) | 15 Octobre 2022
 Jésus | [Changements à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-15-2-af-jesus/) | 15 Octobre 2022

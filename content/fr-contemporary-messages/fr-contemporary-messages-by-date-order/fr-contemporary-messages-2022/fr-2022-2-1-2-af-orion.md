@@ -9,7 +9,7 @@ weight:
 ---
 ### Décrit les efforts pour nous aider à nous préparer aux manifestations physiques
 
-Orion - reçu par Al Fike le 1 Février 2022, Gibsons, Colombie-Britannique, Canada.
+Orion - reçu par Al Fike le 1<sup>er</sup> Février 2022, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Orion. Alors que vous vous asseyez et priez ensemble pour recevoir le don de Dieu qui est Son amour, Son essence, transformant vos âmes, vous baignez également dans une atmosphère remplie d’énergies et de conditions de lumière qui sont apportées à chacun de vous afin pour vous aider dans votre développement spirituel. Chaque composante de lumière et d’énergie que nous apportons a un but précis. Certaines sont destinés à vous aider dans vos corps physiques, d’autres à vos corps spirituels et d’autres à vous aider à nettoyer les débris autour de votre âme. Et nous sommes proches afin que nous puissions influencer votre esprit alors que nous poursuivons ce travail ensemble. Vous êtes sur un programme de développement, de changement, d’éveil, de renforcement, et nous sommes nombreux à être impliqués, pas seulement nous des royaumes stellaires, mais aussi vos amis angéliques et vos esprits brillants.
 
@@ -25,7 +25,7 @@ Vous n’avez pas besoin d’être trop préoccupé par ces détails. Il est plu
 
 Je vous remercie, chers amis, pour votre dévouement et vos efforts alors que nous continuons à travailler ensemble pour l’amélioration de l’humanité afin d’apporter la lumière dans le monde et de dissiper les ténèbres, l’ignorance, la souffrance, la peur, dont une grande partie a gouverné votre planète pendant si longtemps. Dieu considère maintenant qu’il est temps de recalibrer votre monde vers la lumière, vers une fréquence plus élevée et plus raffinée où l’amour peut circuler librement et où Dieu peut influencer plus facilement tous les habitants de votre planète. Que Dieu vous bénisse, mes amis bien-aimés. Que Dieu vous bénisse profondément dans vos cœurs et vos âmes. Que votre esprit libère tous les obstacles qui l’éloignent de Dieu. Que Dieu vous bénisse. Mon amour est avec vous. Je suis Orion. Je serai toujours à vos côtés dans ce grand effort. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

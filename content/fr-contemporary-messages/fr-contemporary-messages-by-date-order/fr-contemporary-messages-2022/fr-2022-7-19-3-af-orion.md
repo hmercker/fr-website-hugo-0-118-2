@@ -41,6 +41,6 @@ Soyez en harmonie avec ces lois, mes amis. Cherchez ce qu’il y a de plus élev
 
 Je vous bénis. Merci pour le temps que vous avez consacré à la prière et à l’écoute. Beaucoup d’amour à vous tous. Je suis Orion. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

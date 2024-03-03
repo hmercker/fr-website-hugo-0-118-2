@@ -35,6 +35,6 @@ George Gurdjieff | [Continuez à apporter cette lumière dans le monde](/fr-cont
 George Gurdjieff | [Manifestations et expériences Sprituelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-28-1-af-george-gurdjieff/) | 28 Septembre 2021
 George Gurdjieff | [Restez éveillé dans l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-24-1-af-george-gurdjieff/) | 24 Juillet 2023
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

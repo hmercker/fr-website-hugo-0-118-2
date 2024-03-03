@@ -13,7 +13,7 @@ Judy Garland - reçu par FAB le 29 Octobre 2008, Santa Cruz, Californie, USA
 
 C'est moi, Judy Garland.<sup id="a1">[1](#f1)</sup>
 
-Laisse-moi clarifier ce qui ne semble pas être clair. Dans [mon channeling du 19 Mai 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-19-2-fab-judy-garland/), j'ai dit que j'étais sortie d'une partie de mon obscurité, et dans le [message du 12 Octobre 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-12-2-fab-judy-garland/), j'ai décrit une progression assez rapide vers un plus grand bonheur.
+Laisse-moi clarifier ce qui ne semble pas être clair. Dans [mon channeling du 19 Mai 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-19-1-fab-judy-garland/), j'ai dit que j'étais sortie d'une partie de mon obscurité, et dans le [message du 12 Octobre 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-12-2-fab-judy-garland/), j'ai décrit une progression assez rapide vers un plus grand bonheur.
 
 Tout cela est lié au processus. Dans l'intervalle entre ces deux canalisations, ma progression s'est accélérée de façon presque géométrique parce que j'avais atteint un certain plateau. J'ai eu beaucoup de mal au début - en fait, au début, c'était impossible.
 

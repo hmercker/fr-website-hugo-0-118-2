@@ -19,7 +19,7 @@ Je crois qu'un politicien est un enfant bien-aimé de Dieu avant d'être un poli
 
 Je crois aussi que c'est une tâche difficile, car ils subissent de nombreuses pressions que le public ne connaît pas et ne comprend pas. Je crois aussi que tout au long de l'histoire de votre pays *[les États-Unis]*, il y a eu des hommes politiques qui ont courageusement pris des positions qui ont entraîné des difficultés.
 
-Les observations de Taft étaient les siennes, un produit de ce qu'il a vécu sur terre. Je n'ai jamais été ouvertement dans l'arène politique, mais j'ai certainement apprécié les moments où les principes étaient plus importants que l'opportunisme. C'est comme toute autre situation humaine - la vie nous offre des choix, et nous choisissons, définissant ainsi notre vie et notre âme.
+Les observations de william-howard Taft étaient les siennes, un produit de ce qu'il a vécu sur terre. Je n'ai jamais été ouvertement dans l'arène politique, mais j'ai certainement apprécié les moments où les principes étaient plus importants que l'opportunisme. C'est comme toute autre situation humaine - la vie nous offre des choix, et nous choisissons, définissant ainsi notre vie et notre âme.
 
 Vous avez estimé qu'il a généralisé de manière injuste. Eh bien, c'est ce qu'il a choisi de dire. Le fait qu'il soit un politicien a influencé ce qu'il a dit. C'était son point de vue basé sur son expérience.
 

@@ -19,7 +19,7 @@ Ce que beaucoup de gens ne savent pas, c’est qu’il a laissé un résidu, un 
 
 À propos de la pierre à l’entrée de la grotte, elle n’était pas aussi grande que les gens le pensent et il n’était pas si difficile pour nous de la déplacer. Bien sûr, nous avons une grande force. Vous demandez si, comme l’a dit le prêtre hier à l’église, Jésus a été tué par les forces du mal. Parfois, nos ailes blanches repoussent effectivement les forces du mal. Mais le mal qui a tué Jésus n’était rien d’autre que le mal qui se cache encore dans le cœur des hommes ordinaires, à travers le désordre et la négligence de leur esprit et de leurs habitudes mentales. Maintenant je vais partir avant de brûler un trou dans votre esprit, car vous êtes nouveau dans ce domaine.
 
-*[R : Merci d’être venu.]*
+*[RL : Merci d’être venu.]*
 
 ### [**Lien vers les messages des années 2004**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
 

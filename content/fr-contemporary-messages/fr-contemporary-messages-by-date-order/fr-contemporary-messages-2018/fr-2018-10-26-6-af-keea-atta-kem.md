@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### L'éveil de l'âme par l'amour de Dieu est la clé de tous les dons
+### L'éveil de l'âme par l'Amour de Dieu est la clé de tous les dons
 
 Keea Atta Kem - reçu par Al Fike le 26 Octobre 2018, Gibsons, Colombie-Britannique, Canada
 

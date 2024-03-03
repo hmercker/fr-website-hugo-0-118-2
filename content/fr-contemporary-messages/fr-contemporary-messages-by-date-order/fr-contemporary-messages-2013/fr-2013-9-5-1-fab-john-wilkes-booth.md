@@ -15,7 +15,7 @@ John Wilkes Booth <sup id="a1">[1](#f1)</sup> - reçu par FAB le 5 Septembre 201
 
 Je suis ici, John Wilkes Booth.
 
-Je suis ici aujourd’hui pour clarifier une contradiction apparente. Dans [ma canalisation du 31 Décembre 2005](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-12-31-2-fab-john-wilkes-booth/), j’ai dit que le fait d’avoir été chassé comme fugitif, cela m’a fait changer. Cependant vous venez de lire, dans « Cinquante ans dans l’Église de Rome » de Charles Chiniquy, que je suis resté impénitent jusqu’à la fin. Il y a donc là une contradiction. Je voudrais m’expliquer.
+Je suis ici aujourd’hui pour clarifier une contradiction apparente. Dans [ma canalisation du 31 Décembre 2005](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-12-31-2-fab-john-wilkes-booth/), j’ai dit que le fait d’avoir été chassé comme fugitif, cela m’a fait changer. Cependant vous venez de lire, dans *« Cinquante ans dans l’Église de Rome »* de Charles Chiniquy, que je suis resté impénitent jusqu’à la fin. Il y a donc là une contradiction. Je voudrais m’expliquer.
 
 Oui, j’avais le sentiment d’avoir débarrassé le monde d’un mécréant et d’un blasphémateur. Cela n’a pas changé. Mais lorsque j’ai été poursuivi, j’ai réalisé que j’avais pris une vie, et pas n’importe laquelle : la vie d’un homme qui avait une énorme influence.
 

@@ -13,7 +13,7 @@ Judas - reçu par H____ le 25 Avril 2002, Cuenca, Équateur.
 
 Mon cher frère H____ ,
 
-Je sais que tu as une question particulière au sujet de [« l’Antéchrist »](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-29-1-hr-judas/), mais je ne veux pas traiter ce sujet maintenant. Je veux revenir à l’année 26.
+Je sais que tu as une question particulière au sujet de [l’Antéchrist](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-29-1-hr-judas/), mais je ne veux pas traiter ce sujet maintenant. Je veux revenir à l’année 26.
 
 Un jour, Jésus nous annonça que nous devions rejoindre l’autre côté de la mer de Galilée, la région appelée Décapole. Nous fûmes assez surpris. Même si, en Galilée, vivaient un grand nombre de païens – ils constituaient peut-être même la majorité de la population – dans la Décapole nous aurions à faire face à une population où les Juifs ne formaient qu’une infime minorité. Qu’est-ce que le Messie des Juifs avait à faire avec eux ?
 

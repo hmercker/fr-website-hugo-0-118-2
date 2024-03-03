@@ -19,6 +19,6 @@ Ce sont les humains qui font naître les portails de lumière. Car Dieu répond 
 
 J’encourage donc tout le monde à avancer dans la foi, à explorer et à réaliser les désirs de leur cœur et les aspirations de leur âme à grandir et à changer dans l’Amour de Dieu. Je vous dis cela à partir de mon expérience, pour que ce soit la vôtre, pour que nous grandissions tous ensemble. C’est toujours un plaisir de venir vous parler et je vous remercie de me permettre de partager. Avec tout mon amour et mes bénédictions, je suis votre sœur en Christ, je suis Eileen Caddy.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

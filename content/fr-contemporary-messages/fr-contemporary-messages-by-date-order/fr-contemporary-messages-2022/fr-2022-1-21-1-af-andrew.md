@@ -23,6 +23,6 @@ Vous connaissez l’Amour de Dieu. Puissiez-vous vraiment être en alignement av
 
 Soyez humble, soyez vrai, soyez fidèle, soyez clair et fort dans tout ce que vous désirez dans la prière. Ainsi, la lumière coulera, les bénédictions se déploieront, et beaucoup bénéficieront de votre grande instrumentalité, âmes bien-aimées. Que Dieu vous bénisse. Que Dieu vous bénisse. Je suis Andrew, et mon amour est avec vous tous. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

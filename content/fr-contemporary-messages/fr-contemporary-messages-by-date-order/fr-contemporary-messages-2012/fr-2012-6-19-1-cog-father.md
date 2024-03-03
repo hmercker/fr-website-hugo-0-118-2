@@ -25,10 +25,12 @@ Ceux d’entre vous qui se déplacent déjà avec amour feront l’expérience d
 
 Vous ne devez pas avoir peur. Tout se passe comme prévu.
 
-Votre Père.
+Votre Père.<sup id="a1">[1](#f1)</sup>
 <small>
 
 1. <large id="f1"> Ce message s'adresse à nous tous. C'est bien au-delà de la coïncidence que, littéralement, chaque médium que je connais personnellement, et cela inclut beaucoup plus que les adeptes de l'« Amour Divin », a reçu à peu près le même message - cette année.[↩](#a1)
+
+2. <large id="f2"> L'ensembe des messages communiqués par le Père Céleste  est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-13-fr-the-heavenly-father/)[↩](#a2)
 
 ### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
 

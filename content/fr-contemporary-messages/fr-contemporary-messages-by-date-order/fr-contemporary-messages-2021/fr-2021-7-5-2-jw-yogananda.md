@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Transcender tout est le don de l'amour de Dieu
+### Transcender tout est le don de l'Amour de Dieu
 
 Yogananda - reçu par Jimbeau Walsh le 5 Juillet 2021, Punalu’u, Oahu, Hawaii, USA.
 

@@ -43,6 +43,6 @@ Dieu vous bénisse, âmes bien-aimées, je suis votre enseignant, Augustin. Je d
 
 Je vous aime tous et je comprends vos luttes, et ainsi nous sommes ensemble. Nous sommes donc ensemble sur le grand chemin de la vie, ce Chemin Divin qui mènera à l’union avec Dieu et à l’accomplissement de la vérité. Dieu vous bénit et vous garde dans son amour. Nous sommes vraiment frères et sœurs, famille de Dieu. Que Dieu vous bénisse. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

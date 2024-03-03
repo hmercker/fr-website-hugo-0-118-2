@@ -31,7 +31,7 @@ L’amour prévaudra, mes bien-aimés, mes frères et sœurs bien-aimés, l’am
 
 Je suis votre frère et ami, Maître du Royaume Céleste. Je suis Jésus. Je viens vous rassurer que vous êtes en sécurité et que ce monde continuera à être animé, vital et à progresser vers tout ce qui est en harmonie avec la création de Dieu. L’humanité va bientôt s’en rendre compte et voir son chemin vers ce but. Âmes bien-aimées, je suis avec vous. Je suis avec vous tous. Mes prières sont constantes pour votre monde et des millions de personnes prient dans le monde des esprits et dans le monde Céleste pour votre monde. Rejoignez-les dans la prière, mes bien-aimés, rejoignez-les dans la prière. Je vous aime. Je suis avec vous. Nous sommes ensemble dans l’amour. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

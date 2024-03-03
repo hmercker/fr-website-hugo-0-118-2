@@ -30,7 +30,7 @@ Je vous remercie d’avoir entendu l’appel de votre âme et d’avoir rejoint 
 Que Dieu vous bénisse.
 <small>
 
-1. <large id="f1"> Le livre dont il est question s'intitule [Le véritable Évangile révélé à nouveau par Jésus](/fr-james-padgett-messages/fr-according-publication-volume-tg/) et peut être obtenu en format pdf, epub, kindle et imprimé. Il y a quatre volumes dans la série.[↩](#a1)
+1. <large id="f1"> Le livre dont il est question s'intitule [Le véritable Évangile révélé à nouveau par Jésus](/fr-james-padgett-messages/fr-according-publication-volume-tgRBJ/) et peut être obtenu en format pdf, epub, kindle et imprimé. Il y a quatre volumes dans la série.[↩](#a1)
 
 2. <large id="f2"> L'ensemble des messages communiqués par James Padgett  est disponible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-12-fr-family-and-friends-of-james-padgett/)[↩](#a2) 
 

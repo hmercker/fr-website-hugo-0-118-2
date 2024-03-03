@@ -11,7 +11,7 @@ weight:
 
 Ramsès II - reçu par Al Fike le 26 Juin 2020, Gibsons, Colombie-Britannique, Canada
 
-Mes amis, je suis Ramsès II, le père de [celle qui vient de parler](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-26-1-af-keea-atta-kem/). Lorsque je marchais sur la Terre, j’étais un homme de grand privilège. En fait, j’étais considéré comme divin dans mon statut sur votre Terre, un roi parmi tant d’autres dans ce que vous appelez l’Égypte. J’avais donc de grands privilèges et une grande richesse, un grand pouvoir et un grand prestige. J’ai vécu une vie de luxe comme personne d’autre à mon époque. Tous mes désirs et mes besoins étaient satisfaits. J’ai vécu comme peu d’hommes ont vécu dans votre monde.
+Mes amis, je suis Ramsès II,<sup id="a1">[1](#f1)</sup> le père de [celle qui vient de parler](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-26-1-af-keea-atta-kem/). Lorsque je marchais sur la Terre, j’étais un homme de grand privilège. En fait, j’étais considéré comme divin dans mon statut sur votre Terre, un roi parmi tant d’autres dans ce que vous appelez l’Égypte. J’avais donc de grands privilèges et une grande richesse, un grand pouvoir et un grand prestige. J’ai vécu une vie de luxe comme personne d’autre à mon époque. Tous mes désirs et mes besoins étaient satisfaits. J’ai vécu comme peu d’hommes ont vécu dans votre monde.
 
 Lorsque mon heure est venue de passer dans le monde des esprits, comme vous pouvez l’imaginer, mes attentes étaient grandes et je m’attendais à continuer cette vie privilégiée. Oh, quelle ne fut pas ma déception lorsque j’arrivai à une existence très banale, sans aucun prestige, sans aucun sentiment de grandeur, sans aucune richesse, sans rien. Car, bien que mon âme ne soit pas particulièrement sombre, ni particulièrement éclairée, j’ai progressé vers la grisaille de la première sphère telle que vous la connaissez. Pourtant, même moi qui étais perdu jusqu’à un certain point, j’ai finalement trouvé mon chemin vers une plus grande lumière grâce à ces âmes généreuses et belles, ces esprits, qui ont aidé ceux d’entre nous qui étions perdus et incertains de la direction vers laquelle aller, sont venus à moi et m’ont aidé à progresser.
 
@@ -28,6 +28,9 @@ J’ai eu un voyage inhabituel en effet, mais une grande leçon est apprise par 
 Vous êtes très bénis de l’avoir comme l’une de vos lumières directrices, comme nous tous qui continuons à apprendre de ceux qui sont plus avancés que nous, de plus grandes lumières que nous, ceux d’entre nous qui continuent à lutter pour un Amour toujours plus grand et une expansion de nos âmes sur ce Chemin Divin, cette route vers Dieu.
 
 Que Dieu vous bénisse, mes amis. Je suis Ramsès II et je suis heureux de m’adresser à vous aujourd’hui. Que votre chemin soit rempli de Lumière. Que vos cœurs soient remplis de joie. Puissiez-vous apprendre à connaître l’humilité et la joie qui accompagnent le service et l’amour de vos frères et sœurs. Je suis heureux de vous parler et de partager mon histoire. Que Dieu vous bénisse et vous garde dans sa lumière. Je vous bénis.
+<small>
+
+1. <large id="f1"> Ramses II s'était également exprimé antérieurement [le 12 Avril 2016](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-12-1-fab-rameses-ii/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
 

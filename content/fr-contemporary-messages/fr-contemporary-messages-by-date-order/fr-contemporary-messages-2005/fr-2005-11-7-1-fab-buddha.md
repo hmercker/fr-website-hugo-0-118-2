@@ -23,10 +23,13 @@ En tout cas, il y a une puissante armée d'esprits bienveillants qui travaillent
 
 Je vous remercie d'avoir reçu ce message. Je vous souhaite de réussir dans toutes vos entreprises.
 
-Sincèrement, Le Bouddha.
+Sincèrement, Le Bouddha.<sup id="a2">[2](#f2)</sup>
 <small>
 
 1. <large id="f1"> Ce message est tout à fait en accord avec le [commentaire d'Hélène Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-8-1-1-jep-helen-padgett/) selon lequel le Bouddha était à ce moment-là encore dans la Sixième Sphère. Aussi incroyable que cela puisse paraître, que l'un des plus grands maîtres spirituels du monde puisse avoir une progression limitée, c'est la preuve ultime du libre arbitre. La progression n'est pas difficile, mais si l'on ne désire pas se rapprocher du Père, cette progression s'arrête et stagne.[↩](#a1)
+
+2. <large id="f2"> le Bouddha s'est exprimé ultérieurement le [17 Novembre 2010](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-11-17-1-fab-the-buddha/)[↩](#a2)
+
 
 ### [**Lien vers les messages des années 2005**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/)
 

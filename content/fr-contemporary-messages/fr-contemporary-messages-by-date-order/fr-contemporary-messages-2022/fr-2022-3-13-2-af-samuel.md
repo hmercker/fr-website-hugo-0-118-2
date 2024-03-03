@@ -27,6 +27,6 @@ Mes frères et sœurs bien-aimés et bien-aimés, chacun de vous a trouvé son c
 
 Que Dieu vous bénisse dans votre voyage. Puissiez-vous continuer à bénéficier de toutes les bénédictions que Dieu a à vous accorder, de tout le soutien, de tout l’amour, de toute la lumière que Dieu déverse sur vous et à travers Ses instruments de lumière. Puissiez-vous vous soutenir mutuellement, âmes bien-aimées. Puissiez-vous vraiment être profondément bénis dans vos âmes et apprendre à vous connaître véritablement. Je suis avec vous dans ce voyage. Je suis Samuel et je continuerai à vous soutenir avec beaucoup de mes frères et sœurs au sein du Royaume Céleste. Que Dieu vous bénisse et vous garde dans Sa Lumière. Puissiez-vous connaître une paix profonde, une joie profonde, un amour profond. Que Dieu vous bénisse. Mon amour est avec vous. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

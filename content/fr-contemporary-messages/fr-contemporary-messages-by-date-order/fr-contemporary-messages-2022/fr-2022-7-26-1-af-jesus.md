@@ -81,6 +81,6 @@ La grande récompense de l’individu qui s’avance de cette façon est de savo
 
 Mes frères et sœurs bien-aimés, puissiez-vous trouver votre chemin vers Dieu. La clé se trouve dans les désirs de votre âme. Cette clé s’adaptera à la serrure de la porte qui s’ouvrira, permettant à l’Amour et à la Lumière d’entrer et de couler vers l’âme. L’âme trouve alors la joie et l’accomplissement dans cette expérience. Puissiez-vous trouver consciemment cette joie et cet épanouissement en vous ouvrant à la Grande Âme de Dieu et en apprenant qu’Il vous remplira et vous comblera de Son Amour. Il vous transformera et vous guérira. Tout cela vient d’une prière de désir, d’un désir ardent envoyé à Dieu. Ainsi, vous trouverez votre chemin dans cette voie simple qui n’est pas difficile, qui n’est pas onéreuse. Il ne vous coûte rien et vous donne tout, il vous donne l’univers. Puissiez-vous trouver ce que vous cherchez, âmes bien-aimées, et trouver le grand Toucher de Dieu dont je parle. Mon amour est avec vous, mes bien-aimés. Mon amour est avec vous. Je suis Jésus et je viens pour être avec vous dans l’amour. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

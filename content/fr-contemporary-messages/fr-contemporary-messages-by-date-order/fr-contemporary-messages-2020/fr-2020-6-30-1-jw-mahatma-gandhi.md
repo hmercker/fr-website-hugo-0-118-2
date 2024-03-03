@@ -11,7 +11,7 @@ weight:
 
 Mahatma Gandhi - reçu par Jimbeau Walsh le 30 Juin 2020, Punalu’u, Oahu, Hawaii, USA.
 
-![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/gandhi.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-gandhi.jpg)
 
 Namaste!
 

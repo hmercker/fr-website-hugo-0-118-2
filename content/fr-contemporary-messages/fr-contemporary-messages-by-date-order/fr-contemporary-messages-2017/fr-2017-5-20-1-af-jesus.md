@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### S'abreuver aux eaux de l'amour de Dieu
+### S'abreuver aux eaux de l'Amour de Dieu
 
 Jésus - reçu par Al Fike le 20 Mai 2017, Bend, Oregon, USA
 

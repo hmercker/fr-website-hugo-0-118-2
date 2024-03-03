@@ -17,7 +17,7 @@ Vous venez de lire que j'ai [canalisé à travers M. Padgett](/fr-james-padgett-
 
 > Et si l'homme n'avait jamais reçu cet Amour Divin dans son âme, il n'y aurait jamais eu un tel Royaume amené à l'existence.
 
-[Vous m'avez canalisé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-28-1-fab-jesus/) en disant que le Royaume Céleste préexistait à mon ministère. Je m'explique.
+[Vous m'avez canalisé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-8-1-fab-jesus/) en disant que le Royaume Céleste préexistait à mon ministère. Je m'explique.
 
 Dieu ne crée jamais rien à partir de rien. Le Royaume Céleste n'est pas né du néant. Mais il a pris la forme que les esprits Célestes lui ont donnée à travers leurs désirs et leurs personnalités. En d'autres termes, avant d'être habité, il était, comme vous dites en anglais, une coquille vide. Sans la présence des Anges qui l'habiteraient, Il n'existait pas vraiment, même si la structure était là.
 

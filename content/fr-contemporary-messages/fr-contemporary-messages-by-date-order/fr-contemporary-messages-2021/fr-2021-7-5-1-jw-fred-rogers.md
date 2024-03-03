@@ -20,16 +20,16 @@ Je travaille maintenant avec des enfants qui sont passés de l’autre côté, m
 Je vais prendre du recul et me joindre à vous dans votre prière pour l’amour du Créateur. De tout mon cœur, je vous remercie de m’avoir permis de venir aujourd’hui. Que Dieu vous bénisse tous. Je suis Fred Rogers. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> **Fred McFeely Rogers** (20 mars 1928 – 27 février 2003), également connu sous le nom de Mister Rogers, était un animateur de télévision, auteur, producteur et ministre presbytérien américain. Il fut le créateur, le directeur de l’émission et l’animateur de la série télévisée pour enfants d’âge préscolaire, Mister Rogers’ Neighborhood, qui a été diffusée de 1968 à 2001.[↩](#a1)
+1. <large id="f1"> **Fred McFeely Rogers** (20 Mars 1928 – 27 Février 2003), également connu sous le nom de Mister Rogers, était un animateur de télévision, auteur, producteur et ministre presbytérien américain. Il fut le créateur, le directeur de l’émission et l’animateur de la série télévisée pour enfants d’âge préscolaire, Mister Rogers’ Neighborhood, qui a été diffusée de 1968 à 2001.[↩](#a1)
 
 2. <large id="f2"> Fred Rogers s'est également exprimé dans les messages suivants :  [↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Fred Rogers | [Travailler avec les petits enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-12-1-jw-fred-rogers/) | 12 Octobre 2021
-Fred Rogers | [Amis imaginaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-29-1-jw-fred-rogers/) | 29 Septembre 2022
+Fred Rodgers | [Amis imaginaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-29-1-jw-fred-rogers/) | 29 Septembre 2022
 Fred Rogers | [Habitudes, Dépendances  et Guérisson](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-3-1-jw-fred-rogers/) | 3 Avril 2023
-Fred Rogers | [Habitudes, Dépendances  et Guérisson](/fr-contemporary-messages/fr-contemporary-messages-bdate-order/fr-contemporary-messages-2023/fr-2023-4-7-1-jw-fred-rogers/) | 7 Avril 2023
+Fred Rogers | [Habitudes, Dépendances  et Guérisson (Suite)](/fr-contemporary-messages/fr-contemporary-messages-bdate-order/fr-contemporary-messages-2023/fr-2023-4-7-1-jw-fred-rogers/) | 7 Avril 2023
 Fred Rogers | [Nous sommes tous des enfants de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-5-1-1-jw-fred-rogers/) | 1 Mai 2023
 
 ### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)

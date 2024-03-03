@@ -33,6 +33,6 @@ Si vous récitez cette prière avec sincérité et désir, Dieu vous répondra. 
 
 Puissiez-vous être vraiment bénies, mes chères âmes bien-aimées. Puissiez-vous être vraiment bénies et savoir que Dieu vous touche avec la profondeur et la clarté de Son Amour, l’émerveillement de ce don qui éveille tout en vous à temps. Que Dieu vous bénisse. Je suis votre enseignant Augustin, et je vous aime. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -49,6 +49,6 @@ Choisissez sagement, âmes bien-aimées. Choisissez toujours la lumière. Rappel
 
 Bénédictions pour vous. Je suis Orion. Mon amour et mon dévouement sont avec vous tous. Que Dieu vous bénisse. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

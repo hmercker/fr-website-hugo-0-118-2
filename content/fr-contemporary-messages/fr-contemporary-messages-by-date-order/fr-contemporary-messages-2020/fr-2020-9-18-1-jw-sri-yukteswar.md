@@ -1,13 +1,13 @@
 ---
-title: "Sri Yukteswar honors Yogananda"
+title: "Sri Yukteswar rend hommage Yogananda"
 menu_title: ""
-description: "Sri Yukteswar honors Yogananda"
+description: "Sri Yukteswar rend hommage Yogananda"
 date: 2022-06-01 06:00:01+00:1252
 draft: False
 hidden: True
 weight:
 ---
-### Sri Yukteswar honors Yogananda
+### Sri Yukteswar rend hommage à Yogananda
 
 Sri Yukteswar - reçu par Jimbeau Walsh le 18 Septembre 2020, Punalu’u, Oahu, Hawaii, USA.
 
@@ -31,7 +31,7 @@ Sri Yukteswar | [La loi de la création et Sathya Sai Baba](/fr-contemporary-mes
 Sri Yukteswar | [Réponses aux questions sur la guérison par l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-26-3-af-sri-yarisupta/) | 26 Janvier 2019
 Sri Yarisupta | [Qu’y a-t-il dans un nom ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-27-4-af-sri-yarisupta/) | 27 Janvier 2019
 Sri Yukteswar | [La dualité de l'âme et de l'esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-4-9-2-af-sri-yukteswar/) | 9 Avril 2019
-Sri Yukteswar | [L'instrumentalité de Lorraine se manifeste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-15-2-af-sri-yuktesar/) | 15 Octobre 2022
+Sri Yukteswar | [L'instrumentalité de Lorraine se manifeste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-15-3-af-sri-yuktesar/) | 15 Octobre 2022
 
 ### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
 

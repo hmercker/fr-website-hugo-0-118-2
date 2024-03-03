@@ -22,7 +22,7 @@ Aie confiance en toi, aie confiance en Dieu, aie confiance en nous, aie confianc
 Nous t’entourons de notre amour et sommes toujours proches de toi. Fais appel à nous. Je suis heureuse de t’écrire à nouveau, c’est Anne Rollins, ta sœur en Christ. Au revoir, mon amour.
 <small>
 
-1. <large id="f1"> Les différents messages communiqués par Anne Rollins sont accessibles par l'intermédiaire de [ce lien](fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-12-fr-family-and-friends-of-james-padgett/)[↩](#a1)
+1. <large id="f1"> Les différents messages communiqués par Anne Rollins sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-12-fr-family-and-friends-of-james-padgett/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
 

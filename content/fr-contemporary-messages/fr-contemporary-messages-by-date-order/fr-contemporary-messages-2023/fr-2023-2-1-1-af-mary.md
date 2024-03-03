@@ -9,7 +9,7 @@ weight:
 ---
 ### Marie vient sur les faisceaux de lumière de votre chant
 
-Marie - reçu par Al Fike le 1 Février 2023, Sechelt, Colombie-Britannique, Canada.
+Marie - reçu par Al Fike le 1<sup>er</sup> Février 2023, Sechelt, Colombie-Britannique, Canada.
 
 Soyez bénies, âmes bien-aimées, je suis Marie. Je viens vers les faisceaux de lumière que vous avez créés dans votre chant, votre désir et votre prière. Je viens à vous parce que, en ce moment, nous sommes tous ensemble dans cet acte d’amour de prière à Dieu. Ainsi, avec cette unité que vous créez, cette résonance de désir, Dieu est là, Son Esprit Saint-déversant l’amour dans votre âme. Ouvrez grand et connaissez la bénédiction, sa réponse à votre beau chant, à votre prière et à votre désir, alors que l’âme résonne d’amour, recevant ce qu’elle a toujours recherché, l’infusion de l’Essence de Dieu. Car vos âmes ont été créées pour de telles choses et elles en seront transformées.
 

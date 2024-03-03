@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Vos âmes chantent à la lumière de l'amour de Dieu
+### Vos âmes chantent à la lumière de l'Amour de Dieu
 
 Seretta Kem - reçu par Al Fike le 3 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 

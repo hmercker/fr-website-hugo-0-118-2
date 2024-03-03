@@ -7,11 +7,11 @@ draft: False
 hidden: True
 weight:
 ---
-### Continuez à prier pour que la volonté de Dieu prévale à WHC – Ne perdez pas espoir
+### Continuez à prier pour que la volonté de Dieu prévale au WHC<sup id="a1">[1](#f1)</sup> – Ne perdez pas espoir
 
 Frère Mandus - reçu par Al Fike le 9 Mai 2022, Gibsons, Blackpool, Royaume Uni.
 
-Que Dieu soit avec vous, mes amis. Je suis Mandus<sup id="a1">[1](#f1)</sup>, et je viens vous remercier pour vos efforts et vos préoccupations à l’égard du lieu dans lequel j’ai effectué mon travail et mon ministère. J’ai de la gratitude pour toutes vos prières et pour les chères âmes qui sont allées prier dans le sanctuaire. J’ai de la gratitude pour vous, mes amis, qui me connaissiez et connaissiez ma vision et mon travail, et pour le fait que vous continuez à prier pour l’accomplissement de ce grand flux d’amour de Dieu qui continue à se manifester dans le monde.
+Que Dieu soit avec vous, mes amis. Je suis Mandus<sup id="a2">[2](#f2)</sup>, et je viens vous remercier pour vos efforts et vos préoccupations à l’égard du lieu dans lequel j’ai effectué mon travail et mon ministère. J’ai de la gratitude pour toutes vos prières et pour les chères âmes qui sont allées prier dans le sanctuaire. J’ai de la gratitude pour vous, mes amis, qui me connaissiez et connaissiez ma vision et mon travail, et pour le fait que vous continuez à prier pour l’accomplissement de ce grand flux d’amour de Dieu qui continue à se manifester dans le monde.
 
 La touche de guérison de Dieu est si importante et si nécessaire dans votre monde. Je n’ai pas pleinement apprécié ou compris cela lorsque je marchais sur la Terre, mais maintenant je comprends mieux et j’attribue au voyage de l’âme vers l’harmonisation avec Dieu par Son Amour.
 
@@ -42,7 +42,9 @@ Et je vous remercie encore, et encore et encore, pour tout ce que vous faites et
 Mon travail n’est pas terminé, ni le vôtre, il y a encore tant à faire, et puissions-nous trouver notre chemin sur la voie que Dieu a désignée, sur le voyage de la lumière, de l’éveil, de l’amour de l’âme. Que Dieu vous bénisse mes amis, je suis votre frère, Mandus, et je suis avec vous. Que Dieu vous bénisse.
 <small>
 
-1. <large id="f1"> Brother Mandus s'est également exprimé dans les messages suivants : [↩](#a1)
+1. <large id="f1"> [WHC =  World Healing Center](https://www.whc.uk.net/). Ce centre a  été fondé par l'auteur de ce messsage, Frère Mandus Nyquist, dans les années 50.[↩](#a1)
+
+2. <large id="f21"> Brother Mandus s'est également exprimé dans les messages suivants : [↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
@@ -50,7 +52,7 @@ Frère Mandus Nyquist | [Vous allez remplir votre mandat de canal de l’Amour c
 Frère Mandus Nyquist | [Une description de l’âme et de sa nature durable](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-8-27-1-af-brother-mandus/) | 27 Août 2016
 Frère Mandus Nyquist | [La porte de la grâce de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-10-1-jw-brother-mandus/) | 10 Octobre 2020
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

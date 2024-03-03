@@ -63,6 +63,6 @@ Que Son Amour continue à être la puissance et l'impulsion, la force et la vér
 
 Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées, et sachez que je vous aime. Je suis Jésus et je suis avec vous. Que Dieu vous bénisse, âmes bien-aimées, pour ne jamais vous quitter, pour être toujours à vos côtés. Dans mon cœur, vous êtes mes frères et sœurs. Nous sommes ma famille, la famille de Dieu. Comme Son Amour se déverse sur nous, ainsi nous sommes ensemble dans cette Vérité. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

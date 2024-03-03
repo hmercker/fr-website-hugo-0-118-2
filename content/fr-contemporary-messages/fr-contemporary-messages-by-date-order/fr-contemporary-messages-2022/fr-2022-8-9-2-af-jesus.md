@@ -30,3 +30,7 @@ Bien-aimés, nous sommes tous des enfants de Dieu. Voyez chaque personne que vou
 Donnez vos paroles de manière simple et aimante, mes bien-aimés. Que l’Amour de Dieu coule à travers vous vers vos frères et sœurs. En tant que mes disciples, je vous implore d’accepter et d’aimer tous ceux que vous rencontrez et d’être cet exemple et ce canal, afin que les autres puissent apprendre de vous et voir en vous une lumière, un beau cadeau au monde qui est l’œuvre de Dieu et sa bénédiction.
 
 Que Dieu vous bénisse, mes bien-aimés. Nous sommes ensemble sur ce chemin. Nous sommes des frères d’armes qui accomplissent la Volonté de Dieu d’apporter l’illumination, la paix, la joie et la vérité à toute l’humanité. Que Dieu vous bénisse, mes bien-aimés, et vous garde dans sa lumière. Que la paix et l’amour pleuvent sur vous tous. Que Dieu vous bénisse. Mon amour est toujours avec vous. Que Dieu vous bénisse. Je suis Jésus, et je viens avec des mots de vérité, de réconfort et de réconfort pour vous tous, mes bien-aimés.
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

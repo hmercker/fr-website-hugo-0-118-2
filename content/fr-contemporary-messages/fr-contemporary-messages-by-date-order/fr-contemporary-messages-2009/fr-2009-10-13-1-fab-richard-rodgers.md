@@ -15,7 +15,7 @@ C'est moi, Richard Rodgers.<sup id="a1">[1](#f1)</sup>
 
 Vous êtres arrivé à la fin de la lecture de ma biographie [par Meryle Secrest], et vos yeux sont maintenant ouverts sur ce que j'étais sur Terre. Oui, je suis mort athée et alcoolique, et il y avait beaucoup de choses dans mon âme qui n'étaient pas en harmonie. Mais vous avez aussi lu que dans ma vie intérieure, j'avais beaucoup de sensibilité et de richesse, et c'est également vrai. J'ai puisé dans cette source pour trouver les idées de ma musique. J'avais dit que ce n'était qu'un métier, mais j'ai mieux appris.
 
-Je lis très bien dans vos pensées, et vous vous débattez avec des doutes sur ce que j'ai [canalisé à travers vous il y a six ans](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-5-5-1-fab-richard-rodgers/)et le [30 Juillet 2013]
+Je lis très bien dans vos pensées, et vous vous débattez avec des doutes sur ce que j'ai [canalisé à travers vous il y a six ans](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-5-5-1-fab-richard-rodgers/) et le [30 Juillet 2013](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-7-30-1-fab-richard-rodgers/)
 
 Vous pensez que le genre de progrès dont j'ai parlé aurait dû être impossible étant donné mon état mental et d'âme lorsque je suis entré dans ce monde des esprits. Laissez-moi donc vous raconter mon histoire, et lorsque j'aurai terminé, je vous garantis que vous vous sentirez mieux.
 

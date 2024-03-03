@@ -69,7 +69,7 @@ Que Dieu vous bénisse dans ce voyage, mes amis bien-aimés. Je m'excuse de pren
 
 Que Dieu vous bénisse dans ce voyage. Nous continuerons ce voyage ensemble et chercherons à atteindre de plus grands sommets de conscience, une compréhension plus profonde de nous-mêmes, un plus grand amour pour tous, et un plus grand amour intérieur. Que Dieu vous bénisse. Je suis votre ami Orion. Mon amour pour vous est grand. En effet, si je dois vivre ici pour une période de temps, alors je le ferai, car si je peux vous aider et vous assister tous, alors je suis ici pour votre bénéfice et votre élévation, mes beaux amis. Que Dieu vous bénisse profondément, pleinement et complètement. Merci.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

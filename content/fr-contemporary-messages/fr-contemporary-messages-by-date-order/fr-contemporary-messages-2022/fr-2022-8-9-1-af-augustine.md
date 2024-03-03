@@ -43,6 +43,6 @@ Puissiez-vous être toujours dans la lumière, dans la Vérité de l’Amour de 
 
 Que les bénédictions de l’Amour de Dieu vous élèvent et fassent fondre toutes vos préoccupations afin que vous soyez vraiment libres et dans Sa Lumière. Que Dieu vous bénisse, mes bien-aimés. Je suis votre enseignant Augustin, et j’ai senti que c’était un sujet important à aborder, afin de vous assurer, âmes bien-aimées, que sur vos voyages vous pouvez trébucher et tomber parfois, mais en effet, Dieu est là pour vous relever. Les anges sont là pour vous soutenir, et votre âme est là pour vous informer avec sagesse et amour. Écoutez, mes bien-aimés, sachez que vous êtes dans la grâce de Dieu, sachez que vous êtes bénis et que tout ira bien. Tout ira bien dans la vérité de l’Amour et de l’attention de Dieu pour vous. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

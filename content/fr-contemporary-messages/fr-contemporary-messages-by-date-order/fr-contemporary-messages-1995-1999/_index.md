@@ -56,7 +56,7 @@ Jésus | [Les pensées pécheresses et la loi de compensation](/fr-contemporary-
 Marie | [Sur la cruauté envers les animaux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-10-30-1-ar-mary/) | 30 Octobre 1999
 Aigle Blanc | [La guérison par l’intermédiaire des guérisseurs spirituels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-3-1-ar-white-eagle/) | 3 Novembre 1999
 Jésus | [Sur la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-6-1-ks-jesus/) | 6 Novembre 1999
-Marie | [Vous Vous demandez ce que Dieu attend de vous ? Seulement votre amour !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-7-1-ar-mary/) | 7 Novembre 1999
+Marie | [Vous vous demandez ce que Dieu attend de vous ? Seulement votre amour !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-7-1-ar-mary/) | 7 Novembre 1999
 Marie & Jean | [Sur le manque d’amour de soi de M___](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-12-1-ar-mary-john/) | 12 Novembre 1999
 Lorenzo | [Encouragements pour Alfredo](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-15-1-Alfredo-lorenzo/) | 15 Novembre 1999
 André | [Sur les doutes d’Alfredo](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-16-1-Alfredo-andrew/) | 16 Novembre 1999

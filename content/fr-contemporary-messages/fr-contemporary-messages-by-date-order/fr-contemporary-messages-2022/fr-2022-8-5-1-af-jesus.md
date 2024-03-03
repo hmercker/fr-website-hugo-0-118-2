@@ -85,6 +85,6 @@ Puissiez-vous accepter mon invitation car ce n’est pas seulement moi qui vous 
 
 Cherchez et vous trouverez, mes chers amis. Frappez et la porte s’ouvrira à vous. Elle vous attend et vous attendra. Puissiez-vous prier pour ces cadeaux en ce moment même et rechercher leurs bénédictions auprès de Dieu. Que Dieu vous bénisse, mes bien-aimés. Je suis votre ami, votre professeur, votre frère. Je suis avec vous, je serai toujours avec vous, âmes bien-aimées, ceux qui recherchent ce qu’il y a de plus élevé, ceux qui cherchent à nourrir leur vrai moi, ceux qui sont insatisfaits de la vie matérielle mondaine et qui souhaitent aller plus loin, aller au-delà de ces limitations. Je continue à prier pour vous, mes bien-aimés. Je cherche à vous élever. Je cherche à vous montrer le chemin. Puissiez-vous connaître le chemin et chercher la voie de l’Amour de Dieu. Que Dieu vous bénisse. Mon amour est avec vous. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -29,7 +29,7 @@ Alors, si vous avez le blues, cherchez la chanson, faites-en votre prière, perm
 1. <large id="f1"> Hazrat Inayat Khan s'est également exprimé lors des messages suivants [↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**  
---|---|---
+---|---|---
 Hazrat Inayat Khan | [Gardez une chanson dans votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-9-1-jw-hazrat-inayat-khan/) | 9 Novembre 2021
 Hazrat Inayat Khan | [Gardez un chant dans votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-25-1-jw-inayat-khan/) | 25 Avril 2022
 Hazrat Inayat Khan | [Le chant du cœur et la danse de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-2-1-jw-inayat-khan/) | 2 Mai 2022

@@ -29,6 +29,7 @@ Nous nous rassemblons nombreux, nombreux en ce moment. Car alors que nous sommes
 
 Que Dieu vous bénisse pleinement, puissamment, profondément, avec Son Amour. Je suis avec vous, mes bien-aimés, et nous sommes ensemble dans cette prière pour le bien-être du monde et le bien-être de tous ceux qui souffrent en son sein. Que Dieu vous bénisse, mes bien-aimés. Je t’aime. Je vous aime tendrement. Chacun de vous, chacun de vous est aimé. Que Dieu vous bénisse, âmes bien-aimées. Soyez en paix et sachez que Dieu est avec nous.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

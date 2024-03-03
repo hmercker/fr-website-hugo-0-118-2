@@ -17,6 +17,6 @@ Puissiez-vous sentir la bénédiction de Son toucher, l’élévation. Puissiez-
 
 Nous sommes tous élevés au-delà du plan terrestre vers ce lieu de lumière et de paix. Ouvrez vos âmes, mes bien-aimés, au grand afflux de Son Amour. Ainsi, nous réalisons le désir de Dieu de bénir et d’élever Ses enfants, d’apporter Sa Lumière partout où elle peut être dirigée et où il est demandé de la placer sur le monde, dans les âmes que vous rassemblez dans vos prières. Bien-aimés, sentez la profonde élévation, la belle lumière qui est présente avec chacun d’entre vous. Mettez de côté vos soucis terrestres et soyez avec nous, en communion avec Dieu. Dieu vous bénisse, je suis Mylora. Mon amour pour vous est profond et durable. Je vous embrasse tous dans l’amour. Dieu vous bénisse, âmes bien-aimées, vous êtes aimées, vous êtes aimées. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

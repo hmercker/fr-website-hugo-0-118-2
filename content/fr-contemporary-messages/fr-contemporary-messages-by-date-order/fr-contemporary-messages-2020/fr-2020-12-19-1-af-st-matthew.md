@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### C’est à vous de connaître la volonté de Dieu
+### C’est à vous de connaître la Volonté de Dieu
 
 St Matthieu - reçu par Al Fike le 19 Décembre 2020, Gibsons, Colombie-Britannique, Canada.
 

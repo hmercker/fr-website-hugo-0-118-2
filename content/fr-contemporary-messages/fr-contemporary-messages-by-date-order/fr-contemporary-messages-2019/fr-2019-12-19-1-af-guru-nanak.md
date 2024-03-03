@@ -9,7 +9,7 @@ weight:
 ---
 ### Bénédiction de réconfort et d'amour sur votre parcours
 
-Guru Nanak <sup id=”a1”>[1](#f1)</sup> - reçu par Al Fike le 19 Décembre 2019, Gibsons, Colombie-Britannique, Canada
+Guru Nanak <sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 19 Décembre 2019, Gibsons, Colombie-Britannique, Canada
 
 Dieu vous bénisse, mes amis, je suis Guru Nanak. Je suis venu vous apporter du réconfort et de l’amour pour vous aider à comprendre le voyage que vous entreprenez. Un voyage formidable, mes amis, un voyage qui ne fait souvent pas partie de la vie dans votre monde, un voyage qui exige votre dévouement et votre concentration afin que vous puissiez effectivement atteindre de plus grands sommets à la fois dans votre esprit et dans votre âme pour être dans une plus grande lumière et vérité. Vous marchez sur un chemin qui est en effet unique et singulier à sa manière, mais qui a un grand potentiel pour enseigner aux autres sur un chemin similaire.
 
@@ -20,7 +20,7 @@ Il y a une grande destinée pour vous tous, mes amis. Vous marchez sur ce chemin
 Vous êtes bénis, mes amis, vous êtes vraiment bénis et vous rejoindrez, en temps voulu, les rangs de ceux qui se trouvent dans les royaumes plus légers de l’esprit, dans les royaumes Célestes de Dieu . Et nous célébrerons tous l’émerveillement de la création de l’Univers de Dieu. Je vous bénis, mes amis, je suis Guru Nanak. Je suis ici pour vous aider, vous guider et prier pour votre élévation continue. Que l’Amour de Dieu soit votre lumière de guidance. Bénédictions à vous, à vous tous. Je vous remercie.
 <small>
 
-1. <large id=”f1”> **Gurū Nānak,** né sous le nom de Nānak le 15 Avril 1469 – 22 Septembre 1539), également appelé Bābā Nānak, est le fondateur du sikhisme et est le premier des dix gourous Sikhs. Sa naissance est célébrée dans le monde entier comme Guru Nanak Gurpurab le jour de Katak Pooranmashi ( » pleine lune de Kattak « ), c’est-à-dire en octobre-novembre. Nanak aurait voyagé dans toute l’Asie pour enseigner le message de « ik onkar – un seul Dieu », qui habite chacune de ses créations et constitue la Vérité éternelle. Avec ce concept, il mettait en place une plate-forme spirituelle, sociale et politique unique basée sur l’égalité, l’amour fraternel, la bonté et la vertu. (Source : Wikipédia).[↩](#a1)
+1. <large id="f1"> **Gurū Nānak,** né sous le nom de Nānak le 15 Avril 1469 – 22 Septembre 1539), également appelé Bābā Nānak, est le fondateur du sikhisme et est le premier des dix gourous Sikhs. Sa naissance est célébrée dans le monde entier comme Guru Nanak Gurpurab le jour de Katak Pooranmashi ( » pleine lune de Kattak « ), c’est-à-dire en octobre-novembre. Nanak aurait voyagé dans toute l’Asie pour enseigner le message de « ik onkar – un seul Dieu », qui habite chacune de ses créations et constitue la Vérité éternelle. Avec ce concept, il mettait en place une plate-forme spirituelle, sociale et politique unique basée sur l’égalité, l’amour fraternel, la bonté et la vertu. (Source : Wikipédia).[↩](#a1)
 
 2. <large id="f2"> Guru Nanak s'est également exprimé dans les messages suivants :  [↩](#a2)
 

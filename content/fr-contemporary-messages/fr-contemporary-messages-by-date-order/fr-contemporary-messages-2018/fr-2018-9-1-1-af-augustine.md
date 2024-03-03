@@ -9,7 +9,7 @@ weight:
 ---
 ### L’éveil de vos âmes apporte le message de vérité à l’humanité
 
-Augustin - reçu par Al Fike le 1 Septembre 2018, Retraite de médiumnité, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 1<sup>er</sup> Septembre 2018, Retraite de médiumnité, Gibsons, Colombie-Britannique, Canada.
 
 C’est votre maître, Augustin. Comme l’a dit notre frère et Maître bien-aimé, vous devez tous aller dans le monde pour enseigner cette vérité et vivre cette vérité. Car l’humanité est à l’heure cruciale de s’éveiller et de reprendre ses esprits pour que l’harmonie vienne dans ce monde, que la paix vienne dans ce monde et que l’amour soit la devise de ce monde. Bien que chaque âme puisse lutter avec ses conditions intérieures, être craintive, ignorante et pleine d’erreurs, il y a une lumière, la lumière à l’intérieur de chaque âme qui pousse chacun à chercher Dieu. Lorsque vous marchez dans le monde, une cloche sonne avec votre présence, une cloche qui dit : *« Réveillez-vous, frères et sœurs, à cette Vérité que Dieu vous aime, afin que vous puissiez recevoir Ses bénédictions d’Amour, que vos âmes et vos cœurs puissent s’éveiller profondément et connaître cette Vérité »* .
 

@@ -1,13 +1,13 @@
 ---
-title: "Théodore Roosevelt parle sur ses expériences spirituelles"
+title: "Un président américain se confronte au monde des esprits"
 menu_title: ""
-description: "Théodore Roosevelt parle sur ses expériences spirituelles"
+description: "Un président américain se confronte au monde des esprits"
 date: 2022-06-01 06:00:01+00:72
 draft: False
 hidden: True
 weight:
 ---
-### Théodore Roosevelt parle sur ses expériences spirituelles
+### Un président américain se confronte au monde des esprits
 
 Théodore Roosevelt <sup id="a1">[1](#f1)</sup> - reçu par FAB le 20 Décembre 2006, Santa Cruz, Californie, USA.
 

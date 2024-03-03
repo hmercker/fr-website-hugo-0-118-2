@@ -42,7 +42,7 @@ Allen Dulles | [La mort à l’américaine](/fr-contemporary-messages/fr-contemp
 Allen Dulles | [La mort à l’américaine-2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-2-21-1-fab-allen-dulles/) | 21 Février 2013
 Walt Disney | [La mentalité de guerre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-2-21-2-fab-walt-disney/) | 21 Février 2013
 Le Père Céleste | [Accordez vos cordes à la fréquence de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-2-24-1-cog-father/) | 24 Février 2013
-Prolotheos | [Evolution](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-2-1-vs-prolotheos/) | 2 Mars 2013
+Prolotheos | [Évolution](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-2-1-vs-prolotheos/) | 2 Mars 2013
 Woodrow Wilson | [Un président s’explique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-6-1-fab-woodrow-wilson/) | 6 Mars 2013
 John D Rockefeller | [John D. Rockefeller se décrit lui-même](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-11-1-fab-john-d-rockefeller/) | 11 Mars 2013
 Nelson Rockefeller | [Pas de solution pour les Rockefeller](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-11-2-fab-nelson-rockefeller/) | 11 Mars 2013
@@ -61,7 +61,7 @@ Oscar Romero | [Le réconfort d’un martyr de la vérité](/fr-contemporary-mes
 Le Père Céleste | [Vous êtes mes anges sur terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-1-1-cog-father/) | 1 Avril 2013
 Jackie Gleason | [Clarification de Jackie Gleason](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-5-1-fab-jackie-gleason/) | 5 Avril 2013
 Reine Liliuokalani | [Un message de réconfort d’une Reine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-9-1-fab-queen-liliuokalani/) | 9 Avril 2013
-Jésus | [Paix, première partie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-30-1-jg-jesus/) | 30 Avril 2013
+Jésus | [Paix, première partie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-30-1-bs-jesus/) | 30 Avril 2013
 Le Père Céleste | [Sois Mon Amour pour changer le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-1-1-cog-father/) | 1 Mai 2013
 Le Père Céleste | [Je touche ton âme avec un baiser silencieux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-5-1-cog-father/) | 5 Mai 2013
 Pablo Neruda | [Communistes – 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-5-2-fab-pablo-neruda/) | 5 Mai 2013

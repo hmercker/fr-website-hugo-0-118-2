@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### L'amour de Dieu est disponible pour chaque âme et existe partout
+### L'Amour de Dieu est disponible pour chaque âme et existe partout
 
 Jésus - reçu par Al Fike le 14 Mars 2020, Houston, TX, USA.
 

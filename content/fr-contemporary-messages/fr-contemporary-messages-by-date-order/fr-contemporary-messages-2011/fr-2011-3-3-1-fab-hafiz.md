@@ -30,7 +30,7 @@ Hafiz | [Ma poésie est le reflet de ma communion avec Dieu](/fr-contemporary-me
 Hafiz | [Un rayon de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-13-3-jw-hafiz/) | 13 Mars 2020
 Hafiz | [Quel rôle choisirez-vous de jouer ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-7-1-jw-hafiz/) | 7 Octobre 2020
 Hafiz | [La présence de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-10-4-jw-hafiz/) | 10 Octobre 2020
-Hafiz | [Dans l'étreinte de l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-7-1-jw-hafiz/) | 7 Décembre 2020
+Hafiz | [Dans l'étreinte de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-7-1-jw-hafiz/) | 7 Décembre 2020
 Hafiz | [Le danseur de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-9-1-jw-hafiz/) | 9 Décembre 2020
 Hafiz | [Cette Attente, ce Désir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-11-2-jw-hafiz/) | 11 Avril 2021
 Hafiz | [Océan infini](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-2-2-jw-hafiz/) | 2 Juin 2021

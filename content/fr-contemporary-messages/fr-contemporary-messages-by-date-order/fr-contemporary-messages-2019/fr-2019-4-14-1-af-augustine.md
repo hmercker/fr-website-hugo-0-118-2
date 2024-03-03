@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Hommage à Barb <sup id=”a1”>[1](#f1)</sup>
+### Hommage à Barb <sup id="a1">[1](#f1)</sup>
 
 Augustin - reçu par Al Fike le 14 Avril 2019, West Vancouver, Colombie-Britannique, Canada
 
@@ -20,7 +20,7 @@ Car le pouvoir de l'amour dans une âme peut accomplir beaucoup de choses, peut 
 Que Dieu te bénisse, âme bien-aimée, et te garde dans Sa tendre attention, t'enveloppant dans Son Amour, t'enveloppant dans la Lumière. Que Dieu te bénisse, âme bien-aimée, mon cher ami avec qui je suis depuis de très nombreuses années et qui continuera à être ton ami pour toute l'éternité. Que Dieu vous bénisse et vous garde tous dans Son Amour. Ton maître Augustin est avec toi et t'aime. Que Dieu te bénisse.
 <small>
 
-1 <large id=”f1”> Barb fait référence à Barbara Davis.[↩](#a1)
+1 <large id="f1"> Barb fait référence à Barbara Davis.[↩](#a1)
 
 ### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
 

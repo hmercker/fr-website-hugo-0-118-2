@@ -9,7 +9,7 @@ weight:
 ---
 ### Connaître la vraie liberté
 
-Le Père Céleste- reçu par Enfant de Dieu le 8 Janvier 2013.
+Le Père Céleste- reçu par Enfant de Dieu le 8 Janvier 2013.<sup id="a1">[1](#f1)</sup>
 
 La liberté, c’est le partage de ton amour le plus profond. La liberté, c’est Mon amour qui coule dans ton cœur et ton âme sans aucune obstruction. La liberté, c’est Mon amour qui t’entoure tout entier, réveillant chaque cellule de ton corps. Mon bonheur, c’est ton âme qui brille et scintille, embrassant chaque âme sur ton chemin. Ma plus grande joie est ton sourire.
 
@@ -20,6 +20,9 @@ Connais la vraie liberté. Aime de tout ton cœur. Laisse-moi entrer dans ton c�
 Tu es l’amour. L’amour te rendra libre.
 
 Sois avec moi, ton Père.
+<small>
+
+1. <large id="f1"> L'ensembe des messages communiqués par le Père Céleste  est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-13-fr-the-heavenly-father/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2013**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/)
 

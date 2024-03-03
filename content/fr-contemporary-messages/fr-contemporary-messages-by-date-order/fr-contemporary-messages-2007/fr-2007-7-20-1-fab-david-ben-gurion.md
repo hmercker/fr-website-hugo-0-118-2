@@ -49,6 +49,5 @@ Je suis reconnaissant de l'occasion qui m'est donnée de partager mes pensées a
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 David Ben-Gurion | [Le conflit Israelo-Palestinien](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-8-7-1-fab-david-ben-gurion/) | 7 Août 2006
-David Ben-Gurion | [Un dirigeant israélien complète son message précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-20-1-fab-david-ben-gurion/) | 20 Juillet 2007
 David Ben-Gurion | [Le Moyen-Orient et la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-10-31-1-fab-david-ben-gurion/) | 31 Octobre 2007
 

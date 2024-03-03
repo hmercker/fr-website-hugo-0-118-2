@@ -27,9 +27,9 @@ Dans les temps bibliques, les femmes ont souffert de beaucoup plus d’abus que 
 
 > La provision de vin est épuisée, et la mère de Jésus lui dit : *« Ils n’ont plus de vin. » « Est-ce ton problème ou le mien, Mère ? »* Jésus répondit : *« Mon temps n’est pas encore venu. »*
 
-Jésus a déjà formulé des observations [sur ce sujet ailleurs](/fr-samuels-messages/fr-sermons/fr-ser-17-1958-8-2-samuels-jesus/), et je veux juste redire qu’il n’a jamais prononcé ces paroles, l’ensemble de la situation au mariage est d’ailleurs traité avec une bonne pincée de fantaisie.
+Jésus a déjà formulé des observations [dans le 17ème sermon](/fr-samuels-messages/fr-sermons/fr-ser-17-1958-8-2-samuels-jesus/), et je veux juste redire qu’il n’a jamais prononcé ces paroles, l’ensemble de la situation au mariage est d’ailleurs traité avec une bonne pincée de fantaisie.
 
-L’autre exemple est le traitement que Jésus a probablement donné à la femme Syro-Phénicienne, appelant les païens « chiens »  les Gentils et pas les femmes… mais ce passage a également été [clarifié par Jésus](/fr-samuels-messages/fr-revelations/fr-rev-36-1954-12-20-samuels-jesus/).
+L’autre exemple est le traitement que Jésus a probablement donné à la femme Syro-Phénicienne, appelant les païens « chiens »  les Gentils et pas les femmes… mais ce passage a également été clarifié par Jésus [dans la 36ème révélation](/fr-samuels-messages/fr-revelations/fr-rev-36-1954-12-20-samuels-jesus/).
 
 Là où nous pouvons vraiment trouver les paroles qui aujourd’hui offensent beaucoup de femmes, ce sont les Épîtres de Paul. Pauvre Paul, maintenant on le peint comme un célibataire endurci dont les relations avec les femmes étaient «très compliquées», pour le dire gentiment. Il y a un grain de vérité dans cela, mais cela ne rend pas justice à Paul. Toutefois, de ce sujet nous parlerons plus tard, quand nous arriverons à l’histoire de l’église primitive.
 

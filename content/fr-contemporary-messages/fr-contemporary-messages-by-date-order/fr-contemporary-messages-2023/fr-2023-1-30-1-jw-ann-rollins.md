@@ -11,7 +11,7 @@ weight:
 
 Anne Rollins - reçu par Jimbeau Walsh le 30 Janvier 2023, Nashville, TN, USA.
 
-C’est moi Anne Rollins, votre sœur et amie dans l’Amour de Dieu. Je souhaite vous rappeler gentiment le fondement de votre communauté. Elle repose sur la confiance dans cette communication et des messages reçus de nous tous ici, non seulement dans les Cieux Célestes mais dans les nombreuses demeures du royaume des Pères ; les nombreux esprits qui sont passés. N’avez-vous pas confiance en cette transition qui viendra pour vous tous au temps de Dieu ?
+C’est moi Anne Rollins,<sup id="a1">[1](#f1)</sup> votre sœur et amie dans l’Amour de Dieu. Je souhaite vous rappeler gentiment le fondement de votre communauté. Elle repose sur la confiance dans cette communication et des messages reçus de nous tous ici, non seulement dans les Cieux Célestes mais dans les nombreuses demeures du royaume des Pères ; les nombreux esprits qui sont passés. N’avez-vous pas confiance en cette transition qui viendra pour vous tous au temps de Dieu ?
 
 Chaque fois qu’il y a une lutte, chaque fois qu’il y a une crise, Dieu présente une opportunité d’aller de l’avant et d’élever vos âmes et vos cœurs dans cette connaissance, dans ce voyage, pour être changé de mortel à esprit, d’humain à Ange Divin. N’est-ce pas le désir de votre cœur ? Vous avez reçu les grandes vérités si obscures pour le monde ; vos prières atteignent le Père, vos âmes aspirent à l’union et à la réconciliation (At-One-Ment dans le texte originel) qui apporte l’averse de Grâce dans l’abandon de tout ce qui n’est pas en harmonie avec la volonté de Dieu.  Rappelez-vous la prière : « Que ma volonté soit la Tienne ». C’est le désir ardent qui vous relie à la vie éternelle.
 

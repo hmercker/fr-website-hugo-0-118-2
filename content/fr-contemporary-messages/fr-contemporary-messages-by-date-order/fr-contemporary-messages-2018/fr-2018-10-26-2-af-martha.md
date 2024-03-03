@@ -33,7 +33,7 @@ Martha | [Je suis là pour vous aider](/fr-contemporary-messages/fr-contemporary
 Martha | [Permettez à Dieu de travailler à travers cette église - F.U.S.C.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-10-2-af-martha/) | 10 Juin 2018
 Martha | [La prière pour l’Amour Divin ouvre la porte à l’éveil de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-3-1-af-martha/) | 3 Octobre 2018
 Martha | [Nous sommes avec vous sur le chemin de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-26-2-af-martha/) | 26 Octobre 2018
-Martha | [Soyez ouverts et réceptifs à ce que nous faisons - Que chacun de vous puisse donner à chacun de vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2019-1-20-4-af-martha/) | 20 Janvier 2019
+Martha | [Soyez ouverts et réceptifs à ce que nous faisons - Que chacun de vous puisse donner à chacun de vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-20-4-af-martha/) | 20 Janvier 2019
 
 ### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
 

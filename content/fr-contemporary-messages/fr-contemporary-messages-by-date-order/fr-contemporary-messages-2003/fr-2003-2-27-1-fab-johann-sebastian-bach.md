@@ -37,7 +37,7 @@ Amour, Bach.
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Jean Sébastien Bach | [Les expériences de Jean Sébastian Bach](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-12-31-1-fab-johann-sebastian-bach/) | 31 Décembre 2002
-Jean Sébastien Bach | [Les expériences de Jean Sébastian Bach](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-26-1-na-johann-sebastian-bach/) | 26 Jjanvier 2008
+Jean Sébastien Bach | [Artisans Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-26-1-na-johann-sebastian-bach/) | 26 Janvier 2008
 
 ### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
 

@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Orientations sur les préparations pour perfusion intraveineuse
+### Marcher dans la lumière à travers les bouleversements à venir - D.V.
 
 Tahlia<sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 2 Octobre 2017, Gibsons, Colombie-Britannique, Canada
 

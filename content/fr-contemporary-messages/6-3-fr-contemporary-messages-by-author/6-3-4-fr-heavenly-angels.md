@@ -134,8 +134,6 @@ Eileen Caddy | [Permettez à Dieu](/fr-contemporary-messages/fr-contemporary-mes
 Eileen Caddy | [Orientation, vision et actualisation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-15-2-jw-eileen-caddy/) | 15 Mars 2022
 Eileen Caddy | [Comment être dans le monde et non pas du monde ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-19-1-jw-eileen-caddy/) | 19 Septembre 2022
 Eileen Caddy | [Orientation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-24-1-jw-eileen-caddy/) | 24 Avril 2023
-Elizabeth Barret Browning | [Comment Dieu vous aime t-il ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-31-2-jw-elizabeth-barret-browning/) | 31 Décembre 2022
-Elizabeth Barret Browning | [Dans les bras du Ciel, tu demeureras](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-11-3-jw-elizabeth-barret-browning/) | 11 Mars 2023
 Elsie | [Une vieille amie nous soutient dans la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-22-2-af-elsie/) | 22 Octobre 2018
 Elyon | [Un message d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-1-6-1-na-elyon/) | 6 Janvier 2006
 Emi et Martin Luther | [Courage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-7-13-1-hm-emi-martin-luther/) | 13 Juillet 2017
@@ -346,6 +344,10 @@ Lorna Scott | [Notre croissance dans l’Amour de Dieu](/fr-contemporary-message
 Mabeko | [Personnel pour Lorika en Afrique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-23-2-af-mabeko/) | 23 Décembre 2021
 Martha | [Un nouveau départ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-15-9-af-martha/) | 15 Décembre 2017
 Martha | [Je suis là pour vous aider](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-18-2-af-martha/) | 18 Décembre 2017
+Martha | [Permettez à Dieu de travailler à travers cette église - F.U.S.C.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-10-2-af-martha/) | 10 Juin 2018
+Martha | [La prière pour l’Amour Divin ouvre la porte à l’éveil de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-3-1-af-martha/) | 3 Octobre 2018
+Martha | [Nous sommes avec vous sur le chemin de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-26-2-af-martha/) | 26 Octobre 2018
+Martha | [Soyez ouverts et réceptifs à ce que nous faisons - Que chacun de vous puisse donner à chacun de vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-20-4-af-martha/) | 20 Janvier 2019
 Meera | [L’espoir change la réalité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-2-4-2-wv-meera/) | 4 Février 2004
 Meera | [Importance de la dualité et des limites](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-2-19-1-wv-meera/) | 19 Février 2004
 Mère du médiumn | [Dieu est juste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-8-1-fab-mother-of-medium/) | 8 Août 2007
@@ -614,4 +616,3 @@ Seretta Kem | [Un développement plus important est nécessaire pour la manifest
 Seretta Kem | [Les fascinantes distractions de l'intégration de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-4-1-af-seretta-kem/) | 4 Mars 2023
 Seretta Kem | [Développer la conscience de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-18-1-af-seretta-kem/) | 18 Mars 2023
 Seretta Kem | [Trouver l'équilibre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-21-2-af-seretta-kem/) | 21 Mars 2023
-St. George | [Notre nation, Guernesey, a grand besoin de s’élever](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-15-4-af-st-george/) | 15 Mai 2022

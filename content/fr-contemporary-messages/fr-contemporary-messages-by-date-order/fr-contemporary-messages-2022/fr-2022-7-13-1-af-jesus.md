@@ -69,6 +69,6 @@ Vous serez guidés, âmes bien-aimées, et vous trouverez votre chemin. Rien ne 
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre frère et ami, Jésus. Je viens à vous avec amour et reconnaissance car je vois les merveilles et les potentiels que Dieu a créés en vous. Cela m’apporte une grande joie, une grande reconnaissance et un grand amour. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

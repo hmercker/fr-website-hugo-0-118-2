@@ -17,7 +17,7 @@ J'ai dit dans [ma canalisation du 9 Janvier 2005](/fr-contemporary-messages/fr-c
 
 Les deux affirmations sont vraies. L'explication est que la manifestation antérieure était une version antérieure de la chanson. Ce sur quoi je travaillais juste avant ma mort était la forme finale que vous connaissez aujourd'hui.
 
-### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
+### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

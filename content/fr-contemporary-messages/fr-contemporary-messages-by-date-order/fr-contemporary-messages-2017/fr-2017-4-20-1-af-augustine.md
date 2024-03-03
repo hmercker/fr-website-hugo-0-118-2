@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Choisissez d’embrasser la volonté de Dieu
+### Choisissez d’embrasser la Volonté de Dieu
 
 Augustin - reçu par Al Fike le 20 Avril 2017, Abbotsford, Colombie-Britannique, Canada
 

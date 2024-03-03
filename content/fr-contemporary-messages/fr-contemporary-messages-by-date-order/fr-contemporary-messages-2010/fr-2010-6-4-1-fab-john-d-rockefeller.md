@@ -27,7 +27,6 @@ Cela aide mon âme à envoyer un avertissement aux mortels : si vous ne vous com
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 John D Rockefeller | [La vie de John D. Rockefeller Senior](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-5-1-fab-john-d-rockefeller/) | 5 Février 2010
-John D Rockefeller | [Une perception différente](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-6-4-1-fab-john-d-rockefeller/) | 4 Juin 2010
 John D Rockefeller | [John D. Rockefeller se décrit lui-même](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-11-1-fab-john-d-rockefeller/) | 11 Mars 2013
 John D Rockefeller | [John D. Rockefeller se décrit lui-même - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-13-1-fab-john-d-rockefeller/) | 13 Mars 2013
 Frederick T. Gates | [Un collègue de John D. Rockefeller SR. confirme son channeling](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-16-1-fab-frederick-t-gates/) | 16 Mars 2013

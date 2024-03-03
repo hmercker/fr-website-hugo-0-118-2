@@ -9,7 +9,7 @@ weight:
 ---
 ### Comment Dieu vous aime t-il ?
 
-Elizabeth Barret Browning <sup id=”a1”>[1](#f1)</sup> - reçu par Jimbeau Walsh le 31 Décembre 2022, Nashville, TN, USA.
+Elizabeth Barret Browning <sup id="a1">[1](#f1)</sup> - reçu par Jimbeau Walsh le 31 Décembre 2022, Nashville, TN, USA.
 
 ![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-elizabeth-barrett-browning.jpg)
 
@@ -21,12 +21,15 @@ Je suis consciente que la plupart des lecteurs sont familiers avec mes mots souv
 
 Dans le lieu où je vis, il n’y a pas de temps ou de limite, dans un maintenant sans fin, toujours en train de se déployer. Je souhaite transmettre, si je le peux, la grande paix qui vient à une âme en transformation, en rédemption. Il ne s’agit pas d’un calme somnambulique, mais d’une paix remplie de lumière et du rayonnement de Dieu au-dessus du monde. Il est vrai, comme on vous l’a dit, que le Royaume Céleste ne peut être décrit de manière adéquate à l’esprit humain, mais je vous dirai que les perceptions de vos âmes, recevant toujours plus l’Amour de Dieu, peuvent en fait percevoir la joie, la liberté et l’éclat de ce qui attend chacun de vous dans le glorieux royaume de notre Père Céleste. Je suis profondément reconnaissant pour cette connexion, et je reviendrai encore. Que chacun d’entre vous puisse ressentir profondément l’Essence du Père qui le change en cette nouvelle année sur terre. Dans les cieux, nous nous réjouirons en votre nom. Que Dieu vous bénisse !
 
-Je suis votre sœur dans le Christ et je suis heureuse d’être votre guide si vous le souhaitez. Je suis Elizabeth Barrett Browning et je vous remercie.
+Je suis votre sœur dans le Christ et je suis heureuse d’être votre guide si vous le souhaitez. Je suis Elizabeth Barrett Browning et je vous remercie.<sup id="a3">[3](#f3)</sup>
 <small>
 
 1. <large id="f1"> **Elizabeth Barrett Browning**, est née le 6 Mars 1806 à Coxhoe Hall, dans le comté de Durham. Elle est décédée le 29 Juin 1861 à Florence, est une poétesse, essayiste et pamphlétaire britannique de l’ère victorienne. (Wikipédia)[↩](#a1)
 
 2. <large id="f2"> [A travers les Brumes par Robert J. Lees – Chapitre 17](https://new-birth.net/media/cms_page_media/220/Through_the_Mists_May_2021.pdf)[↩](#a2)
+
+3. <large id="f3"> Elizabeth Barrett Browning s'est ultérieurement exprimée [le 11 Mars 2023](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2023-3-11-3-jw-elizabeth-barret-browning/).[↩](#a3)
+
 
 ### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 

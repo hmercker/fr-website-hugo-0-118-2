@@ -1,13 +1,13 @@
 ---
-title: "Accepterez-vous le don de l'amour de Dieu ?"
+title: "Accepterez-vous le don de l'Amour de Dieu ?"
 menu_title: ""
-description: "Accepterez-vous le don de l'amour de Dieu ?"
+description: "Accepterez-vous le don de l'Amour de Dieu ?"
 date: 2022-06-01 06:00:01+00:366
 draft: False
 hidden: True
 weight:
 ---
-### Accepterez-vous le don de l'amour de Dieu ?
+### Accepterez-vous le don de l'Amour de Dieu ?
 
 Augustin - reçu par Al Fike le 17 Mars 2018, Hawaii Kai, Oahu, HI, USA.
 

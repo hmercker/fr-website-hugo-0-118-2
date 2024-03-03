@@ -45,6 +45,6 @@ Ainsi, nous vous exhortons à poursuivre cette tâche et ce défi. Tant de chose
 
 Que Dieu vous bénisse, mes amis. Je suis Orion. Je continue d'être avec vous. Mon amour est grand pour chacun de vous. Parfois, je me sens comme un père fier de mes enfants bien-aimés qui font de grands efforts, qui sont courageux et directs, remplis du désir d'être élevés, d'être en plus grande harmonie avec Dieu. Bien que la fierté ne soit pas le mot juste, mais toujours dans votre langage, la fierté est une description adéquate car avec l'amour vient une grande expression d'appréciation. Voir qui vous êtes, âmes bien-aimées, c'est reconnaître la magnificence de la création de Dieu, vraiment belle, vraiment magnifique. Ainsi vous êtes, mes amis, ainsi vous êtes. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

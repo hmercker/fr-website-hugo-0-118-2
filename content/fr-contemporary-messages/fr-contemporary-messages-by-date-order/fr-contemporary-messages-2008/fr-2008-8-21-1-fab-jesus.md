@@ -19,4 +19,6 @@ Et exactement de la même manière, je dis à vos contemporains de considérer l
 
 Certains de mes compatriotes ont choisi d'affronter les Romains par la guerre. Cela était voué à l'échec. Dans votre pays *[les États-Unis]* maintenant, cette réaction n'existe pas vraiment, car généralement, les gens ont cru en leur gouvernement et en leur mode de vie. Les difficultés et la paralysie qui affligent tant d'Américains n'invoquent donc pas l'énergie négative qui a mené mon pays à la ruine. Cela constitue pour nous, les anges, un excellent environnement de travail, et nos efforts seront donc couronnés de succès.
 
-Eschyle | [Un dramaturge de la Grèce antique a trouvé la voie Divine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-12-2-fab-aeschylus/) | 12 Août 2008
+### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

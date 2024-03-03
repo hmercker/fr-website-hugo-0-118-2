@@ -77,6 +77,6 @@ Que Dieu vous bénisse dans ce voyage, âmes bien-aimées, et vous garde inébra
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre frère et ami, Jésus, et je suis avec vous dans l’amour. Je vous bénis dans l’amour et je prie pour ce monde, afin qu’il soit guéri et que tous ceux qui y vivent fassent l’expérience de cette guérison, des bénédictions que Dieu destine à ses enfants. Que Dieu vous bénisse, mes bien-aimés. Mon amour est toujours avec vous. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

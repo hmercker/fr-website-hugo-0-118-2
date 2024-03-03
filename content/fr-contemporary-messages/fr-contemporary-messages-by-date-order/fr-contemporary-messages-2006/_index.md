@@ -81,7 +81,7 @@ Jésus | [Le livre de Job et le problème du mal](/fr-contemporary-messages/fr-c
 William Bradford | [Pensées d'un leader Pèlerin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-14-1-fab-william-bradford/) | 14 Décembre 2006
 Jésus | [Souffrance, rédemption et croix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-19-1-fab-jesus/) | 19 Décembre 2006
 Franklin D Roosevelt | [F.D. Roosevelt parle sur ses expériences spirituelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-20-1-fab-franklin-d-roosevelt/) | 20 Décembre 2006
-Theodore Roosevelt | [F,D. Roosevelt parle sur ses expériences spirituelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-20-2-fab-theodore-roosevelt/) | 20 Décembre 2006
+Theodore Roosevelt | [Un président américain se confronte au monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-20-2-fab-theodore-roosevelt/) | 20 Décembre 2006
 George Washington | [Le fondateur de son pays apporte son soutien](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-20-3-fab-george-washington/) | 20 Décembre 2006
 Woodrow Wilson | [L'idéalisme d'un Président Américain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-20-4-fab-woodrow-wilson/) | 20 Décembre 2006
 Jésus | [La nature exacte des accusations portées au procès de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-21-1-fab-jesus/) | 21 Décembre 2006
@@ -92,6 +92,6 @@ Franklin D Roosevelt | [La moralité du président Roosevelt](/fr-contemporary-m
 Jésus | [Guerre et paix et le plan de Dieu - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-26-2-fab-jesus/) | 26 Décembre 2006
 Joan d'Arc | [Et si je [Jeanne d’Arc] n’avait pas été exécutée ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-26-3-gmb-joan-darc/) | 26 Décembre 2006
 
-### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-20075/)
+### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

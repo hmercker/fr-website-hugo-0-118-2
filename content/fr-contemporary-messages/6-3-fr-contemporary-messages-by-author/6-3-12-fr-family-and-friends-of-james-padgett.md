@@ -36,7 +36,6 @@ James Padgett | [Exprimer la vérité aux autres. Padgett explique pourquoi c’
 James Padgett | [Encouragement à lire les volumes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-5-11-1-af-james-padgett/) | 11 Mai 2016
 James Padgett | [Chacun de vous fait l’expérience de Dieu et de la Vérité d’une manière unique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-8-17-1-af-james-padgett/) | 17 Août 2016
 James Padgett | [Écoutez vos âmes et tout vous sera donné](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-17-3-af-james-padgett/) | 17 Septembre 2017
-James et Hélène Padgett | [Nous bénit et nous encourage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-9-1-al-james-helen-padgett/) | 9 Octobre 2022
 James Padgett | [D'autres vérités seront révélées au fil du temps](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-20-4-af-james-padgett/) | 20 Novembre 2018
 James Padgett | [L’expérience de recevoir l’Amour Divin se fait par la perception](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-17-1-mc-james-padgett/) | 17 Janvier 2019
 James Padgett | [Encouragement à apprendre la vérité par soi-même](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-3-14-1-af-james-padgett/) | 14 Mars 2019
@@ -52,6 +51,7 @@ James Padgett | [Conseils aux enseignants du groupe d'étude Padgett](/fr-contem
 James Padgett | [Explorez la vérité avec vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-13-2-jw-james-padgett/) | 13 Mai 2021
 James Padgett | [Comprendre Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-10-1-jw-james-padgett/) | 10 Juin 2021
 James Padgett | [Le monde connaîtra ces vérités à temps](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-4-1-af-james-padgett/) | 4 Octobre 2022
+James et Hélène Padgett | [Nous bénit et nous encourage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-9-1-al-james-helen-padgett/) | 9 Octobre 2022
 Professeur Salyards | [Qui apportera la vérité à ce monde ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-21-3-af-professor-salyards/) | 21 Janvier 2018
 Professeur Salyards | [L’amour naturel contre l’Amour Divin Développement de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-20-3-af-professor-salyards/) | 20 Novembre 2018
 Professeur Salyards | [Orientation pour l'Université de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-31-2-af-professor-salyards/) | 31 Octobre 2020

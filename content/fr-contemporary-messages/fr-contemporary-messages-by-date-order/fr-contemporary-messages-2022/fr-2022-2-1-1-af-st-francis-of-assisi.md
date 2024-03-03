@@ -9,7 +9,7 @@ weight:
 ---
 ### L’importance de nos cercles
 
-St François d'Assise - reçu par Al Fike le 1 Février 2022, Gibsons, Colombie-Britannique, Canada.
+St François d'Assise - reçu par Al Fike le 1<sup>er</sup> Février 2022, Gibsons, Colombie-Britannique, Canada.
 
 Dieu vous bénisse mes amis, je suis l'un de vos amis des Cieux Célestes. Je suis François, et je viens prier avec vous, comme je le fais souvent, mais je ne parle pas souvent. Car il y en a beaucoup d'autres qui remplissent cette tâche. Cependant, nous sommes tous réunis dans ce Cercle de Lumière pour prier, pour chercher à faire la volonté de Dieu et sa soumission dans le monde matériel.
 
@@ -31,6 +31,6 @@ Que Dieu vous bénisse profondément, mes amis. Que l'Amour de Dieu soit la forc
 
 Âmes bien-aimées, mon amour est avec vous. L'Amour de Dieu est avec vous. Buvez profondément ces eaux vives et sachez combien vous êtes aimées, combien vous êtes vraiment aimées. Le plus haut de tous les amours, le plus grand de tous les dons, vous est donné librement et abondamment. Buvez profondément, mes amis, et soyez dans la Grâce de Dieu pour ces moments ensemble. Que Dieu vous bénisse. Je suis François, et je prie avec vous, âmes bien-aimées. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

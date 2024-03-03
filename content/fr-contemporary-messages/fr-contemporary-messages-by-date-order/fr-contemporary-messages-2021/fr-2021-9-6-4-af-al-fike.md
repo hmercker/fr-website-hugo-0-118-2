@@ -18,6 +18,9 @@ C’était très occupé. J’ai compris à quoi servait le portail de verre que
 C’est juste notre fabrication de ce dont nous avons besoin. Je ne sais pas, mais en tout cas j’aime la chambre noire. C’est sombre mais c’est calme et notre voisin n’a pas son ventilateur dans nos oreilles.
 
 Quoi d’autre ? Il y avait d’autres choses. Ils nous ont fait asseoir. Il y avait de la lumière qui se déversait sur chacun d’entre nous. C’était presque comme si nous étions dans un spa et qu’ils faisaient tous ces traitements. Nous bénéficions de tous leurs efforts. Je suis tout simplement stupéfait de voir tout ce qu’ils font pour que nous soyons en alignement avec eux. Ils sont très sérieux à ce sujet. Je vous jure que si vous étiez tous alignés, vous le verriez et le ressentiriez aussi. Si vous ne l’êtes pas, c’est une sorte de signal qu’il y a plus de travail à faire dans votre alignement et votre syntonisation. C’est ce que j’ai ressenti et peut-être ai-je une imagination très active. En tout cas, c’est ce que j’ai ressenti.
+<small>
+
+1. <large id=”f1”> Il s'agit de Al Fike[↩](#a1)
 
 ### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
 

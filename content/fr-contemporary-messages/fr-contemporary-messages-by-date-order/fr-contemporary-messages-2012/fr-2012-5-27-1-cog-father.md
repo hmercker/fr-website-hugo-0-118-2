@@ -25,7 +25,10 @@ Vous êtes tous porteurs des péchés du passé. Vous êtes une partie de l’en
 .
 Cela commence par vous. Vous pouvez vous changer. Vous pouvez vous guérir. Il n’y a qu’un seul vous. Vous seul pouvez faire votre travail. Je suis avec vous mais je ne ferai pas votre travail. Parfois je suis silencieux mais je suis toujours avec vous. Continue à faire du bon travail. N’oubliez pas que je vous t’aime.
 
-Votre Père Céleste qui vous sourit dans votre faiblesse.
+Votre Père Céleste qui vous sourit dans votre faiblesse.<sup id="a1">[1](#f1)</sup>
+<small>
+
+1. <large id="f1"> L'ensembe des messages communiqués par le Père Céleste  est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-13-fr-the-heavenly-father/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
 

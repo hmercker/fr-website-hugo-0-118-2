@@ -9,7 +9,7 @@ weight:
 ---
 ### Connaître Dieu
 
-Seretta Kem - reçu par Al Fike le 1 Novembre 2022, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 1<sup>er</sup> Novembre 2022, Gibsons, Colombie-Britannique, Canada.
 
 Bénédictions à vous, mes amis bien-aimés. Je suis Seretta Kem. Oui, de grands changements vous concernent. Tous dans le cadre de vos vies et de la vie de cette planète sur laquelle vous vivez, des changements dynamiques, des changements subtils, tout-puissants dans leurs effets sur votre monde. Nous les voyons clairement dans le monde de l’esprit, mais souvent, à cause de votre attachement aux conditions matérielles, ces changements ne sont pas si facilement perçus. Pourtant, vous en voyez les signes et les manifestations alors que vous continuez à voyager sur votre plan terrestre.
 

@@ -11,7 +11,7 @@ weight:
 
 Orion - reçu par Al Fike le 5 Novembre 2021, Gibsons, Colombie-Britannique, Canada.
 
-Que les bénédictions de l’Amour du Créateur continuent de vous éveiller, mes amis. Je suis Orion. Je viens à l’heure prévue. Je vous remercie de vous être rassemblés dans le but que nous avons d’apporter des informations et des liens entre notre race et la vôtre. Nous sommes tous des enfants de Dieu. Dieu a créé de nombreux modèles et schémas dans l’univers qui se répètent encore et encore afin de maintenir l’harmonie, afin qu’il y ait une égalité dans l’univers parmi les êtres qui possèdent une âme, car Dieu ne limite pas ses bénédictions à un individu ou à un autre, qu’il soit d’une planète particulière ou non. Au contraire, dans la grande dispersion de la vie dans l’univers, ces lois fondamentales de la création sont actives et fonctionnent dans chaque coin de la création de Dieu.
+Que les bénédictions de l’Amour du Créateur continuent de vous éveiller, mes amis. Je suis Orion.<sup id="a1">[1](#f1)</sup> Je viens à l’heure prévue. Je vous remercie de vous être rassemblés dans le but que nous avons d’apporter des informations et des liens entre notre race et la vôtre. Nous sommes tous des enfants de Dieu. Dieu a créé de nombreux modèles et schémas dans l’univers qui se répètent encore et encore afin de maintenir l’harmonie, afin qu’il y ait une égalité dans l’univers parmi les êtres qui possèdent une âme, car Dieu ne limite pas ses bénédictions à un individu ou à un autre, qu’il soit d’une planète particulière ou non. Au contraire, dans la grande dispersion de la vie dans l’univers, ces lois fondamentales de la création sont actives et fonctionnent dans chaque coin de la création de Dieu.
 
 Ainsi, nous venons partager et réaffirmer la vérité que vous êtes des créations de Dieu, que vous êtes aimés de Dieu, que vous possédez une âme qui est unique et un cadeau merveilleux qui vous a été donné afin que vous puissiez explorer la création de Dieu, l’être de Dieu, et ce qui a été créé en vous et autour de vous. Vous êtes tous Ses enfants, comme nous le sommes. Ainsi, nous sommes frères et sœurs dans la grande galaxie de Sa merveilleuse expression créée. Son âme aspire à être en communion et en connexion avec votre âme, avec nos âmes, avec toutes les âmes de l’univers.
 
@@ -108,7 +108,7 @@ Ainsi, le temps vient où nous pouvons nous avancer et être vos frères et sœu
 Que Dieu vous bénisse, mes amis, beaux amis, amis terrestres, frères et sœurs du grand univers de Dieu. Je reviendrai vous parler. Je vous remercie pour cette opportunité. Bénédictions pour vous, bénédictions d’amour. Je suis Orion.
 <small>
 
-1. <large id=”f1”> Une clarification supplémentaire de la question du libre arbitre et des vaccins a été apportée ultérieurement (Cf message du 11 Novembre 2021).[↩](#a1)
+1. <large id="f1"> Une clarification supplémentaire de la question du libre arbitre et des vaccins a été apportée ultérieurement (Cf message du 11 Novembre 2021).[↩](#a1)
 
 ### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
 

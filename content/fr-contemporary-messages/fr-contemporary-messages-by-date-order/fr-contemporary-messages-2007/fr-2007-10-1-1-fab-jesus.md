@@ -9,7 +9,7 @@ weight:
 ---
 ### L'Amérique et la vérité spirituelle - 2
 
-Jésus - reçu par FAB le 1 Octobre 2007, Santa Cruz, Californie, USA.
+Jésus - reçu par FAB le 1<sup>er</sup> Octobre 2007, Santa Cruz, Californie, USA.
 
 C'est moi, Jésus.
 

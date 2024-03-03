@@ -33,6 +33,6 @@ Ayez la foi et la confiance, mes amis, ayez la foi et la confiance dans la Volon
 
 Que Dieu vous bénisse dans ce voyage. Je suis Michael Collier, et je suis heureux d’être avec vous aujourd’hui alors que vous cherchez les secrets de votre âme et la Vérité de Dieu. Que Dieu vous bénisse, mes amis. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

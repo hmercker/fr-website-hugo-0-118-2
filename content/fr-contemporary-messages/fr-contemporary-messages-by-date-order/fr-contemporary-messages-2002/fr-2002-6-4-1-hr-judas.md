@@ -17,7 +17,7 @@ Plusieurs jours se sont écoulés sans possibilité pour moi de transmettre un m
 
 [Dans mon dernier message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-5-28-1-hr-judas/), j’ai dit que je parlerai des idées de Jésus sur l’esclavage, et pourquoi ces enseignements n’ont pas été intégrés dans les Évangiles.
 
-[Il y a quelque temps](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-18-1-hr-judas/), j’ai écrit :
+[Le 18 Mars 2002](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-18-1-hr-judas/), j’ai écrit :
 
 > Le lendemain soir, Buni, accompagné de plusieurs fonctionnaires qui lui servaient de gardes du corps, est venu à la maison de Joseph afin de parler avec Jésus.
 
@@ -41,7 +41,7 @@ Ils ne considéraient certainement pas l’esclavage comme une bonne affaire.
 
 Les esclaves qui travaillaient dans les maisons urbaines de la classe riche, comme dans le cas de Nicodème, devaient souvent subvenir aux besoins de leur propre famille, ils avaient des femmes et des enfants. Lorsque les six années de servitude étaient terminées, les esclaves abandonnaient leur maître, avec leurs épouses.
 
-[La loi dit](https://saintebible.com/exodus/21-3.htm)
+Dans [Exode 21-3](https://saintebible.com/exodus/21-3.htm) la loi dit
 
 > S’il est entré seul, il sortira seul ; s’il avait une femme, sa femme sortira avec lui.
 <br>

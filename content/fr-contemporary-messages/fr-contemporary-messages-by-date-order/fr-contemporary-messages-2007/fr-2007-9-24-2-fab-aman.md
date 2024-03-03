@@ -7,11 +7,11 @@ draft: False
 hidden: True
 weight:
 ---
-### Les deux natures des premiers parents et de l'humanitésup id="a1">[1](#f1)</sup>
+### Les deux natures des premiers parents et de l'humanité
 
 Aman - reçu par FAB le 24 Septembre 2007, Santa Cruz, Californie, USA.
 
-C'est moi, Aman.
+C'est moi, Aman.<sup id="a1">[1](#f1)</sup>
 
 Avant la Chute, Aman et moi avions une relation parfaitement équilibrée entre notre nature animale et notre nature spirituelle. Les deux étaient en harmonie. Nous étions en bonne santé, mais nous donnions l'ascendant à notre nature spirituelle. Cela n'excluait pas le plaisir physique, mais nous étions capables de comprendre la place adéquate de ce plaisir dans nos vies. Nous comprenions la double nature de notre être, et reconnaissions que les deux venaient de Dieu.
 

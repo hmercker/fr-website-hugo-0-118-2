@@ -19,7 +19,10 @@ Tu as atteint un seuil. Tu dois passer cette ligne. En ce moment même, tu réal
 
 Tu as perdu beaucoup d’amour à cause de cela. Tu dois maintenant changer cela pour aller de l’avant. Tu ne peux pas donner sans recevoir. Tu empêches le flux d’amour par ton refus de recevoir le don d’amour. Tu dois changer cela et je vais t’aider. Lorsque tu ne peux pas accepter le don d’amour, c’est le signe d’une blessure profonde en toi. Tu as fait l’expérience de la perte de l’amour et tu as fermé ton cœur à la réception. Ton temps est maintenant venu d’expérimenter le don d’être profondément aimé. Laisse Mon Amour entrer dans ton cœur et ton âme. Laisse mon amour déborder de tout ton être. Accepte le don d’amour et le don de ceux qui t’aiment. Tu as besoin de cet amour pour avancer. C’est la prochaine étape sur ton chemin pour aimer encore plus.
 
-Je suis heureux que notre communication soit rétablie, ton Père Céleste.
+Je suis heureux que notre communication soit rétablie, ton Père Céleste.<sup id="a1">[1](#f1)</sup>
+<small>
+
+1. <large id="f1"> L'ensembe des messages communiqués par le Père Céleste  est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-13-fr-the-heavenly-father/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
 

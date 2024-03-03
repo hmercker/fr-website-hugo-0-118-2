@@ -9,7 +9,7 @@ weight:
 ---
 ### Prier pour s'ouvrir à l'amour du Créateur
 
-Révérend George Vale Owen <sup id=”a1”>[1](#f1)</sup> - reçu par Jimbeau Walsh le 10 Août 2020, Punalu’u, Oahu, Hawaii, USA.
+Révérend George Vale Owen <sup id="a1">[1](#f1)</sup> - reçu par Jimbeau Walsh le 10 Août 2020, Punalu’u, Oahu, Hawaii, USA.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-george_vale_owen_arthur_conandoyle.jpg)
 
@@ -22,7 +22,7 @@ Je fais ici un parallèle entre ce que j’ai reçu et ce que vous recevez, vous
 Je sais que certains d’entre vous peuvent voir cette lumière émaner des Cieux Célestes, de Dieu aux âmes de nous tous ici – étant bénis et se bénissant les uns les autres. Permettez à cet amour de vous changer pour vous guider pendant ce temps et dans votre marche vers l’avenir qui, je vous l’assure, est glorieux au-delà de ce que vous pouvez concevoir. Toutes les louanges au Créateur. Que tous soient bénis. Je suis votre frère en Christ, George Vale Owen<sup id="a2">[2](#f2)</sup>, ou Rev Owen. Que Dieu vous bénisse ! Que Dieu vous bénisse !
 <small>
 
-1. <large id=”f1”> **Le Révérend George Vale Owen** a reçu de magnifiques messages du monde des esprits en 5 volumes « Beyond the Veil. » Il était le pasteur d’une petite église en Angleterre et ses messages étaient largement lus et aimés. Geoff Cutler les a republiés presque 100 ans plus tard et ils sont disponibles en ligne et en version imprimée sur Amazon et Lulu. La photo montre le révérend Owen en compagnie de son bon ami et fervent défenseur, Sir Arthur Conan Doyle.[↩](#a1)
+1. <large id="f1"> **Le Révérend George Vale Owen** a reçu de magnifiques messages du monde des esprits en 5 volumes « Beyond the Veil. » Il était le pasteur d’une petite église en Angleterre et ses messages étaient largement lus et aimés. Geoff Cutler les a republiés presque 100 ans plus tard et ils sont disponibles en ligne et en version imprimée sur Amazon et Lulu. La photo montre le révérend Owen en compagnie de son bon ami et fervent défenseur, Sir Arthur Conan Doyle.[↩](#a1)
 
 2. <large id="f2"> Révérend George Vale Owen s'est également exprimé lors des messages suivants [↩](#a2)
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Je suis ta lumière directrice à tout moment
 
-Le Père Céleste - reçu par Enfant de Dieu le 17 Janvier 2013.
+Le Père Céleste - reçu par Enfant de Dieu le 17 Janvier 2013.<sup id="a1">[1](#f1)</sup>
 
 De nombreux sujets traversent ton esprit et souvent tu te sens un peu perdu sur quoi te concentrer.
 
@@ -22,6 +22,9 @@ Ce qui vous attend est l’accomplissement de vos rêves. Suivez Ma Guidance est
 M’entendez-vous ? M’écoutez-vous ?
 
 Votre Père en tout temps.
+<small>
+
+1. <large id="f1"> L'ensembe des messages communiqués par le Père Céleste  est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-13-fr-the-heavenly-father/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2013**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/)
 

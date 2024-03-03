@@ -11,7 +11,7 @@ weight:
 
 André - reçu par Al Fike le 13 Décembre 2019, Gibsons, Colombie-Britannique, Canada.
 
-Âmes aimées, je suis André. Oui, je me suis engagé à être l’ange gardien de l’homonyme de cet instrument <sup id=”a1”>[1](#f1)</sup> et je serai avec lui toute sa vie. Vous voyez, mes amis bien-aimés, que lorsque vous êtes sincères dans vos prières, en vous éveillant à l’Amour de Dieu, vous mettez en place un pouvoir et une influence qui se perpétueront pour les générations à venir. Les enfants des enfants seront bénis, âmes bien-aimées. Plutôt que des générations de douleur et de désaccord, vous changez le modèle en lumière et en amour. Ainsi, lorsque vous priez pour vous et pour vos belles âmes, vous avez un effet sur vos familles et sur les générations à venir et vous ouvrez la possibilité et les possibilités de plus grandes bénédictions à venir et à donner aux générations futures.
+Âmes aimées, je suis André. Oui, je me suis engagé à être l’ange gardien de l’homonyme de cet instrument <sup id="a1">[1](#f1)</sup> et je serai avec lui toute sa vie. Vous voyez, mes amis bien-aimés, que lorsque vous êtes sincères dans vos prières, en vous éveillant à l’Amour de Dieu, vous mettez en place un pouvoir et une influence qui se perpétueront pour les générations à venir. Les enfants des enfants seront bénis, âmes bien-aimées. Plutôt que des générations de douleur et de désaccord, vous changez le modèle en lumière et en amour. Ainsi, lorsque vous priez pour vous et pour vos belles âmes, vous avez un effet sur vos familles et sur les générations à venir et vous ouvrez la possibilité et les possibilités de plus grandes bénédictions à venir et à donner aux générations futures.
 
 La puissance de l’amour, mes chers amis, est grande. Le pouvoir de l’amour de transformer et d’apporter la lumière est merveilleux et s’exprimera de nombreuses manières différentes. En portant cette lanterne de Lumière en vous, vous influencerez ceux qui vous entourent, vos proches, ceux avec qui vous vous associez qui sont vos amis, vos parents, beaucoup qui sont liés à vous. Ainsi, vous devenez une lumière qui brille pour les autres. Votre âme continue à grandir et à être transformée dans cette belle bénédiction de l’Amour. Au fur et à mesure que vous grandissez dans la Lumière, l’influence que vous portez, le grand canal d’Amour qu’est votre âme en alignement avec Dieu, touchera beaucoup d’autres personnes.
 
@@ -24,7 +24,7 @@ Ayez la foi, âmes bien-aimées. Ayez la foi que ce que vous faites a de grandes
 Que Dieu vous bénisse, âmes bien-aimées. André est avec vous. Je suis avec vous et je continue de prier et d’être un serviteur pour la diffusion de la Vérité de l’Amour de Dieu, comme le sont de nombreux anges, de nombreux anges en alignement avec cette cause et vos efforts et prières. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
 <small>
 
-1. large id=”f1”> Ceci fait référence à un petit-fils, Jacob Albert Fike.[↩](#a1)
+1. <large id="f1"> Ceci fait référence à un petit-fils, Jacob Albert Fike.[↩](#a1)
 
 ### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
 

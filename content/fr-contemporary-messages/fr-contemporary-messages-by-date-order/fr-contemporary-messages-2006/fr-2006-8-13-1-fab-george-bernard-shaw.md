@@ -23,12 +23,14 @@ Oui, j'ai appris l'existence de l'Amour Divin, et dans une certaine mesure, j'ai
 
 Soyez assurés qu'aucun mal ne vous sera fait et que tous vos rêves se réaliseront. Oh, l'humanité va passer un si bon moment !
 
-Avec amour, George Bernard Shaw.
+Avec amour, George Bernard Shaw.<sup id="a3">[3](#f3)</sup>
 <small>
 
 1. <large id="f1"> Le médium a reçu ce message pendant l'entracte, alors qu'il regardait une production de Pygmalion.[↩](#a1)
 
 2. <large id="f2"> **(George) Bernard Shaw** (26 Juillet 1856 - 2 Novembre 1950) était un dramaturge irlando-britannique, lauréat du prix Nobel de littérature en 1925 et de l'Academy Award en 1938 pour Pygmalion. Après celles de William Shakespeare, les pièces de George Bernard Shaw sont parmi les plus produites dans le théâtre de langue anglaise. (Source : Wikipedia)[↩](#a2)
+
+3. <large id="f3"> George Bernard Shaw a communiqué ultérieurement le [21 Février 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-21-1-fab-george-bernard-shaw/)[↩](#a3)
 
 ### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
 

@@ -25,6 +25,6 @@ Enfin, je souhaite vous rappeler que même votre temps de prière n’est parfoi
 
 Mes chers frères et sœurs, vous êtes une bénédiction et je vous remercie encore une fois d’avoir pris mes paroles à cœur. Je suis votre frère et ami, pour toute l’éternité. Je suis Yogananda. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

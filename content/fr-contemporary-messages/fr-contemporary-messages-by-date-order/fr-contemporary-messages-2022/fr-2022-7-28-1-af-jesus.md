@@ -77,6 +77,6 @@ L’intention de Dieu est que chacun de Ses enfants puisse participer aux fruits
 
 Que Dieu vous bénisse, âmes bien-aimées. Je suis votre frère en vérité. Je suis votre ami pour toujours. Je suis Jésus et je vous aime. Je vous rassemble sur ce chemin afin que vous puissiez vous aussi expérimenter ce que j’ai expérimenté et ce que beaucoup d’autres ont expérimenté en grandissant dans l’Amour. Que Dieu vous bénisse, âmes bien-aimées, et vous garde dans Son Amour.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

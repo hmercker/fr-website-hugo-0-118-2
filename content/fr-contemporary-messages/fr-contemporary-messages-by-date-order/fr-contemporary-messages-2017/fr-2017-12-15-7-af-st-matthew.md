@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### La volonté de Dieu
+### La Volonté de Dieu
 
 St Matthieu - reçu par Al Fike le 15 Décembre 2017, Gibsons, Colombie-Britannique, Canada
 

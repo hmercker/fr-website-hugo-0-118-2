@@ -23,7 +23,7 @@ Mes chers et beaux amis, soyez forts dans la lumière. Soyez forts dans la lumi�
 
 Dieu déverse Son Amour sur vous en ce moment et à travers vous sur vos proches. Ouvrez-vous. Videz vos esprits de ces préoccupations et ouvrez-vous pleinement au grand afflux de Son Amour qui coule dans votre âme, réveillant votre véritable moi, se reflétant dans tous les aspects de votre être. Ce cadeau bien-aimé et magnifique de Dieu est le salut, la guérison, la paix pour vous et pour toute l’humanité. Puissiez-vous être bénis, âmes bien-aimées, bénis, élevés. Que la paix soit sur vous. L’amour brille en vous et à travers vous, mes bien-aimés. Nous sommes ensemble dans cette lumière, mes bien-aimés. Vous êtes aimés. Dieu vous bénit. Je suis votre frère et votre ami. Nous marchons ensemble. Je suis Jésus. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

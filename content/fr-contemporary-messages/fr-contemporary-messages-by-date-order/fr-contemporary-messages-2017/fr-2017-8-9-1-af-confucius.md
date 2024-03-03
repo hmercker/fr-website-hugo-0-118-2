@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Dans l'amour de Dieu se trouvent toutes les réponses
+### Dans l'Amour de Dieu se trouvent toutes les réponses
 
 Confucius - reçu par Al Fike le 9 Août 2017, Abbotsford, Colombie-Britannique, Canada
 

@@ -33,6 +33,6 @@ Vous êtes bénis dans un monde où l’on ne trouve pas souvent l’amour. Vous
 
 Que Dieu vous bénisse, âmes bien-aimées. Sachez que je suis avec vous. Je suis votre frère et votre ami. Je suis Jésus et je marche avec vous, et je marcherai avec vous tous les jours de votre vie sur cette Terre. Alors que vous voyagez vers le Royaume Céleste, je vous guiderai et m’assurerai qu’il y a une place pour chacun d’entre vous dans le Royaume d’Amour de Dieu. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse et vous garde dans Son amour, qu’Il vous étreigne et vous bénisse dans Sa grâce.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2032/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -23,6 +23,6 @@ C’est pourquoi nous, dans les royaumes Célestes, venons avec vous, pour vous 
 
 Je suis votre frère et ami dans le Christ, jadis d’Assise, maintenant habitant du Royaume Céleste, disciple du Maître et votre frère dans l’Amour Divin. Je suis François. Que Dieu vous bénisse. Que la paix soit sur vous.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

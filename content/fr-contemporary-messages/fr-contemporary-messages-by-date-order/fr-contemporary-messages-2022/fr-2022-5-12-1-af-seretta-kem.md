@@ -31,6 +31,6 @@ Vous serez protégés. Vous serez guidés. Vous serez bénis dans la lumière. J
 
 Que Dieu vous bénisse, mon ami, et vous garde dans Sa Lumière. Et vous tous ici, âmes bénies, que la paix qui dépasse toute compréhension, l’Amour du Créateur, la lumière qui est de l’esprit et de la vie soit avec vous. Dieu vous bénisse, je suis Seretta Kem. J’ai vécu en Égypte il y a des milliers d’années. Je suis l’un des guides de cet instrument, et je suis heureux de vous parler aujourd’hui des choix que l’on a dans la vie. Les choix pour la lumière, et comment ce choix pour la lumière peut apporter une plus grande lumière et de plus grandes bénédictions. Que Dieu vous bénisse, mes amis. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

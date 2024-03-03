@@ -19,7 +19,7 @@ Oui, le message de Padgett est vrai, que nous, [Anges Célestes, ne pouvons pas 
 
 Je sais que vous trouvez ce sujet très déroutant. Vous pensez qu’Hitler devait être arrêté, et il l’a été. Mais il y a eu aussi le bombardement par saturation de Dresde et d’autres villes allemandes par les Alliés.
 
-Dans la guerre, la violence est quotidienne. Maintenant, vous savez aussi, [comme Avous l’avez canalisé précédemment](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-6-30-1-fab-abraham-lincoln/), que les mortels ne peuvent pas déterminer avec précision la façon dont Dieu perçoit les actes de violence et les meurtres dans la guerre, et c’est parce que les mortels ne connaissent pas le monde intérieur des motifs, des intentions.
+Dans la guerre, la violence est quotidienne. Maintenant, vous savez aussi, [comme vous l’avez canalisé précédemment](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-6-30-1-fab-abraham-lincoln/), que les mortels ne peuvent pas déterminer avec précision la façon dont Dieu perçoit les actes de violence et les meurtres dans la guerre, et c’est parce que les mortels ne connaissent pas le monde intérieur des motifs, des intentions.
 
 Vous vous demandez donc maintenant si Dieu détermine la moralité en fonction des motifs d’une personne, n’est-il pas logique de conclure que la violence exercée avec de bonnes intentions est bonne ?
 
@@ -74,6 +74,20 @@ Et, permettez-moi de le répéter, cela se produira grâce à la volonté du peu
 Et tout au long de ce processus, avec toutes ses horreurs et ses incertitudes, Dieu est là, pour nourrir et panser les cœurs brisés. Il vaincra, et la paix viendra sur la Terre.
 
 Je vais [éventuellement transmettre un autre message sur la guerre et la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-26-2-fab-jesus/), mais ceci vous donne matière à réflexion pour le moment.
+<small>
+
+1. <large id="f1"> L'ensemble des messages communiqués par Jésus sur le thème de la Guerre et la Paix  est accessible par l'intermédiaire des liens ci-dessous indiqués :[↩](#f1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Jésus | [Guerre et paix et le plan de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-24-1-fab-jesus/) | 24 Décembre 2006
+Jésus | [Guerre et paix et le plan de Dieu - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-26-2-fab-jesus/) | 26 Décembre 2006
+Jésus | [Guerre et paix et le plan de Dieu Partie 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-20-5-fab-jesus/) | 20 Janvier 2007
+Jésus | [Guerre et paix et le plan de Dieu Partie 4](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-12-28-1-fab-jesus/) | 28 Décembre 2007
+Jésus | [Guerre et paix et le plan de Dieu Partie 5](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-11-5-fab-jesus/) | 11 Janvier 2008
+Jésus | [Guerre et paix et le plan de Dieu Partie 6](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-12-14-1-fab-jesus/) | 14 Décembre 2008
+Jésus | [Guerre et paix et le plan de Dieu Partie 7](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-12-14-2-fab-jesus/) | 14 Décembre 2008
+
 
 ### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
 

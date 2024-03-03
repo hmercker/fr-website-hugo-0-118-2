@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Guide pour la retraite de la voix directe
+### Guide pour la retraite de la Voix Directe
 
 Seretta Kem - reçu par Al Fike le 5 Janvier 2020, Gibsons, Colombie-Britannique, Canada.
 

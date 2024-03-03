@@ -25,7 +25,10 @@ Tu veux prendre l’entière responsabilité de toi-même. Tu veux prendre la re
 
 Tu t’es senti à distance de Moi ces derniers jours. Sache que je t’aime et que je ne te quitterai jamais. Lorsque tu ne peux pas sentir ma présence, c’est parce que tu refuses de ressentir tes sentiments. Tu te caches. Je suis présent avec toi à travers tes sentiments. Je suis toujours là pour toi. Mon amour ne s’arrête jamais. Mais tu dois Me permettre de t’aimer. Laisse-moi t’aimer.
 
-Ton Père toujours présent.
+Ton Père toujours présent.<sup id="a1">[1](#f1)</sup>
+<small>
+
+1. <large id="f1"> L'ensembe des messages communiqués par le Père Céleste  est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-13-fr-the-heavenly-father/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
 

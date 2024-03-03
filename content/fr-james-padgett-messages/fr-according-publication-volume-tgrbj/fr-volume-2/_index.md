@@ -39,6 +39,8 @@ Pour terminer il convient de prêter attention au fait que tous les écrits de l
 
 Christian Blandin
 
+[Voici un lien de téléchargement pour le deuxième volume  des messages.](/13-fr-publications-and-downloads/13-2-1-fr-french-spiritual-books/fr-true-gospel-revealed-anew-volume-2-fr.pdf)
+
 **Page** | **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---|---
 II | James Padgett | [Témoignage de James Padgett](/fr-james-padgett-messages/fr-the-testimony-of-james-e-padgett/) |

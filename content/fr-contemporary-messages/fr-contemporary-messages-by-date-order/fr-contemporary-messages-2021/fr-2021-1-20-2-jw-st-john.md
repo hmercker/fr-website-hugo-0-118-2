@@ -13,7 +13,7 @@ St Jean - reçu par Jimbeau Walsh le 20 Janvier 2021, Punalu’u, Oahu, Hawaii, 
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-lumiere-spirituelle.jpg)
 
-Je suis votre frère en Christ, Jean. Je viens en ce jour d’espoir <sup id=”a1”>[1](#f1)</sup>, les rayons d’amour descendant sur la terre, se réjouissant. Alors que vous lisez ces mots qui ont été donnés à James Padgett par moi-même et par d’autres, plus particulièrement sur les lois du rapport et de la communication, je vous demande de les prendre avec votre âme, afin qu’ils résonnent dans votre être. Car elles sont en effet d’une grande importance.
+Je suis votre frère en Christ, Jean. Je viens en ce jour d’espoir <sup id="a1">[1](#f1)</sup>, les rayons d’amour descendant sur la terre, se réjouissant. Alors que vous lisez ces mots qui ont été donnés à James Padgett par moi-même et par d’autres, plus particulièrement sur les lois du rapport et de la communication, je vous demande de les prendre avec votre âme, afin qu’ils résonnent dans votre être. Car elles sont en effet d’une grande importance.
 
 Je viens encourager celui qui reçoit ce message à aller toujours plus loin dans sa prière afin que son âme puisse communiquer les plus hautes vérités. Il est en effet sur la bonne voie malgré sa réticence et je dirais même parfois sa résistance. Je souhaite remercier tous ceux qui sont ici pour leur encouragement à ce médium, car ces messages reçus ici atteindront beaucoup de gens, au-delà de votre vision.
 
@@ -24,7 +24,7 @@ Lorsque vous touchez le cœur d’un être humain, quelque chose s’ouvre et le
 Que la lumière et l’amour du Créateur soient avec vous, restent avec vous. En ce jour de joie, que chacun de vous s’adonne au bonheur qui est le sien. Faites briller votre lumière, mes chers amis. Que Dieu vous bénisse. Je suis votre frère dans le Christ. Je m’appelle Jean.
 <small>
 
-1. <large id=”f1”> Changement d’administration dans le gouvernement des États-Unis.[↩](#a1)
+1. <large id="f1"> Changement d’administration dans le gouvernement des États-Unis.[↩](#a1)
 
 ### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
 

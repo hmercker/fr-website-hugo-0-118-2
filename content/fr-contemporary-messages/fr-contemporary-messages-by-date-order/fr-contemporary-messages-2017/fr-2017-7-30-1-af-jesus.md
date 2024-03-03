@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Que vos âmes brillent de l'amour du Père
+### Que vos âmes brillent de l'Amour du Père
 
 Jésus - reçu par Al Fike le 30 Juillet 2017, Gibsons, Colombie-Britannique, Canada
 

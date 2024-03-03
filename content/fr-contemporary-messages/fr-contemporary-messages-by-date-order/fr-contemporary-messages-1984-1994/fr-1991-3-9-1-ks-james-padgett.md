@@ -25,7 +25,7 @@ Il importe peu que la question soit formulée de la manière exacte dont j’ai 
 
 Nous sommes très heureux que tu aies la capacité de voir l’importance de la façon dont un nouveau chercheur réagira, dans de nombreux cas, aux réponses présentées qui sont très merveilleuses, mais qui seraient plus faciles à saisir si le lecteur était préparé à l’avance à la question à laquelle le récit suivant est une réponse.
 
-A____ a également été inspiré par la pensée que les adeptes de ces Vérités qui soutiennent l’attitude « aucun changement », devraient être autorisés à réimprimer les volumes tels qu’ils sont actuellement compilés ; mais qu’ils devraient également permettre que ces améliorations notables et significatives soient incluses dans les nouvelles éditions. <sup id="a1">[1](#f1)</sup>
+A____ a également été inspiré par la pensée que les adeptes de ces Vérités qui soutiennent l’attitude « aucun changement », devraient être autorisés à réimprimer les volumes tels qu’ils sont actuellement compilés ; mais qu’ils devraient également permettre que ces améliorations notables et significatives soient incluses dans les nouvelles éditions. <sup id="a2">[2](#f2)</sup>
 
 Nous sommes satisfaits de la présentation plus fluide du premier volume et nous savons que le deuxième volume sera encore meilleur, car c’est votre désir et notre objectif de veiller à ce que vous procédiez à la compilation en pensant au lecteur, et d’aider toute âme en quête, qui pourrait tomber par hasard sur le mot écrit, à être attirée par ce qui est écrit dans ses pages.
 

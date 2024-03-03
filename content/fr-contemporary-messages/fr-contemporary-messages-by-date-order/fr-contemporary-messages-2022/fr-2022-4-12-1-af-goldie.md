@@ -19,6 +19,6 @@ Que l’Amour de Dieu continue à ouvrir la voie à votre compréhension, à vot
 
 Que Dieu vous bénisse, que Son Amour continue à faire sa magie dans votre âme. Je vous aime. J’aime chacun d’entre vous et je me rapproche de vous pour vous aider. Que Dieu vous bénisse, je suis Goldie, je vous aime.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

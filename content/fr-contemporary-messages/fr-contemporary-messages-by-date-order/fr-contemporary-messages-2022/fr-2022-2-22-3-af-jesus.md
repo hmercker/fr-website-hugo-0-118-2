@@ -19,7 +19,7 @@ Je viens vous bénir, âmes bien-aimées, je suis Jésus. Je viens pour vous él
 
 Marchez fidèlement dans la lumière de l’Amour de Dieu et tout se mettra en place, tout sera en harmonie, âmes bien-aimées. Vous êtes vraiment bénies et serez bénies ; guidées et serez guidées ; aimées et serez aimées. Âmes bien-aimées, je suis avec vous, votre frère et ami, je suis avec vous. Que Dieu vous bénisse, âmes bien-aimées.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

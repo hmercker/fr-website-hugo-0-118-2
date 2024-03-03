@@ -9,7 +9,7 @@ weight:
 ---
 ### Qu’y a-t-il dans un nom ?
 
-Sri Yarisupta - reçu par Al Fike le 27 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
+Sri Yarisupta<sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 27 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
 
 Sri Yarigupta est mon nom officiel. Sri Yarisupta est un nom familier qui m’a été donné dans mon enfance et j’utilise ce nom familier parce que j’ai senti que vous êtes mes amis. Je comprends vos confusions et, en effet, ma langue à l’époque de ma naissance était une langue difficile à comprendre, surtout pour vous qui vivez dans ce monde très différent. Vous êtes les bienvenus pour utiliser l’une ou l’autre interprétation de mon nom comme bon vous semble, mais sachez que je suis votre ami et que dans les royaumes dans lesquels je vis, ces délimitations n’ont aucune importance, car nous nous connaissons par notre présence.
 
@@ -26,8 +26,8 @@ Sri Yukteswar | [Le gourou Hindou Sri Yukteswar parle de l’Amour Divin](/fr-co
 Sri Yukteswar | [La loi de la création et Sathya Sai Baba](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-2-4-1-wv-sri-yarisupta/) | 4 Février 2014
 Sri Yukteswar | [La dualité de l'âme et de l'esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-4-9-2-af-sri-yukteswar/) | 9 Avril 2019
 Sri Yukteswar | [Réponses aux questions sur la guérison par l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-26-3-af-sri-yarisupta/) | 26 Janvier 2019
-Sri Yukteswar | [Sri Yukteswar honors Yogananda](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-18-1-jw-sri-yukteswar/) | 18 Septembre 2020
-Sri Yukteswar | [L'instrumentalité de Lorraine se manifeste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-15-2-af-sri-yuktesar/) | 15 Octobre 2022
+Sri Yukteswar | [Sri Yukteswar rend hommage à Yogananda](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-18-1-jw-sri-yukteswar/) | 18 Septembre 2020
+Sri Yukteswar | [L'instrumentalité de Lorraine se manifeste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-15-3-af-sri-yuktesar/) | 15 Octobre 2022
 
 ### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
 

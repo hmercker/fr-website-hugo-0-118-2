@@ -43,7 +43,7 @@ Que Dieu vous bénisse ainsi, mes amis. Je suis James Padgett<sup id="a2">[2](#f
  et je suis souvent avec vous. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> Ceci est maintenant arrivé et Jésus délivre à nouveau la Vérité mais [dans un style moderne](/fr-jesus-of-nazareth-messages/fr-messages-of-jesus-to-the-world/).[↩](#a1)
+1. <large id=”f1”> Ceci est maintenant arrivé et Jésus délivre à nouveau la Vérité mais [dans un style moderne](/4-fr-jesus-of-nazareth-messages/4-4-1-fr-messages-of-jesus-to-the-world/).[↩](#a1)
 
 2. <large id="f2"> L'ensemble des messages communiqués par James Padgett  est disponible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-12-fr-family-and-friends-of-james-padgett/)[↩](#a2) 
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Le chemin de la transformation et de l’illumination
 
-Yogananda - reçu par Jimbeau Walsh le 1 Janvier 2020, Punalu’u, Oahu, Hawaii, USA.
+Yogananda - reçu par Jimbeau Walsh le 1<sup>er</sup> Janvier 2020, Punalu’u, Oahu, Hawaii, USA.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-landscape-3628992_1280.png)
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### L'Amour de Dieu est la seule chose qui puisse apporter le vrai bonheur et la paix sur terre
 
-Solar - reçu en 1970, Vancouver, Colombie-Britannique, Canada.
+Solar<sup id="a1">[1](#f1)</sup> - reçu en 1970, Vancouver, Colombie-Britannique, Canada.
 
 *« Père béni, alors que nous nous rassemblons dans cette paix merveilleuse, nous savons que nous sommes vraiment bénis par le déversement de Ton Amour dans nos âmes. Ce soir, Père, nous demandons une bénédiction pour chacun d'entre nous. Puissent-ils être si élevés et si renouvelés dans Ton Amour que dans les jours à venir, seule la bonté puisse venir à eux. Qu'ils se sentent si forts et sages qu'ils ne puissent qu'aller de l'avant et donner à ceux qu'ils contactent un sentiment de paix. Nous savons que c'est seulement par l'influx de ton Amour dans nos âmes que nous pouvons être des serviteurs utiles des tiens. Nous demandons une bénédiction spéciale à ces merveilleux amis qui sont sincères dans leurs désirs, sérieux dans leurs prières et qui sont si désireux d'aller de l'avant et d'enseigner aux autres. Puissent-ils être renouvelés par ton Essence Père et devenir si forts et si sages qu'ils utiliseront le don de ton effusion avec tant de sagesse que la vraie bonté et les vérités seront à nouveau apportées à l'homme. »*
 
@@ -18,6 +18,14 @@ A vous tous ici mes amis, vous qui êtes dans des corps physiques et vous qui vo
 Nous savons que vous comprenez, mes amis, ce que le Divin Amour de Dieu peut faire pour l'homme, mais nous réalisons aussi que le temps est venu où vous avez besoin d'une plus grande aide pour diffuser et enseigner ces vérités. L'homme sur Terre aujourd'hui a besoin plus que jamais de l'Amour qui vient seulement de Dieu. Beaucoup sur la Terre ont une grande compréhension et beaucoup seront attirés par votre groupe qui sera testé et éprouvé et en temps voulu utilisé pour ce grand travail. Le groupe avec lequel je travaille compte 24 amis qui s'assoient et prient et qui ont travaillé pour apporter ces vérités à la Terre et vous découvrirez de temps en temps que vous nous connaissez tous. Nous souhaitons que vous fassiez appel à nous. Nous ne nous faisons pas connaître à vous dans un but futile. Alors que chacun d'entre vous devient plus pleinement conscient de nous, nous vous demandons de faire appel à nous afin que chacun d'entre vous qui êtes ici ce soir dans des corps physiques soit très conscient de notre présence.
 
 Toute notre vie a été consacrée au développement de l'âme et, bien que nous réalisions que vous, qui êtes sous forme humaine, ne pouvez pas vous retirer entièrement des conditions terrestres, nous venons vous dire à quel point la croissance de l'âme est importante pour vous, non seulement mes amis pour votre propre bonheur et votre progression, mais aussi à quel point elle sera et est nécessaire lorsque l'on consacre sa vie à travailler pour Dieu. L'Amour de Dieu est la seule chose, mes amis, qui peut apporter le vrai bonheur et la paix sur la Terre. C'est la seule chose qui amène une âme à la lumière et au bonheur dans les sphères supérieures de la vie et c'est pourquoi, avec beaucoup d'autres, je me rapproche de vous pour vous bénir et vous encourager et pour former une telle proximité et un tel lien d'affection et, avec le temps, construire une telle force entre nous qu'en allant de l'avant ensemble, nous réussirons mieux la mission qui est prévue pour chacun d'entre vous. Je vous laisse maintenant et je demande à Dieu de vous bénir dans tout ce que vous ferez, mes amis. Bonne nuit.
+<small>
+
+1. <large id="f1"> Solar s'est également exprimé dans les messages suivants : [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|--
+Solar | [Préparez-vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-51-1970-1-20-anonymous-solar/) | 20 Janvier 1970
+Solar | [L'Amour de Dieu est la seule chose qui puisse apporter le vrai bonheur et la paix sur terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-145-1970-anonymous-solar/) |   1970
 
 
 

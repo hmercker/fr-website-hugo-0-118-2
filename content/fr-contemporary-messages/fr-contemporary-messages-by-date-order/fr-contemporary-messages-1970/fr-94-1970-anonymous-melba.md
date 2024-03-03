@@ -28,7 +28,7 @@ J'espère que je pourrai apporter un plus grand bonheur et une plus grande joie,
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-Nellie Melba | [Plomb, Lumière Bienveillante](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-94-1970-anonymous-melba/
+Nellie Melba | [Plomb, Lumière Bienveillante](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-94-1970-anonymous-melba/)
 Nellie Melba | [Le monde a besoin de vous maintenant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-21-6-af-dame-nellie-melba/) | 21 Novembre 2017
  
 

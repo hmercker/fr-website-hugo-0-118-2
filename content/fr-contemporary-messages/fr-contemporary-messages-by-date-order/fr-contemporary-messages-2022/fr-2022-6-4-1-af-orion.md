@@ -47,6 +47,6 @@ Je suis désolé d’être si exigeant avec vous, mes amis, mais le temps est co
 
 Que Dieu vous bénisse, mes amis. Je suis Orion. Merci de m’avoir écouté aujourd’hui et sachez que nous sommes fermement à vos côtés, fermement. Puissiez-vous être bénis dans le grand Amour de la Source de Tout, cet Amour qui continue pour toute l’éternité, cet Amour qui transformera chacun d’entre vous alors que vous continuerez à être attirés par son magnétisme, son pouvoir, sa beauté et son étreinte. Que Dieu vous bénisse, mes amis, que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -29,7 +29,7 @@ Oui, il existe de nombreuses conditions difficiles dans le monde, mais Dieu vous
 
 Que Dieu vous bénisse sur ce chemin, âmes bien-aimées. Je suis Matthieu et je prie avec vous et je marche avec vous tout comme le font de nombreux anges alors que vous continuez à chercher votre mode de service au fur et à mesure que vos dons se dévoilent et que votre vrai moi est reconnu et éveillé.  Amoureux. Que Dieu vous bénisse mes amis. L’Amour de Dieu est avec vous. L’amour de Dieu est avec nous tous. Que Dieu vous bénisse, âmes bien-aimées.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
 

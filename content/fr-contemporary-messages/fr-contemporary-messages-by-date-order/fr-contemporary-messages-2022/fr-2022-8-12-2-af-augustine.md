@@ -25,6 +25,6 @@ Que Dieu vous bénisse, âmes bien-aimées. Puissiez-vous parvenir à connaître
 
 Que Dieu vous bénisse, mes bien-aimés, que Dieu vous bénisse. Je suis votre enseignant Augustin, et je suis avec vous pendant que vous priez, comme le sont de nombreux anges des Cieux Célestes. Que Dieu vous bénisse et vous garde dans la lumière. Notre amour est avec vous tous, âmes bien-aimées. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

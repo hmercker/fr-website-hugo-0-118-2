@@ -39,6 +39,6 @@ Que Dieu vous bénisse, mes amis. Je suis Orion, et je vous remercie de m'avoir 
 
 Que Dieu vous bénisse, mes amis. Allez dans le monde, exprimez l'amour et soyez l'amour, et vous verrez ce que Dieu place devant vous. Votre voyage sera merveilleux, excitant, plein, et charmant. Que Dieu vous bénisse, mes amis, de son amour.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

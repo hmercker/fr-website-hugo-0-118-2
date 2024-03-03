@@ -1,13 +1,13 @@
 ---
-title: "Bénédictons"
+title: "Bénédictions"
 menu_title: ""
-description: "Bénédictons"
+description: "Bénédictions"
 date: 2023-09-01 06:00:01+00:06
 draft: False
 hidden: True
 weight:
 ---
-### Bénédictons
+### Bénédictions
 
 André - reçu par Jimbeau Walsh le 23 Juillet 2021, Punalu’u, Oahu, Hawaii, USA.
 

@@ -26,7 +26,7 @@ Jésus | [Jésus est avec nous - Voix Directe](/fr-contemporary-messages/fr-cont
 Seretta Kem | [Conseils sur la manière de freiner la dégénérescence de la condition spirituelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-21-2-af-seretta-kem/) | 21 Janvier 2018
 Professeur Salyards | [Qui apportera la vérité à ce monde ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-21-3-af-professor-salyards/) | 21 Janvier 2018
 Alec Gaunt | [Au fil des découvertes de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-24-1-af-alec-gaunt/) | 24 Janvier 2018
-Augustin | [Mettez en pratique la vérité de l'amour de Dieu dans tout ce que vous faites](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-24-2-af-augustine/) | 24 Janvier 2018
+Augustin | [Mettez en pratique la vérité de l'Amour de Dieu dans tout ce que vous faites](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-24-2-af-augustine/) | 24 Janvier 2018
 Confucius | [L'âme sage s'approche de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-25-1-af-confucius/) | 25 Janvier 2018
 St Pierre | [Les âmes qui aspirent à la lumière apporteront le changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-25-2-af-st-peter/) | 25 Janvier 2018
 St Jean | [L'Amour de Dieu réveille les dons de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-29-1-af-st-john/) | 29 Janvier 2018
@@ -40,9 +40,9 @@ St Matthieu | [Cherchez à connaître Dieu et vous serez un canal d'amour](/fr-c
 Marie | [Je marche avec vous, soyez en paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-17-1-af-mary/) | 17 Février 2018
 Thomas d'Aquin | [Choisirez-vous de commencer le voyage de l’éveil de l’âme ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-17-2-af-thomas-aquinas/) | 17 Février 2018
 St Matthieu | [Choisir le droit chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-18-1-af-st-matthew/) | 18 Février 2018
-Augustin | [Cherchez l'amour de Dieu pour réveiller vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-20-1-af-augustine/) | 20 Février 2018
+Augustin | [Cherchez l'Amour de Dieu pour réveiller vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-20-1-af-augustine/) | 20 Février 2018
 Jésus | [L'amour est la clé de l'épanouissement, de la joie et de la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-20-2-af-jesus/) | 20 Février 2018
-Isaïe | [L'amour de Dieu vous ouvre les portes de l'entendement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-21-1-af-isaiah/) | 21 Février 2018
+Isaïe | [L'Amour de Dieu vous ouvre les portes de l'entendement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-21-1-af-isaiah/) | 21 Février 2018
 Augustin | [Un parcours de service](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-22-1-af-augustine/) | 22 Février 2018
 Goldie | [Apportez la musique !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-23-1-af-goldie/) | 23 Février 2018
 Jésus | [Le travail commence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-23-2-af-jesus/) | 23 Février 2018
@@ -53,7 +53,7 @@ Augustin | [Permettez-vous de recevoir l'Amour de Dieu](/fr-contemporary-message
 Augustin | [Servir avec humilité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-25-2-af-augustine/) | 25 Février 2018
 Confucius | [Chercher la lumière dans un monde en mutation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-25-3-af-confucius/) | 25 Février 2018
 Marie | [Le monde a besoin d'âmes aspirant à la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-1-1-af-mary/) | 1 Mars 2018
-St Matthieu | [Cherchez l'amour de Dieu et tout viendra](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-1-2-af-st-matthew/) | 1 Mars 2018
+St Matthieu | [Cherchez l'Amour de Dieu et tout viendra](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-1-2-af-st-matthew/) | 1 Mars 2018
 André | [Laissez l'âme s'exprimer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-2-1-af-andrew/) | 2 Mars 2018
 St Jean | [Le voyage vers l'éveil de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-2-2-af-st-john/) | 2 Mars 2018
 Keea Atta kem | [Dieu nous tisse dans une tapisserie de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-3-1-af-keea-atta-kem/) | 3 Mars 2018
@@ -65,8 +65,8 @@ Seretta Kem | [Les lois du rapport dans le développement de la voix directe](/f
 Confucius | [L'amour équilibre l'esprit matériel et l'esprit de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-6-2-af-confucius/) | 6 Mars 2018
 St Matthieu | [Prédire l'avenir n'est pas possible à 100 %](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-7-1-af-st-matthew/) | 7 Mars 2018
 Keea Atta Kem | [Le pouvoir d'amour des femmes apporte de la lumière à ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-8-1-af-keea-atta-kem/) | 8 Mars 2018
-Seretta Kem | [Connaître les potentialités de l'amour de Dieu est un voyage infini](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-8-2-af-seretta-kem/) | 8 Mars 2018
-Lotus Blossom | [Les instruments de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-8-3-af-lotus-blossom/) | 8 Mars 2018
+Seretta Kem | [Connaître les potentialités de l'Amour de Dieu est un voyage infini](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-8-2-af-seretta-kem/) | 8 Mars 2018
+Fleur de Lotus | [Les instruments de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-8-3-af-lotus-blossom/) | 8 Mars 2018
 Shandor | [Commentaires de Shandor sur la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-8-4-af-shandor/) | 8 Mars 2018
 Al Fike | [Impressions d'Al après la prière Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-8-5-af-al-fike/) | 8 Mars 2018
 Seretta Kem | [Une perspective spirituelle sur les choix alimentaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-10-1-af-seretta-kem/) | 10 Mars 2018
@@ -77,7 +77,7 @@ André | [Être dans le courant de l'amour du Père ensemble](/fr-contemporary-m
 St Luc | [Introduction à la création d'un cercle de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-12-2-af-st-luke/) | 12 Mars 2018
 Augustin | [Dieu a besoin de ceux qui sont dans la lumière pour aider l’humanité à travers les changements à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-13-1-af-augustine/) | 13 Mars 2018
 Goldie | [Le soleil est en vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-13-2-af-goldie/) | 13 Mars 2018
-Jésus | [Dans l'amour de Dieu, vous avez trouvé votre sanctuaire de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-13-3-af-jesus/) | 13 Mars 2018
+Jésus | [Dans l'Amour de Dieu, vous avez trouvé votre sanctuaire de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-13-3-af-jesus/) | 13 Mars 2018
 Samuel | [Le changement est la constante de l’univers](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-13-4-af-samuel/) | 13 Mars 2018
 St Matthieu | [Cherchez à être une pure expression de la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-14-1-af-st-matthew/) | 14 Mars 2018
 Marc | [Acceptez l'invitation de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-15-1-af-mark/) | 15 Mars 2018
@@ -88,23 +88,23 @@ Augustin | [Accepterez-vous le don de l'amour de Dieu ?](/fr-contemporary-messag
 Tahlia | [Connaître Dieu dans son grand fleuve d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-17-2-af-tahlia/) | 17 Mars 2018
 Jésus | [Une bénédiction de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-18-1-af-jesus/) | 18 Mars 2018
 Augustin | [Le chemin de la guérison et de la compassion par l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-21-1-af-augustine/) | 21 Mars 2018
-St Luc | [Le chemin de la guérison et de la compassion par l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-21-2-af-st-luke/) | 21 Mars 2018
+St Luc | [Soyez des guerriers contre l'obscurité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-21-2-af-st-luke/) | 21 Mars 2018
 Seretta Kem | [Restez concentré](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-25-1-af-seretta-kem/) | 25 Mars 2018
 Jacques | [Devenez le vent du changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-26-1-af-james/) | 26 Mars 2018
 Seretta Kem | [La trans médiumnité comparée à la médiumnité physique ou matérielle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-29-1-af-seretta-kem/) | 29 Mars 2018
-Jésus | [Aidez les autres à trouver la vérité de l'amour du Père](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-30-1-af-jesus/) | 30 Mars 2018
+Jésus | [Aidez les autres à trouver la vérité de l'Amour du Père](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-30-1-af-jesus/) | 30 Mars 2018
 Jésus | [Jésus apporte une bénédiction à F.U.S.C.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-4-1-1-af-jesus/) | 1 Avril 2018
 Augustin | [Mettez l'accent sur la prière pour l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-4-1-2-af-augustine/) | 1 Avril 2018
 St Luc | [Une intervention sur les péchés des parents](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-4-4-1-af-st-luke/) | 4 Avril 2018
 Jésus | [Dieu crée des sanctuaires de lumière dans votre monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-4-6-1-af-jesus/) | 6 Avril 2018
 Jésus | [Jésus commente les expériences médiumniques.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-4-11-1-af-jesus/) | 11 Avril 2018
-Seretta Kem | [Conseils pour obtenir le don de la voix directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-4-15-1-af-seretta-kem/) | 15 Avril 2018
+Seretta Kem | [Conseils pour obtenir le don de la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-4-15-1-af-seretta-kem/) | 15 Avril 2018
 Augustin | [Le pouvoir de la prière pour provoquer le changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-4-16-1-af-augustine/) | 16 Avril 2018
 Augustin | [Dieu a besoin de toutes les âmes éveillées à l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-4-26-1-af-augustine/) | 26 Avril 2018
 Augustin | [Préparez-vous aux changements à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-4-28-1-af-augustine/) | 28 Avril 2018
 Marc | [Les bénédictions viendront à mesure que vous construisez la lumière et l'amour en vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-6-1-af-mark/) | 6 Mai 2018
 André | [L'Amour de Dieu n'est qu'à une prière de distance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-7-1-af-andrew/) | 7 Mai 2018
-Alec Gaunt | [Connaître la volonté de Dieu pour vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-9-1-af-alec-gaunt/) | 9 Mai 2018
+Alec Gaunt | [Connaître la Volonté de Dieu pour vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-9-1-af-alec-gaunt/) | 9 Mai 2018
 Mahatma Gandhi | [Le changement intervient âme par âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-10-1-af-mahatma-gandhi/) | 10 Mai 2018
 Jésus | [Rien ne peut briser ce lien](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-11-1-af-jesus/) | 11 Mai 2018
 Augustin | [C'est un lieu de refuge](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-11-2-af-augustine/) | 11 Mai 2018
@@ -117,10 +117,10 @@ John Wesley | [Le rôle de la voix directe dans l'éveil de l'humanité](/fr-con
 Keea Atta Kem | [Prenez des dispositions pour vous réunir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-20-2-af-keea-atta-kem/) | 20 Mai 2018
 St Matthieu | [S'éveiller au plus grand amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-21-1-af-st-matthew/) | 21 Mai 2018
 Marie | [Nous sommes tous connectés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-27-1-ar-mary/) | 27 Mai 2018
-André | [Vivez chaque jour dans le flux de la volonté et de l'amour de Dieu à votre égard](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-28-1-af-andrew/) | 28 Mai 2018
+André | [Vivez chaque jour dans le flux de la Volonté et de l'Amour de Dieu à votre égard](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-28-1-af-andrew/) | 28 Mai 2018
 Jésus | [Faites partie du plan pour le salut de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-28-2-af-jesus/) | 28 Mai 2018
 St Matthieu | [La différence entre l'âme et l'esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-28-3-af-st-matthew/) | 28 Mai 2018
-Seretta Kem | [Tous les dons proviennent de l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-3-1-af-seretta-kem/) | 3 Juin 2018
+Seretta Kem | [Tous les dons proviennent de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-3-1-af-seretta-kem/) | 3 Juin 2018
 Augustin | [L'âme à la tête de l'esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-4-1-af-augustine/) | 4 Juin 2018
 Jésus | [La bénédiction d’un bouclier de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-6-1-af-jesus/) | 6 Juin 2018
 Augustin | [En ce moment, vous êtes dans le ventre de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-8-1-af-augustine/) | 8 Juin 2018
@@ -132,14 +132,14 @@ Marc | [Guidance et bénédictions - Retraite F.U.S.C.](/fr-contemporary-message
 St Matthieu | [L'âme aspire au contact de Dieu - Retraite F.U.S.C.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-9-4-af-st-matthew/) | 9 Juin 2018
 Alec Gaunt | [L'Amour de Dieu est la grande puissance qui va changer le monde - F.U.S.C.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-10-1-af-alec-gaunt/) | 10 Juin 2018
 Martha | [Permettez à Dieu de travailler à travers cette église - F.U.S.C.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-10-2-af-martha/) | 10 Juin 2018
-Seretta Kem | [Permettez à l'amour de Dieu de s'exprimer de manière unique à travers votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-13-1-mc-seretta-kem/) | 13 Juin 2018
+Seretta Kem | [Permettez à l'Amour de Dieu de s'exprimer de manière unique à travers votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-13-1-mc-seretta-kem/) | 13 Juin 2018
 St Matthieu | [L’Amour Divin harmonise l’âme et le mental dans une nouvelle perception de la réalité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-18-1-af-st-matthew/) | 18 Juin 2018
 St Matthieu & Jésus | [Matthieu et Jésus commentent les théories du complot.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-21-1-af-st-matthew-jesus/) | 21 Juin 2018
 Jésus | [La F.U.S.C. continuera d'être un refuge et un sanctuaire - 100e anniversaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-23-1-af-jesus/) | 23 Juin 2018
 St Luc | [Rechercher l'humilité et la compassion pour soi et pour les autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-24-1-af-st-luke/) | 24 Juin 2018
 St Matthieu | [Libérer le jugement et embrasser l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-26-1-af-st-matthew/) | 26 Juin 2018
 Marie | [Une bénédiction de Marie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-7-2-1-af-mary/) | 2 Juillet 2018
-Aron | [Les anges accompagnent tous ceux qui cherchent l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-7-7-1-af-aaron/) | 7 Juillet 2018
+Aaron | [Les anges accompagnent tous ceux qui cherchent l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-7-7-1-af-aaron/) | 7 Juillet 2018
 André | [Choisissez d'éveiller votre âme par la prière pour l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-7-8-1-af-andrew/) | 8 Juillet 2018
 Augustin | [Choisirez-vous la transformation de l'âme par l'Amour Divin ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-7-8-2-af-augustine/) | 8 Juillet 2018
 Marie | [L'éveil de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-7-9-1-af-mary/) | 9 Juillet 2018
@@ -156,7 +156,7 @@ Keea Atta Kem | [La loyauté envers Dieu et votre âme](/fr-contemporary-message
 Keea Atta Kem | [La prière et la loi d’activation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-7-30-1-af-keea-atta-kem/) | 30 Juillet 2018
 Confucius | [Une bénédiction spéciale donnée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-7-31-1-af-confucius/) | 31 Juillet 2018
 Jésus | [Vous êtes à un point tournant dans votre service à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-7-31-2-af-jesus/) | 31 Juillet 2018
-André | [Chaque âme est unique et fleurit dans la vérité de l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-1-1-af-andrew/) | 1 Août 2018
+André | [Chaque âme est unique et fleurit dans la vérité de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-1-1-af-andrew/) | 1 Août 2018
 St Luc & Seretta Kem | [Orientation V.D (Seretta Kem) et être au service (Luc)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-5-1-af-st-luke-seretta-kem/) | 5 Août 2018
 Solomon | [La confiance dans la sagesse de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-6-1-af-solomon/) | 6 Août 2018
 Marc | [Le choix de connaître Dieu vous appartient](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-8-1-af-mark/) | 8 Août 2018
@@ -167,7 +167,7 @@ Seretta Kem | [Faire grandir la lumière dans vos âmes est le plus grand servic
 Augustin | [Commentaire sur les changements terrestres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-20-1-af-augustine/) | 20 Août 2018
 Jésus | [Bienvenue de Jésus à la retraite de médiumnité de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-25-1-af-jesus/) | 25 Août 2018
 Augustin | [L’Amour de Dieu va réveiller vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-25-2-af-augustine/) | 25 Août 2018
-Augustin | [Retraite de médiumnité du message d'ouverture](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-26-1-af-augustine/) | 26 Août 2018
+Augustin | [Message d'ouverture de la Retraite de médiumnité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-26-1-af-augustine/) | 26 Août 2018
 Marie | [Marie apporte sa bénédiction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-26-2-af-mary/) | 26 Août 2018
 André | [Le pouvoir de la prière car l'Amour de Dieu apporte toutes les bénédictions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-27-1-af-andrew/) | 27 Août 2018
 Augustin | [L’éveil de nos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-27-2-af-augustine/) | 27 Août 2018
@@ -179,7 +179,7 @@ Jésus | [L'amour est la grande vérité](/fr-contemporary-messages/fr-contempor
 Isaïe | [Une déclaration proclamant le début d'une nouvelle ère de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-29-1-af-isaiah/) | 29 Août 2018
 Jésus | [Jésus, je suis avec vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-29-1-af-jesus/) | 29 Août 2018
 Seretta Kem | [Qu'est-ce qui apporte la médiumnité de l'Amour Divin ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-29-3-af-seretta-kem/) | 29 Août 2018
-Lotus Blossom | [L'ouverture du don de médiumnité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-29-4-af-lotus-blossom/) | 29 Août 2018
+Fleur de Lotus | [L'ouverture du don de médiumnité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-29-4-af-lotus-blossom/) | 29 Août 2018
 Seretta Kem | [Dieu communique de plusieurs façons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-30-1-af-seretta-kem/) | 30 Août 2018
 Jésus | [L'amour est le grand libérateur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-30-2-js-jesus/) | 30 Août 2018
 Keea Atta Kem | [Cercles de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-30-3-af-keea-atta-kem/) | 30 Août 2018
@@ -197,21 +197,21 @@ Confucius | [Nous serons avec vous](/fr-contemporary-messages/fr-contemporary-me
 Seretta Kem | [Éveiller les autres au but de la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-14-2-af-seretta-kem/) | 14 Septembre 2018
 Augustin | [Le point de vue de nombreux participants à la conférence de l’A.R.E.I.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-15-1-af-augustine/) | 15 Septembre 2018
 Lotus Blossom | [Faites appel à moi pour la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-15-2-mc-lotus-blossom/) | 15 Septembre 2018
-Seretta Kem | [Soyez perspicaces, sages et fidèles à la volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-16-1-af-seretta-kem/) | 16 Septembre 2018
+Seretta Kem | [Soyez perspicaces, sages et fidèles à la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-16-1-af-seretta-kem/) | 16 Septembre 2018
 Augustin | [Le chemin de l'Amour Divin est la voie de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-20-1-mc-augustine/) | 20 Septembre 2018
 Seretta Kem | [Orientations pour la session d'Octobre 2018 de Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-21-1-mc-seretta-kem/) | 21 Septembre 2018
 Jésus | [Je suis avec vous alors que vous accomplissez l'œuvre du Père](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-22-1-af-jesus/) | 22 Septembre 2018
 Keea Atta Kem | [Demandez l'aide des anges](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-22-2-af-keea-atta-kem/) | 22 Septembre 2018
-St Luc | [La vérité passe par l'âme éveillée par l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-22-3-af-st-luke/) | 22 Septembre 2018
+St Luc | [La vérité passe par l'âme éveillée par l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-22-3-af-st-luke/) | 22 Septembre 2018
 Kea - Vicky Forest | [Premier message de l'esprit de Vicky Forest](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-24-1-af-vicky-forest/) | 24 Septembre 2018
-Seretta Kem | [Instructions pour la voix directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-25-1-af-seretta-kem/) | 25 Septembre 2018
+Seretta Kem | [Instructions pour la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-25-1-af-seretta-kem/) | 25 Septembre 2018
 Martin Luther | [Bienvenue à H et encouragements pour le groupe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-27-1-af-martin-luther/) | 27 Septembre 2018
 Seretta Kem | [Ouvrez-vous au plus haut niveau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-27-2-af-seretta-kem/) | 27 Septembre 2018
 Jésus | [Écoutez avec les oreilles de vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-28-1-af-jesus/) | 28 Septembre 2018
-Marie | [Au service de la volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-28-2-af-mary/) | 28 Septembre 2018
+Marie | [Au service de la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-28-2-af-mary/) | 28 Septembre 2018
 Augustin | [Il est temps de dire la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-30-1-af-augustine/) | 30 Septembre 2018
 Keea Atta Kem | [L'éveil de l'âme, une nouvelle naissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-1-1-af-keea-atta-kem/) | 1 Octobre 2018
-Seretta Kem | [La bénédiction transformatrice de l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-1-2-af-seretta-kem/) | 1 Octobre 2018
+Seretta Kem | [La bénédiction transformatrice de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-1-2-af-seretta-kem/) | 1 Octobre 2018
 Jésus et les guides spirituels | [Jésus et les guides accueillent le Cercle des Sept](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-1-3-af-jesus-spiritual-leaders/) | 1 Octobre 2018
 St Matthieu | [Tout repose sur l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-2-1-af-st-matthew/) | 2 Octobre 2018
 Seretta Kem | [La naissance de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-2-2-af-seretta-kem/) | 2 Octobre 2018
@@ -252,7 +252,7 @@ Elsie Grosart| [Une vieille amie nous soutient dans la prière](/fr-contemporary
 André | [André apportera des messages d'Amour et de Vérité - (Cercle de prière en ligne)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-22-3-af-andrew/) | 22 Octobre 2018
 St Matthieu | [Il est temps de faire de plus grands efforts pour grandir dans la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-22-4-af-st-matthew/) | 22 Octobre 2018
 Marie | [Les anges prient pour nous dans notre éveil](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-22-5-mc-mary/) | 22 Octobre 2018
-André | [Recherchez l'harmonie grâce à l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-23-1-af-andrew/) | 23 Octobre 2018
+André | [Recherchez l'harmonie grâce à l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-23-1-af-andrew/) | 23 Octobre 2018
 Seretta Kem | [L'éveil de l'âme, la puissance de vos dons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-23-2-af-seretta-kem/) | 23 Octobre 2018
 Marc | [La foi chevauche les ailes de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-23-3-mc-mark/) | 23 Octobre 2018
 Seretta Kem | [Seretta Kem parle de ce qui peut venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-24-1-af-seretta-kem/) | 24 Octobre 2018
@@ -264,12 +264,12 @@ Martha | [Nous sommes avec vous sur le chemin de l'amour](/fr-contemporary-messa
 Martin Luther | [L'éveil progressif de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-26-3-af-martin-luther/) | 26 Octobre 2018
 St Matthieu | [La guérison par l'amour crée la richesse de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-26-4-af-st-matthew/) | 26 Octobre 2018
 Thomas d'Aquin | [Vous avez bien fait](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-26-5-af-thomas-aquinas/) | 26 Octobre 2018
-Keea Atta Kem | [L'éveil de l'âme par l'amour de Dieu est la clé de tous les dons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-26-6-af-keea-atta-kem/) | 26 Octobre 2018
+Keea Atta Kem | [L'éveil de l'âme par l'Amour de Dieu est la clé de tous les dons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-26-6-af-keea-atta-kem/) | 26 Octobre 2018
 Jésus | [Vous suivez le chemin que j'ai suivi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-27-1-af-jesus/) | 27 Octobre 2018
 Seretta Kem | [Les réflexions affectueuses de Seretta Kem](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-27-2-af-seretta-kem/) | 27 Octobre 2018
 Goldie | [Tant de choses continueront à être données](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-27-3-af-goldie/) | 27 Octobre 2018
 St Paul | [Le chemin le moins fréquenté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-29-1-af-st-paul/) | 29 Octobre 2018
-St Matthieu | [Vivez la vérité de l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-3-1-af-st-matthew/) | 3 Novembre 2018
+St Matthieu | [Vivez la vérité de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-3-1-af-st-matthew/) | 3 Novembre 2018
 Augustin | [Dieu vous invite à vous réveiller dans Son amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-4-1-af-augustine/) | 4 Novembre 2018
 Goldie | [Le cadeau de Goldie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-4-2-af-goldie/) | 4 Novembre 2018
 Keea Atta Kem | [L'Amour de Dieu nourrira votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-4-3-af-keea-atta-kem/) | 4 Novembre 2018
@@ -295,16 +295,16 @@ Yogananda | [Être un vecteur de l'Amour de Dieu](/fr-contemporary-messages/fr-c
 Jacques | [L'intérêt de construire des portails de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-21-3-af-james/) | 21 Novembre 2018
 Yogananda | [Yogananda décrit son voyage à travers les Sphères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-22-1-af-yogananda/) | 22 Novembre 2018
 Yogananda | [Les chemins de la conscience](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-22-2-af-yogananda/) | 22 Novembre 2018
-Lotus Blossom | [L’importance de vos Pensées, Émotions et Sentiments](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-22-3-mc-lotus-blossom/) | 22 Novembre 2018
+Fleur de Lotus | [L’importance de vos Pensées, Émotions et Sentiments](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-22-3-mc-lotus-blossom/) | 22 Novembre 2018
 Faith | [Ce que vous devez enseigner en jetant les graines](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-24-1-af-faith/) | 24 Novembre 2018
 Jésus | [Clarification sur l’existence Céleste de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-26-1-af-jesus/) | 26 Novembre 2018
-Michael Collier | [Apporter une plus grande vie à l’humanité en tant que canaux d’amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-26-2-af-michael-collier/) | 26 Novembre 2018
+Michael Collier | [Apporter une plus grande vie à l’humanité en tant que canaux d’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-26-2-af-michael-collier/) | 26 Novembre 2018
 Seretta Kem | [Un portail de lumière est établi à Fitzroy Falls](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-27-1-af-seretta-kem/) | 27 Novembre 2018
 Augustin | [Toute vérité vient de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-28-1-af-augustine/) | 28 Novembre 2018
 Augustin | [Des changements terrestres stimulants apportent plus de lumière et d’harmonie à l’humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-29-1-af-augustine/) | 29 Novembre 2018
 Abdullah Latif | [Le pouvoir de la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-29-2-af-abdullah-latif/) | 29 Novembre 2018
 St Luc | [L'importance des cercles de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-29-2-af-st-luke/) | 29 Novembre 2018
-André | [Il est encore temps de réveiller vos âmes par l’amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-12-1-1-af-andrew/) | 1 Décembre 2018
+André | [Il est encore temps de réveiller vos âmes par l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-12-1-1-af-andrew/) | 1 Décembre 2018
 Augustin | [Discours sur la vérité - Partie 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-12-2-1-af-augustine/) | 2 Décembre 2018
 Seretta Kem | [Vous continuez à construire le treillis de lumière dans votre monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-12-9-1-af-seretta-kem/) | 9 Décembre 2018
 Confucius | [Préparez-vous pour les temps qui viennent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-12-16-1-af-confucius/) | 16 Décembre 2018

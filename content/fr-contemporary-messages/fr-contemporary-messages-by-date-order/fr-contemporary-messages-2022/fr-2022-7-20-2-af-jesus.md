@@ -73,6 +73,6 @@ Cherchez la liberté de l’âme et l’intégration de l’âme et de l’espri
 
 Que Dieu vous bénisse dans ce voyage, mes amis, et vous garde dans Sa protection, Son Amour et Sa Lumière. Il sera vôtre à condition que vous le désiriez. Il sera vôtre parce que vous avez fait ce choix et continuez à exercer les lois en votre faveur. Que Dieu vous bénisse, mes bien-aimés. Je suis votre frère et ami, Jésus. J’ai un grand amour pour vous et pour l’humanité. Nous travaillons tous ensemble pour aider Dieu à réaliser la grande transformation de l’humanité, la transformation qui doit venir et qui viendra. Nous sommes ensemble pour accomplir la volonté de Dieu et son désir d’une telle manifestation et bénédiction dans le monde. Que Dieu vous bénisse, mes bien-aimés. Je suis Jésus et je vous aime. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-20122)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

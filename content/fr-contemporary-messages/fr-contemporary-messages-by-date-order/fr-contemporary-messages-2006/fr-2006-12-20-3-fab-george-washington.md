@@ -11,7 +11,7 @@ weight:
 
 George Washington <sup id="a1">[1](#f1)</sup> - reçu par FAB le 20 Décembre 2006, Santa Cruz, Californie, USA.
 
-Je suis George Washington. <sup id="a2">[2](#f2)</sup
+Je suis George Washington. <sup id="a2">[2](#f2)</sup>
 
 Je serai bref. Je viens élargir le témoignage des autres présidents qui vous écrivent ce soir, pour vous assurer que votre vie personnelle sera restaurée en ce qui concerne vos besoins matériels, et notre pays bien-aimé sera également restauré afin que ce que l'Amérique fait dans le monde ne soit pas diamétralement opposé à ce qu'elle professe.
 

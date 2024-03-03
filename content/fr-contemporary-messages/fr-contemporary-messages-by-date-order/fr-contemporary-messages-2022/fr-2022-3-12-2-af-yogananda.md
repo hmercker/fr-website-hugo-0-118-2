@@ -21,6 +21,6 @@ Vous recevez le don de la lumière. Vous pouvez marcher sur le chemin de la lumi
 
 Que Dieu vous bénisse, mes amis, dans ce voyage. Puissiez-vous ne pas être trop distraits par ces autres qualités de lumière, mais concentrez-vous et visez ce grand cadeau. Car en cela, toutes les autres expériences, dons et expressions de lumière suivront. Soyez bénis, mes amis bien-aimés, alors que vous cherchez à connaître la vérité, la profondeur et l’étendue de l’univers de Dieu, l’émerveillement de l’Amour de Dieu pour vous, âmes bien-aimées. Je suis votre ami, Yogananda. Je suis heureux d’être avec vous aujourd’hui alors que vous vous réunissez, cherchez et priez ensemble, un véritable exercice spirituel dans la lumière. Que Dieu vous bénisse, mes amis et vous garde dans Sa lumière, mes beaux, beaux amis. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

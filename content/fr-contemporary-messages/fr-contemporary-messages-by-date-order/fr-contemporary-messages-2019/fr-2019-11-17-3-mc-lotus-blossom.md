@@ -9,7 +9,7 @@ weight:
 ---
 ### Vos pensées ont un grand pouvoir
 
-Fleur de Lotu - reçu par Maureen Cardoso le 17 Novembre 2019, Ancient Gardens, Eudlo, QLD, Australie.
+Fleur de Lotus - reçu par Maureen Cardoso le 17 Novembre 2019, Ancient Gardens, Eudlo, QLD, Australie.
 
 Je suis ici, je suis Fleur de Lotus. Vous m’attirez près de vous avec l’opportunité pour ma chère protégée de partager avec vous le rapport que nous avons et que nous avons développé. Mes plus grands dons d’âme travaillent dans les arts de la guérison. Ainsi, avec ces âmes qui ont des dons de guérison, comme ce cher instrument, nous pouvons travailler à travers elles et avec elles lorsqu’elles administrent la guérison et canalisent les énergies de guérison pour les chères âmes qui viennent pour être soulagées de la douleur, que ce soit du corps physique, du corps émotionnel ou du corps spirituel. Le corps de l’âme a besoin de l’Amour de Dieu pour sa guérison.
 

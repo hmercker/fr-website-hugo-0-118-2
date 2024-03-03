@@ -1,13 +1,13 @@
 ---
-title: "Le chemin de la guérison et de la compassion par l’amour"
+title: "Soyez des guerriers contre l'obscurité"
 menu_title: ""
-description: "Le chemin de la guérison et de la compassion par l’amour"
+description: "Soyez des guerriers contre l'obscurité"
 date: 2022-06-01 06:00:01+00:370
 draft: False
 hidden: True
 weight:
 ---
-### Le chemin de la guérison et de la compassion par l’amour
+### Soyez des guerriers contre l'obscurité
 
 St Luc - reçu par Al Fike le 21 Mars 2018, Hawaii Kai, Oahu, HI, USA.
 

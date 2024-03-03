@@ -13,7 +13,7 @@ Jésus - reçu par FAB le 12 Mai 2009, Santa Cruz, Californie, USA.
 
 C'est moi, Jésus.
 
-J'ai dit dans ma canalisation du 1er mai 2009, [« Le système et les personnes »](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-1-2-fab-jesus/) :
+J'ai dit dans ma canalisation du 1er mai 2009, [Le système et les personnes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-1-2-fab-jesus/) :
 
 > Mais si vous l'étudiez de plus près, vous vous rendrez compte que la tendance humaine naturelle et normale à l'amour et à la générosité est découragée.
 

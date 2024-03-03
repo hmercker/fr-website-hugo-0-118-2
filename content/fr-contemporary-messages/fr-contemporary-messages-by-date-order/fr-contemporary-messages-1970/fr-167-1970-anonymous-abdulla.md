@@ -24,9 +24,15 @@ Donc, je demande à chacun d'entre vous ici de faire tous les efforts possibles 
 Votre vie terrestre est importante pour chacun d'entre vous. Vous construisez sur Terre un fondement pour la vie dans les sphères supérieures et il est nécessaire que vous surmontiez toutes les conditions qui entravent votre progression. Vous devez trouver la vie heureuse pendant que vous êtes sur Terre et, comme nous l'avons dit à maintes reprises, vous devez vous préparer à recevoir.
 
 Lorsque l'homme a appris à s'approcher de Dieu, la Source même de sa création, lorsqu'il a appris à prier et à recevoir le don de Dieu, il a trouvé le secret de la bonne vie et a vraiment commencé une base solide pour ce qui vient plus tard. Alors, je vous dis mes amis, préparez-vous et moi aussi je veux vous apporter mon amour et mes bénédictions car c'est seulement grâce à votre désir que je suis capable de venir et de vous parler, en utilisant une fois de plus la forme humaine. Que Dieu vous bénisse et bonne nuit.
+<small>
 
+1. <large id="f1"> Abdulla s'est également exprimé dans les messages suivants : [↩](#a1)
 
-
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Abdulla | [L'Amour Divin à l'intérieur de l'homme est la seule chose qui peut rendre l'homme libre de la peur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-87-1970-anonymous-abdulla/) |   1970
+Abdulla | [Nous devons apprendre à ne pas construire de barrières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-88-1970-anonymous-abdulla/) |   1970
+Abdulla | [L'importance de la vie terrestre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-156-1970-anonymous-abdulla/) |   1970
 
 ### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)
 

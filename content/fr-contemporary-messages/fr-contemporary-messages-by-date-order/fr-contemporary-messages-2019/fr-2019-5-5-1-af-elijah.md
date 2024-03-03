@@ -32,9 +32,9 @@ Chacun d'entre vous est attiré. Chacun de vous ressent un but, un appel, un dé
 Bénédictions à vous, mes bien-aimés. Je suis Elie<sup id="a2">[2](#f2)</sup>. Bénédictions de l'amour. Dieu vous bénit.
 <small>
 
-1. <large id=”f1”> Isaïe et Élie sont deux esprits très différents. On ne sait pas s'il s'agit d'une simple erreur d'identification par le médium, ou si deux esprits différents étaient impliqués.[↩](#a1)
+1. <large id="f1"> Isaïe et Élie sont deux esprits très différents. On ne sait pas s'il s'agit d'une simple erreur d'identification par le médium, ou si deux esprits différents étaient impliqués.[↩](#a1)
 
-2. <large id="f1"> Les différents messages communiqués par Élie sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-fr-religious-figures/)[↩](#a1)
+2. <large id="f2"> Les différents messages communiqués par Élie sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-fr-religious-figures/)[↩](#a2)
 
 ### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
 

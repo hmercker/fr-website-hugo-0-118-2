@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez fidèle à votre âme
 
-Seretta Kem - reçu par Al Fike le 1 Mars 2022, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 1<sup>er</sup> Mars 2022, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis Seretta Kem. Nous continuons à faire ce voyage ensemble, mes bien-aimés et beaux amis de la Terre. Nous continuons à aider à préparer les changements à venir qui apporteront sûrement de nombreuses occasions de servir Dieu, d’être en harmonie avec Sa volonté et Son plan. En effet, vous devez rechercher les âmes les plus aimées. Cherchez à ce que votre âme soit en alignement avec Dieu, à ce que votre âme prenne le pas sur votre esprit. Car, comme il vous l’a été dit à maintes reprises, c’est ce changement dans votre conscience, cette décision qui fait partie de vous, de votre esprit et de votre âme qui provoquera les réveils, les dons et les bénédictions que vous cherchez à manifester dans votre vie. Cela ne vient pas sans discipline, désir et effort profonds. Vraiment, vous devez vous appliquer afin de récolter les fruits de vos efforts. C’est une loi, que ceux qui cherchent, ceux qui sont en harmonie avec les lois de l’amour, ceux qui désirent grandir davantage dans la lumière et l’amour, manifesteront de nombreux dons, seront un canal de nombreuses bénédictions au profit de leurs frères et sœurs.
 
@@ -21,6 +21,6 @@ Il y a un grand potentiel et une grande possibilité que l’amour puisse en eff
 
 Que Dieu vous bénisse et nous bénisse tous dans ce grand voyage d’amour, de transformation et de lumière. Je suis Seretta Kem. Je continue à voyager avec vous sur ce chemin, pour ne jamais partir, ne jamais m’égarer mais toujours un pas en avant sur le chemin direct vers l’expiation avec Dieu. Que Dieu vous bénisse, bien-aimés. Mon amour est avec vous tous. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -25,6 +25,6 @@ Vous verrez quelle est la force d’un groupe qui prie en harmonie les uns avec 
 
 Que Dieu vous bénisse dans ce voyage, âmes bien-aimées, et sachez que nous serons proches de vous. Vous serez guidés, protégés et entourés. Tout se passera bien. Tout se passera bien. Que Dieu vous bénisse, mes bien-aimés. Je viens vous assurer que la main de Dieu est sur vous tous et sur tout ce que vous faites. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés. Je suis toujours avec vous. Je suis toujours avec vous.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

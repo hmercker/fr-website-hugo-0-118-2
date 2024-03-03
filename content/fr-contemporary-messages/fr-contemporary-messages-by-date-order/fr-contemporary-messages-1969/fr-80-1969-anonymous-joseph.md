@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous devez aller de l'avant comme Jésus l'a fait
 
-Josef - reçu en 1969, Vancouver, Colombie-Britannique, Canada.
+Joseph - reçu en 1969, Vancouver, Colombie-Britannique, Canada.
 
 Que l'Amour de Dieu trouve un véritable canal dans vos âmes, mes amis. Je suis Joseph.
 

@@ -64,7 +64,7 @@ Votre frère pour l’éternité, Jésus.
 
 1. <large id="f1"> Il semblerait, d'après les enregistrements de l'Index des décès de la Sécurité sociale détenus par Ancestry.com, que le Dr Samuels soit décédé en mars 1982, et comme il est né le 18 mai 1908, cela lui ferait 73 ans au moment de son décès.[↩](#a1)
 
-2. <large id="f2"> Dr Asamuels a ultérieurement communiqué un second message [le 26 Février 2012](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-2-26-1-fab-daniel-samuels/)[↩](#a2) 
+2. <large id="f2"> Dr Samuels a ultérieurement communiqué un second message [le 26 Février 2012](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-2-26-1-fab-daniel-samuels/)[↩](#a2) 
 
 ### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
 

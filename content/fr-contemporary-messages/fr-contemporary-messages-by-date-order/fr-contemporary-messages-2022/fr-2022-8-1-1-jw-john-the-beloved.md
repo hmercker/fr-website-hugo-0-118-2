@@ -15,6 +15,6 @@ Mes chers, que l’Amour du Père vous élève afin que vous puissiez élever le
 
 Chaque fois que vous vous ouvrez dans un amour profond, dans une foi sincère, dans une aspiration sincère, votre âme peut être bénie. C’est le grand cadeau. Il est ultime car il vient de Dieu. Puissiez-vous tous vous reposer dans cet afflux, dans cette gloire et cette joie, afin que le vrai bonheur soit vôtre. Avec tout mon amour et mes bénédictions. Je me retire pour me joindre à vous dans cette prière. Je suis votre frère dans le Christ. Je suis l’apôtre Jean, parfois appelé « le bien-aimé »… mais je vous dis que nous sommes tous aimés du Père. Allez dans la grâce de Dieu et que la paix, la paix, la paix soit sur vous.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

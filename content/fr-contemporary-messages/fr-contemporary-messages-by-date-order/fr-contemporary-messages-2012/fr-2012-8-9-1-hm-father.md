@@ -17,7 +17,10 @@ En effet, respire profondément Mon Amour et profite de la gloire et des bénéd
 
 Tu ne sais pas quoi écrire, détends-toi et fais confiance à mes paroles. Je suis ton Père, et je t'aime profondément. Tu es surpris par ma venue. Je reviendrai si tu me le permets.
 
-Avec tout mon amour, Père.
+Avec tout mon amour, Père.<sup id="a1">[1](#f1)</sup>
+<small>
+
+1. <large id="f1"> L'ensembe des messages communiqués par le Père Céleste  est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-13-fr-the-heavenly-father/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
 

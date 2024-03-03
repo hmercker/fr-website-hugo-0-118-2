@@ -32,7 +32,6 @@ Thomas d'Aquin | [Un nouveau jour se lève](/fr-contemporary-messages/fr-contemp
 Thomas d'Aquin | [Des bénédictions au centuple pour les efforts que vous avez déployés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-15-2-af-thomas-aquinas/) | 15 Décembre 2017
 Thomas d'Aquin | [Choisirez-vous de commencer le voyage de l’éveil de l’âme ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-17-2-af-thomas-aquinas/) | 17 Février 2018
 Thomas d'Aquin | [Connaître Dieu avec le mental de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-13-1-af-thomas-aquinas/) | 13 Octobre 2018
-Thomas d'Aquin | [Le travail se poursuit si vous restez dévoué à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-17-5-af-thomas-aquinas/) | 17 Octobre 2018
 Thomas d'Aquin | [Vous avez bien fait](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-26-5-af-thomas-aquinas/) | 26 Octobre 2018
 
 ### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)

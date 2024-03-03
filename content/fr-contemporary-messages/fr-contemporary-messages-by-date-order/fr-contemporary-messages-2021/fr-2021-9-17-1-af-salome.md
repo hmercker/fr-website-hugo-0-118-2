@@ -28,7 +28,7 @@ Salome
 1. <large id="f1"> Salome s'est exprimée dans les messages suivants : [↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**  
----|---|--
+---|---|---
 Salome | [Les désirs de notre âme en alignement avec la volonté de Dieu (2021 Voix directe II)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-17-1-af-salome/) | 17 Septembre 2021
 Salome | [Le monde a besoin de vos prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-21-2-af-salome/) | 21 Juin 2022
 

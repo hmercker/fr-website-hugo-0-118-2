@@ -16,7 +16,7 @@ Bonjour, c’est Jocelyne. Je souhaite parler à mon bel ami et étudiant de l�
 Ami bien-aimé, sache que je vais bien, que je réside maintenant dans le Royaume Céleste et que je suis souvent avec toi comme beaucoup d’entre nous, les anges qui continuent à servir la gloire de Dieu et la Vérité de Son Amour. Que Dieu te bénisse, cher, cher frère. Je n’ai jamais oublié et je n’oublierai jamais notre lien spécial ensemble. Que Dieu te bénisse. Que Dieu te bénisse, mon ami.
 <small>
 
-1. <large id="f1"> Jocelyne Harleston a joué un rôle déterminant dans la réhabilitation et le rétablissement de la Foundation Church of the New Birth (Fondation de l’Eglise de la Nouvelle Naissance) après la débâcle causée par la précédente direction de Victor Summers. Plus de détails peuvent être trouvés [sur cette page](/fr-james-padgett-messages/fr-churches-based-on-james-padgetts-messages/).[↩](#a1)
+1. <large id="f1"> Jocelyne Harleston a joué un rôle déterminant dans la réhabilitation et le rétablissement de la Foundation Church of the New Birth (Fondation de l’Eglise de la Nouvelle Naissance) après la débâcle causée par la précédente direction de Victor Summers. Plus de détails peuvent être trouvés [sur cette page](/fr-james-padgett-messages/1-11-fr-churches-based-on-james-padgetts-messages/).[↩](#a1)
 
 ### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
 

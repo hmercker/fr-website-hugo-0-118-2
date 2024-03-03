@@ -25,6 +25,6 @@ Mes amis bien-aimés, il y a des solutions qui arrivent. Il y a des opportunité
 
 Que Dieu vous bénisse, mes amis, je suis le Professeur Salyards. Je suis heureux de m’adresser à vous aujourd’hui. Puissiez-vous continuer à être dans un état de bien-être, d’élévation et de joie, car ce sont les marques de l’Amour de Dieu qui brûle dans votre âme. Ne laissez pas votre esprit se tourmenter et s’inquiéter de conditions qui sont en effet graves, mais dans leur élan et leur puissance, c’est à Dieu de corriger et de trouver des moyens de guérir et d’élever le monde. Puissiez-vous faire votre part, mes bien-aimés, et le faire avec joie. Que Dieu vous bénisse. Mon amour est avec vous. L’amour de beaucoup vous entoure. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

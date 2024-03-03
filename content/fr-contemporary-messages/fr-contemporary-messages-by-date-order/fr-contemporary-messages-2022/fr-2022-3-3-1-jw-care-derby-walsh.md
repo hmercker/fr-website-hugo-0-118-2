@@ -19,6 +19,6 @@ Si vous pouviez nous voir tous ici dans ce grand cercle d’amour, vous seriez s
 
 Que Dieu continue à bénir chacun d’entre vous et à vous apporter le désir de votre cœur et tout bon cadeau, tout cadeau parfait dans Son amour. Que ce soit le vôtre ! Je vous aime. Que Dieu vous bénisse !
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 20229**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

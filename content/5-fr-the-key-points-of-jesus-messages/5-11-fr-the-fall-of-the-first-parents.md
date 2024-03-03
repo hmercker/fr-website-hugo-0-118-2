@@ -21,4 +21,6 @@ St Luc | [Les péchés des parents sont transmis aux enfants jusqu’à la trois
 Jésus | [Il n’y a aucun diable et aucun Satan en tant que personnes réelles et aucun ange déchu](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-3-1-jep-jesus/) | 3 Janvier 1916
 St Jacques | [Jacques – Comment l’homme peut-il redevenir l’homme parfait, comme les premiers parents avant leur chute](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-3-8-1-jep-st-james/) | 8 Mars 1917
 Anne Rollins | [Comment tous les hommes peuvent devenir des Anges Divins et comment les fausses croyances empêchent cette réalisation](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-28-1-jep-ann-rollins/) | 28 Mai 1916
+Jésus | [45ème Révélation : Je mettrai l’inimitié entre le serpent et la semence de la femme](/fr-samuels-messages/fr-revelations/fr-rev-45-1955-4-20-45-samuels-jesus/) | 20 Avril 1955
+Judas | [Les Archanges et Satan](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-8-1-hr-judas/) | 8 Novembre 2001
 Aman | [Le déroulement de la chute](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-29-1-fab-aman/) | 29 Janvier 2007

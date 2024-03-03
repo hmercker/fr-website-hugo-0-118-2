@@ -34,7 +34,7 @@ Je suis donc un exemple vivant du fait, que ce monde spirituel démontre ampleme
 ---|---|---
 Jack Kerouac | [Le voyage d'un écrivain de l'époque](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-16-1-fab-jack-kerouac/) | 16 Avril 2008
 Jack Kerouac | [Un écrivain de l’époque trouve l'Amour Divin - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-18-2-fab-jack-kerouac/) | 18 Avril 2008
-Jack Kerouac | [Un écrivain de l’époque trouve l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-9-1-fab-jack-kerouac/) | 9 Mai 2008
+Jack Kerouac | [Un écrivain de l’époque trouve l'Amour Divin - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-9-1-fab-jack-kerouac/) | 9 Mai 2008
 Jack Kerouac | [L'identité religieuse de Jack Kerouac](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-9-28-1-fab-jack-kerouac/) | 28 Septembre 2009
 
 ### [**Lien vers les messages des années 2009**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/)

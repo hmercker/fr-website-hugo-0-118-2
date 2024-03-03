@@ -49,6 +49,6 @@ Cherchez le plus haut, mes amis, toujours. Cherchez ce qui est le plus élevé, 
 
 La lumière de l'Amour Divin est la plus grande lumière de toutes, et elle peut être à vous si vous le demandez, mes précieux amis. Je suis Orion, je vous remercie de m'avoir écouté. Je vous remercie de m'avoir invité, et sachez que je viendrai aussi souvent que je serai invité. Je viendrai pour être avec chacun d'entre vous si vous le désirez. Merci, et que Dieu vous bénisse mes amis.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

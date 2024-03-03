@@ -27,6 +27,6 @@ Continuez votre voyage de l’âme, en cherchant la grande Âme de Dieu. Continu
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre frère, Jésus, Maître du Royaume Céleste et votre ami, pour être toujours avec vous, mes bien-aimés. Car nous sommes vraiment frères et sœurs sur ce chemin. Que Dieu vous bénisse. Mon amour est avec vous. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -9,7 +9,7 @@ weight:
 ---
 ### Le discernement dans le service
 
-St Luc - reçu par Al Fike le 1 Novembre 2019, Gibsons, Colombie-Britannique, Canada.
+St Luc - reçu par Al Fike le 1<sup>er</sup> Novembre 2019, Gibsons, Colombie-Britannique, Canada.
 
 Beaucoup dans votre monde sont désespérément en quête d’amour, cherchent à soulager leur douleur et sont très confus, ayant de grandes difficultés dans leur vie. Le monde regorge de telles âmes, qui cherchent de plus en plus à trouver le réconfort, la paix et l’amour dans leur vie, car c’est leur âme qui crie, qui cherche la lumière dans un effort pour trouver un lieu de refuge et de paix. Pourtant, dans votre monde, il y a tant de voies de distraction, des voies qui ne mènent nulle part. Mais pour le moment, il y a un vague sentiment de soulagement, un vague sentiment que cette âme a la paix, un but ou de l’amour. Grâce à la loi de l’attraction, ces âmes désespérées continuent souvent à s’accrocher les unes aux autres, augmentant ainsi la douleur, l’erreur et l’obscurité, s’infligeant mutuellement un grand mal et un grand mécontentement.
 

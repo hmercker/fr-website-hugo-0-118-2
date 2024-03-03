@@ -31,10 +31,12 @@ Il y a beaucoup d’autres choses à dire sur ce sujet. Tu te laisses distraire 
 
 Tu as ta propre histoire et la façon dont tu as vécu ta vie a ses conséquences. Tu en fais l’expérience en ce moment. Il s’agit de responsabilité. Tu es responsable de tous les choix que tu as faits, même si la plupart d’entre eux ont été faits inconsciemment. Même les choix inconscients ont des conséquences, il n’y a pas de distinction entre les choix faits consciemment ou inconsciemment en ce qui concerne les dommages qu’ils causeront à ton corps et à ton âme.
 
-Je t’aime dans mon cœur, Père.
+Je t’aime dans mon cœur, Père.<sup id="a1">[1](#f1)</sup>
 <small>
 
 1. <large id="f1"> Le médium a confirmé que l’utilisation du mot « âme-sœur » ici n’était pas destinée à être interprétée littéralement comme le font les Messages de James Padgett. Il s’agit plutôt ici d’un « partenaire que vous aimez profondément ».[↩](#a1)
+
+2. <large id="f2"> L'ensembe des messages communiqués par le Père Céleste  est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-13-fr-the-heavenly-father/)[↩](#a2)
 
 ### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
 

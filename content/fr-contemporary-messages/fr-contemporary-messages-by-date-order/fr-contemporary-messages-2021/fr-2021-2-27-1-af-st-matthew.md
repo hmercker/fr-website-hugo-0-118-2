@@ -28,3 +28,7 @@ Que Dieu vous bénisse, belles âmes bien-aimées, qui commencez à voir, qui se
 Je m’appelle Matthieu et je suis heureux de vous voir continuer à ouvrir votre conscience, à partager vos pensées, vos désirs, votre inspiration, car de cette façon vous suscitez le soutien des uns et des autres, la sagesse qui peut être partagée, les idées qui viendront s’ajouter aux vôtres et vous amener plus profondément dans ce que Dieu veut par vos efforts. Que Dieu vous bénisse. Je suis souvent avec vous.
 
 Que Dieu vous bénisse, âmes bien-aimées, soyez en paix et sachez que Dieu vous embrasse dans cette vérité. Que Dieu vous bénisse.
+
+### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
+
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

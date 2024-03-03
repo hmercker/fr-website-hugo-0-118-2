@@ -11,9 +11,9 @@ weight:
 
 ![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-nat-turner-1-2008.jpg)
 
-Nat Turner <sup id="a1">[1](#f1)</sup> - reçu par FAB le 23 Avril 2008, Santa Cruz, Californie, USA.
+Nat Turner - reçu par FAB le 23 Avril 2008, Santa Cruz, Californie, USA.
 
-Je suis Nat Turner.
+Je suis Nat Turner.<sup id="a1">[1](#f1)</sup>
 
 Ce que je souhaite dire au monde, c’est qu’un meurtre est un meurtre, même si le meurtrier a été injustement traité. Je l’ai appris à mes dépens. Si les Blancs, comme je le pensais, étaient la race oppressive, cela ne justifiait pas aux yeux de Dieu le meurtre que j’ai commis. En fait, en agissant ainsi, je n’ai fait qu’accroître ma propre misère.
 

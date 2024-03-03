@@ -31,10 +31,12 @@ Le mot « aspiration » donne un sens à ma vie sur terre. Il y avait ce qu'on p
 
 Je vais m'arrêter là. Merci de m'avoir permis de partager mes pensées avec vous.
 
-Affectueusement, Stephen Foster.
+Affectueusement, Stephen Foster.<sup id="a2">[2](#f32)</sup>
 <small>
 
 1. <large id="f1"> **Stephen Foster** (4 Juillet 1826 – 13 Janvier 1864), considéré comme le « père de la musique américaine », fut un auteur de chansons influent aux États-Unis durant le XIXe siècle. Ses chansons, tel que Oh! Susanna, Camptown Races, My Old Kentucky Home, Old Black Joe, Beautiful Dreamer et Old Folks at Home (Swanee River) demeurent populaires même longtemps après leur composition.[↩](#a1)
+
+2. <large id="f2"> Stephen Foster s'est également exprimé le [14 Janvier 2009](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-1-14-1-fab-stephen-foster/)[↩](#a2)
 
 ### [**Lien vers les messages des années 2005**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/)
 

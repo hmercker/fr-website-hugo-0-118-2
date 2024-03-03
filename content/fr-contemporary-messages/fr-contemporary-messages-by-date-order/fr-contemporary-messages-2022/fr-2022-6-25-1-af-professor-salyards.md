@@ -27,6 +27,6 @@ Et ainsi vos efforts communs porteront leurs fruits. Ne doutez pas de cela, âme
 
 Il y a des multitudes d’avenues sur lesquelles vous pouvez marcher, mes amis bien-aimés. Choisissez-en une ! Consacrez-vous à la possibilité de savoir où cela peut mener et ce qui peut être accompli. Il s’agit de choisir et de vous consacrer à un objectif et d’être en harmonie avec Dieu. Par conséquent, vous aurez la sagesse, la perspicacité et la possibilité d’exprimer cette idée dans le monde, de la manifester comme quelque chose de palpable et de puissant. Ne vous jugez pas les uns les autres et ne doutez pas de vous, mais ayez un esprit et un cœur ouverts et permettez à la sagesse de votre âme de dicter vos efforts et les possibilités de votre imagination et de vos idées pour servir et accomplir les objectifs que vous avez ensemble.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

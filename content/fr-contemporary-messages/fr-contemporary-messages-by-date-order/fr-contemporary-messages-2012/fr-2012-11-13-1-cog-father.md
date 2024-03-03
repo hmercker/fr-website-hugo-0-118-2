@@ -19,7 +19,10 @@ Laisse l’amour couler. Laisse l’amour être une vague de don et de réceptio
 
 Mon amour ne s’arrête jamais. Mon amour est un flot sans fin. Laisse mon amour t’envahir. Ressens-le et renforce ton cœur et ton âme pour aimer encore plus. Reçois mon amour et laisse mon amour être ton carburant pour devenir l’amour et la paix sur terre. Bois-en. Il y a toujours plus. Tu dois juste demander et ouvrir ton cœur et ton âme au don de recevoir.
 
-Je t’aime comme toujours, ton Père.
+Je t’aime comme toujours, ton Père.<sup id="a1">[1](#f1)</sup>
+<small>
+
+1. <large id="f1"> L'ensembe des messages communiqués par le Père Céleste  est accessible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-13-fr-the-heavenly-father/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2012**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/)
 

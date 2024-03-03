@@ -17,6 +17,6 @@ Je vous le dis : la puissance de vos pensées, la puissance de vos prières, la 
 
 Mettez votre modèle à la disposition du monde en mots et en images, en dessins aussi. Quelle que soit votre vision, faites-la devenir une réalité et ainsi une bénédiction sur la terre. Rappelez-vous que nous sommes avec vous et que je veille sur chacun de vous et vous guide avec tout l’amour de mon cœur, avec tout l’amour de mon âme, maintenant et toujours. Je suis Care. Que Dieu vous bénisse.
 
-### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
