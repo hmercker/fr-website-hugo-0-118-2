@@ -12,6 +12,4 @@ weight:
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 
-### [**Lien vers les messages des années 2024**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-20242/)
-
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
