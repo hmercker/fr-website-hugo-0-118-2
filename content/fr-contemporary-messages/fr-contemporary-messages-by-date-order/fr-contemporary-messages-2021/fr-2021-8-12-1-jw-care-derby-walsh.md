@@ -9,7 +9,7 @@ weight:
 ---
 ### Ayez la foi que vos prières seront exaucées
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 12 Août 2021, Punalu’u, Oahu, Hawaii, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 12 Août 2021, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, et oui, j’ai été avec vous aujourd’hui. Je viens chaque fois que je peux et certainement chaque fois que vous appelez. Je suis Care. La vie est un cadeau précieux, tout comme le cadeau du libre arbitre. Il s’agit de choix, et si vous suiviez votre cœur et supposiez que nous vous aiderons, alors Dieu vous ouvrira toutes les portes de l’amour. Quels seraient vos choix ?
 

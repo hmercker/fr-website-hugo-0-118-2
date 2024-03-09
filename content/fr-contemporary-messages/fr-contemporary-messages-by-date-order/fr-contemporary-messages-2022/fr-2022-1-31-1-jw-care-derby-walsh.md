@@ -9,7 +9,7 @@ weight:
 ---
 ### C’est une question de cœur
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 31 Janvier 2022, Punalu’u, Oahu, HI, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 31 Janvier 2022, Punalu’u, Oahu, HI, USA.
 
 Je viens dans l'Amour de Dieu, votre sœur en Christ et je viens parler de mon cœur. Car le chemin du cœur est vivant et bien vivant dans ce cercle et au-delà. Ceux qui peuvent ouvrir leur cœur dans la prière, dans la confiance, permettent à Dieu d'ouvrir leurs âmes au grand afflux de Son amour. C'est une question de cœur. C'est simple.
 

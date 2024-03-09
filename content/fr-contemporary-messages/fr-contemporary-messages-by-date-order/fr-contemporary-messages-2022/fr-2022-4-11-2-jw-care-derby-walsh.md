@@ -9,7 +9,7 @@ weight:
 ---
 ### Le jeûne du drame
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 11 Avril 2022, Westminster, CA, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 11 Avril 2022, Westminster, CA, USA.
 
 C’est moi qui vous protège. Je viens vous assurer que la protection, dans la mesure où nous pouvons la fournir, est accordée. Et très certainement à Al et Jeanne dans leurs voyages alors qu’ils répandent les vérités de l’Amour Divin et vont en prière avec les âmes qui viennent à eux. Dans la mesure où vous pouvez atteindre le monde, cela est encouragé car chacun d’entre vous a la lumière de la vérité dans son âme et a reçu le grand cadeau de l’Amour du Père. Je vous demande de ne pas vous laisser envelopper dans le drame quotidien de la négativité du monde, mais plutôt de permettre à Dieu de vous envelopper dans Son Amour afin que vous fassiez partie de la solution, car vous êtes les hérauts d’un nouvel âge.
 

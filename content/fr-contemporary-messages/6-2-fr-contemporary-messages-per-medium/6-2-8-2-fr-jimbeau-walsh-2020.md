@@ -28,7 +28,7 @@ St François d'Assise | [Honorer les soignants – S’occuper des autres](/fr-c
 Eileen Caddy | [Le courage d’aller de l’avant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-8-2-jw-eileen-caddy/) | 8 Mars 2020
 St François d'Assise | [Suivez votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-8-3-jw-st-francis-of-assisi/) | 8 Mars 2020
 St Jean | [Royaumes de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-9-1-jw-st-john/) | 9 Mars 2020
-Care Derby Walsh | [Marchez dans ce monde avec la Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-9-2-jw-care-derby-walsh/) | 9 Mars 2020
+Care Darby Walsh | [Marchez dans ce monde avec la Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-9-2-jw-care-derby-walsh/) | 9 Mars 2020
 Eileen Caddy | [Suggestions de Findhorn](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-13-1-jw-eileen-caddy/) | 13 Mars 2020
 St François d'Assise | [Le monde s'est ralenti pour laisser du temps à la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-13-2-jw-st-francis-of-assisi/) | 13 Mars 2020
 Hafiz | [Un rayon de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-13-3-jw-hafiz/) | 13 Mars 2020
@@ -53,9 +53,9 @@ Kahlil Gibran | [Chaque fois que vous touchez une autre âme, c’est le cadeau]
 Kahlil Gibran | [Vous avez trouvé le joyau de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-4-1-jw-kahlil-gibran/) | 4 Mai 2020
 St Jean | [Cercles concentriques d'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-4-2-jw-st-john/) | 4 Mai 2020
 Yogananda | [Avancer dans le monde avec Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-9-1-jw-yogananda/) | 9 Mai 2020
-Care Derby Walsh | [Le don de prophétie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-12-1-jw-care-derby-walsh/) | 12 Mai 2020
+Care Darby Walsh | [Le don de prophétie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-12-1-jw-care-derby-walsh/) | 12 Mai 2020
 St François d'Assise | [Ne rejetez pas ceux qui désirent la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-12-3-jw-st-francis-of-assisi/) | 12 Mai 2020
-Care Derby Walsh | [Réalisation de soi et réalisation de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-16-1-jw-care-derby-walsh/) | 16 Mai 2020
+Care Darby Walsh | [Réalisation de soi et réalisation de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-16-1-jw-care-derby-walsh/) | 16 Mai 2020
 Yogananda | [Les pensées deviennent des choses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-19-1-jw-yogananda/) | 19 Mai 2020
 St François d'Assise | [Permettez aux intentions de vos âmes de vous atteindre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-23-1-jw-st-francis-of-assisi/) | 23 Mai 2020
 Eileen Caddy | [Portez l'amour dans vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-24-1-jw-eileen-caddy/) | 24 Mai 2020
@@ -75,12 +75,12 @@ Claire d'Assise | [L'Amour est le guérisseur de tous les cœurs](/fr-contempora
 Mahatma Gandhi | [Soyez l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-23-2-jw-mahatma-gandhi/) | 23 Juin 2020
 Judas | [La voie, la lumière, la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-23-3-jw-judas/) | 23 Juin 2020
 Judas | [Ce que vous recevrez sera largement suffisant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-24-1-jw-judas/) | 24 Juin 2020
-Care Derby Walsh | [Frères dans l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-25-1-jw-care-derby-walsh/) | 25 Juin 2020
+Care Darby Walsh | [Frères dans l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-25-1-jw-care-derby-walsh/) | 25 Juin 2020
 Thomas Merton | [Le pouvoir des mots](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-27-1-jw-thomas-merton/) | 27 Juin 2020
 Claire d'Assise | [Clarté et cadeaux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-27-2-jw-clare-of-assisi/) | 27 Juin 2020
-Care Derby Walsh | [Vous êtes digne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-28-1-jw-care-derby-walsh/) | 28 Juin 2020
+Care Darby Walsh | [Vous êtes digne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-28-1-jw-care-derby-walsh/) | 28 Juin 2020
 Yogananda | [Les vibrations de la Vérité et de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-28-2-jw-yogananda/) | 28 Juin 2020
-Care Derby Walsh | [Fou de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-29-1-jw-care-derby-walsh/) | 29 Juin 2020
+Care Darby Walsh | [Fou de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-29-1-jw-care-derby-walsh/) | 29 Juin 2020
 Mahatma Gandhi | [L'Amour de Dieu apporte la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-30-1-jw-mahatma-gandhi/) | 30 Juin 2020
 Yogananda | [Apportez-le au monde !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-30-2-jw-yogananda/) | 30 Juin 2020
 St Luc | [Soyez conscient de ce qui se trouve dans votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-3-1-jw-st-luke/) | 3 Juillet 2020
@@ -95,9 +95,9 @@ St François d'Assise | [Embrasser tout le monde dans l'Amour de Dieu](/fr-conte
 Thomas Merton | [Diversité et unicité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-17-3-jw-thomas-merton/) | 17 Juillet 2020
 Arthur Conan Doyle | [Deux spiritualistes britanniques sont sur le chemin de l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-18-1-jw-arthur-conan-doyle/) | 18 Juillet 2020
 Claire d'Assise | [La Foi en Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-20-1-jw-clare-of-assisi/) | 20 Juillet 2020
-Care Derby Walsh | [Permettez la grâce de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-21-1-jw-care-derby-walsh/) | 21 Juillet 2020
+Care Darby Walsh | [Permettez la grâce de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-21-1-jw-care-derby-walsh/) | 21 Juillet 2020
 Judas | [Devenez une étoile](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-21-2-jw-judas/) | 21 Juillet 2020
-Care Derby Walsh | [Les enfants de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-23-2-jw-care-derby-walsh/) | 23 Juillet 2020
+Care Darby Walsh | [Les enfants de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-23-2-jw-care-derby-walsh/) | 23 Juillet 2020
 Charlie Chaplin | [Soyez un cadeau pour le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-25-1-jw-charlie-chaplin/) | 25 Juillet 2020
 Judas | [Amour, Lumière et Guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-27-1-jw-judas/) | 27 Juillet 2020
 Claire d'Assise | [Choisissez judicieusement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-27-2-jw-clare-of-assisi/) | 27 Juillet 2020
@@ -112,7 +112,7 @@ Judas | [Exploration des messages de Judas](/fr-contemporary-messages/fr-contemp
 Yogananda | [Les pensées que vous absorbez et émettez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-7-2-jw-yogananda/) | 7 Août 2020
 Pasteur George Vale Owen | [Prier pour s'ouvrir à l'amour du Créateur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-10-1-jw-rev-george-vale-owen/) | 10 Août 2020
 Pasteur George Vale Owen | [Dans la gratitude et l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-12-1-jw-rev-george-vale-owen/) | 12 Août 2020
-Care Derby Walsh | [La foi en Dieu et en vos dons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-15-1-jw-care-derby-walsh/) | 15 Août 2020
+Care Darby Walsh | [La foi en Dieu et en vos dons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-15-1-jw-care-derby-walsh/) | 15 Août 2020
 St François d'Assise | [Le secret de l’âme est d’être humble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-18-1-jw-st-francis-of-assisi/) | 18 Août 2020
 Judas | [Guérir dans la lumière et l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-20-1-jw-judas/) | 20 Août 2020
 Yogananda | [Soyez ouverts à la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-20-2-jw-yogananda/) | 20 Août 2020
@@ -127,7 +127,7 @@ St Luc | [Choisissez ce qui touche votre âme](/fr-contemporary-messages/fr-cont
 Yogananda | [Yogananda explique le Kriya Yoga et l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-13-1-jw-yogananda/) | 13 Septembre 2020
 Sri Yukteswar | [Sri Yukteswar rend hommage à Yogananda](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-18-1-jw-sri-yukteswar/) | 18 Septembre 2020
 Judas | [Mettez Dieu à la première place](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-19-1-jw-judas/) | 19 Septembre 2020
-Care Derby Walsh | [Quel sera votre cadeau à Dieu ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-22-1-jw-care-derby-walsh/) | 22 Septembre 2020
+Care Darby Walsh | [Quel sera votre cadeau à Dieu ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-22-1-jw-care-derby-walsh/) | 22 Septembre 2020
 Claire d'Assise | [L'Amour de Dieu est anti-gravitationnel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-22-2-jw-clare-of-assisi/) | 22 Septembre 2020
 Judas | [Un petit conseil](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-24-1-jw-judas/) | 24 Septembre 2020
 Claire d'Assise | [Ce n'est pas compliqué](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-2-1-jw-clare-of-assisi/) | 2 Octobre 2020
@@ -150,8 +150,8 @@ St François d'Assise | [Se tenir nu devant Dieu](/fr-contemporary-messages/fr-c
 Judas | [L'Amour de Dieu est primordial](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-11-11-1-jw-judas/) | 11 Novembre 2020
 Eileen Caddy | [Commencez votre journée en vous ouvrant à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-11-13-1-jw-eileen-caddy/) | 13 Novembre 2020
 Eileen Caddy | [La transformation par l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-11-16-1-jw-eileen-caddy/) | 16 Novembre 2020
-Care Derby Walsh | [Détendez-vous !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-11-18-1-jw-care-derby-walsh/) | 18 Novembre 2020
-Care Derby Walsh | [Levez-vous et Brillez !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-11-21-1-jw-care-derby-walsh/) | 21 Novembre 2020
+Care Darby Walsh | [Détendez-vous !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-11-18-1-jw-care-derby-walsh/) | 18 Novembre 2020
+Care Darby Walsh | [Levez-vous et Brillez !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-11-21-1-jw-care-derby-walsh/) | 21 Novembre 2020
 Claire d'Assise | [Pas une petite chose pour le monde entier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-11-28-1-jw-clare-of-assisi/) | 28 Novembre 2020
 Yogananda | [Le chemin du cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-11-30-1-jw-yogananda/) | 30 Novembre 2020
 Hafiz | [Dans l'étreinte de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-7-1-jw-hafiz/) | 7 Décembre 2020
@@ -161,7 +161,7 @@ Yogananda | [Le miracle de la transformation de l'âme](/fr-contemporary-message
 Eileen Caddy | [Votre volonté et la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-18-1-jw-eileen-caddy/) | 18 Décembre 2020
 Anne Rollins | [Croyances erronées et Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-19-4-jw-ann-rollins/) | 19 Décembre 2020
 Yogananda | [Célébration de la naissance de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-22-1-jw-yogananda/) | 22 Décembre 2020
-Care Derby Walsh | [Perceptions de l'âme vs. Intuition](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-23-2-jw-care-derby-walsh/) | 23 Décembre 2020
+Care Darby Walsh | [Perceptions de l'âme vs. Intuition](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-23-2-jw-care-derby-walsh/) | 23 Décembre 2020
 Marie | [Vous êtes l’aube](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-25-1-jw-mary/) | 25 Décembre 2020
 Noé | [A propos du déluge](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-29-1-jw-noah/) | 29 Décembre 2020
 Claire d'Assise | [Accrochez-vous à l'espoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-30-1-jw-clare-of-assisi/) | 30 Décembre 2020

@@ -9,7 +9,7 @@ weight:
 ---
 ### Choisissez le chemin de l’amour
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 15 Février 2022, Punalu’u, Oahu, HI, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 15 Février 2022, Punalu’u, Oahu, HI, USA.
 
 C’est moi, Care. Mes chers amis. Je viens une fois de plus pour vous rappeler que le chemin du cœur est simple. Lorsque vous êtes incertains de la direction à prendre, du chemin à choisir, eh bien, la réponse est de choisir le chemin de l’Amour, car c’est ce que vous souhaitez vraiment.
 

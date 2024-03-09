@@ -9,7 +9,7 @@ weight:
 ---
 ### Tous les cœurs brillent
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 18 Janvier 2022, Punalu’u, Oahu, HI, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 18 Janvier 2022, Punalu’u, Oahu, HI, USA.
 
 C’est moi, Care, votre sœur en Christ. J’ai attendu dans les coulisses pour parler aujourd’hui et bien sûr, vous savez que c’est juste une expression théâtrale et non un appendice que nous, les anges, possédons ou dont nous avons besoin. Je savais que mon bien-aimé se sentait un peu négligent pour avoir pris un message de ma part et ne pas l’avoir partagé avec le groupe de prière plus tôt dans la journée, le prenant seulement personnellement interne parce qu’il était tellement immergé dans l’Amour de Dieu. Donc, je vais maintenant vous décrire à tous ce que je lui disais.
 

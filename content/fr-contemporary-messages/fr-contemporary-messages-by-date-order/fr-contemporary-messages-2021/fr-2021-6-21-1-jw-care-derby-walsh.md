@@ -9,7 +9,7 @@ weight:
 ---
 ### Ne vous faites pas d’idoles et soyez libres
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 21 Juin 2021, Punalu’u, Oahu, Hawaii, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 21 Juin 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis votre sœur et votre amie et je viens dans la grâce de Dieu. Je suis Care. Il est écrit que le Maître a dit : *« Aimez-les tous comme je vous ai aimés »*. Vous savez que cela signifie avec l’Amour Divin du Père.
 

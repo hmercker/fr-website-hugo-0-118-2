@@ -9,7 +9,7 @@ weight:
 ---
 ### Tout moment peut être une incitation à être en Grâce
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 5 Juillet 2022, Marietta Valley, WI, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 5 Juillet 2022, Marietta Valley, WI, USA.
 
 Croiriez-vous que chacun d’entre vous a été dans mes pensées aujourd’hui ? Vous pourriez vous attendre à ce que je vous dise : *« Mais pas pour la même raison ».* Pourtant, en réalité, c’était exactement pour la même raison.
 

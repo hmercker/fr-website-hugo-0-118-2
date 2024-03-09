@@ -9,7 +9,7 @@ weight:
 ---
 ### Marcher dans la grâce
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 21 Août 2023, Nashville, TN, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 21 Août 2023, Nashville, TN, USA.
 
 Je viens. C’est moi, Care. Je viens dans l’Amour de Dieu dans ce beau cercle, vers ceux qui sont visibles et invisibles. Car il y a une grande foule attirée par votre lumière, attirée par votre prière.
 

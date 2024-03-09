@@ -9,7 +9,7 @@ weight:
 ---
 ### La porte sera ouverte
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 18 Novembre 2021, Punalu’u, Oahu, Hawaii, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 18 Novembre 2021, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, Care. Je suis ravie d’être avec vous tous et oui, c’était moi. Je suis venue pour écouter ma prière <sup id="a1">[1](#f1)</sup> qui me semble si ancienne et qui pourtant résonne encore avec les profonds désirs de mon âme et je suis heureuse qu’elle résonne avec vous. Mais pour l’instant, elle n’est qu’un simple reflet de la lumière des Cieux Célestes. Car vous regardez le soleil se briser sur l’horizon et la beauté du firmament et des cieux étoilés. Et nous sommes comme des galaxies, des nova’s, nos êtres de lumière. Je sais que vous pouvez sentir dans vos âmes ce qui vous attend et donc je dis, *« Accrochez-vous à ça. »* Cette fente par laquelle la lumière entre, car un jour la porte sera complètement ouverte et tout ce que vous avez pu souhaiter et un million de fois plus sera votre réalité. C’est glorieux !
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### La joie dans le monde
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 23 Décembre 2021, Punalu’u, Oahu, Hawaii, USA
+Care Darby Walsh - reçu par Jimbeau Walsh le 23 Décembre 2021, Punalu’u, Oahu, Hawaii, USA
 
 C’est la saison pour être joyeux. Joie dans le monde. Réjouissez-vous ! Gloire à Dieu en haut lieu ! Puissiez-vous tous vous concentrer sur ce qui vous apporte la joie, le vrai bonheur. Pas seulement ce qui occupe vos esprits et votre temps mais ce qui touche vos âmes. Ce qui apporte amour et joie dans vos cœurs et vous amène à avoir de l’empathie pour chaque être. Ce qui vous amène à servir les autres en sachant qu’il est préférable de donner que de recevoir. La joie de celui qui donne est de savoir qu’il a aidé un autre être.
 

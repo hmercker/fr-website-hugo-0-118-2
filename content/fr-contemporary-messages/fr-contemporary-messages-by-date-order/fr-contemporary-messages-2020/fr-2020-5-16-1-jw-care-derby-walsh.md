@@ -9,7 +9,7 @@ weight:
 ---
 ### Réalisation de soi et réalisation de Dieu
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 16 Mai 2020, Punalu’u, Oahu, Hawaii, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 16 Mai 2020, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis votre sœur dans l’Amour de Dieu et votre amie, Care. Je suis ici avec Nirmala qui fut connue sur terre sous le nom d’Ananda Mayi Ma ainsi qu’avec Yogananda et beaucoup d’autres. Ils m’ont permis de venir et de parler parce qu’ils souhaitent vous honorer ici, dans ce Cercle, pour le travail que vous avez accompli et que vous continuez à accomplir pour apporter les vérités de l’Amour de Dieu au monde, au plus grand nombre. Comme la chère-sœur l’a dit plus tôt, chacun d’entre vous, à sa manière, fait beaucoup pour apporter le Royaume à ces âmes qui cherchent quelque chose de plus profond qu’elles-mêmes.
 

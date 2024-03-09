@@ -9,7 +9,7 @@ weight:
 ---
 ### Dans l’Amour de Dieu, il n’y a pas de mauvais choix
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 2 Août 2020, Punalu’u, Oahu, Hawaii, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 2 Août 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, Care.
 

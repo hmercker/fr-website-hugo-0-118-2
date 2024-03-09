@@ -9,7 +9,7 @@ weight:
 ---
 ### De nombreuses façons de donner de l'Amour
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 22 Août 2022, Collegeville, PA, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 22 Août 2022, Collegeville, PA, USA.
 
 Mes chers, c’est moi, Care. J’ai été ici aujourd’hui pour veiller sur mon cher Jimbeau et mon cher petit-fils et sa famille et je ne suis jamais loin. J’ai été attirée par cette prière, en ressentant la douleur, le chagrin et l’inquiétude de beaucoup et cela m’a touché au cœur, car nous ne souhaitons jamais qu’un autre souffre et pourtant vous êtes tous au milieu des douleurs de l’accouchement d’une nouvelle naissance, non seulement de votre monde, mais de vos âmes mêmes qui renaissent au sens le plus vrai, transformées dans l’Amour de Dieu. Lorsque vous vous interrogez et priez pour ceux qui sont en transition, ceux qui ont perdu des êtres chers, vos propres proches en crise, je vous demande de toujours les envisager entiers, alors que vous envoyez l’amour de votre âme et demandez à Dieu de les bénir, à Ses anges guérisseurs de s’occuper d’eux. Le point de départ est d’aller dans votre cœur et de vous ouvrir à l’amour, et lorsque vous demandez humblement au Créateur de remplir votre âme de son essence, vous commencez à sentir cet afflux comme dans ce cercle. C’est à ce moment-là que vous envoyez ce courant à ceux qui sont dans le besoin, à ceux pour qui vous priez, pour être entouré de ce grand amour, pour avoir la compagnie des anges.
 

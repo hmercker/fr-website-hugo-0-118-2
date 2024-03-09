@@ -9,7 +9,7 @@ weight:
 ---
 ### Ceux qui servent Dieu dans l'amour travaillent au niveau de l'âme
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 28 Mai 2019, Baltimore, Ireland.
+Care Darby Walsh - reçu par Jimbeau Walsh le 28 Mai 2019, Baltimore, Ireland.
 
 Vous commencez tous maintenant à voir votre rêve, la grande communauté se réaliser sous vos yeux. Ce n'est pas quelque chose qui s'est produit à mon époque, lorsque j'étais sur Terre, mais c'était mon rêve. Je partage donc avec vous ce rayonnement que vous avez maintenant, tant de personnes viennent à vous. Les anges vous ont donné une charge. L'Amour dans votre âme a touché beaucoup de personnes et continuera à le faire. Lorsque les gens viennent à l'Amour Divin, quelle que soit la voie par laquelle ils le trouvent, ils sont généralement très liés au monde matériel, comme vous le savez. Vous avez tous été dans cette position. Lorsque vous priez pour l'Amour de Dieu et que vous le recevez dans vos âmes, ces choses tombent. Oui, le matériel est utile mais vous n'êtes pas attachés.
 

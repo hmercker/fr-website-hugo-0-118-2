@@ -9,7 +9,7 @@ weight:
 ---
 ### Frères dans l'Amour de Dieu
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 25 Juin 2020, Punalu’u, Oahu, Hawaii, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 25 Juin 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, Care.
 

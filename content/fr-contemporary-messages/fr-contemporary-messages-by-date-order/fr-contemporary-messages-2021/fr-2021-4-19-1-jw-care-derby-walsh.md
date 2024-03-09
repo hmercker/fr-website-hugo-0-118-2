@@ -9,7 +9,7 @@ weight:
 ---
 ### Plantez les graines et reflétez l’amour
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 19 Avril 2021, Punalu’u, Oahu, Hawaii, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 19 Avril 2021, Punalu’u, Oahu, Hawaii, USA.
 
 Je suis votre sœur dans l’Amour de Dieu, votre amie. Je suis Care. Je viens souvent à ce cercle de prière pour être avec mon bien-aimé, mais aussi parce que je suis attirée par ce groupe d’âmes qui ne sont pas tellement dans leur esprit, mais qui sont attirées ici par le désir de leur âme. Je pouvais m’identifier à cela sur terre.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Suivez votre cœur
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 8 Juin 2023, Nashville, TN, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 8 Juin 2023, Nashville, TN, USA.
 
 C’est moi Care. Quelle belle prière d’une belle âme !
 

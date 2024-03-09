@@ -9,7 +9,7 @@ weight:
 ---
 ### Faites de votre vision une réalité
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 8 Mai 2022, Boscobel, WI, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 8 Mai 2022, Boscobel, WI, USA.
 
 C’est moi, Care. Je suis si heureuse de voir mon cher ami, mon cher petit-fils, ma chère sœur, et mon bien-aimé. Cela m’apporte une grande joie et ouvre mon cœur à vous. Vous n’avez pas à vous inquiéter de l’accomplissement de ce que vous croyez être une promesse. Car, bien qu’il s’agisse d’une promesse des anges, permettez que ce soit au moment voulu, dans le temps de Dieu.
 

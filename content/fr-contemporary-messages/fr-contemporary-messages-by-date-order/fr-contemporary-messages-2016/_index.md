@@ -138,7 +138,7 @@ Seretta Kem | [Car le changement doit venir, l’amour doit apporter l’harmoni
 Moïse | [Les adeptes de l’Amour Divin doivent s’unir au nom de l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-28-2-af-moses/) | 28 Novembre 2016
 St Luc | [Luc souhaite la bienvenue à ceux qui font partie du rassemblement de Punnalu’u](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-28-3-af-st-luke/) | 28 Novembre 2016
 Goldie | [Pourquoi se compliquer la vie ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-28-4-af-goldie/) | 28 Novembre 2016
-Care Derby Walsh | [Les potentiels en herbe de nos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-29-1-af-care-derby-walsh/) | 29 Novembre 2016
+Care Darby Walsh | [Les potentiels en herbe de nos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-29-1-af-care-derby-walsh/) | 29 Novembre 2016
 Judas | [Mettez de côté les objectifs et les ambitions de votre mental](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-29-2-af-judas/) | 29 Novembre 2016
 André | [Votre capacité à aimer est limitée par les entraves de votre esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-29-3-af-andrew/) | 29 Novembre 2016
 Jésus | [Réveillez-vous de votre sommeil](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-30-1-af-jesus/) | 30 Novembre 2016

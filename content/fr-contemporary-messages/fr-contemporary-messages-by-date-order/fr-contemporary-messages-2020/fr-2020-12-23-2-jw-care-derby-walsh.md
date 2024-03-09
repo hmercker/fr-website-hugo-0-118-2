@@ -9,7 +9,7 @@ weight:
 ---
 ### Perceptions de l'âme vs. Intuition
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 23 Décembre 2020, Punalu’u, Oahu, Hawaii, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 23 Décembre 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, votre sœur, amie et bien-aimée, Care. Il est assez facile de se sentir concerné et d’avoir de l’empathie pour ceux qui vivent dans l’obscurité et pour la cécité de leur âme dans le monde, alors que vous cherchez tous la lumière et à voir clairement vous-même et à servir. S’il vous plaît, rappelez-vous que l’aide est toujours disponible : lorsque vous vous adressez à Dieu dans la prière, il répond. Lorsque vous avez besoin de conseils, ils arrivent. Parfois sous la forme d’un ange Céleste ou d’un esprit progressif dans l’amour de Dieu, et parfois Dieu met simplement la réponse dans votre cœur, dans votre âme et vous savez.
 

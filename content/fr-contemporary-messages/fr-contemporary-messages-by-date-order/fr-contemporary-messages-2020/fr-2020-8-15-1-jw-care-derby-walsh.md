@@ -9,7 +9,7 @@ weight:
 ---
 ### La foi en Dieu et en vos dons
 
-Care Derby Walsh - reçu par Jimbeau Walsh le 15 Août 2020, Punalu’u, Oahu, Hawaii, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 15 Août 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, Care. J’ai été avec vous comme vous pouvez l’imaginer et j’ai vraiment apprécié vos explorations dans le monde de l’esprit et vos désirs de progression de l’âme dans l’Amour de Dieu. Comment pourrais-je rester à l’écart ?
 

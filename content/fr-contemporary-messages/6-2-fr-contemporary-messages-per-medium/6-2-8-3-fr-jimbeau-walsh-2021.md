@@ -15,7 +15,7 @@ St François d'Assise | [Ce chemin exige que vous sachiez ce qui est important](
 Yogananda | [Bienvenue à toutes les âmes avec Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-3-1-jw-yogananda/) | 3 Janvier 2021
 Baal Shem Tov | [Laissez vos prières s’approfondir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-4-1-jw-baal-shem-tov/) | 4 Janvier 2021
 Judas | [L'étincelle de lumière dans votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-6-1-jw-judas/) | 6 Janvier 2021
-Care Derby Walsh | [Combattez avec Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-8-1-jw-care-derby-walsh/) | 8 Janvier 2021
+Care Darby Walsh | [Combattez avec Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-8-1-jw-care-derby-walsh/) | 8 Janvier 2021
 Pasteur George Vale Owen | [Quelques propos du Révérend GV Owen](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-11-1-jw-rev-george-vale-owen/) | 11 Janvier 2021
 St François d'Assise | [L’illumination par l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-13-1-jw-st-francis-of-assisi/) | 13 Janvier 2021
 Eileen Caddy | [Quel sera votre héritage ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-15-1-jw-eileen-caddy/) | 15 Janvier 2021
@@ -41,7 +41,7 @@ Yogananda | [Laissez votre lumière briller sur chaque être](/fr-contemporary-m
 Judas | [Lâcher prise et laisser faire, s'en remettre à Dieu pour tout](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-12-1-jw-judas/) | 12 Mars 2021
 James Padgett | [Ce qui est important](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-16-2-jw-james-padgett/) | 16 Mars 2021
 Yogananda | [Joie et guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-18-2-jw-yogananda/) | 18 Mars 2021
-Care Derby Walsh | [Quand vous appelez, nous venons !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-18-3-jw-care-derby-walsh/) | 18 Mars 2021
+Care Darby Walsh | [Quand vous appelez, nous venons !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-18-3-jw-care-derby-walsh/) | 18 Mars 2021
 St François d'Assise | [Marchez dans la grâce ! C'est simple](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-22-1-jw-st-francis-of-assisi/) | 22 Mars 2021
 Charlie Chaplin | [Découvrez vos dons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-23-1-jw-charlie-chaplin/) | 23 Mars 2021
 Claire d'Assise | [Immunité spirituelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-8-1-jw-clare-of-assisi/) | 8 Avril 2021
@@ -74,7 +74,7 @@ Care Derby Walsh | [Chaque âme est unique](/fr-contemporary-messages/fr-contemp
 James Padgett | [Comprendre Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-10-1-jw-james-padgett/) | 10 Juin 2021
 George Gurdjieff | [Continuez à apporter cette lumière dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-14-1-jw-george-gurdjieff/) | 14 Juin 2021
 Robert James Lees | [Je vous guiderai](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-18-2-jw-robert-james-lees/) | 18 Juin 2021
-Care Derby Walsh | [Ne vous faites pas d’idoles et soyez libres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-21-1-jw-care-derby-walsh/) | 21 Juin 2021
+Care Darby Walsh | [Ne vous faites pas d’idoles et soyez libres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-21-1-jw-care-derby-walsh/) | 21 Juin 2021
 Hafiz | [Poèmes de Haffiz](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-27-1-jw-hafiz/) | 27 Juin 2021
 St François d'Assise | [Partager l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-28-1-jw-st-francis-of-assisi/) | 28 Juin 2021
 Amon | [Avoir de l’espoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-2-1-jw-amon/) | 2 Juillet 2021
@@ -82,14 +82,14 @@ Fred Rogers | [Rappelez-vous l’importance de guider les enfants](/fr-contempor
 Yogananda | [Transcender tout est le don de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-5-2-jw-yogananda/) | 5 Juillet 2021
 Robert James Lees | [Et si un ange venait dans votre maison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-9-1-jw-robert-james-lees/) | 9 Juillet 2021
 St François d'Assise | [Allez en paix, ne soyez pas troublés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-13-2-jw-st-francis-of-assisi/) | 13 Juillet 2021
-Care Derby Walsh | [Suivez la joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-22-1-jw-care-derby-walsh/) | 22 Juillet 2021
+Care Darby Walsh | [Suivez la joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-22-1-jw-care-derby-walsh/) | 22 Juillet 2021
 Judas | [La prière est la réponse à tous les problèmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-22-2-jw-judas/) | 22 Juillet 2021
 Judas | [La présence de l’Amour dans nos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-26-1-jw-judas/) | 26 Juillet 2021
 St Luc | [Cherchez d’abord le Royaume, et tout le reste vous sera donné](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-27-1-jw-st-luke/) | 27 Juillet 2021
 Yogananda | [Votre cœur vous conduira à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-2-1-jw-yogananda/) | 2 Août 2021
 Robert James Lees | [Mes livres sont vraiment approuvés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-5-1-jw-robert-james-lees/) | 5 Août 2021
 Yogananda | [Soyez courageux si vous souhaitez créer des sanctuaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-9-1-jw-yogananda/) | 9 Août 2021
-Care Derby Walsh | [Ayez la foi que vos prières seront exaucées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-12-1-jw-care-derby-walsh/) | 12 Août 2021
+Care Darby Walsh | [Ayez la foi que vos prières seront exaucées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-12-1-jw-care-derby-walsh/) | 12 Août 2021
 Martin Luther King jr | [Gardez les yeux sur le prix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-17-2-jw-martin-luther-king-jr/) | 17 Août 2021
 Jean le Bien Aimé | [Servir de tout son cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-23-1-jw-john-the-beloved/) | 23 Août 2021
 St Paul | [Touchez les autres avec Amour et tout se mettra en place](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-24-1-jw-st-paul/) | 24 Août 2021
@@ -98,7 +98,7 @@ Claire d'Assise | [La méditation n’est pas ce que vous pensez !](/fr-contempo
 Judas | [Dieu aime tous Ses enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-30-1-jw-judas/) | 30 Août 2021
 St François d'Assise | [Bénis soient les enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-6-3-jw-st-francis-of-assisi/) | 6 Septembre 2021
 Judas | [Recommencer à zéro](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-9-3-jw-judas/) | 9 Septembre 2021
-Care Derby Walsh | [Le Vrai Bonheur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-9-5-jw-care-derby-walsh/) | 9 Septembre 2021
+Care Darby Walsh | [Le Vrai Bonheur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-9-5-jw-care-derby-walsh/) | 9 Septembre 2021
 Jean le Bien Aimé | [Alignez vos cœurs dans la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-13-3-jw-john-the-beloved/) | 13 Septembre 2021
 Marie | [Paroles de vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-20-1-jw-mary/) | 20 Septembre 2021
 Joseph Babinsky | [Décrit sa vie dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-4-1-jw-joseph-babinsky/) | 4 Octobre 2021
@@ -110,7 +110,7 @@ Judas | [Énergie Céleste](/fr-contemporary-messages/fr-contemporary-messages-b
 Yogananda | [Créer un sanctuaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-18-2-jw-yogananda/) | 18 Octobre 2021
 Robert James Lees | [Le monde bénéficierait de ce que j'ai reçu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-19-2-jw-robert-james-lees/) | 19 Octobre 2021
 Arthur Conan Doyle | [Il y a beaucoup de travail à faire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-22-1-jw-arthur-conan-doyle/) | 22 Octobre 2021
-Care Derby Walsh | [Encouragements à terminer les projets](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-22-2-jw-care-derby-walsh/) | 22 Octobre 2021
+Care Darby Walsh | [Encouragements à terminer les projets](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-22-2-jw-care-derby-walsh/) | 22 Octobre 2021
 Hafiz | [Soyez la vraie vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-25-1-jw-hafiz/) | 25 Octobre 2021
 Claire d'Assise | [L’Amour de Dieu mène à une vie de service](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-29-1-jw-clare-of-assisi/) | 29 Octobre 2021
 St Luc | [Avancer dans la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-1-1-jw-st-luke/) | 1 Novembre 2021
@@ -119,14 +119,14 @@ Hazrat Inayat Khan | [Gardez un chant dans votre cœur](/fr-contemporary-message
 Robert James Lees | [Une chose à la fois](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-10-1-jw-robert-james-lees/) | 10 Novembre 2021
 Robert James Lees | [Tous sont dignes de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-11-2-jw-robert-james-lees/) | 11 Novembre 2021
 Yogananda | [Le voyage du cœur est véritablement le voyage de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-15-1-jw-yogananda/) | 15 Novembre 2021
-Care Derby Walsh | [La porte sera ouverte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-18-1-jw-care-derby-walsh/) | 18 Novembre 2021
+Care Darby Walsh | [La porte sera ouverte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-18-1-jw-care-derby-walsh/) | 18 Novembre 2021
 Eileen Caddy | [Demandez en priant et vous recevrez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-19-1-jw-eileen-caddy/) | 19 Novembre 2021
 St Jean | [Le temps de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-21-1-jw-st-john/) | 21 Novembre 2021
 Jésus | [Chaque âme a un choix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-14-2-jw-jesus/) | 14 Décembre 2021
 St François d'Assise | [Ce choix simple](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-20-1-jw-st-francis-of-assisi/) | 20 Décembre 2021
-Care Derby Walsh | [La joie dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-23-1-jw-care-derby-walsh/) | 23 Décembre 2021
+Care Darby Walsh | [La joie dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-23-1-jw-care-derby-walsh/) | 23 Décembre 2021
 St Étienne | [Parlez au monde depuis votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-26-1-jw-st-stephen/) | 26 Décembre 2021
-Care Derby Walsh | [Liberté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-26-3-jw-care-derby-walsh/) | 26 Décembre 2021
+Care Darby Walsh | [Liberté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-26-3-jw-care-derby-walsh/) | 26 Décembre 2021
 Jude, le frère de Jésus | [Chaque voyage commence par un premier pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-30-1-jw-jesus-brother-jude/) | 30 Décembre 2021
 
 ## [Lien vers les messages contemporains reçus par Jimbeau walsh au cours de l’année 2022](/fr-contemporary-messages\6-2-fr-contemporary-messages-per-medium/6-2-8-4-fr-jimbeau-walsh-2022/)
