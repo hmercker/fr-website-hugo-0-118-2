@@ -108,7 +108,7 @@ Ainsi, le temps vient où nous pouvons nous avancer et être vos frères et sœu
 Que Dieu vous bénisse, mes amis, beaux amis, amis terrestres, frères et sœurs du grand univers de Dieu. Je reviendrai vous parler. Je vous remercie pour cette opportunité. Bénédictions pour vous, bénédictions d’amour. Je suis Orion.
 <small>
 
-1. <large id="f1"> Une clarification supplémentaire de la question du libre arbitre et des vaccins a été apportée ultérieurement (Cf message du 11 Novembre 2021).[↩](#a1)
+1. <large id="f1"> Une clarification supplémentaire de la question du libre arbitre et des vaccins a été apportée ultérieurement (Lire le message [du 11 Novembre 2021](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-11-1-af-orion/)).[↩](#a1)
 
 ### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
 

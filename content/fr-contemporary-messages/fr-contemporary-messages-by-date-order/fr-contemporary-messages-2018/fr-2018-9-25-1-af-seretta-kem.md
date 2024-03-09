@@ -1,13 +1,13 @@
 ---
-title: "Instructions pour la voix directe"
+title: "Instructions pour la Voix Directe"
 menu_title: ""
-description: "Instructions pour la voix directe"
+description: "Instructions pour la Voix Ddirecte"
 date: 2022-06-01 06:00:01+00:485
 draft: False
 hidden: True
 weight:
 ---
-### Instructions pour la voix directe
+### Instructions pour la Voix Directe
 
 Seretta Kem - reçu par Al Fike le 25 Septembre 2018, Gibsons, Colombie-Britannique, Canada.
 

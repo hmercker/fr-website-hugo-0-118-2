@@ -11,7 +11,7 @@ weight:
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-Jonathan Edwards | [Expériences d'un théologien américain colonial](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-1-8-1-fab-jonathan-edwards/) | 8 Janvier 2009
+Jonathan Edwards | [Expériences d'un théologien Américain colonial](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-1-8-1-fab-jonathan-edwards/) | 8 Janvier 2009
 Elizabeth Ashbridge | [Une quaker de l'Amérique coloniale](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-1-8-2-fab-elizabeth-ashbridge/) | 8 Janvier 2009
 Stephen Foster | [Une clarification musicale](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-1-14-1-fab-stephen-foster/) | 14 Janvier 2009
 Janis Joplin | [Le malheur de Janis Joplin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-1-15-1-fab-janis-joplin/) | 15 Janvier 2009
@@ -21,7 +21,7 @@ Abraham Lincoln | [Le début de la guerre civile Américaine](/fr-contemporary-m
 Abraham Lincoln | [Lincoln gagne en confiance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-1-30-2-fab-abraham-lincoln/) | 30 Janvier 2009
 Abraham Lincoln | [Le progrès de Lincoln](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-1-31-1-fab-abraham-lincoln/) | 31 Janvier 2009
 St Jean | [La culture Grecque et les Juifs dans l’Ancienne Palestine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-1-31-2-fab-st-john/) | 31 Janvier 2009
-Le roi Arthur | [Un roi légendaire - le roi Arthur - est réel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-1-1-fab-king-arthur/) | 1 Février 2009
+Le roi Arthur | [Un roi légendaire - le roi Arthur - est réel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-1-1-fab-king-arthur/) | 1<sup>er</sup> Février 2009
 St Jean | [Le choc des Juifs et des Gentils au premier siècle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-3-1-fab-st-john/) | 3 Février 2009
 Jésus | [La fermeture des Cieux Célestes - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-7-1-fab-jesus/) | 7 Février 2009
 Jésus | [Pré-existence des Cieux Célestes - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-7-2-fab-jesus/) | 7 Février 2009
@@ -42,9 +42,9 @@ Andrew Carnegie | [La loi morale et le fait de gagner de l’argent](/fr-contemp
 Napoléon | [Les expériences de Napoléon](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-3-25-1-fab-napoleon/) | 25 Mars 2009
 Jerry Falwell | [La tristesse de Jerry Falwell](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-4-5-1-fab-jerry-falwell/) | 5 Avril 2009
 Max Smith | [La souffrance d'un soldat](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-4-29-1-fab-max-smith/) | 29 Avril 2009
-Walt Disney | [L'espoir de Walt Disney](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-1-1-fab-walt-disney/) | 1 Mai 2009
-Jésus | [Le système et les personnes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-1-2-fab-jesus/) | 1 Mai 2009
-Jésus | [Le système et les personnes - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-1-3-fab-jesus/) | 1 Mai 2009
+Walt Disney | [L'espoir de Walt Disney](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-1-1-fab-walt-disney/) | 1<sup>er</sup> Mai 2009
+Jésus | [Le système et les personnes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-1-2-fab-jesus/) | 1<sup>er</sup> Mai 2009
+Jésus | [Le système et les personnes - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-1-3-fab-jesus/) | 1<sup>er</sup> Mai 2009
 Jésus | [Le programme politique et économique de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-3-1-fab-jesus/) | 3 Mai 2009
 Jésus | [Le programme politique et économique de Jésus - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-3-2-fab-jesus/) | 3 Mai 2009
 Aristote | [La progression d'Aristote, et l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-7-1-fab-aristotle/) | 7 Mai 2009
@@ -101,8 +101,8 @@ Jésus | [Attitude des entreprises vis-à-vis de l'environnement](/fr-contempora
 Richard Rodgers | [Les expériences de Richard Rodgers](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-10-13-1-fab-richard-rodgers/) | 13 Octobre 2009
 Benjamin Franklin | [La compensation des Pères fondateurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-10-29-1-fab-benjamin-franklin/) | 29 Octobre 2009
 Robert Kennedy | [La première vie de Robert Kennedy](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-3-1-fab-robert-kennedy/) | 3 Décembre 2009
-Robert Kennedy | [Robert Kennedy dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-4-1-fab-robert-kennedy/) | 4 Décembre 2009
 Robert Kennedy | [La famille Kennedy](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-4-1-fab-robert-kennedy/) | 4 Décembre 2009
+Robert Kennedy | [Robert Kennedy dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-4-2-fab-robert-kennedy/) | 4 Décembre 2009
 Robert Kennedy | [Plus sur Robert Kennedy](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-7-2-fab-robert-kennedy/) | 7 Décembre 2009
 Robert Kennedy | [Plus sur Robert Kennedy - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-7-2-fab-robert-kennedy/) | 7 Décembre 2009
 Robert Kennedy | [Plus sur Robert Kennedy - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-8-1-fab-robert-kennedy/) | 8 Décembre 2009

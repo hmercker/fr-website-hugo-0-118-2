@@ -1,13 +1,13 @@
 ---
-title: "L'amour est la grande vérité"
+title: "L'amour est la grande Vérité"
 menu_title: ""
-description: "L'amour est la grande vérité"
+description: "L'amour est la grande Vérité"
 date: 2022-06-01 06:00:01+00:457
 draft: False
 hidden: True
 weight:
 ---
-### L'amour est la grande vérité
+### L'amour est la grande Vérité
 
 Jésus - reçu par Jesper Sorensen le 29 Août 2018, Retraite de médiumnité, Gibsons, Colombie-Britannique, Canada.
 

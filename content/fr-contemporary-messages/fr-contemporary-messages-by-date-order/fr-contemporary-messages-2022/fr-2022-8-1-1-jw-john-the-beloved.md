@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous sommes tous aimés par Dieu
 
-Jean le Bien-Aimé - reçu par Jimbeau Walsh le 1 Août 2022, Nashville, TN, USA.
+Jean le Bien-Aimé - reçu par Jimbeau Walsh le 1<sup>er</sup> Août 2022, Nashville, TN, USA.
 
 Mes chers, que l’Amour du Père vous élève afin que vous puissiez élever le monde. Tout dans la création est en harmonie. Toutes les âmes possèdent le libre arbitre qui leur permet de percevoir l’harmonie de la création, de percevoir le fonctionnement de leur âme, et même cela est simplement l’état naturel des choses en harmonie. Sur le chemin de l’Amour Divin, le chemin de la transformation, il y a une transcendance sur le monde matériel. Ce qui ne veut pas dire que l’on n’y vit pas sur terre, mais que son âme a été touchée par l’Amour de Dieu sur, comme nous l’avons dit tant de fois, le pont vers les Cieux Célestes. Vous êtes sur ce pont.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Dieu apportera une nouvelle lumière dans ce monde
 
-Isaïe - reçu par Al Fike le 1 Décembre 2017, Gibsons, Colombie-Britannique, Canada
+Isaïe - reçu par Al Fike le 1<sup>er</sup> Décembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Que Dieu vous bénisse, je suis Isaïe. Oui, mes frères, le monde est sur le point de changer car Dieu apporte l'élan du changement dans Ses bénédictions pour l'humanité et pour ce monde. Car la plupart de l'humanité est endormie. Elle sommeille dans ses illusions. Elle sommeille parce qu'elle ne peut pas voir au-delà du monde matériel. Les hommes, et les femmes, ne comprennent pas leur véritable nature. Ils ne voient pas qu'ils sont des enfants de Dieu. Ils ne peuvent pas reconnaître leur véritable moi, leur âme, car ils manquent de foi et de confiance en leur Créateur. Dieu a donc un plan pour réveiller l'humanité. Dieu va amener l'humanité à un endroit au-delà de son sommeil où elle doit se réveiller, car les conditions de ce monde qui arrivent vont la secouer et l'amener à un endroit où elle doit reconnaître qui elle est vraiment.
 

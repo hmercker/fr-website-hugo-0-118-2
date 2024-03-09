@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### La voix directe se manifestera pour chacun d'entre vous
+### La Voix Directe se manifestera pour chacun d'entre vous
 
 Fleur de Lotus - reçu par Al Fike le 15 Décembre 2017, Gibsons, Colombie-Britannique, Canada
 

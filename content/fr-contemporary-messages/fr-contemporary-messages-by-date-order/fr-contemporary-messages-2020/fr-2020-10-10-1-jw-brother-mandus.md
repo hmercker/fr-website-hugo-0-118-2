@@ -18,7 +18,7 @@ Ce que vous apportez au centre de guérison, c’est la présence de l’amour q
 Et oui, je souhaite dire que la chaise où j’ai eu beaucoup de prières et de guérisons sera un merveilleux conduit pour ceux qui sont dans le besoin et elle devrait être utilisée et non pas cachée. Alors oui, cher frère, ta guidance était correcte. Je te remercie d’avoir reçu mon message. Je suis très heureux et, avec tout mon amour et mon soutien dans la grâce de Dieu, je suis votre frère Mandus. Allez avec Dieu !<sup id="a3">[3](#f3)</sup>
 <small>
 
-1. <large id="f1"> Centre mondial de guérison fondé par frère Mandus à Blackpool, en Angleterre.[↩](#a1)
+1. <large id="f1"> [WHC : World Healing Center](https://www.whc.uk.net/) : World Healing Center : Centre Mondial de Guérison fondé par le frère Mandus Nyquist, au début des années 1950, à Blackpool en Anglettre.[↩](#a1)
 
 2. <large id="f2"> Le sentiment de l’amour et de la présence de Dieu.[↩](#a2)
 

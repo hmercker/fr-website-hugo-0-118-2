@@ -1,13 +1,13 @@
 ---
-title: "Des encouragements pour enseigner la vérité"
+title: "Des encouragements pour enseigner la Vérité"
 menu_title: ""
-description: "Des encouragements pour enseigner la vérité"
+description: "Des encouragements pour enseigner la Vérité"
 date: 2022-06-01 06:00:01+00:469
 draft: False
 hidden: True
 weight:
 ---
-### Des encouragements pour enseigner la vérité
+### Des encouragements pour enseigner la Vvérité
 
 Jean-Baptiste - reçu par Jesper Sorensen le 1 Septembre 2018, Retraite de médiumnité, Gibsons, Colombie-Britannique, Canada.
 

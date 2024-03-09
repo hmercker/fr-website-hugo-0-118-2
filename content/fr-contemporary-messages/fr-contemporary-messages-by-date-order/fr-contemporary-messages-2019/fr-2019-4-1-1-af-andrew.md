@@ -9,7 +9,7 @@ weight:
 ---
 ### Dieu prépare de nombreuses âmes à ce qui va arriver
 
-André - reçu par Al Fike le 1 Avril 2019, Gibsons, Colombie-Britannique, Canada.
+André - reçu par Al Fike le 1<sup>er</sup> Avril 2019, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, c'est André. Les impulsions et les vagues de l'Amour de Dieu continuent de frapper cette Terre, élevant l'humanité et apportant les conditions du changement dans ce monde. Je sais que vos prières pour être avec Dieu se sont intensifiées en raison de ces conditions qui se présentent et s'intensifieront avec le temps. Dieu prépare de nombreuses âmes à ce qui va arriver. Dieu ouvre de nombreuses portes pour chacun d'entre vous afin que vous puissiez vous réveiller dans vos âmes. Alors que vous êtes assis dans ces Portails de Lumière, les bénédictions qui viennent sont intenses et puissantes avec l'intention de réveiller vos âmes, à condition que vous vous ouvriez et receviez ce grand cadeau de l'Amour de Dieu.
 

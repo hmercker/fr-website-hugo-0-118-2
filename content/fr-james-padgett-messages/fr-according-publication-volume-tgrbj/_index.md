@@ -13,8 +13,6 @@ James Padgett a reçu des messages, de Jésus, de nombreux esprits Célestes et 
 
 Étant donné que les volumes énumérés ici ont été publiés à partir de 1941 sans l'aide d'ordinateurs, il n'est pas surprenant que certains messages aient été répétés dans ces quatre volumes. Pour éviter toute confusion une seule version de chaque message a été incluse sur ce site web. Le cas échéant, il s'agit d'un message composé lorsque les différentes versions d’un même message sont légèrement différentes car contenant, par exemple des paragraphes supplémentaires. Ces doublons offrent au chercheur sérieux une occasion unique de se faire une idée de l'exactitude et du caarctère méticuleux de la transcription de l'écriture automatique de James Padgett.
 
-[Voici un lien de téléchargement pour le quatrième volume  des messages.](/13-fr-publications-and-downloads/13-2-1-fr-french-spiritual-books/fr-true-gospel-revealed-anew-volume-4-fr.pdf)
-
 **Volume** | **Index**
 ---|---
 Volume 1 | [I](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/fr-volume-1/)

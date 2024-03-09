@@ -13,7 +13,7 @@ Moïse - reçu par FAB le 6 Octobre 2007, Santa Cruz, Californie, USA.
 
 C’est moi, Moïse.
 
-Je souhaite écrire ce soir au sujet [du meurtre du chef de chantier égyptien](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-10-6-1-fab-hakan/), qui a effectivement eu lieu. Une fois l’acte accompli (et il était totalement impulsif, imprudent et irréfléchi), je n’ai pas pu faire face à ma conscience pendant longtemps. Mais parce que j’ai éprouvé un véritable remords, j’ai fini par ressentir le pardon du Seigneur, et alors cela ne m’a plus troublé.
+Je souhaite écrire ce soir au sujet [du meurtre du chef de chantier Égyptien](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-10-6-1-fab-hakan/), qui a effectivement eu lieu. Une fois l’acte accompli (et il était totalement impulsif, imprudent et irréfléchi), je n’ai pas pu faire face à ma conscience pendant longtemps. Mais parce que j’ai éprouvé un véritable remords, j’ai fini par ressentir le pardon du Seigneur, et alors cela ne m’a plus troublé.
 
 J’avais très envie de rencontrer ce maître d’œuvre dans le monde des esprits, et c’est ce que j’ai fait. Il m’a dit qu’il avait nourri des sentiments de haine à mon égard et qu’il avait même voulu me faire du mal, mais qu’après avoir envisagé cela, de bons esprits sont venus lui expliquer que cela n’aiderait ni lui ni moi. Ils ont parlé d’une manière si douce mais si puissante et aimante, qu’il a dû reconsidérer sa décision, et il l’a fait. Il a changé d’avis. Cet incident important l’a aidé à progresser.
 

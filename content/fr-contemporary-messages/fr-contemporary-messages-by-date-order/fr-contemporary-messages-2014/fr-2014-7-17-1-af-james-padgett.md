@@ -72,6 +72,6 @@ Je vous remercie d’avoir bien voulu écouter mon histoire et bien qu’il y ai
 1. <large id="f1"> L'ensemble des messages communiqués par James Padgett  est disponible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-12-fr-family-and-friends-of-james-padgett/)[↩](#a1) 
 
 
-### [**Lien vers les messages des années 20143**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/)
+### [**Lien vers les messages des années 2014**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

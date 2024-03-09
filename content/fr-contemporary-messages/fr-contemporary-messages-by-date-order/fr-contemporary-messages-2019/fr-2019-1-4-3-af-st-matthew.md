@@ -1,7 +1,7 @@
 ---
-title: "Soyez un instrument de l’amour de Dieu."
+title: "Soyez un instrument de l’Amour de Dieu."
 menu_title: ""
-description: "Soyez un instrument de l’amour de Dieu."
+description: "Soyez un instrument de l’Amour de Dieu."
 date: 2022-06-01 06:00:01+00:595
 draft: False
 hidden: True

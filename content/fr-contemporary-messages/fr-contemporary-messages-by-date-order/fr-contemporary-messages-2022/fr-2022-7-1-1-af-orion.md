@@ -9,7 +9,7 @@ weight:
 ---
 ### S’émerveiller de la diversité que Dieu a créée sur Terre
 
-Orion - reçu par Al Fike le 1 Juillet 2022, Gibsons, Colombie-Britannique, Canada.
+Orion - reçu par Al Fike le 1<sup>er</sup> Juillet 2022, Gibsons, Colombie-Britannique, Canada.
 
 Chers amis, je suis Orion. La diversité de la vie et le pouvoir de la vie qui se manifestent dans votre monde nous intéressent beaucoup. Voir comment Dieu a créé une telle diversité, une telle beauté, un réseau de vie si complexe qu’il est extraordinaire dans ses complexités et ses profondeurs. Pourtant, beaucoup n’honorent pas cela et certains le craignent même, le pouvoir du monde naturel, comme vous l’appelez, ce qui est une grande tragédie. Car lorsque l’on ouvre les yeux sur ce que Dieu a créé, en regardant vraiment depuis la partie la plus profonde de soi-même, on voit que tout est créé dans l’amour, tout est censé être en harmonie.
 

@@ -1,13 +1,13 @@
 ---
-title: "Le réconfort d’un martyr de la vérité"
+title: "Le réconfort d’un martyr de la Vérité"
 menu_title: ""
-description: "Le réconfort d’un martyr de la vérité"
+description: "Le réconfort d’un martyr de la Vérité"
 date: 2022-06-01 06:00:01+00:48
 draft: False
 hidden: True
 weight:
 ---
-### Le réconfort d’un martyr de la vérité
+### Le réconfort d’un martyr de la Vérité
 
 Oscar Romero <sup id="a1">[1](#f1)</sup> - reçu par FAB le 29 Mars 2013, Berkeley, Californie, USA.
 

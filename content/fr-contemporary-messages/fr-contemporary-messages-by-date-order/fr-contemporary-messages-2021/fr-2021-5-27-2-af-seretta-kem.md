@@ -1,13 +1,13 @@
 ---
-title: "Encourager le developpement de la voix directe dans le Monde"
+title: "Encourager le developpement de la Voix Directe dans le Monde"
 menu_title: ""
-description: "Encourager le developpement de la voix directe dans le Monde"
+description: "Encourager le developpement de la Voix Directe dans le Monde"
 date: 2022-06-01 06:00:01+00:1518
 draft: False
 hidden: True
 weight:
 ---
-### Encourager le developpement de la voix directe dans le Monde
+### Encourager le developpement de la Voix Directe dans le Monde
 
 Seretta Kem - reçu par Al Fike le 27 Mai 2021, Gibsons, Colombie-Britannique, Canada.
 
@@ -26,7 +26,7 @@ Que Dieu vous bénisse, âmes bien-aimées. Je suis votre Seretta Kem qui sera �
 Que Dieu vous bénisse, âmes bien-aimées. Je suis proche comme beaucoup d’entre nous qui travaillent en alignement avec la volonté de Dieu pour l’établissement de la lumière et de la vérité sur ce monde. Que Dieu vous bénisse et vous garde près de lui, près de la lumière, près de l’amour, près de Dieu qui vous embrasse toujours. Que Dieu vous bénisse.
 <small>
 
-1. <large id="f1"> 1e peuple nubien vit aujourd’hui dans ce qui est le nord du Soudan et le sud de l’Égypte. Il s’agissait d’une ancienne civilisation africaine issue des premiers habitants de la vallée du Nil. Les rois nubiens ont régné sur l’Égypte en tant que pharaons pendant près de 100 ans.[↩](#a1)
+1. <large id="f1"> Le peuple nubien vit aujourd’hui dans ce qui est le nord du Soudan et le sud de l’Égypte. Il s’agissait d’une ancienne civilisation africaine issue des premiers habitants de la vallée du Nil. Les rois nubiens ont régné sur l’Égypte en tant que Pharaons pendant près de 100 ans.[↩](#a1)
 
 ### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
 

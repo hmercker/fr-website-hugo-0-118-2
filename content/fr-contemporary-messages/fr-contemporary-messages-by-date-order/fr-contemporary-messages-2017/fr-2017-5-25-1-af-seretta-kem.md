@@ -1,13 +1,13 @@
 ---
-title: "Préparatifs pour la voix directe"
+title: "Préparatifs pour la voix Directe"
 menu_title: ""
-description: "Préparatifs pour la voix directe"
+description: "Préparatifs pour la Voix Directe"
 date: 2022-06-01 06:00:01+00:39
 draft: False
 hidden: True
 weight:
 ---
-### Préparatifs pour la voix directe
+### Préparatifs pour la Voix Directe
 
 Seretta Kem - reçu par Al Fike le 25 Mai 2017, Gibsons, Colombie-Britannique, Canada
 

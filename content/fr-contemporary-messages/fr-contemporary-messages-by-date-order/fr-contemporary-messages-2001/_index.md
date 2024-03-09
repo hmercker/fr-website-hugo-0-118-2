@@ -71,13 +71,13 @@ Judas | [La sixième sphère](/fr-contemporary-messages/fr-contemporary-messages
 Judas | [La septième sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-28-1-hr-judas/) | 28 Septembre 2001
 Judas | [Divorce, les douze apôtres et les douze tribus d’Israël](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-29-1-hr-judas/) | 29 Septembre 2001
 Joseph | [La prière, la meilleure préparation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-30-1-ks-joseph/) | 30 Septembre 2001
-Judas | [Parties innocentes au terrorisme ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-1-1-hr-judas/) | 1 Octobre 2001
+Judas | [Parties innocentes au terrorisme ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-1-1-hr-judas/) | 1<sup>er</sup> Octobre 2001
 Judas | [Joseph se marie avec Marie et retourne à Bethléem](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-3-1-hr-judas/) | 3 Octobre 2001
 Judas | [Parallèles entre la Galilée à l’époque de Jésus et aujourd’hui](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-3-2-hr-judas/) | 3 Octobre 2001
 Judas | [La naissance de Jésus à Bethléem](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-4-1-hr-judas/) | 4 Octobre 2001
 Judas | [La fuite en Égypte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-5-1-hr-judas/) | 5 Octobre 2001
 Judas | [Aide au suicide et symboles Chrétiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-5-2-hr-judas/) | 5 Octobre 2001
-Jésus | [L'amour et la vérité doivent passer en premier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-6-1-ks-jesus/) | 6 Octobre 2001
+Jésus | [L'Amour et la Vérité doivent passer en premier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-6-1-ks-jesus/) | 6 Octobre 2001
 Judas | [La justification de la violence et les âmes sœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-6-2-hr-judas/) | 6 Octobre 2001
 Judas | [L’éducation de Jésus en Égypte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-8-1-hr-judas/) | 8 Octobre 2001
 Judas | [Le retour de Joseph et Marie à Nazareth](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-9-1-hr-judas/) | 9 Octobre 2001
@@ -108,8 +108,8 @@ St Matthieu | [Matthieu, apôtre de Jésus](/fr-contemporary-messages/fr-contemp
 André | [Surmonter les obstacles au voyage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-23-1-ks-andrew/) | 23 Novembre 2001
 Judas | [Médiumnité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-26-1-hr-judas/) | 26 Novembre 2001
 Judas | [La médiumnité et l’esprit du mortel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-30-1-hr-judas/) | 30 Novembre 2001
-Marie | [S’opposer fermement à la violence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-1-1-ar-mary/) | 1 Décembre 2001
-Joseph | [Vivre dans l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-2-1-ks-joseph/) | 2 Décembre 2001
+Marie | [S’opposer fermement à la violence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-1-1-ar-mary/) | 1<sup>er</sup> Décembre 2001
+Joseph | [Vivre dans l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-2-1-ks-joseph/) | 2 Décembre 2001
 Judas | [Que nous apprend la bible ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-3-1-hr-judas/) | 3 Décembre 2001
 Judas | [A Qui Jésus s’adressait-il ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-4-1-hr-judas/) | 4 Décembre 2001
 Judas | [Le danger de la médiumnité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-4-2-hr-judas/) | 4 Décembre 2001

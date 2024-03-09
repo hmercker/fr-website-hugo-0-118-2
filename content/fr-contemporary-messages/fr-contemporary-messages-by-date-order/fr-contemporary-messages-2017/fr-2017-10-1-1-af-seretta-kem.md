@@ -9,7 +9,7 @@ weight:
 ---
 ### Orientations sur les préparations pour la Voix Directe
 
-Seretta Kem - reçu par Al Fike le 1 Octobre 2017, Gibsons, Colombie-Britannique, Canada
+Seretta Kem - reçu par Al Fike le 1<sup>er</sup> Octobre 2017, Gibsons, Colombie-Britannique, Canada
 
 Nous vous avons réunis ce soir alors que vous continuez à vous donner ce rendez-vous ensemble pour recevoir la guidance concernant les préparatifs de la voix directe. Vous vous approchez de ce moment où vous êtes ensemble. Il est maintenant temps d'être diligent, de faire les plus grands efforts pour vous préparer à ce temps de prière et de développement car il arrive rapidement. Il est important que vous poursuiviez vos prières quotidiennes, que vous mettiez au premier plan dans vos pensées cet effort que vous êtes sur le point de faire, que vous soyez concentrés, que vous reconnaissiez votre engagement intérieur envers Dieu, envers cette lumière intérieure d'amour divin, envers toutes les bénédictions qui viennent et toutes les possibilités que vous avez acceptées dans votre vie. Chaque jour, vous vous débarrassez un peu plus de ces conditions qui empêchent le flux d'amour et obstruent les énergies nécessaires au développement de la voix directe. Chaque jour, vous laissez tomber une certaine partie de ces conditions et acceptez avec joie l'appel de Dieu à recevoir Sa bénédiction d'amour.
 

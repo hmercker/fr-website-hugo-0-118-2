@@ -9,7 +9,7 @@ weight:
 ---
 ### Ronald Reagan a besoin d'aide
 
-Ronald Reagan <sup id="a1">[1](#f1)</sup> - reçu par FAB le 1 Janvier 2007, Santa Cruz, Californie, USA.
+Ronald Reagan <sup id="a1">[1](#f1)</sup> - reçu par FAB le 1<sup>er</sup> Janvier 2007, Santa Cruz, Californie, USA.
 
 Je suis Ronald Reagan. <sup id="a2">[2](#f2)</sup>
 

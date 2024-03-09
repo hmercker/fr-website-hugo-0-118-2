@@ -9,7 +9,7 @@ weight:
 ---
 ### L'espoir de Walt Disney
 
-Walt Disney - reçu par FAB le 1 Mai 2009, Santa Cruz, Californie, USA.
+Walt Disney - reçu par FAB le 1<sup>er</sup> Mai 2009, Santa Cruz, Californie, USA.
 
 C'est moi, Walt Disney.<sup id="a1">[1](#f1)</sup>
 

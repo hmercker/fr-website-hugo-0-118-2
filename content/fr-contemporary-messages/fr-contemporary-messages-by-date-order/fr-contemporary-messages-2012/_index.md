@@ -15,7 +15,7 @@ Jésus | [Un appel à la préparation](/fr-contemporary-messages/fr-contemporary
 Jésus | [Approbation de la publication des messages de Judas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-1-22-2-fab-jesus/) | 22 Janvier 2012
 Daniel Samuels | [Une clarification du Nouveau Testament](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-2-26-1-fab-daniel-samuels/) | 26 Février 2012
 Natalie Wood | [Expériences dans le monde des esprits d’une star de cinéma](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-2-26-2-fab-natalie-wood/) | 26 Février 2012
-Natalie Wood | [Expériences dans le monde des esprits d’une star de cinéma - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-3-1-1-fab-natalie-wood/) | 1 Mars 2012
+Natalie Wood | [Expériences dans le monde des esprits d’une star de cinéma - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-3-1-1-fab-natalie-wood/) | 1<sup>er</sup> Mars 2012
 Jésus | [Une situation particulière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-3-2-1-fab-jesus/) | 2 Mars 2012
 Jésus | [Confirmation des portraits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-3-2-2-fab-jesus/) | 2 Mars 2012
 Le Père Céleste | [Découvre ta beauté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-3-3-1-cog-father/) | 3 Mars 2012
@@ -29,7 +29,7 @@ Le Père Céleste| [Faire confiance au cœur](/fr-contemporary-messages/fr-conte
 Franklin D Roosevelt | [Habiter la Maison Blanche](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-3-25-1-fab-franklin-d-roosevelt/) | 25 Mars 2012
 John Bricker | [L’espoir du sénateur John Bricker](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-3-25-2-fab-john-bricker/) | 25 Mars 2012
 Jésus | [L’aide est en chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-3-30-1-fab-jesus/) | 30 Mars 2012
-Le Père Céleste | [Sens ton chemin vers moi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-4-1-1-cog-father/) | 1 Avril 2012
+Le Père Céleste | [Sens ton chemin vers moi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-4-1-1-cog-father/) | 1<sup>er</sup> Avril 2012
 Antony Sutton | [Dieu et l’économie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-4-6-1-fab-antony-sutton/) | 6 Avril 2012
 Mao Zedong | [Les pensées d’un Leader Chinois](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-4-7-1-fab-mao-zedong/) | 7 Avril 2012
 Le Père Céleste | [L’extraordinaire se cache dans l’ordinaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-4-11-1-cog-father/) | 11 Avril 2012
@@ -47,7 +47,7 @@ Inconnu | [Dites-moi ce qui peut être](/fr-contemporary-messages/fr-contemporar
 Le Père Céleste| [Qu’est-ce que le péché ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-4-27-2-cog-father/) | 27 Avril 2012
 Le Père Céleste| [Comment corriger un péché ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-4-28-1-cog-father/) | 28 Avril 2012
 Le Père Céleste| [Rêver du rêve impossible](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-4-29-1-cog-father/) | 29 Avril 2012
-Père | [Volonté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-1-1-cog-father/) | 1 Mai 2012
+Père | [Volonté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-1-1-cog-father/) | 1<sup>er</sup> Mai 2012
 Le Père Céleste| [Lâche prise sur tes vieilles croyances](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-2-1-cog-father/) | 2 Mai 2012
 Le Père Céleste | [Viens t’asseoir avec Moi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-4-1-cog-father/) | 4 Mai 2012
 Le Père Céleste| [Ressentir les désirs de votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-5-1-cog-father/) | 5 Mai 2012

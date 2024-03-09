@@ -1,13 +1,13 @@
 ---
-title: "Vivre dans l’amour"
+title: "Vivre dans l’Amour"
 menu_title: ""
-description: "Vivre dans l’amour"
+description: "Vivre dans l’Amour"
 date: 2022-06-01 06:00:01+00:90
 draft: False
 hidden: True
 weight:
 ---
-### Vivre dans l’amour
+### Vivre dans l’Amour
 
 Joseph - reçu par Kathryn Stokes le 2 Décembre 2001, Santa Cruz, Californie, USA.
 

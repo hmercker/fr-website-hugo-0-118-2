@@ -9,7 +9,7 @@ weight:
 ---
 ### Il est encore temps de réveiller vos âmes par l’amour de Dieu
 
-André - reçu par Al Fike le 1 Décembre 2018, Bayview, NSW, Australie.
+André - reçu par Al Fike le 1<sup>er</sup> Décembre 2018, Bayview, NSW, Australie.
 
 Je m’appelle André. Je vous exhorte à continuer de prier avec ferveur pour l’Amour du Père, non pas pour obtenir certains résultats matériels par la prière, ou pour que Dieu vous conduise vers des terres étrangères, ou même pour que Dieu vous apporte certains dons de perspicacité et de sagesse. Non, mes bien-aimés, ce n’est pas là le but de la prière. Le but de la prière est de recevoir l’afflux de l’Amour du Père afin que vos âmes puissent grandir en conséquence dans cet Amour. Et que tout ce pour quoi vous priez, en effet ces désirs dans vos cœurs, viendront et couleront de cette prière singulière pour recevoir le don de l’Amour du Père dans vos âmes.
 

@@ -1,7 +1,7 @@
 ---
-title: "Les instruments de la vérité"
+title: "Les instruments de la Vérité"
 menu_title: ""
-description: "Les instruments de la vérité"
+description: "Les instruments de la Vérité"
 date: 2022-06-01 06:00:01+00:348
 draft: False
 hidden: True

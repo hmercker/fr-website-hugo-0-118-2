@@ -17,7 +17,7 @@ Je suis en train de suivre vos lectures et je suis heureux de voir comment chaqu
 
 Je vis maintenant dans la septième sphère et, en considérant d’où je suis parti, c’est au-delà de l’imagination de l’esprit terrestre. J’ai traversé les nombreuses sphères et je peux vous dire que dans la septième, il y a tellement d’Amour de Dieu qui n’est que le résultat d’un désir plus profond pour que rien de moins que l’Amour Divin ne fasse partie de l’âme de quelqu’un, de son environnement et de sa constitution. Donc, comme je l’ai dit ainsi que d’autres, la septième sphère est la porte sur le précipice de la renaissance complète de l’âme.
 
-En attendant, alors que vous lisez ce que j’ai communiqué à travers Anthony ><sup id="a1">[1](#f1)</sup>, je souhaite que vous vous souveniez que toujours plus de lumière, toujours plus d’amour, toujours plus de foi, et toujours plus de lâcher prise apporteront la transformation de vos âmes.
+En attendant, alors que vous lisez ce que j’ai communiqué à travers Anthony <sup id="a1">[1](#f1)</sup>, je souhaite que vous vous souveniez que toujours plus de lumière, toujours plus d’amour, toujours plus de foi, et toujours plus de lâcher prise apporteront la transformation de vos âmes.
 
 Je vous remercie de tout mon cœur, comme beaucoup ici, pour vos études, pour votre curiosité, pour votre bienveillance, et surtout pour vos prières pour l’Amour de Dieu, car il n’y a rien de plus grand.
 

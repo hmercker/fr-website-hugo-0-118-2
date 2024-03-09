@@ -11,8 +11,8 @@ weight:
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-Thomas Jefferson | [Une bataille entre les forces de la lumière et les forces de l’obscurité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-1-1-fab-thomas-jefferson/) | 1 Janvier 2008
-Uharu | [Un concept amérindien de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-3-1-fab-uharu/) | 3 Janvier 2008
+Thomas Jefferson | [Une bataille entre les forces de la lumière et les forces de l’obscurité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-1-1-fab-thomas-jefferson/) | 1<sup>er</sup> Janvier 2008
+Uharu | [Un concept Amérindien de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-3-1-fab-uharu/) | 3 Janvier 2008
 Jack London | [La Loi Morale](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-9-1-fab-jack-london/) | 9 Janvier 2008
 Aman | [Les facultés intellectuelles des premiers parents](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-10-1-fab-aman/) | 10 Janvier 2008
 Jésus | [La loi morale comme loi de compensation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-10-2-fab-jesus/) | 10 Janvier 2008
@@ -26,6 +26,7 @@ Jésus | [Le regard positif de Jésus sur l'humanité](/fr-contemporary-messages
 Tristiana | [J’ai fait un long voyage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-17-1-na-tristiana/) | 17 Janvier 2008
 Mère Teresa | [Servir dans l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-19-1-na-mother-teresa/) | 19 Janvier 2008
 Martin Luther King jr | [Le Dr King réaffirme la non-violence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-20-1-fab-martin-luther-king-jr/) | 20 Janvier 2008
+Jean Sébastien Bach | [Artisans Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-26-1-fab-johann-sebastian-bach/) | 26 Janvier 2008	
 Jésus | [Quelle est la vérité sur l'évolution ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-5-1-fab-jesus/) | 5 Février 2008
 Jésus | [Quelle est la vérité sur l'évolution - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-5-2-fab-jesus/) | 5 Février 2008
 Jésus | [Quelle est la vérité sur l'évolution - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-6-1-fab-jesus/) | 6 Février 2008
@@ -37,9 +38,9 @@ Charles I | [Un roi anglais fait le bilan de son règne](/fr-contemporary-messag
 Jacques Ier | [Un roi anglais est humble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-21-3-fab-james-i/) | 21 Février 2008
 Jésus | [L’holocauste Nazi et l’Empire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-21-4-fab-jesus/) | 21 Février 2008
 Jésus | [Les sociétés et les transactions financières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-26-1-fab-jesus/) | 26 Février 2008
-Cornelius Vanderbilt | [Un industriel américain est perdu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-1-1-fab-cornelius-vanderbilt/) | 1 Mars 2008
-Jay Gould | [Un industriel américain est malheureux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-1-2-fab-jay-gould/) | 1 Mars 2008
-Andrew Carnegie | [Souffrances d’un industriel américain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-3-1-fab-andrew-carnegie/) | 3 Mars 2008
+Cornelius Vanderbilt | [Un industriel Américain est perdu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-1-1-fab-cornelius-vanderbilt/) | 1<sup>er</sup> Mars 2008
+Jay Gould | [Un industriel Américain est malheureux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-1-2-fab-jay-gould/) | 1<sup>er</sup> Mars 2008
+Andrew Carnegie | [Souffrances d’un industriel Américain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-3-1-fab-andrew-carnegie/) | 3 Mars 2008
 Phil Ochs | [Un Folksinger est heureux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-5-1-fab-phil-ochs/) | 5 Mars 2008
 Pablo Neruda | [Un poète inspiré et heureux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-5-2-fab-pablo-neruda/) | 5 Mars 2008
 Albert Einstein | [Lumière et obscurité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-5-3-fab-albert-einstein/) | 5 Mars 2008
@@ -110,10 +111,10 @@ Jésus | [La Crucifixion de Jésus](/fr-contemporary-messages/fr-contemporary-me
 Robert Kennedy | [Guidance divine d'un Kennedy](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-29-1-fab-robert-kennedy/) | 29 Août 2008
 Robert Kennedy | [Guidance divine d'un Kennedy - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-30-1-fab-robert-kennedy/) | 30 Août 2008
 Franklin D Roosevelt | [Les expériences d'un Président Américain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-31-1-fab-franklin-d-roosevelt/) | 31 Août 2008
-Benjamin Franklin | [La confédération Iroquoise](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-1-1-fab-benjamin-franklin/) | 1 Septembre 2008
+Benjamin Franklin | [La confédération Iroquoise](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-1-1-fab-benjamin-franklin/) | 1<sup>er</sup> Septembre 2008
 Jésus | [Une perspective globale](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-4-1-fab-jesus/) | 4 Septembre 2008
 Uharu | [Des dispositions pour les Amérindiens dans le monde de l'esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-4-2-fab-uharu/) | 4 Septembre 2008
-Erich Paul Remark | [Un auteur Allemand trouve la confirmation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-5-1-fab-erich-paul-remark/) | 5 Septembre 2008
+Erich Paul Remarque | [Un auteur Allemand trouve la confirmation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-5-1-fab-erich-paul-remark/) | 5 Septembre 2008
 Jésus | [Bon changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-7-1-fab-jesus/) | 7 Septembre 2008
 Jésus | [Pré-existence des Cieux Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-8-1-fab-jesus/) | 8 Septembre 2008
 Rose Kennedy | [La Famille Kennedy](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-9-1-fab-rose-kennedy/) | 9 Septembre 2008
@@ -128,7 +129,7 @@ Michée | [Les encouragements d'un prophète biblique](/fr-contemporary-messages
 Jésus | [La vérité sur Job](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-26-1-fab-jesus/) | 26 Septembre 2008
 Judy Garland | [Une grande interprète partage son cœur - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-27-1-fab-judy-garland/) | 27 Septembre 2008
 Jésus | [La loi de la compensation et les enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-28-1-fab-jesus/) | 28 Septembre 2008
-Marcel Proust | [Proust décrit son expérience avec la Madeleine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-1-1-fab-marcel-proust/) | 1 Octobre 2008
+Marcel Proust | [Proust décrit son expérience avec la Madeleine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-1-1-fab-marcel-proust/) | 1<sup>er</sup> Octobre 2008
 Marcel Proust | [Proust et ses guides](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-7-1-fab-marcel-proust/) | 7 Octobre 2008
 Sarah | [La naissance d'Isaac](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-12-1-fab-sarah/) | 12 Octobre 2008
 Judy Garland | [Les tentatives de suicide de Judy Garland](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-12-2-fab-judy-garland/) | 12 Octobre 2008

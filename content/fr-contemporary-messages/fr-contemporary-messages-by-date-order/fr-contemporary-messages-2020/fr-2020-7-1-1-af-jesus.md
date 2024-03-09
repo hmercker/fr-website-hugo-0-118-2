@@ -9,7 +9,7 @@ weight:
 ---
 ### Un message intéressant de Jésus sur les changements à venir
 
-Jésus - reçu par Al Fike le 1 Juillet 2020, Gibsons, Colombie-Britannique, Canada.
+Jésus - reçu par Al Fike le 1<sup>er</sup> Juillet 2020, Gibsons, Colombie-Britannique, Canada.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-previsions2ndhal2020.jpg)
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous vous éveillez
 
-André - reçu par Al Fike le 1 Janvier 2018, West Vancouver, Colombie-Britannique, Canada.
+André - reçu par Al Fike le 1<sup>er</sup> Janvier 2018, West Vancouver, Colombie-Britannique, Canada.
 
 Vous êtes tous en train de vous éveiller, mes bien-aimés. Chacun d’entre vous, d’une certaine manière, était endormi. Les parties de vos âmes qui sont impatientes de s’éveiller vont maintenant prendre vie. Ces perceptions et ces compréhensions auxquelles vous avez aspiré, mes bien-aimés, viennent à vous maintenant, dans des ouvertures subtiles mais puissantes, dans des prises de conscience profondes et infusées d’Amour. Vous vous réveillez, mes bien-aimés. Dieu vous appelle de votre sommeil à un lieu de conscience aiguë et d’Amour puissant.
 

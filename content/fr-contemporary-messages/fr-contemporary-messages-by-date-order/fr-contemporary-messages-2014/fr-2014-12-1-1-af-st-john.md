@@ -9,7 +9,7 @@ weight:
 ---
 ### Le temps viendra où vous vous aimerez complètement et où vous aimerez ainsi toute l’humanité
 
-St Jean - reçu par Al Fike le 1 Décembre 2014, Gibsons, Colombie-Britannique, Canada
+St Jean - reçu par Al Fike le 1<sup>er</sup> Décembre 2014, Gibsons, Colombie-Britannique, Canada
 
 Dieu vous bénisse, âmes bien-aimées, qui vous réunissez dans la prière, qui vous réunissez parce qu’elles désirent la fraternité et qui viennent parce que leurs âmes aspirent à l’Amour de Dieu. Et dans ce désir ardent, vous vous exprimez tous à Dieu et créez une lumière parmi vous qui est puissante et belle, car Dieu répond à vos prières, aux désirs de votre âme et vous amène pleinement dans Sa présence.
 

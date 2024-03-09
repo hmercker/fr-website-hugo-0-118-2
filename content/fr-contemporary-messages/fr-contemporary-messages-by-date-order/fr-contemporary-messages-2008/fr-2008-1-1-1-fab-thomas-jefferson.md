@@ -11,7 +11,7 @@ weight:
 
 ![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-thomas_jefferson.jpg)
 
-Thomas Jefferson<sup id="a1">[1](#f1)</sup> - reçu par FAB le 1 Janvier 2008, Santa Cruz, Californie, USA.
+Thomas Jefferson<sup id="a1">[1](#f1)</sup> - reçu par FAB le 1<sup>er</sup> Janvier 2008, Santa Cruz, Californie, USA.
 
 C’est moi, Thomas Jefferson. Je fus le 3ème président des États Unis. Je vois que avez lu le livre « A propos du Conservatisme », vous avez été frappé et vous vous êtes durement rappelé, désagréablement, que votre pays (les États Unis d’Amérique), comparé à d’autres démocraties industrielles, semble être au bas de l’échelle. Les autres pays jouissent, actuellement, de nombreux avantages sociaux qui font défaut actuellement au peuple américain. Alors, comment tous ces  messages que vous avez reçus au cours des dernières années peuvent-ils être vrais ? Comment votre pays peut-il être le phare de la liberté et des possibilités qui vous été prédits ?
 

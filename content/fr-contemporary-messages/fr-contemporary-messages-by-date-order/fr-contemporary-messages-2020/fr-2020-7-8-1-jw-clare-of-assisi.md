@@ -20,7 +20,7 @@ Mes trois gentilles souris, vous êtes bénies avec cette foi et cette connaissa
 Vous nous attirez, vous nous amenez dans votre cercle, et vous nous permettez de partager, de vous guider et de vous aimer avec l'amour de nos âmes. Merci de m'avoir permis de venir et de parler. Avec mon amour et mes bénédictions pour tous et dans la Grâce de Dieu, je suis votre sœur et amie, je suis Claire d'Assise. Que Dieu vous bénisse.
 <small>
 
-1. <large id="f1"> Ce commentaire sur une "arche" par Claire est probablement une simple erreur médiumnique, plutôt qu'une erreur de Claire, et Noé a confirmé dans le message lié qu'il n'a pas construit une arche telle que définie dans la bible mais un "vaisseau" beaucoup plus petit.[↩](#a1)
+1. <large id="f1"> Ce commentaire sur une "arche" par Claire est probablement une simple erreur médiumnique, plutôt qu'une erreur de Claire. Noé a confirmé dans le message lié qu'il n'a pas construit une arche telle que définie dans la bible mais un "vaisseau" beaucoup plus petit.[↩](#a1)
 
 ### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
 

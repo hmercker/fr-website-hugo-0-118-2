@@ -9,7 +9,7 @@ weight:
 ---
 ### Messages reçus par Amada Réza
 
-Elle fut, avec sa mère Kathryn Stokes, une des premières personnes à avoir rejoint la communauté de l’Amour Divin alors que celle-ci n’était que balbutiante. Pour plus d’informations, vous pouvez consulter [la page](/fr-james-padgett-messages/1-12-fr-continuity-of-james-padgetts-messages/).
+Elle fut, avec sa mère Kathryn Stokes, une des premières personnes à avoir rejoint la communauté de l’Amour Divin alors que celle-ci n’était que balbutiante. Pour plus d’informations, vous pouvez consulter [cette page](/fr-james-padgett-messages/1-12-fr-continuity-of-james-padgetts-messages/).
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
@@ -27,7 +27,7 @@ Marie | [Marie Le livre d’Urantia et le texte des Mormons](/fr-contemporary-me
 Marie | [Partager](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-2-25-1-ar-mary/) | 25 Février 1999
 Joseph | [Mental et spiritualité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-3-4-1-ar-joseph/) | 4 Mars 1999
 Kahlil Gibran | [Poésie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-3-19-1-ar-kahlil-gibran/) | 19 Mars 1999
-Jésus | [Message annuel en transe.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-6-1-ar-jesus/) |  Juin 1999
+Jésus | [Message annuel en transe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-6-1-ar-jesus/) |  Juin 1999
 Marie | [Sur l’autodéfense](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-7-7-1-ar-mary/) | 7 Juillet 1999
 Marie | [Sur le don de la communication avec les esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-8-5-1-ar-mary/) | 5 Août 1999
 Marie | [Pourquoi Dieu permet que de mauvaises choses se produisent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-8-6-1-ar-mary/) | 6 Août 1999
@@ -45,9 +45,9 @@ Marie | [Sentiments d’indignité](/fr-contemporary-messages/fr-contemporary-me
 Marie | [Comment honorer son père et sa mère s’ils adoptent un comportement violent ou abusif](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-12-1-1-ar-mary/) | 1 Décembre 1999
 Marie & Jean | [Message d’encouragement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-12-17-1-ar-mary-john/) | 17 Décembre 1999
 Jésus | [Dr Samuels et l’importance de la capacité du lecteur à utiliser ses propres perceptions de ces vérités par son âme.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-12-25-1-ar-jesus/) | 25 Décembre 1999
-Jésus | [Sur le suicide.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-1-16-1-ar-jesus/) | 16 Janvier 2000
+Jésus | [Sur le suicide](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-1-16-1-ar-jesus/) | 16 Janvier 2000
 Marie | [Embrasser l’unicité des qualités de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-1-28-1-ar-mary/) | 28 Janvier 2000
-Joseph | [Joseph : Le père de Jésus et Joseph d’Arimathie sont une seule et même personne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-2-9-1-ar-joseph/) | 9 Février 2000
+Joseph | [Le père de Jésus et Joseph d’Arimathie sont une seule et même personne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-2-9-1-ar-joseph/) | 9 Février 2000
 Marie | [Vous avez tous la capacité d’être un canal pour les énergies de guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-2-27-1-ar-mary/) | 27 Février 2000
 Marie | [Message d’espoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-3-5-1-ar-mary/) | 5 Mars 2000
 Marie & David | [Faire face à la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-3-19-2-ar-mary-david/) | 19 Mars 2000
@@ -59,7 +59,7 @@ Jésus | [Message annuel de transe](/fr-contemporary-messages/fr-contemporary-me
 Jésus | [Encouragement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-7-30-1-ar-jesus/) | 30 Juillet 2000
 Marie | [Sur les canalisations à travers Patricia Talbott Borrero](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-8-8-2-ar-mary/) | 8 Août 2000
 Haut Esprit Céleste | [Le sens de la Foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-8-28-1-ar-a-high-celestial-spirit/) | 28 Août 2000
-Jésus | [Alfredo et swift bear](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-8-28-2-ar-jesus/) | 28 Août 2000
+Jésus | [Alfredo et Ourson Véloce](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-8-28-2-ar-jesus/) | 28 Août 2000
 Marie & Jean | [Encouragement donné à W___](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-9-2-1-ar-mary-john/) | 2 Septembre 2000
 Marie | [Prière et réponse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-9-2-2-ar-mary/) | 2 Septembre 2000
 Marie & Jean | [Le parler en langues et les animaux dans le monde spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-9-24-1-ar-mary-john/) | 24 Septembre 2000
@@ -73,13 +73,13 @@ Marie | [La loi de compensation](/fr-contemporary-messages/fr-contemporary-messa
 Jésus | [La guérison.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-1-18-1-ar-jesus/) | 18 Janvier 2001
 Jésus | [La guérison (Suite).](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-1-23-1-ar-jesus/) | 23 Janvier 2001
 St Jean | [Laisse-toi aller et sois juste l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-2-4-1-ar-st-john/) | 4 Février 2001
-White Eagle | [L’autre vision.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-2-11-1-ar-white-eagle/) | 11 Février 2001
+Aigle Blanc | [L’autre vision.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-2-11-1-ar-white-eagle/) | 11 Février 2001
 St Jean | [Comment être dans le monde, mais pas de lui](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-3-11-1-ar-st-john/) | 11 Mars 2001
 Marie | [L’Âme et ses Émotions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-3-24-1-ar-mary/) | 24 Mars 2001
 Marie | [Vérité ou Amour, lequel est le plus grand ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-4-26-1-ar-mary/) | 26 Avril 2001
 St Jean | [La vue et le son de l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-5-13-1-ar-st-john/) | 13 Mai 2001
 Jésus | [Bijoux d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-5-30-1-ar-jesus/) | 30 Mai 2001
-Jésus | [Trance Message de Jésus.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-6-24-1-ar-jesus/) | 24 Juin 2001
+Jésus | [Trance Message de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-6-24-1-ar-jesus/) | 24 Juin 2001
 St Jean | [Amour parfait = résultats parfaits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-7-15-1-ar-st-john/) | 15 Juillet 2001
 Marie | [Grandir en amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-7-22-1-ar-mary/) | 22 Juillet 2001
 St Jean | [L’éducation des enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-7-29-1-ar-st-john/) | 29 Juillet 2001
@@ -102,7 +102,7 @@ Marie | [La radio de l’amour.](/fr-contemporary-messages/fr-contemporary-messa
 Marie | [Assez est ennuyeux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-2-4-1-ar-mary/) | 4 Février 2004
 Marie | [L'humble corps](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-5-15-1-ar-mary/) | 15 Mai 2004
 Marie | [Où se trouve le monde des esprits ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-10-31-1-ar-mary/) | 31 Octobre 2004
-St Jean et Jésus | [L’égalité de l’amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-12-17-1-ar-st-john-jesus/) | 17 Décembre 2004
+St Jean et Jésus | [L’égalité de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-12-17-1-ar-st-john-jesus/) | 17 Décembre 2004
 St Jean et Marie | [La vue de l’âme (suite)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-12-27-1-ar-st-john-mary/) | 27 Décembre 2004
 Jésus | [La compassion et le don du choix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-3-26-1-ar-jesus/) | 26 Mars 2005
 Jésus | [L'épanouissement comme attribut de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-5-14-1-ar-jesus/) | 14 Mai 2005
@@ -115,3 +115,5 @@ Marie-Madeleine & Jésus | [Observer l’âme humaine.](/fr-contemporary-message
 Marie | [L'étoffe de l'éternité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-6-5-1-ar-mary/) | 5 Juin 2006
 Jésus | [Le moment éternel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-6-10-1-ar-jesus/) | 10 Juin 2006
 Marie | [Nous sommes tous connectés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-27-1-ar-mary/) | 27 Mai 2018
+
+## [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

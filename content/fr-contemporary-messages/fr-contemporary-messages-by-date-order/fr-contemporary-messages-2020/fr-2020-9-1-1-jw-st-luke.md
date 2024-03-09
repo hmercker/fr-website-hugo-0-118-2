@@ -9,7 +9,7 @@ weight:
 ---
 ### Les pensées que vous entretenez
 
-St Luc - reçu par Jimbeau Walsh le 1 Septembre 2020, Punalu’u, Oahu, Hawaii, USA.
+St Luc - reçu par Jimbeau Walsh le 1<sup>er</sup> Septembre 2020, Punalu’u, Oahu, Hawaii, USA.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-religion-3452582_1280.jpg)
 

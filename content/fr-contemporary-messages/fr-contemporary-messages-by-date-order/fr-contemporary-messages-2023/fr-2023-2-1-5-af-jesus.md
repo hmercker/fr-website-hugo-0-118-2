@@ -9,7 +9,7 @@ weight:
 ---
 ### Je serai avec chacun de vous dans votre voyage
 
-Jésus - reçu par Al Fike le 1 Février 2023, Sechelt, Colombie-Britannique, Canada.
+Jésus - reçu par Al Fike le 1<sup>er</sup> Février 2023, Sechelt, Colombie-Britannique, Canada.
 
 Nous ferons donc ensemble le voyage amoureux au-delà des limites de ce monde matériel, à travers le voyage vers l’esprit et l’entrée dans le Royaume Céleste. Alors vous vous soutiendrez les uns les autres pendant ce voyage. Priez les uns pour les autres. Agissez pour soutenir vos frères et sœurs, car c’est dans les liens de l’amour que chacun de vous peut soutenir et constater une grande force. Utilisez vos dons à leur profit.
 

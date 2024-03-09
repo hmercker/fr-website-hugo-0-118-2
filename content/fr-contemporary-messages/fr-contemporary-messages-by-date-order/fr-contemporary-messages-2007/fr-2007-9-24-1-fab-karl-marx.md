@@ -31,7 +31,11 @@ J’ai considéré leurs idées, mais cela a été extrêmement difficile pour m
 
 Comme vous l’avez compris, je ne crois toujours pas en un Dieu. J’ai éprouvé beaucoup de perplexité et d’introspection.
 
-Je n’ai jamais connu sur terre le bonheur qui vous accompagne aujourd’hui. Et j’observe que ce bonheur vient de l’intérieur. Il doit être lié à cette lueur. Vous dites que c’est la cause de votre bonheur. Tout cela est un mystère pour moi.
+Je n’ai jamais connu sur terre le bonheur qui vous accompagne aujourd’hui. Et j’observe que ce bonheur vient de l’intérieur. Il doit être lié à cette lueur. Vous dites que c’est la cause de votre bonheur. Tout cela est un mystère pour moi.sup id="a1">[1](#f1)</sup>
+<small>
+
+1. <large id="f1"> Karl Marx s'est de nouveau brièvement exprimé [le 27 Mai 2009](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-27-1-fab-karl-marx/)[↩](#f1)
+
 
 
 ### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)

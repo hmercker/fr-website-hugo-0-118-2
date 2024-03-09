@@ -9,7 +9,7 @@ weight:
 ---
 ### La confiance dans la sagesse de l'âme
 
-Solomon - reçu par Al Fike le 6 Août 2018, Gibsons, Colombie-Britannique, Canada.
+Salomon - reçu par Al Fike le 6 Août 2018, Gibsons, Colombie-Britannique, Canada.
 
 Je suis Salomon et je suis venu te parler mon fils (R____), car tu as besoin de mes conseils et en effet, je te guide dans ta vie.
 

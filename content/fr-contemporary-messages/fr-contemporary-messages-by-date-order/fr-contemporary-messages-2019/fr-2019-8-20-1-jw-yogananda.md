@@ -1,7 +1,7 @@
 ---
-title: "Il n'y a pas de yoga plus élevé que le yoga de l'amour de Dieu"
+title: "Il n'y a pas de yoga plus élevé que le yoga de l'Amour de Dieu"
 menu_title: ""
-description: "Il n'y a pas de yoga plus élevé que le yoga de l'amour de Dieu"
+description: "Il n'y a pas de yoga plus élevé que le yoga de l'Amour de Dieu"
 date: 2022-06-01 06:00:01+00:814
 draft: False
 hidden: True

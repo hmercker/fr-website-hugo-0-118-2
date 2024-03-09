@@ -11,7 +11,7 @@ weight:
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-John Denver | [Expériences de John Denver](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-1-1-fab-john-denver/) | 1 Janvier 2003
+John Denver | [Expériences de John Denver](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-1-1-fab-john-denver/) | 1<sup>er</sup> Janvier 2003
 Wolfgang Amadeus Mozart | [Expériences de Mozart dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-2-1-fab-wolfgang-amadeus-mozart/) | 2 Janvier 2003
 Ludwig van Beethoven | [Beethoven a toujours fait confiance à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-3-1-fab-ludwig-van-beethoven/) | 3 Janvier 2003
 Franz Joseph Haydn | [Le compositeur Haydn connaît, comme esprit, la joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-4-1-fab-franz-joseph-haydn/) | 4 Janvier 2003
@@ -58,7 +58,7 @@ Judas | [La parabole des deux chambres](/fr-contemporary-messages/fr-contemporar
 Richard Rodgers | [Rodgers et Hammerstein ont honoré Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-5-5-1-fab-richard-rodgers/) | 5 Mai 2003
 Napoléon | [Napoléon et la littérature française](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-5-7-1-fab-napoleon/) | 7 Mai 2003
 Marie & Jean | [Esprit Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-5-16-1-ar-mary-john/) | 16 Mai 2003
-St Jean | [Propager l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-5-20-1-wv-st-john/) | 20 Mai 2003
+St Jean | [Propager l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-5-20-1-wv-st-john/) | 20 Mai 2003
 Jésus | [Médiumnité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-5-22-1-ks-jesus/) | 22 Mai 2003
 Judas | [Contenants de pensée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-5-24-1-hr-judas/) | 24 Mai 2003
 Anonyme | [Nous sommes réels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-5-30-1-pjr-anonyme/) | 30 Mai 2003
@@ -70,7 +70,7 @@ Judas | [La suite des pensées](/fr-contemporary-messages/fr-contemporary-messag
 Salomon | [Bouclez votre ceinture](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-6-30-2-cc-solomon/) | 30 Juin 2003
 Jésus | [Surfez sur la vague du changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-7-10-1-cc-jesus/) | 10 Juillet 2003
 Marie | [Voir le monde avec les yeux de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-7-19-1-cc-mary/) | 19 Juillet 2003
-Marie & Jean | [L’amour est notre cause](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-8-1-1-cc-mary-john/) | 1 Août 2003
+Marie & Jean | [L’amour est notre cause](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-8-1-1-cc-mary-john/) | 1<sup>er</sup> Août 2003
 St Pierre | [Les changements sont des bénédictions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-8-8-1-cc-st-peter/) | 8 Août 2003
 St Jean | [Sentiments.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-8-18-1-cc-st-john/) | 18 Août 2003
 Jésus | [Au bord d’une rivière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-8-21-1-pjr-jesus/) | 21 Août 2003
@@ -84,15 +84,15 @@ Divers | [L’amour agit dans toutes les dimensions](/fr-contemporary-messages/f
 St Jean | [Prière et union avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-9-19-1-cc-st-john/) | 19 Septembre 2003
 PSR | [C’est vraiment un seul endroit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-9-26-1-pjr-psr/) | 26 Septembre 2003
 Anonyme | [Pour renoncer à tout](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-9-28-1-wv-anonyme/) | 28 Septembre 2003
-Jésus | [La vitesse de l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-9-29-1-ks-jesus/) | 29 Septembre 2003
+Jésus | [La vitesse de l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-9-29-1-ks-jesus/) | 29 Septembre 2003
 PSR | [Tout n’est jamais perdu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-10-2-1-pjr-psr/) | 2 Octobre 2003
-Jacques | [Mantra de l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-10-4-1-ks-james/) | 4 Octobre 2003
-St Jean | [L’amour, ça s’arrête là](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-10-5-1-ks-st-john/) | 5 Octobre 2003
+Jacques | [Mantra de l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-10-4-1-ks-james/) | 4 Octobre 2003
+St Jean | [L’Amour, ça s’arrête là](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-10-5-1-ks-st-john/) | 5 Octobre 2003
 Jésus | [Pas un grand message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-10-6-1-pjr-jesus/) | 6 Octobre 2003
 Marie | [Aime-toi totalement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-10-18-1-cc-mary/) | 18 Octobre 2003
 Jacques | [Devenez des lumières du pouvoir spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-10-23-1-ks-james/) | 23 Octobre 2003
-Jésus | [Qu’est-ce que l’amour ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-10-27-1-wv-jesus/) | 27 Octobre 2003
-Jacques | [Donnez votre amour, pas vos conseils](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-11-2-1-ks-james/) | 2 Novembre 2003
+Jésus | [Qu’est-ce que l’Amour ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-10-27-1-wv-jesus/) | 27 Octobre 2003
+Jacques | [Donnez votre Amour, pas vos conseils](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-11-2-1-ks-james/) | 2 Novembre 2003
 St Jean | [L’âme et le mental](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-11-7-1-cc-st-john/) | 7 Novembre 2003
 André | [Appel à une aide supérieure](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-11-9-1-ks-andrew/) | 9 Novembre 2003
 Marie | [La radio de l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-11-12-1-ar-mary/) | 12 Novembre 2003

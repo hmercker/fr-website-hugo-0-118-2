@@ -1,13 +1,13 @@
 ---
-title: "Dieu a besoin de nous pour apporter la vérité"
+title: "Dieu a besoin de nous pour apporter la Vérité"
 menu_title: ""
-description: "Dieu a besoin de nous pour apporter la vérité"
+description: "Dieu a besoin de nous pour apporter la Vérité"
 date: 2022-07-10 06:25:48+00:80
 draft: False
 hidden: True
 weight:
 ---
-### Dieu a besoin de nous pour apporter la vérité
+### Dieu a besoin de nous pour apporter la Vérité
 
 St Matthieu - reçu par Al Fike le 29 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
 

@@ -1,13 +1,13 @@
 ---
-title: "Pour l'amour de Dieu"
+title: "Pour l'Amour de Dieu"
 menu_title: ""
-description: "Pour l'amour de Dieu"
+description: "Pour l'Amour de Dieu"
 date: 2022-06-01 06:00:01+00:1183
 draft: False
 hidden: True
 weight:
 ---
-### Pour l'amour de Dieu
+### Pour l'Amour de Dieu
 
 Care Derby Walsh - reçu par Jimbeau Walsh le 12 Juillet 2020, Punalu’u, Oahu, Hawaii, USA.
 

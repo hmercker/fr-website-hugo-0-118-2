@@ -71,7 +71,7 @@ Ton frère Céleste, Judas.
 
 ![title](/3-fr-judas-of-kerioth-messages/fr-simon_small.jpg)
 
-    # **Simon**
+     **Simon**
 
 © Geoff Cutler 2013
 

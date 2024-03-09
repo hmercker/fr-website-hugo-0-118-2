@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous sommes liés pour l'éternité dans cet amour
 
-Jésus - reçu par Al Fike le 1 Décembre 2017, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 1<sup>er</sup> Décembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Dieu vous bénisse mes bien-aimés, je suis Jésus et je viens vous apporter mon message, vous apporter mon amour et vous faire part de l'Amour de Dieu. Cette puissante bénédiction se déverse sur vous, mes âmes bien-aimées. Les eaux vives de l'Amour de Dieu vous lavent, vous rafraîchissent, vous transforment alors que Son grand don se déverse parmi vous, débordant et s'écoulant dans ce monde, cette Lumière, cette belle Lumière atteignant beaucoup de ceux qui sont en effet dans vos vies ou connectés à vous d'une manière ou d'une autre.
 

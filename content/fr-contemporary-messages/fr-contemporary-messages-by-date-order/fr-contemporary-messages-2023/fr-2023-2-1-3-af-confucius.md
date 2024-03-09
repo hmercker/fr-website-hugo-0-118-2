@@ -9,7 +9,7 @@ weight:
 ---
 ### Dieu vous guidera dans votre service
 
-Confucius - reçu par Al Fike le 1 Février 2023, Sechelt, Colombie-Britannique, Canada.
+Confucius - reçu par Al Fike le 1<sup>er</sup> Février 2023, Sechelt, Colombie-Britannique, Canada.
 
 Comme la sagesse grandit en vous, bien-aimés, je suis Confucius.<sup id="a1">[1](#f1)</sup> Vous cherchez à servir avec tant de sérieux et de désir. Vous voulez que le monde soit guéri et que tous ceux que vous aimez connaissent l’Amour de Dieu comme vous. En effet, les aspirations de votre âme sont telles que vous souhaitez manifester la vérité dans votre vie et dans le monde. Dieu désire que chacun de vous soit Ses enfants, purs et simples, et que vous dédiiez votre amour à Dieu. Ce faisant, Dieu vous aidera à trouve les moyens pour vous de vous consacrer aux autres. Chacun de vous a un rôle à jouer, un don à partager, de nombreux dons, mais ils doivent émerger à mesure que vous grandissez dans l’amour, car ces choses appartiennent à l’âme et non à l’esprit. Dans votre âme, beaucoup de choses s’infiltrent, changent et vous devez vous permettre le luxe d’écouter votre propre âme à la recherche de la vérité qui se trouve en elle.
 

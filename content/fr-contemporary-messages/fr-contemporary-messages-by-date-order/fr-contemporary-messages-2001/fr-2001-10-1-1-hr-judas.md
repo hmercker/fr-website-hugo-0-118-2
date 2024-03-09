@@ -9,7 +9,7 @@ weight:
 ---
 ### Parties innocentes au terrorisme ?
 
-Judas - reçu par H____ le 1 Octobre 2001, Cuenca, Équateur.
+Judas - reçu par H____ le 1<sup>er</sup> Octobre 2001, Cuenca, Équateur.
 
 Mon cher H____ , la nuit dernière tu t’es endormi et tu m’as laissé au milieu d’un message, mais ce n’est pas grave. Ne t’inquiète pas à ce sujet. Il y aura toujours une autre occasion.
 

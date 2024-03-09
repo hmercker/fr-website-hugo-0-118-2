@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez joyeux le dernier jour de la retraite
 
-Goldie - reçu par Jesper Sorensen le 1 Septembre 2018, Retraite de médiumnité, Gibsons, Colombie-Britannique, Canada.
+Goldie - reçu par Jesper Sorensen le 1<sup>er</sup> Septembre 2018, Retraite de médiumnité, Gibsons, Colombie-Britannique, Canada.
 
 Je viens aujourd’hui dans votre cercle pour vous remonter un peu le moral lors de votre dernier jour. Je suis très heureux d’être ici. C’est une telle joie de venir ici et de passer un peu de temps avec vous. Je suis vraiment d’humeur à jouer en ce moment et j’espère que vous pouvez tous le sentir.
 

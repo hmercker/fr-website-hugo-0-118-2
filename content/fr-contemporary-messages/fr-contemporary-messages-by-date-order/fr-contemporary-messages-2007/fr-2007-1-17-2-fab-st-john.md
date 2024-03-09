@@ -17,10 +17,20 @@ Vous avez dit que si je n’étais qu’un simple pêcheur, comment aurais-je pu
 
 Eh bien, comme vous le savez, les Juifs ont toujours accordé une grande importance à l’éducation, et c’est pourquoi j’ai appris à lire et à écrire dès mon enfance, et j’ai pu étudier, dans une certaine mesure, certains des écrits qui sont devenus la Bible, c’est-à-dire l’Ancien Testament.
 
-Je n’ai pas commencé mon Évangile par *« Au commencement était le Verbe »*, du moins dans le sens où cela a été interprété. J’ai dit que Dieu était au commencement. Le « Verbe », ou « Logos » en grec, a acquis une interprétation en harmonie avec la pensée grecque, mais n’étant pas grec, et donc ne connaissant pas la pensée grecque, je n’ai en aucun cas donné cette interprétation.
+Je n’ai pas commencé mon Évangile par *« Au commencement était le Verbe »*, du moins dans le sens où cela a été interprété. J’ai dit que Dieu était au commencement. Le « Verbe », ou « Logos »<sup id="a1">[1](#f1)</sup> en grec, a acquis une interprétation en harmonie avec la pensée grecque, mais n’étant pas grec, et donc ne connaissant pas la pensée grecque, je n’ai en aucun cas donné cette interprétation.
+
 Comme vous l’avez appris, mon Évangile original s’est perdu, et beaucoup de choses ont été ajoutées et enlevées.
 
 Comment pouvait-on interpréter mon Évangile par rapport à la culture grecque, alors que cette culture m’était étrangère ? Non, mon Évangile a été écrit dans le contexte de la culture Juive, la seule culture que je connaissais.
+<small>
+
+1. <large id="f1"> Saint Jean s'est de nouveau exprimé sur cette différenciation entre les culture Juive et Grecque dans les messages suivants:[↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+St Jean | [Le choc des Juifs et des Gentils au premier siècle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-3-1-fab-st-john/) | 3 Février 2009
+St Jean | [La relation de Jésus au Judaïsme, et l'idée de Logos](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-29-1-fab-john/) | 29 Juillet 2009
+St Jean | [Le grec au temps de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-1-28-1-fab-st-john/) | 28 Janvier 2011
 
 ### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
 

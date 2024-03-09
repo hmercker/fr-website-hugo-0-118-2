@@ -9,7 +9,7 @@ weight:
 ---
 ### Réunissez-vous à nouveau avec vos questions
 
-Confucius - reçu par Al Fike le 1 Février 2019, Gibsons, Colombie-Britannique, Canada.
+Confucius - reçu par Al Fike le 1<sup>er</sup> Février 2019, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, c’est moi Confucius<sup id="a1">[1](#f1)</sup>. Nous sommes très heureux que vous vous soyez rassemblés dans la prière, pour écouter nos paroles, pour contempler ces Vérités, pour comprendre plus profondément la progression de l’âme dans l’Amour du Père. Nous sommes heureux que vous ayez consacré du temps pour être ensemble de cette manière priante. Car, comme cet instrument l’a commenté, il y a une harmonie entre vous, une bénédiction qui vient avec votre présence commune. Je vous exhorte, chers frères et sœurs bien-aimés, à vous réunir de nouveau, prochainement, afin que vous puissiez vous asseoir comme vous l’avez fait, écouter et formuler vos questions, formuler votre désir pour plus de vérité donnée dans la prière et la contemplation tranquille commune.
 

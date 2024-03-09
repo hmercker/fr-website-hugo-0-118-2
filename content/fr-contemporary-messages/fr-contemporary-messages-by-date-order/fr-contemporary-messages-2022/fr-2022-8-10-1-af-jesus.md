@@ -1,13 +1,13 @@
 ---
-title: "Leçon 19 : Les lois d’amour et d’harmonie de Dieu"
+title: "Leçon 19 : Les lois d’Amour et d’harmonie de Dieu"
 menu_title: ""
-description: "Leçon 19 : Les lois d’amour et d’harmonie de Dieu"
+description: "Leçon 19 : Les lois d’Amour et d’harmonie de Dieu"
 date: 2022-06-01 06:00:01+00:156
 draft: False
 hidden: True
 weight:
 ---
-### Leçon 19 : Les lois d’amour et d’harmonie de Dieu
+### Leçon 19 : Les lois d’Amour et d’harmonie de Dieu
 
 Jésus - reçu par Al Fike le 10 Août 2022, Gibsons, Colombie-Britannique, Canada.
 

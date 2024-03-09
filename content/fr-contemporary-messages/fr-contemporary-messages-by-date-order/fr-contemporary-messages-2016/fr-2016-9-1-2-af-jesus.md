@@ -1,15 +1,15 @@
 ---
-title: "Soyez ouverts à l’amour de Dieu"
+title: "Soyez ouverts à l’Amour de Dieu"
 menu_title: ""
-description: "Soyez ouverts à l’amour de Dieu"
+description: "Soyez ouverts à l’Amour de Dieu"
 date: 2022-06-01 06:00:01+00:229
 draft: False
 hidden: True
 weight:
 ---
-### Soyez ouverts à l’amour de Dieu
+### Soyez ouverts à l’Amour de Dieu
 
-Jésus - reçu par Al Fike le 1 Septembre 2016, Francfort, Allemagne.
+Jésus - reçu par Al Fike le 1<sup>er</sup> Septembre 2016, Francfort, Allemagne.
 
 Je viens, je suis Jésus. Bien-aimés, je veux que vous appreniez à me connaître car je suis votre frère et je viens vous montrer le chemin vers l’illumination de vos âmes. Je viens éclairer le chemin afin que vous puissiez réaliser ces désirs profonds qui sont en vous, d’être dans la Lumière, de connaître l’amour profond, d’être en harmonie à l’intérieur. Mettez de côté vos doutes, frères et sœurs bien-aimés, et soyez ouverts à ce que Dieu vous donnera lorsque vous présenterez vos désirs au Créateur.
 

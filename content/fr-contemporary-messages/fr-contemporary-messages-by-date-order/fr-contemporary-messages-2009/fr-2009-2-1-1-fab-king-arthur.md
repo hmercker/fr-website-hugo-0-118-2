@@ -9,7 +9,7 @@ weight:
 ---
 ### Un roi légendaire - le roi Arthur - est réel
 
-Le roi Arthur <sup id="a1">[1](#f1)</sup> - reçu par FAB le 1 Février 2009, Santa Cruz, Californie, USA.
+Le roi Arthur <sup id="a1">[1](#f1)</sup> - reçu par FAB le 1<sup>er</sup> Février 2009, Santa Cruz, Californie, USA.
 
 Je suis le Roi Arthur.
 

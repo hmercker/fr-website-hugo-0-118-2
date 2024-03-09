@@ -1,13 +1,13 @@
 ---
-title: "Préparation à la voix directe"
+title: "Préparation à la Voix Directe"
 menu_title: ""
-description: "Préparation à la voix directe"
+description: "Préparation à la Voix Directe"
 date: 2022-06-01 06:00:01+00:52
 draft: False
 hidden: True
 weight:
 ---
-### Préparation à la voix directe
+### Préparation à la Voix Directe
 
 Augustin - reçu par Al Fike le 17 Juin 2017, Gibsons, Colombie-Britannique, Canada
 

@@ -1,7 +1,7 @@
 ---
-title: "Répandre l’amour par tous les moyens disponibles"
+title: "Répandre l’Amour par tous les moyens disponibles"
 menu_title: ""
-description: "Répandre l’amour par tous les moyens disponibles"
+description: "Répandre l’Amour par tous les moyens disponibles"
 date: 2022-06-01 06:00:01+00:1389
 draft: False
 hidden: True

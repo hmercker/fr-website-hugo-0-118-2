@@ -33,7 +33,7 @@ Je souhaite ajouter à l’éloquence de mon cher frère sur le chant de l’âm
 Hazrat Inayat Khan | [Gardez une chanson dans votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-9-1-jw-hazrat-inayat-khan/) | 9 Novembre 2021
 Hazrat Inayat Khan | [Gardez un chant dans votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-25-1-jw-inayat-khan/) | 25 Avril 2022
 Hazrat Inayat Khan | [Amants et bien-aimés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-9-2-jw-inayat-khan/) | 9 Septembre 2022
-Inayat Khan  | [Le chant et la danse Divins](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-20-1-jw-inayat-khan/) | 20 Février 2023
+Hazrat Inayat Khan  | [Le chant et la danse Divins](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-20-1-jw-inayat-khan/) | 20 Février 2023
 
 ### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 

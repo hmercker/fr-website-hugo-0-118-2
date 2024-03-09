@@ -40,7 +40,7 @@ Avec amour, David.
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-Le roi David | [Participez au moins par Vos prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-3-20-1-pjr-king-david/) | 20 Mars 2003
+Le Rroi David | [Participez au moins par Vos prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-3-20-1-pjr-king-david/) | 20 Mars 2003
 Le Roi David | [David, roi des Juifs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-18-2-af-king-david/) | 18 Novembre 2017
 
 ### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)

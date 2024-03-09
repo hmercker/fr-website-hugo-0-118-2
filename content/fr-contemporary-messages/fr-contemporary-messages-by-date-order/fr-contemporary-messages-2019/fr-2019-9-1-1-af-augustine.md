@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous devez travailler ensemble
 
-Augustin - reçu par Al Fike le 1 Septembre 2019, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 1<sup>er</sup> Septembre 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je suis votre enseignant, Augustin. Lors de votre rencontre, vous avez beaucoup parlé de l’activation des dons et des possibilités de vos âmes et de vos êtres d’être au service de Dieu, en apportant la Vérité de l’Amour de Dieu à l’humanité. Chacun d’entre vous a son point de vue. Chacun d’entre vous a ses dons et ses possibilités. Je tiens à vous dire, mes frères et sœurs, qu’au cours des nombreuses années où les âmes ont souhaité apporter des réformes et des changements dans le monde, très peu d’entre elles ont eu un impact qui a vraiment changé le monde. Ce sont les prophètes, les saints, les hommes saints, les enseignants et les guérisseurs. Beaucoup ont essayé et certains ont réussi.
 

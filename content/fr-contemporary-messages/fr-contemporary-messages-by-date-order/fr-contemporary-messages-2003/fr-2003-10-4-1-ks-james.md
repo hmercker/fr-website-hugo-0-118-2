@@ -1,13 +1,13 @@
 ---
-title: "Mantra de l’amour"
+title: "Mantra de l’Amour"
 menu_title: ""
-description: "Mantra de l’amour"
+description: "Mantra de l’Amour"
 date: 2022-06-01 06:00:01+00:70
 draft: False
 hidden: True
 weight:
 ---
-### Mantra de l’amour
+### Mantra de l’Amour
 
 Jacques - reçu par Kathryn Stokes le 4 Octobre 2003, Santa Cruz, Californie, USA.
 

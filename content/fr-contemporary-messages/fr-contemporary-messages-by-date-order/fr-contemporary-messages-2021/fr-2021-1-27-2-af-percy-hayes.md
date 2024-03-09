@@ -9,9 +9,9 @@ weight:
 ---
 ### Percy Hayes annonce son entrée dans le Royaume Céleste
 
-Percy Hayes <sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 27 Janvier 2021, Gibsons, Colombie-Britannique, Canada
+Percy Hayes  - reçu par Al Fike le 27 Janvier 2021, Gibsons, Colombie-Britannique, Canada
 
-Mes amis, c’est Percy. Cela fait un certain temps que je ne vous ai pas parlé à tous. Je veux donner mon amour à mes chères filles et leur dire que je suis proche, que je les aime tendrement et je vois qu’elles ont avec elles de beaux anges qui les protègent et les guident, elles et leurs familles. Elles sont en sécurité, elles sont bénies et elles continuent à progresser sur le Chemin Divin.
+Mes amis, c’est Percy.<sup id="a1">[1](#f1)</sup> Cela fait un certain temps que je ne vous ai pas parlé à tous. Je veux donner mon amour à mes chères filles et leur dire que je suis proche, que je les aime tendrement et je vois qu’elles ont avec elles de beaux anges qui les protègent et les guident, elles et leurs familles. Elles sont en sécurité, elles sont bénies et elles continuent à progresser sur le Chemin Divin.
 
 Je souhaite vous informer que je suis entré dans le Royaume Céleste. J’ai maintenant progressé au-delà des plans spirituels et je suis un membre de ce magnifique royaume auquel j’ai aspiré toute ma vie et tout ce temps dans le monde spirituel. Quelle joie j’ai dans mon cœur car j’ai maintenant libéré tous les vestiges du matériel, du mental et toutes ces choses qui sont liées à cette vie terrestre sont maintenant intégrées et transformées dans mon âme. Telle est ma joie, ma merveilleuse expérience en Dieu, que je suis maintenant libéré de tout ce qui n’est pas de l’amour et que je suis maintenant un véritable enfant de Dieu.
 

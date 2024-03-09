@@ -1,19 +1,19 @@
 ---
-title: "Dites la vérité"
+title: "Dites la Vérité"
 menu_title: ""
-description: "Dites la vérité"
+description: "Dites la Vérité"
 date: 2022-06-01 06:00:01+00:193
 draft: False
 hidden: True
 weight:
 ---
-### Dites la vérité
+### Dites la Vérité
 
 Nuage Blanc - reçu par Al Fike le 11 Novembre 2017, Gibsons, Colombie-Britannique, Canada
 
 Salutations mes amis, je suis Nuage blanc.<sup id="a1">[1](#f1)</sup>
 
-Le temps est venu pour vous tous de vous lever et de dire la vérité. Vous ne pouvez pas continuer à permettre à ceux qui apportent la destruction à notre mère la Terre, à des fins de pouvoir et de richesse, de continuer à profaner la Création de Dieu. Vous devez tous vous lever mes amis et dire la vérité et parler d'amour, parler de ce qui est nécessaire pour apporter la guérison à ce monde. Pour guérir les âmes perdues qui sont en grande souffrance, pour guérir tous les peuples de ce monde qui sont confus et perdus et qui souffrent tellement, parce qu'ils ne comprennent pas pourquoi ils ont le don de la vie, et comment Dieu leur a donné l'opportunité de vivre dans ce monde. Vous devez dire la vérité, mes amis. Parlez-la du fond de votre cœur. Parlez-la depuis cet endroit profond en vous qui sait. Ne vous retenez pas, mais soyez forts, tenez votre position et lorsque le Grand Esprit Blanc murmure à votre oreille ce qui doit être dit, écoutez mes amis, écoutez et agissez en fonction de la sagesse qui vous est transmise. Car vous devez la transmettre aux autres.
+Le temps est venu pour vous tous de vous lever et de dire la Vérité. Vous ne pouvez pas continuer à permettre à ceux qui apportent la destruction à notre mère la Terre, à des fins de pouvoir et de richesse, de continuer à profaner la Création de Dieu. Vous devez tous vous lever mes amis et dire la vérité et parler d'amour, parler de ce qui est nécessaire pour apporter la guérison à ce monde. Pour guérir les âmes perdues qui sont en grande souffrance, pour guérir tous les peuples de ce monde qui sont confus et perdus et qui souffrent tellement, parce qu'ils ne comprennent pas pourquoi ils ont le don de la vie, et comment Dieu leur a donné l'opportunité de vivre dans ce monde. Vous devez dire la vérité, mes amis. Parlez-la du fond de votre cœur. Parlez-la depuis cet endroit profond en vous qui sait. Ne vous retenez pas, mais soyez forts, tenez votre position et lorsque le Grand Esprit Blanc murmure à votre oreille ce qui doit être dit, écoutez mes amis, écoutez et agissez en fonction de la sagesse qui vous est transmise. Car vous devez la transmettre aux autres.
 
 Que l'amour du Grand Esprit Blanc infuse chacun d'entre vous. Cette lumière qui grandit en vous, dispersant tout ce qui est sombre, apportant tout ce qui est en harmonie, beau et pur. Chacun de vous a un but dans sa vie, quelque chose que Dieu vous a demandé de faire, quelque chose qui est clair dans votre âme. Apprenez à connaître ce que c'est et transmettez les souhaits de Dieu.
 

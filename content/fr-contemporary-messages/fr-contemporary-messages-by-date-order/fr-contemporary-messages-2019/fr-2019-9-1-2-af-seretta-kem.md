@@ -9,7 +9,7 @@ weight:
 ---
 ### Continuez à construire le treillis de lumière grâce à vos voyages
 
-Seretta Kem - reçu par Al Fike le 1 Septembre 2019, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 1<sup>er</sup> Septembre 2019, Gibsons, Colombie-Britannique, Canada.
 
 Je suis heureux de vous parler ce soir et d’accueillir la chère fille de retour de ses voyages et de vous accueillir tous dans ce Cercle de Lumière. Ma fille (J), tu as donné d’une manière que tu n’avais jamais faite auparavant. Tu as découvert des dons en toi-même et tu as donné de toi-même avec amour, près du sein de Dieu, alors que tu as voyagé et que tu es allée dans de nombreux endroits, embrassant de nombreuses belles âmes qui ont grandement bénéficié de tes efforts.
 

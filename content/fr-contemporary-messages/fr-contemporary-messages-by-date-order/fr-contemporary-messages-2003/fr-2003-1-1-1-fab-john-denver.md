@@ -9,7 +9,7 @@ weight:
 ---
 ### Expériences de John Denver
 
-John Denver - reçu par FAB le 1 Janvier 2003, Santa Cruz, Californie, USA.
+John Denver - reçu par FAB le 1<sup>er</sup> Janvier 2003, Santa Cruz, Californie, USA.
 
 C’est moi, John Denver.<sup id="a1">[1](#f1)</sup>
 

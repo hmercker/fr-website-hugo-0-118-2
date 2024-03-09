@@ -9,7 +9,7 @@ weight:
 ---
 ### Les expériences de Marilyn Monroe de l’autre côté
 
-Marilyn Monroe <sup id="a1">[1](#f1)</sup> - reçu par FAB le 1 Décembre 2011, Berkeley, Californie, USA.
+Marilyn Monroe <sup id="a1">[1](#f1)</sup> - reçu par FAB le 1<sup>er</sup> Décembre 2011, Berkeley, Californie, USA.
 
 C’est moi, Marilyn Monroe.<sup id="a2">[2](#f2)</sup>
 

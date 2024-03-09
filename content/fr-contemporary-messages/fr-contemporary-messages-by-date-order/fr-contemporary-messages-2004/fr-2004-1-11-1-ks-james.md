@@ -1,13 +1,13 @@
 ---
-title: "La plus grande proportion de l’amour"
+title: "La plus grande proportion de l’Amour"
 menu_title: ""
-description: "La plus grande proportion de l’amour"
+description: "La plus grande proportion de l’Amour"
 date: 2022-06-01 06:00:01+00:09
 draft: False
 hidden: True
 weight:
 ---
-### La plus grande proportion de l’amour
+### La plus grande proportion de l’Amour
 
 Jacques - reçu par Kathryn Stokes le 11 Janvier 2004, Santa Cruz, Californie, USA.
 

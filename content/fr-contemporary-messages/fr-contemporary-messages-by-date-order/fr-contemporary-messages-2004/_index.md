@@ -11,7 +11,7 @@ weight:
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-Jacques | [La plus grande proportion de l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-1-11-1-ks-james/) | 11 Janvier 2004
+Jacques | [La plus grande proportion de l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-1-11-1-ks-james/) | 11 Janvier 2004
 Marie | [Assez est ennuyeux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-2-4-1-ar-mary/) | 4 Février 2004
 Meera | [L’espoir change la réalité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-2-4-2-wv-meera/) | 4 Février 2004
 Jésus | [Le chemin que j'ai pris](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-2-12-1-pjr-jesus/) | 12 Février 2004

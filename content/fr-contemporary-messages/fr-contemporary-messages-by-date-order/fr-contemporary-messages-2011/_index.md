@@ -27,7 +27,7 @@ Oscar Wilde | [Dieu se fiche de votre homosexualité](/fr-contemporary-messages/
 Thomas J. Watson | [Thomas J. Watson et les nazis](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-5-24-2-fab-thomas-j-watson/) | 24 Mai 2011
 Nelson Rockefeller | [L’honnêteté d’un Rockefeller](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-5-30-1-fab-nelson-rockefeller/) | 30 Mai 2011
 Jésus | [Posséder l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-6-24-1-fab-jesus/) | 24 Juin 2011
-Jésus | [le plan de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-6-28-1-fab-jesus/) | 28 Juin 2011
+Jésus | [Le plan de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-6-28-1-fab-jesus/) | 28 Juin 2011
 Ophélius | [La couleur dans la mosaïque de la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-9-4-1-chris-ophelius/) | 4 Septembre 2011
 H.G. Wells | [Les expériences de H.G. Wells dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-9-13-1-fab-hg-wells/) | 13 Septembre 2011
 Heinrich Himmler | [Les expériences d’un Nazi dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-9-18-1-fab-heinrich-himmler/) | 18 Septembre 2011
@@ -41,7 +41,7 @@ Victor Summers | [Message de Victor Summers](/fr-contemporary-messages/fr-contem
 Jésus | [Le sommeil et la responsabilité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-11-22-1-fab-jesus/) | 22 Novembre 2011
 Victor Summers | [Transition de Victor Summers](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-11-27-1-fab-victor-summers/) | 27 Novembre 2011
 St Jean | [Logos et pensée Juive](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-11-30-1-fab-st-john/) | 30 Novembre 2011
-Marilyn Monroe | [Les expériences de Marilyn Monroe de l’autre côté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-12-1-1-fab-marilyn-monroe/) | 1 Décembre 2011
+Marilyn Monroe | [Les expériences de Marilyn Monroe de l’autre côté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-12-1-1-fab-marilyn-monroe/) | 1<sup>er</sup> Décembre 2011
 Jésus | [Mémoire des rêves](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-12-4-1-fab-jesus/) | 4 Décembre 2011
 Jésus | [Puissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-12-6-1-fab-jesus/) | 6 Décembre 2011
 

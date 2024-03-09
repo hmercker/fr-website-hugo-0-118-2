@@ -49,7 +49,7 @@ L’écrivain portugais, José Saramago, récompensé par le prix Nobel de litt�
 <br/>
   Oh, Dieu, pauvre camarade… si l’orgueil est un péché, qui l’a commis ?
 
-7. *Il faut être Dieu pour aimer tellement le sang. * 
+7. *Il faut être Dieu pour aimer tellement le sang.* 
 <br/>
  Certainement, c’est une conclusion justifiée, compte tenu de l’histoire de l’Ancien Testament, et la mission de Jésus, comme les orthodoxes l’expliquent, lavant nos péchés par son sang.
 

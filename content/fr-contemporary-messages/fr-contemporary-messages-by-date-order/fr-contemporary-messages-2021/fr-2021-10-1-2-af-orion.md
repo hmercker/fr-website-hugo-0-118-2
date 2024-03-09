@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Orion se présente à l'OCL - Ils sont ici pour aider la Terre
+### Orion se présente - Ils sont ici pour aider la Terre
 
 Orion - reçu par Al Fike le 1<sup>er</sup> Octobre 2021, Gibsons, Colombie-Britannique, Canada.
 

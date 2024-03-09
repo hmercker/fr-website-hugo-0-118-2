@@ -63,7 +63,7 @@ Judas | [La situation politique en 26 AD – Publius Pontius Pilatus suite](/fr-
 Judas | [La guérison du fils du maire de Capharnaüm](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-27-1-hr-judas/) | 27 Mars 2002
 Judas | [La guérison du paralytique à Capharnaüm](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-28-1-hr-judas/) | 28 Mars 2002
 Judas | [La pêche miraculeuse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-29-1-hr-judas/) | 29 Mars 2002
-Judas | [Simon le Zélote](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-1-1-hr-judas/) | 1 Avril 2002
+Judas | [Simon le Zélote](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-1-1-hr-judas/) | 1<sup>er</sup> Avril 2002
 Judas | [La guérison du lépreux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-2-1-hr-judas/) | 2 Avril 2002
 Moïse | [Le peuple élu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-7-1-ar-moses/) | 7 Avril 2002
 PSR | [L’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-10-1-pjr-psr/) | 10 Avril 2002
@@ -76,14 +76,14 @@ Judas | [Les démons jetés dans les porcs ? Jésus prêche aux païens](/fr-con
 Judas | [Médiumnité et la valeur des messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-28-1-hr-judas/) | 28 Avril 2002
 Judas | [L’Antéchrist](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-29-1-hr-judas/) | 29 Avril 2002
 Judas | [Les Samaritains, première partie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-30-1-hr-judas/) | 30 Avril 2002
-Judas | [Les Samaritains, deuxième partie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-5-1-1-hr-judas/) | 1 Mai 2002
+Judas | [Les Samaritains, deuxième partie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-5-1-1-hr-judas/) | 1<sup>er</sup> Mai 2002
 Marie | [Le Cœur Collectif](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-5-1-2-ar-mary/) | 1 Mai 2002
 Judas | [Les Samaritains, troisième partie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-5-2-1-hr-judas/) | 2 Mai 2002
 Judas | [Le bon Samaritain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-5-3-1-hr-judas/) | 3 Mai 2002
 Judas | [Les dix tribus perdues d’Israël](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-5-5-1-hr-judas/) | 5 Mai 2002
 Judas | [L’âme de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-5-8-1-hr-judas/) | 8 Mai 2002
 Judas | [Le Dieu de Saramago](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-5-10-1-hr-judas/) | 10 Mai 2002
-André | [Les yeux de l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-5-11-1-ks-andrew/) | 11 Mai 2002
+André | [Les yeux de l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-5-11-1-ks-andrew/) | 11 Mai 2002
 Judas | [Vérité et fausses croyances – première partie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-5-13-1-hr-judas/) | 13 Mai 2002
 Judas | [Vérité et fausses croyances – deuxième partie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-5-16-1-hr-judas/) | 16 Mai 2002
 Judas | [Vérité et fausses croyances – troisième partie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-5-17-1-hr-judas/) | 17 Mai 2002
@@ -107,7 +107,7 @@ Judas | [La popularité des « révélations » absurdes](/fr-contemporary-mes
 Jésus | [La personne derrière le rideau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-9-2-1-ar-jesus/) | 2 Septembre 2002
 Joseph (AT) | [Joseph de l’Ancien Testament](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-10-30-1-fab-joseph-ot/) | 30 Octobre 2002
 Joseph (AT) | [Le seul Vrai Dieu des Juifs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-10-31-1-fab-joseph-ot/) | 31 Octobre 2002
-Joseph (AT) | [Joseph en Égypte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-11-1-1-fab-joseph-ot/) | 1 Novembre 2002
+Joseph (AT) | [Joseph en Égypte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-11-1-1-fab-joseph-ot/) | 1<sup>er</sup> Novembre 2002
 Joseph (AT) | [Appétits physiques](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-11-12-1-fab-joseph-ot/) | 12 Novembre 2002
 Judas | [Pourquoi Judas a trahi Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-11-16-1-hr-judas/) | 16 Novembre 2002
 Jane | [La route magique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-11-17-1-ks-jane/) | 17 Novembre 2002

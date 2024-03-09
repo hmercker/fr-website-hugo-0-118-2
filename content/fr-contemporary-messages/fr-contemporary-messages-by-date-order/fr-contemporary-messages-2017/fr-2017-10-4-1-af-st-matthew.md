@@ -1,13 +1,13 @@
 ---
-title: "Le but de la voix directe"
+title: "Le but de la Voix Directe"
 menu_title: ""
-description: "Le but de la voix directe"
+description: "Le but de la Voix Directe"
 date: 2022-06-01 06:00:01+00:132
 draft: False
 hidden: True
 weight:
 ---
-### Le but de la voix directe
+### Le but de la Voix Directe
 
 St Matthieu - reçu par Al Fike le 4 Octobre 2017, Gibsons, Colombie-Britannique, Canada.
 

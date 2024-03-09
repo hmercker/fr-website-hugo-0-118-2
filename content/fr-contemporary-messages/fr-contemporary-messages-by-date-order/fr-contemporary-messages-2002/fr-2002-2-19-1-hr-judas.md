@@ -80,7 +80,7 @@ Le temps est venu de se dire au revoir. Puisse Dieu te bénir toujours.
 Judas de Kerioth.
 <small>
 
-1. <large id="f1"> Rappel : Homme castré chargé de fonctions administratives et militaires importantes, ainsi que de la garde des harems impériauxour text for the reference.[↩](#a1)
+1. <large id="f1"> Homme castré chargé de fonctions administratives et militaires importantes, ainsi que de la garde des harems impériaux.[↩](#a1)
 
 © Geoff Cutler 2013
 

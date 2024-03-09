@@ -1,15 +1,15 @@
 ---
-title: "Chaque âme est unique et fleurit dans la vérité de l'amour de Dieu"
+title: "Chaque âme est unique et fleurit dans la Vérité de l'amour de Dieu"
 menu_title: ""
-description: "Chaque âme est unique et fleurit dans la vérité de l'amour de Dieu"
+description: "Chaque âme est unique et fleurit dans la Vérité de l'amour de Dieu"
 date: 2022-06-01 06:00:01+00:438
 draft: False
 hidden: True
 weight:
 ---
-### Chaque âme est unique et fleurit dans la vérité de l'amour de Dieu
+### Chaque âme est unique et fleurit dans la Vérité de l'amour de Dieu
 
-André - reçu par Al Fike le 1 Août 2018, Gibsons, Colombie-Britannique, Canada.
+André - reçu par Al Fike le 1<sup>er</sup> Août 2018, Gibsons, Colombie-Britannique, Canada.
 
 Oui, beaucoup de ceux qui ont été des leaders dans diverses religions dans le monde sont venus à la plus haute Vérité de l’Amour de Dieu. Bien qu’ils continuent avec certains de leurs pièges et idées religieuses, qui conviennent à leur façon d’être, c’est l’Amour de Dieu qui élargit et améliore leur compréhension et amène tout en harmonie avec Dieu. Vous verrez que dans les Cieux Célestes, tout se mélange en harmonie. Pourtant, chaque âme est unique, n’est-ce pas ? Ainsi, ces qualités uniques brillent dans des facettes et des beautés d’expression exponentielles. Ainsi, nous faisons tous la danse de la vie dans un amour joyeux, dans nos dédicaces à Dieu.
 

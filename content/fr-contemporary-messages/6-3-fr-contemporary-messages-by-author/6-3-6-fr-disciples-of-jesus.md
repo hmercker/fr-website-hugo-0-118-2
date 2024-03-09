@@ -33,7 +33,6 @@ André | [L’importance de permettre l’expiation de vos âmes dans l’Amour 
 André | [Chaque âme humaine est endommagée par la condition de la Terre et doit être guérie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-3-27-1-af-andrew/) | 27 Mars 2015
 André | [Cherchez l'essence divine de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-5-11-1-af-andrew/) | 11 Mai 2015
 André | [Le chemin que vous parcourez ensemble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-13-1-af-andrew/) | 13 Janvier 2016
-Jacques | [Bénédiction de la fête du travail à la maison de Selah](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-12-1-af-james/) | 12 Mars 2016
 André | [Service – Aider les autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-26-1-af-andrew/) | 26 Mars 2016
 André | [Soyez les pourvoyeurs de la joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-12-3-af-andrew/) | 12 Avril 2016
 André | [André sur deux choix – deux voies](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-5-2-2-af-andrew/) | 2 Mai 2016
@@ -138,6 +137,7 @@ Jacques | [Donnez votre amour, pas vos conseils.](/fr-contemporary-messages/fr-c
 Jacques | [Le pouvoir de s’élever au-dessus.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-12-17-1-ks-james/) | 17 Décembre 2003
 Jacques | [La plus grande proportion de l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-1-11-1-ks-james/) | 11 Janvier 2004
 Jacques | [Soyez un guide sur le chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-12-13-1-na-james/) | 13 Décembre 2005
+Jacques | [Bénédiction de la fête du travail à la maison de Selah](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-12-1-af-james/) | 12 Mars 2016
 Jacques | [Le don de la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-29-1-af-james/) | 29 Mars 2016
 Jacques | [Se libérer de la carapace qui entoure votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-6-13-1-af-james/) | 13 Juin 2016
 Jacques | [Priez pour l’humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-3-1-af-james/) | 3 Septembre 2016
@@ -162,8 +162,8 @@ Jean-Baptiste | [Des encouragements pour enseigner la vérité](/fr-contemporary
 Jean le Baptiste | [Le premier pas pour s'ouvrir à l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-23-2-jw-john-the-baptist/) | 23 Juin 2022
 Jean le Baptiste | [Tous sont transformés, éveillés et guéris dans l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-4-2-af-john-the-baptist/) | 4 Septembre 2022
 Judas | [L'amour vous donne un Socle et un Fondement tellement Puissants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-50-1970-1-15-anonymous-judas/) | 15 Janvier 1970
-Judas | [Communication et médiumnité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-20-2-hr-judas/) | 20 Août 2001
 Judas | [Judas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-20-1-hr-judas/) | 20 Août 2001
+Judas | [Communication et médiumnité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-20-2-hr-judas/) | 20 Août 2001
 Judas | [L’Incident du Temple](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-21-1-hr-judas/) | 21 Août 2001
 Judas | [L’efficacité de la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-22-1-hr-judas/) | 22 Août 2001
 Judas | [Avertissement de danger et les choix auxquels nous faisons face](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-22-2-hr-judas/) | 22 Août 2001
@@ -480,8 +480,8 @@ St Luc | [Soyez conscient de ce qui se trouve dans votre cœur](/fr-contemporary
 St Luc | [Laissez l'amour vous guider](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-10-1-jw-st-luke/) | 10 Juillet 2020
 St Luc | [Équilibre entre les poursuites matérielles et spirituelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-24-2-af-st-luke/) | 24 Août 2020
 St Luc | [Les pensées que vous entretenez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-1-1-jw-st-luke/) | 1 Septembre 2020
-St Luc | [Facettes de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-23-2-af-st-luke/) | 23 Octobre 2020
 St Luc | [Choisissez ce qui touche votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-11-1-jw-st-luke/) | 11 Septembre 2020
+St Luc | [Facettes de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-23-2-af-st-luke/) | 23 Octobre 2020
 St Luc | [L'amour de Dieu ouvre le cœur et transforme l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-26-1-jw-st-luke/) | 26 Avril 2021
 St Luc | [Cherchez d’abord le Royaume, et tout le reste vous sera donné](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-27-1-jw-st-luke/) | 27 Juillet 2021
 St Luc | [Avancer dans la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-1-1-jw-st-luke/) | 1 Novembre 2021

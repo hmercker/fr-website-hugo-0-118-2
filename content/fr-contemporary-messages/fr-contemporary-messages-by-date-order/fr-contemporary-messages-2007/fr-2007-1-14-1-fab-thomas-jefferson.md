@@ -1,13 +1,13 @@
 ---
-title: "Un changement spirituel dans la politique américaine"
+title: "Un changement spirituel dans la politique Américaine"
 menu_title: ""
-description: "Un changement spirituel dans la politique américaine"
+description: "Un changement spirituel dans la politique Américaine"
 date: 2022-06-01 06:00:01+00:88
 draft: False
 hidden: True
 weight:
 ---
-### Un changement spirituel dans la politique américaine
+### Un changement spirituel dans la politique Américaine
 
 Thomas Jefferson <sup id="a1">[1](#f1)</sup> - reçu par FAB le 14 Janvier 2007, Santa Cruz, Californie, USA.
 

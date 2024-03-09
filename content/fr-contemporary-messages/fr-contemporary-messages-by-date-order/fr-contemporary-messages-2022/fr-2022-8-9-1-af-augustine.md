@@ -1,7 +1,7 @@
 ---
-title: "Excellent message d’enseignement sur la volonté de Dieu et la volonté de l’homme"
+title: "Excellent message d’enseignement sur la Volonté de Dieu et la volonté de l’homme"
 menu_title: ""
-description: "Excellent message d’enseignement sur la volonté de Dieu et la volonté de l’homme"
+description: "Excellent message d’enseignement sur la Volonté de Dieu et la volonté de l’homme"
 date: 2022-06-01 06:00:01+00:154
 draft: False
 hidden: True

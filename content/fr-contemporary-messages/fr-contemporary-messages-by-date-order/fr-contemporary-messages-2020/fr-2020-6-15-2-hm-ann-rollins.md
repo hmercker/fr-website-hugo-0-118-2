@@ -9,9 +9,9 @@ weight:
 ---
 ### Réseau de l’amour
 
-Anne Rollins<sup id="a1">[1](#f1)</sup> - reçu par Helge Mercker le 15 Juin 2020, Swakopmund, Namibie.
+Anne Rollins - reçu par Helge Mercker le 15 Juin 2020, Swakopmund, Namibie.
 
-Ma chère enfant, je suis Anne Rollins et je suis très heureuse que tu écrives mes propos.
+Ma chère enfant, je suis Anne Rollins<sup id="a1">[1](#f1)</sup> et je suis très heureuse que tu écrives mes propos.
 
 Je suis ici avec toi dans cette prière par ce que tu appelles « Voix Directe ». Je suis en effet heureuse que votre cercle comprenne les conditions nécessaires pour pouvoir réussir cette très belle entreprise. Dans les années à venir, beaucoup de choses vont s’ouvrir grâce aux efforts que vous faites maintenant. En étant inébranlable et engagé dans ce travail mutuel entre les mortels et les esprits dans les Cieux les plus élevés, les Cieux Célestes, et avec le Toucher guidant de Dieu, les souhaits de Dieu seront réalisés. Nous contribuons ainsi à la réalisation de Son grand plan pour le salut de l’humanité, à la restauration de la beauté de Sa Création et à l’exposition de ces merveilles à tous les peuples.
 

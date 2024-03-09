@@ -9,7 +9,7 @@ weight:
 ---
 ### Différences de perception entre le mental matériel et le mental de l'âme
 
-Matthieu - reçu par Al Fike le 1 Juin 2019, Gibsons, Colombie-Britannique, Canada.
+Matthieu - reçu par Al Fike le 1<sup>er</sup> Juin 2019, Gibsons, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis Matthieu et je souhaite parler des différences de perception entre le mental matériel et celui de l'âme. La plupart de ceux qui habitent votre monde et qui suivent un chemin particulier de progression dans leur compréhension spirituelle utiliseront leurs facultés mentales pour discerner la vérité. Le mental matériel désire l'ordre et la logique et ce qui a du sens du point de vue du monde matériel. Par conséquent, leurs concepts de spiritualité reflètent ces éléments dans le mental. Le mental est un outil puissant. Il peut aussi manifester des réalités puissantes, projetant depuis la source de l'individu certains idéaux et réalités qui confirment et renforcent une croyance particulière.
 

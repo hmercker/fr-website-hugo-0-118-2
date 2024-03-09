@@ -1,13 +1,13 @@
 ---
-title: "L'importance de développer la nature d'amour"
+title: "L'importance de développer la nature d'Amour"
 menu_title: ""
-description: "L'importance de développer la nature d'amour"
+description: "L'importance de développer la nature d'Amour"
 date: 2022-06-01 06:00:01+00:41
 draft: False
 hidden: True
 weight:
 ---
-### L'importance de développer la nature d'amour
+### L'importance de développer la nature d'Amour
 
 Jésus - reçu par Kathryn Stokes le 9 Avril 1989, Santa Cruz, Californie, USA.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Ce chemin exige que vous sachiez ce qui est important
 
-St François d'Assise - reçu par Jimbeau Walsh le 1 Janvier 2021, Punalu’u, Oahu, Hawaii, USA.
+St François d'Assise - reçu par Jimbeau Walsh le 1<sup>er</sup> Janvier 2021, Punalu’u, Oahu, Hawaii, USA.
 
 C’est une nouvelle année pour vous tous. Alors que vous l’accueillez dans la prière, nous nous joignons à vous. Vous vous demandez peut-être *« Qu’est-ce que j’emporte avec moi dans cette nouvelle année et qu’est-ce que je laisse derrière moi ? »* Je dirais que c’est un peu comme mettre un nouveau manteau pour une nouvelle saison lorsque vous entrez dans une nouvelle ère de vos vies, en portant ce manteau de protection, avec la guidance Céleste et en gardant la chaleur de l’Amour de Dieu en chacun de vous. J’ai laissé mes manteaux derrière moi. Tant de choses matérielles m’ont été offertes. Quand j’ai vu la Lumière, j’ai réalisé que je n’emmènerais que mon âme avec moi dans l’autre monde et que toutes ces choses matérielles, à part le strict nécessaire, n’étaient pas nécessaires. Je les ai donc déposés comme des fardeaux et ils étaient des fardeaux. Je me suis élevé dans la Lumière en prière avec mes amis, comme vous l’êtes avec vos amis pour que Dieu ouvre vos âmes.
 

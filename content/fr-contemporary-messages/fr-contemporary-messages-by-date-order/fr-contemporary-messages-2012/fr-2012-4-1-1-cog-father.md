@@ -9,7 +9,7 @@ weight:
 ---
 ### Sens ton chemin vers moi
 
-Le Père Céleste - reçu par Enfant de Dieu le 1 Avril 2012.
+Le Père Céleste - reçu par Enfant de Dieu le 1<sup>er</sup> Avril 2012.
 
 Cher enfant, tu as encore des doutes sur le fait que tu aies des conversations avec moi et tu demandes des preuves.
 

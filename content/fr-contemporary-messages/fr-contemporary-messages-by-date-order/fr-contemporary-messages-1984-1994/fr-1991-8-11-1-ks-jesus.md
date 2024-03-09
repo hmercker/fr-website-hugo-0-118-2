@@ -1,13 +1,13 @@
 ---
-title: "Publication du volume II"
+title: "Publication du volume II des messages"
 menu_title: ""
-description: "Publication du volume II"
+description: "Publication du volume II des messages"
 date: 2022-06-01 06:00:01+00:50
 draft: False
 hidden: True
 weight:
 ---
-### Publication du volume II
+### Publication du volume II des messages
 
 Jésus - reçu par Kathryn Stokes le 11 Août 1991, Santa Cruz, Californie, USA.
 

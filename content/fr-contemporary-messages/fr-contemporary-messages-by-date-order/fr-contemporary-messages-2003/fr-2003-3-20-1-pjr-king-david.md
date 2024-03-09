@@ -29,7 +29,7 @@ Vous-même, en tant que groupe, vous avez, à votre manière, autant d’influen
 
 Oh oui, je me suis engagé dans beaucoup de guerres. Mais elles me paraissent si petites maintenant, et à quelle vitesse ce qui peut être construit à partir d’elles s’effondre et se délabre. Regardez l’IRAQ aujourd’hui. Vous pouvez donc comprendre pourquoi elles ne valent guère la peine – les résultats sont donc éphémères.
 
-Alors, je vous laisse maintenant, vous ayant demandé ce que je voulais ; je vais maintenant signer comme, David, autrefois grand roi, aujourd’hui un disciple beaucoup plus heureux du Maître.
+Alors, je vous laisse maintenant, vous ayant demandé ce que je voulais ; je vais maintenant signer comme, David, autrefois grand roi, aujourd’hui un disciple beaucoup plus heureux du Maître.<sup id="a2">[2](#f2)</sup>
 
 **Je suis ici pour écrire, ton père.**
 
@@ -42,7 +42,7 @@ Je sais que tu as été très occupé par ton travail et tous tes « projets »,
 
 1. <large id="f1"> C’est-à-dire l’utilisation d’armes chimiques ou biologiques.[↩](#a1)
 
-2. <large id="f1"> Le Roi David a également commmuniqué les messages suivants :[↩](#a1)
+2. <large id="f2"> Le Roi David a également commmuniqué les messages suivants :[↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---

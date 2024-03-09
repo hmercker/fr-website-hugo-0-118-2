@@ -1,13 +1,13 @@
 ---
-title: "L’éveil de vos âmes apporte le message de vérité à l’humanité"
+title: "L’éveil de vos âmes apporte le message de Vvérité à l’humanité"
 menu_title: ""
-description: "L’éveil de vos âmes apporte le message de vérité à l’humanité"
+description: "L’éveil de vos âmes apporte le message de Vérité à l’humanité"
 date: 2022-06-01 06:00:01+00:465
 draft: False
 hidden: True
 weight:
 ---
-### L’éveil de vos âmes apporte le message de vérité à l’humanité
+### L’éveil de vos âmes apporte le message de Vérité à l’humanité
 
 Augustin - reçu par Al Fike le 1<sup>er</sup> Septembre 2018, Retraite de médiumnité, Gibsons, Colombie-Britannique, Canada.
 

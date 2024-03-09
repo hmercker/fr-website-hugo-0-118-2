@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez fidèle à vos âmes
 
-Jacques - reçu par Al Fike le 1 Février 2023, Sechelt, Colombie-Britannique, Canada.
+Jacques - reçu par Al Fike le 1<sup>er</sup> Février 2023, Sechelt, Colombie-Britannique, Canada.
 
 … de nombreux hommes à travers les âges qui ont été enregistrés et reconnus. Cette connaissance a été conservée dans les annales de l’histoire humaine. Pourtant, comme vous le savez, ces mots sont souvent interpolés et transformés en un mythe, une histoire sur ces individus.
 

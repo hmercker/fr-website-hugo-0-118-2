@@ -24,7 +24,7 @@ La vie est pleine d’opportunités. Sachez ceci. Sachez que chaque jour a quelq
 S’il vous plaît, allez de l’avant à partir de cette réunion et pensez à ce qui a été dit et combien la vie est glorieuse, saisissez-la et vivez-la, amis bien-aimés. Vivez-la pleinement. La vie est faite pour être vécue et la vie est faite pour être aimée. Que Dieu vous bénisse, mes amis, que Dieu vous bénisse. Je vous aime tous. Votre amie Lorna<sup id="a2">[2](#f2)</sup> est avec vous. Que Dieu vous bénisse. Merci.
 <small>
 
-1. <large id="f1"> Lorna Kincaid Scott était un membre de la communauté de l'Amour Divin de Vancouver. Elle est décédée le 19 Octobre 2016 des suites d'une longue maladie.[↩](#a1)
+1. <large id="f1"> Lorna Kincaid Scott était un membre de la communauté de l'Amour Divin de Vancouver. Elle est décédée le 19 Octobre 2016.[↩](#a1)
 
 2. <large id="f2"> Lorna Kincaid Scott s'est de nouveau expfimée dans un message communiqué le [24 Novembre 2022](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-24-1-af-lorna-scott/).[↩](#a2)
 

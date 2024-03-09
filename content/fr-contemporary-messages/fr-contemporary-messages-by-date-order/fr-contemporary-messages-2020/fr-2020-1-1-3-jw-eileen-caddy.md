@@ -9,7 +9,7 @@ weight:
 ---
 ### Sensibilisation à l’égard de Findhorn
 
-Eileen Caddy - reçu par Jimbeau Walsh le 1 Janvier 2020, Punalu’u, Oahu, Hawaii, USA.
+Eileen Caddy - reçu par Jimbeau Walsh le 1<sup>er</sup> Janvier 2020, Punalu’u, Oahu, Hawaii, USA.
 
 C’est moi, Eileen. Merci de m’avoir invité à votre Cercle d’Amour en réponse à ma demande d’apporter vos prières et votre lumière à mon cher Findhorn. Je suis tout à fait disposé à vous aider en cette année 2020 pour vous donner une vision claire alors que vous vous concentrez sur le grand besoin spirituel de cette communauté. Cela nécessitera une singularité de but et de prendre le temps de permettre à nos conseils d’être traités par vos âmes, par vos esprits et dans vos cœurs. Si vous abordez cela avec l’amour qui est dans chacune de vos âmes et le véritable désir d’apporter une bénédiction à Findhorn, vous ne serez pas déçus, car vous toucherez le cœur de ceux qui animent maintenant cette communauté. Bien que leurs chemins puissent être plus écologiques et matériels, ils ne sont pas dépourvus de désirs profonds et ils ne sont pas non plus dépourvus de la volonté d’ouvrir leur cœur à des demandes sincères.
 

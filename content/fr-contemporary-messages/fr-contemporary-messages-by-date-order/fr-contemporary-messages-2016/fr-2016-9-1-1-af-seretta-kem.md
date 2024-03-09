@@ -9,7 +9,7 @@ weight:
 ---
 ### La prière de groupe multiplie les bénédictions
 
-Seretta Kem - reçu par Al Fike le 1 Septembre 2016, Francfort, Allemagne.
+Seretta Kem - reçu par Al Fike le 1<sup>er</sup> Septembre 2016, Francfort, Allemagne.
 
 Et que l’Amour du Père trouve un afflux constant dans vos âmes afin que cette Lumière puisse brûler de plus en plus fort jusqu’à ce qu’elle soit brillante comme le soleil, illuminant tout ce qui vous entoure, âmes bien-aimées. Car l’Amour de Dieu est illimité, la capacité de recevoir cet Amour est illimitée, seulement limitée par vos propres désirs et envies. Plus vous êtes passionnés pour recevoir ce cadeau, plus l’afflux de cette bénédiction sera important. C’est ainsi que dans un groupe d’âmes priant ensemble, c’est votre désir, votre passion, votre concentration et vos efforts pour recevoir et être en harmonie ensemble pour créer ces conditions parmi vous qui attirent cette grande bénédiction vers vous. Et le grand avantage de la prière de groupe est que le désir ardent, le désir est multiplié par chaque individu qui se réunit, s’harmonise et résonne avec l’autre. Et de cette façon, un grand afflux est possible pour chacun d’entre vous. Vous bénéficiez des prières de vos frères et sœurs qui se joignent à vous. Vous parvenez à un lieu d’harmonie et ainsi l’énergie du groupe, le flux de cette énergie au sein d’un groupe génère les conditions requises pour que ces grandes bénédictions soient données.
 

@@ -1,7 +1,7 @@
 ---
-title: "Apporter la bénédiction de l'amour divin à ce sanctuaire"
+title: "Apporter la bénédiction de l'Amour divin à ce sanctuaire"
 menu_title: ""
-description: "Apporter la bénédiction de l'amour divin à ce sanctuaire"
+description: "Apporter la bénédiction de l'Amour divin à ce sanctuaire"
 date: 2022-06-01 06:00:01+00:597
 draft: False
 hidden: True

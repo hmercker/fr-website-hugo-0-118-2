@@ -1,13 +1,13 @@
 ---
-title: "Concentrez vos pensées sur Dieu, pas tant sur nous, les ange"
+title: "Concentrez vos pensées sur Dieu, pas tant sur nous, les anges"
 menu_title: ""
-description: "Concentrez vos pensées sur Dieu, pas tant sur nous, les ange"
+description: "Concentrez vos pensées sur Dieu, pas tant sur nous, les anges"
 date: 2022-06-01 06:00:01+00:1228
 draft: False
 hidden: True
 weight:
 ---
-### Concentrez vos pensées sur Dieu, pas tant sur nous, les ange
+### Concentrez vos pensées sur Dieu, pas tant sur nous, les anges
 
 Jésus - reçu par Al Fike le 23 Août 2020, Gibsons, Colombie-Britannique, Canada.
 

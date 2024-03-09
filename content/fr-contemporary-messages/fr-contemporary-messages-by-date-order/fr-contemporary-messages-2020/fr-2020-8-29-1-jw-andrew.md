@@ -22,7 +22,7 @@ Ce n’est jamais un effort inutile lorsque vous dites la vérité avec amour, l
 Donc, nous vous encourageons à partager vos histoires, à partager votre parcours, et surtout à continuer à prier pour l’Amour de Dieu et à étudier ces merveilleux messages que notre cher frère Judas a donnés. Je vous remercie pour cette opportunité, car je n’ai pas encore parlé à travers celui-ci et je suis satisfait de ses efforts. Que Dieu vous bénisse chacun avec le grand afflux de l’Amour Divin. Je suis votre frère dans l’Amour de Dieu. Je suis André.
 <small>
 
-1. <large id="f1"> Voir le livre [Judas de Kérioth](/fr-publications-and-downloads/13-2-1-fr-french-spiritual-books/fr-conversations-avec-judas-iscariote.pdf).[↩](#a1)
+1. <large id="f1"> Voir le livre [Judas de Kérioth](/3-fr-judas-of-kerioth-messages/3-1-fr-the-book-of-judas/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
 

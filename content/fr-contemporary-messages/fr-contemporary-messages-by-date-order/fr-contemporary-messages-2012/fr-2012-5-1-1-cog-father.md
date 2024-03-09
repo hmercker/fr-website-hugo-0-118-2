@@ -9,7 +9,7 @@ weight:
 ---
 ### Volonté
 
-Le Père Céleste - reçu par Enfant de Dieu le 1 Mai 2012.
+Le Père Céleste - reçu par Enfant de Dieu le 1<sup>er</sup> Mai 2012.
 
 Mon enfant bien aimé, la communication d’aujourd’hui porte sur la volonté. Ta volonté d’accepter tout ce qui est. Ta volonté de tout abandonner à la Vérité.
 

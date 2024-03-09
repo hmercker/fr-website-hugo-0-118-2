@@ -1,7 +1,7 @@
 ---
-title: "La vérité passe par l'âme éveillée par l'amour de Dieu"
+title: "La vérité passe par l'âme éveillée par l'Amour de Dieu"
 menu_title: ""
-description: "La vérité passe par l'âme éveillée par l'amour de Dieu"
+description: "La vérité passe par l'âme éveillée par l'Amour de Dieu"
 date: 2022-06-01 06:00:01+00:484
 draft: False
 hidden: True

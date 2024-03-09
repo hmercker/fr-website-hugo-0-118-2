@@ -46,7 +46,7 @@ Ainsi, alors que vous utilisez votre stylo, maintenant, en tant que scribe, je v
 Avec mon amour pour vous, et l’amour du Père, je suis J. R. R. Tolkien.<sup id="a4">[4](#f4)</sup>
 <small>
 
-1. <large id="f1"> Il me vient finalement à l’esprit, en relisant ceci le 30 Juillet que les esprits écrivains reconnaîtront quelque chose qui me préoccupe en faisant une remarque à ce sujet lorsqu’ils verront que cela ne disparaîtra pas, mais continuera à s’immiscer dans la session. Une fois qu’ils l’ont reconnu, le problème est résolu ![↩](#a1)
+1. <large id="f1"> Il me vient finalement à l’esprit, en relisant ceci le 30 Juillet que les esprits écrivains reconnaîtront quelque chose qui me préoccupe en faisant une remarque à ce sujet lorsqu’ils verront que cela ne disparaîtra pas, mais continuera à s’immiscer dans la session. Une fois qu’ils l’ont reconnu, le problème est résolu![↩](#a1)
 
 2. <large id="f2"> A G R (Albert Georges Riddle) fut un ancien collègue avocat de James Padgett qui a très souvent communiqué à travers lui au cours des années 1914 à 1920.[↩](#a2)
 
@@ -57,7 +57,7 @@ Avec mon amour pour vous, et l’amour du Père, je suis J. R. R. Tolkien.<sup i
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Tolkien | [Tolkien a remarqué que je lisais son livre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-17-1-pjr-tolkien/) | 17 Janvier 2002
-olkien | [La guerre, et l’armée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-3-24-1-pjr-tolkien/) | 24 Mars 2003
+Tolkien | [La guerre, et l’armée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-3-24-1-pjr-tolkien/) | 24 Mars 2003
 
 
 ### [**Lien vers les messages des années 2002**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/)

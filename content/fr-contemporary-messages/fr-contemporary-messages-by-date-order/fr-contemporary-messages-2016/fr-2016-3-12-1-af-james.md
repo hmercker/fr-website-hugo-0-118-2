@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Bénédiction de la fête du travail à la maison de Selah
+### Bénédiction de la fête du travail à la maison de Selah<sup id="a1">[1](#f1)</sup>
 
 Jacques - reçu par Al Fike le 12 Mars 2016, Selah, Washington, USA.
 
@@ -22,8 +22,9 @@ Vous apportez la Lumière, vous amenez les conditions à un niveau plus élevé 
 Il en est ainsi dans la vie, beaucoup de défis et de problèmes et de situations qui ont besoin de résolutions et de solutions, d’amour et d’harmonie. Vous travaillez ensemble pour forger un lien, une compréhension de l’autre. Cela sera de bon augure pour l’avenir et ce qui sera placé devant vous alors que vous travaillez ensemble en tant que canaux de l’Amour de Dieu dans le monde, et même cette situation si matérielle dans sa nature apporte des bénédictions à vous tous. Et vous devez voir cela à travers vos yeux, les yeux de votre âme, car chaque moment est un cadeau de Dieu, chaque opportunité porte en elle la possibilité de croissance, croissance de votre âme, croissance de la compréhension, expansion de votre conscience, application de votre amour de nombreuses manières différentes et Dieu est avec vous pendant que vous travaillez, mes frères et sœurs. Dieu est avec vous et nous le sommes aussi.
 
 Dieu vous bénit, belles âmes. Vous vous réunissez parce que vous êtes attirés ensemble, vous travaillez ensemble parce que vous vous aimez les uns les autres, et en cela vous apportez un cadeau à ceux qui viennent, pour résider dans cette maison, un cadeau merveilleux. Soyez bénis pour vos efforts d’amour, soyez bénis pour votre volonté de donner par amour, de travailler par amour, de prier ensemble. Soyez bénis. Je suis Jacques et je vous aime.
+<small>
 
-**Note :** Un petit groupe d'adeptes de l'Amour Divin était en train de réparer une maison pour la revendre.
+1. <large id="f1"> Un petit groupe d'adeptes de l'Amour Divin était en train de réparer une maison pour la revendre.[↩](#a1)
 
 ### [**Lien vers les messages des années 2016**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/)
 

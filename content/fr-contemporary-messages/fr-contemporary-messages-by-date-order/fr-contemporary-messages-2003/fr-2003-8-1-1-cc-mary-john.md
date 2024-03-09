@@ -9,7 +9,7 @@ weight:
 ---
 ### L’amour est notre cause
 
-Marie & Jean - reçu par CC le 1 Août 2003, New York, USA.
+Marie & Jean - reçu par CC le 1<sup>er</sup> Août 2003, New York, USA.
 
 Nous sommes ici, c’est Moi, Marie, et c’est Moi, Jean.
 

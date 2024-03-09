@@ -89,13 +89,13 @@ Il y a quelque temps tu as lu des commentaires sur ces passages de la Bible qui 
 > « Depuis la chute de la ville quelques mois plus tôt [en 70], Jérusalem avait été occupée par la dixième légion romaine [X Fretensis], dont l’emblème était un cochon. La référence de Marc à environ deux mille porcs, la taille de la Légion d’occupation, combinée avec sa désignation flagrante des êtres maléfiques comme Légion, ne laissait aucun doute dans les esprits Juifs que les porcs dans la fable représentaient l’armée d’occupation. La fable de Marc est une promesse que le Messie, quand il reviendrait, il chasserait les Romains dans la mer, comme il avait déjà poussé leurs substituts à quatre pattes. »
 <br>
 <br>
-> – William Harwood, Mythologies Derniers Dieux : Yahweh et Jésus
+> **William Harwood, Mythologies Derniers Dieux : Yahweh et Jésus**
 <br>
 <br>
 > « Alors que l’aigle était commun à toutes les légions, chaque unité avait plusieurs symboles propres. Ceux-ci étaient souvent associés à l’anniversaire de l’unité ou de son fondateur ou d’un commandant sous lequel elle avait gagné une distinction particulière, et pris la forme des signes du zodiaque. Ainsi le taureau signifie la période du 17 Avril au 18 Mai qui était consacrée à Vénus la déesse mère de la famille de Julian … »
 <br>
 <br>
-> – Graham Webster, L’armée impériale romaine (1979), p.137 XX Valeria
+> **Graham Webster, L’armée impériale romaine (1979), p.137 XX Valeria**
 <br>
 <br>
 > « La légion X Fretensis, comme la légion XX Valeria (la vingtième légion victorieuse en Valeria), ont, en plus du taureau et du trirème, le sanglier comme l’un de leurs emblèmes. »
@@ -107,13 +107,13 @@ Il y a quelque temps tu as lu des commentaires sur ces passages de la Bible qui 
 > L’explication du verrat est inconnue.
 <br>
 <br>
-> HMD Parker, Les légions romaines (1928), page 262-263
+> **HMD Parker, Les légions romaines (1928), page 262-263**
 <br>
 <br>
 > « Alors que le verrat n’est pas un signe du Zodiac, il existe des preuves qu’il a été utilisé comme un symbole dans cette légion. Cela inclut les antéfixes de tuiles de Holt portant un verrat au-dessus de l’inscription «LEG XX», et une décoration de bronze dans la bibliothèque nationale française … »
 <br>
 <br>
-> Daniel Peterson, Les légions romaines recréées en photographies couleur (1992). Page 54
+> **Daniel Peterson, Les légions romaines recréées en photographies couleur (1992). Page 54**
 <br>
 <br>
 > « La légion X Fretensis, ultérieurement, a donné l’assaut  et a pris la forteresse en haut de la falaise de Massada, où les Sicaires, les Zélotes les plus extrémistes, avaient trouvé refuge. (Il est intéressant de noter que six décennies après la guerre suivant la révolte de Bar Kokhba, l’emblème de la légion de garnison – Un verrat – décorait les portes de Jérusalem).
@@ -125,19 +125,19 @@ Il y a quelque temps tu as lu des commentaires sur ces passages de la Bible qui 
 > La taille de fonctionnement normal d’une légion était de 5000 pas 2000 hommes. Bien que la référence initiale à l’homme sauvage dans Marc 5 peut se référer à un événement notable dans ou autour de Gérasa, une ville païenne de la Décapole, la partie concernant la légion fut probablement ajoutée ultérieurement. Gérasa n’était pas proche de la mer de Galilée (lac dans lequel les porcs se sont soi-disant précipités et noyés), mais située à une cinquantaine de km. En outre, Gérasa était l’une des rares villes helléniques qui n’a pas exterminé ses habitants Juifs après le début du soulèvement. Ceux qui voulurent partir ont été en fait conduits vers un lieu sûr. »
 <br>
 <br>
-> (Flavius Josèphe Guerre des Juifs, Bk II, Ch XIII, Sn 5).
+> **Flavius Josèphe Guerre des Juifs, Bk II, Ch XIII, Sn 5.**
 <br>
 <br>
 > « La mise en place de cet épisode de Gérasa … conduisit à plusieurs « corrections » dans la tradition manuscrite. L’histoire est l’une des plus longues et Marc fournit un bon exemple de son style descriptif et décousu. Matthieu et Luc racontent l’histoire tout aussi efficacement avec beaucoup moins de mots. »
 <br>
 <br>
-> Les Évangiles complets, Robert J. Miller (Ed.), Page 23
+> **Les Évangiles complets, Robert J. Miller (Ed.), Page 23**
 <br>
 <br>
 > « L’histoire est étrange dans tous les récits. C’est de loin l’exorcisme le plus dramatique attribué à Jésus et il combine l’exorcisme avec la « nature » – le porc. Un de ses détails le rend improbable. Gérasa est à environ trente mille au sud-est de la mer de Galilée et il n’y a pas de grand cours d’eau  à proximité. Matthieu décale la scène pour Gadara, à seulement six miles de la mer, pensant peut-être que cela réduit le problème – mais un saut de six miles est tout aussi impossible que l’un de trente mille. Je n’arrive pas à expliquer le récit en essayant de lui trouver un noyau historique. »
 <br>
 <br>
-> EP Sanders, la figure historique de Jésus (1993) Page 155
+> **EP Sanders, la figure historique de Jésus (1993) Page 155**
 <br>
 <br>
 > « Contrairement à Gérasa, Gadara fut le lieu d’un grand massacre des rebelles Juifs par les troupes romaines en 69 AD. Comme les porcs, les rebelles en fuite se sont jetés dans l’eau.
@@ -146,19 +146,19 @@ Il y a quelque temps tu as lu des commentaires sur ces passages de la Bible qui 
 > Vespasien a envoyé Placidus avec 500 chevaux et 3000 hommes afin de poursuivre ceux qui avaient fui Gadara … »
 <br>
 <br>
-> (Section 4)
+> **(Section 4)**
 <br>
 <br>
 > « Placidus, en s’appuyant sur sa cavalerie et enhardi par son succès précédent poursuivit les Gadaréniens, tuant tous ceux qu’il rattrapait, jusqu’au Jourdain. Après avoir conduit toute la multitude jusqu’à la rivière où ils furent bloqués par le courant devenu infranchissable à cause des fortes pluies, il disposa ses troupes en ligne, face à eux. Ils furent obligés de combattre, voler étant impossible … Quinze mille ont péri par les mains de l’ennemi, le nombre de ceux ayant été obligés de se jeter dans le Jourdain est incalculable ; environ deux mille deux cents furent capturés … »
 <br>
 <br>
-> (Section 5) - Flavius Josèphe, Guerre des Juifs, Livre IV, Chapitre 7
+> **(Section 5) - Flavius Josèphe, Guerre des Juifs, Livre IV, Chapitre 7**
 <br>
 <br>
 > « Flavius Josèphe rapporte qu’à la suite de la bataille « le Jourdain était encombré par les morts, » et « même la [Mer Morte] était remplie de corps. »
 <br>
 <br>
-> Guerre des Juifs, Livre IV, Chapitre 7, Section 6
+> **Guerre des Juifs, Livre IV, Chapitre 7, Section 6**
 <br>
 <br>
 > « L’histoire des démons et des porcs apparaît également dans le pseudo Évangile de Barnabé. L’Évangile, qui peut également avoir été écrit au 1er siècle, ne peut pas utiliser les éléments du Nouveau Testament. Ici le récit de l’histoire est situé à Capharnaüm et le nombre des démons donné est de « 6666 ».
@@ -173,7 +173,7 @@ Il y a quelque temps tu as lu des commentaires sur ces passages de la Bible qui 
 > Alors Jésus dit : « Sortez et entrez dans les pourceaux. » Avec un rugissement les démons entrèrent dans les pourceaux qui se jetèrent à corps perdu dans la mer. Ceux qui faisaient paître les pourceaux fuirent vers la ville en racontant tout ce qui s’était passé avec Jésus. En conséquence, les gens de la ville sortirent et  trouvèrent Jésus et l’homme qui avait été guéri. Ils étaient remplis de crainte et priaient Jésus de partir hors de leurs frontières. Jésus se retira et monta vers Tyr et  Sidon ».
 <br>
 <br>
-> Barnabé 21: 1-3
+> **Barnabé 21: 1-3**
 <br>
 <br>
 > Cliff Carrington, « Le Testament Flavien », a identifié quelques similitudes intéressantes entre le récit dans l’Évangile de Barnabé et un récit dans la guerre Juive de Flavius Joseph (ci-dessous). En l’an 69 ap J.C,  le général Romain Vespasien et son fils Titus récupérèrent une grande partie du territoire cédé aux rebelles Juifs un an plus tôt. Pendant la campagne, les forces de Titus donnèrent  l’assaut contre la ville fortifiée de Taricheae sur les rives du lac Génésareth en Galilée. Flavius Josèphe (Guerre des Juifs, Livre III, Chapitre X, Section 8) indique que cette zone était localement connue comme Capharnaüm. Alors que les soldats romains se répandaient dans la ville, la plupart des rebelles, qui étaient dirigés par Jésus, fils de Schaphath,  tentèrent de s’échapper.
@@ -182,7 +182,7 @@ Il y a quelque temps tu as lu des commentaires sur ces passages de la Bible qui 
 > « … Certains de ceux qui étaient autour de Jésus ont fui le pays, tandis que d’autres ont couru vers le lac ou ont foncé sur l’ennemi qui marchait à leur rencontre, certains ont été tués alors qu’ils montaient à bord des navires, d’autres le furent alors qu’ils tentaient de les rejoindre à la nage. »
 <br>
 <br>
-> Flavius Josèphe, Guerre des Juifs, Livre III, Chapitre X, (Section 5)
+> **Flavius Josèphe, Guerre des Juifs, Livre III, Chapitre X, (Section 5)**
 <br>
 <br>
 > « Les forces de Titus ont poursuivi les rebelles qui avaient réussi à fuir en bateau et de manière décisive les ont vaincus dans une bataille navale rangée.
@@ -191,7 +191,7 @@ Il y a quelque temps tu as lu des commentaires sur ces passages de la Bible qui 
 > Quand les naufragés cherchaient à se sauver à la nage, une flèche avait vite fait de les atteindre ou un radeau de les saisir. Si, dans leur désespoir, ils montaient à l’abordage, les Romains leur coupaient la tête ou les mains. Ainsi ces misérables périssaient par milliers de mille manières ; tandis que les survivants, fuyant vers le rivage, s’y virent refouler et leurs barques entourées. Alors, cernés de tous côtés, beaucoup se jetèrent dans le lac, et y périrent sous les javelots ; d’autres sautèrent à terre, où les Romains les égorgèrent. On put voir tout le lac rouge de sang et rempli de cadavres, car pas un homme n’échappa. Pendant les jours suivants, tout le pays présenta une odeur et un spectacle également affreux. Sur les rives s’entassaient les débris et les cadavres enflés : ces corps, putréfiés par la chaleur ou par l’humidité, empestaient l’atmosphère, et l’horrible catastrophe qui plongeait, dans le deuil, les Juifs, inspirait du dégoût même aux Romains.  Telle fut l’issue de la bataille navale. On compta six mille cinq cents morts, y compris ceux qui étaient tombés dans la défense de la ville. »
 <br>
 <br>
-> Flavius Josèphe, Guerre des Juifs, Livre III, Chapitre X, Section 9
+> **Flavius Josèphe, Guerre des Juifs, Livre III, Chapitre X, Section 9**
 
 Une preuve de conversion ?
 
@@ -204,13 +204,13 @@ Une preuve de conversion ?
 > Il leur dit : « Allez-y ! » Ils sont donc sortis et ils entrèrent dans les pourceaux, et le troupeau se précipita des pentes escarpées dans le lac et se noya. »
 <br>
 <br>
-> – Matthieu 8:31-32
+> **[Matthieu 8:31-32](https://saintebible.com/matthew/8-31.htm)**
 <br>
 <br>
 > « L’araméen al signifie « entrer dans », « attaquer », « chasser » ; mais il a été exclusivement traduit « entrer dans », de manière à impliquer  que les démons entrèrent dans les pourceaux. Selon le contexte et le style de la parole araméenne, le mot al ici signifie que, non pas des démons, mais des déséquilibrés ont attaqué les porcs. Ces déséquilibrés étaient Syriens ou Gadaréniens, dont étaient issus les porchers, ce qui était une abomination pour les Juifs. Comme une marque d’appréciation de ce que Jésus faisait pour eux et comme une preuve de leur conversion, ces déséquilibrés étaient prêts à détruire le troupeau de porcs qui appartenait à leur peuple. Ce fut sans doute une des raisons pour lesquelles les propriétaires des porcs sont entrés dans une panique et ont demandé à Jésus de quitter leur pays, de peur que leurs entreprises ne soient complètement détruites par plus de conversions à la foi Juive. D’autre part, les démons n’ont pas besoin de l’autorisation de Jésus pour entrer dans les pourceaux, pas plus qu’ils n’avaient besoin d’une autorisation d’entrer dans les déséquilibrés. »
 <br>
 <br>
-> George M. Lamsa (traducteur araméen), Les Quatre Évangiles : Selon la version orientale (1933) p. XIV.
+> **George M. Lamsa (traducteur araméen), Les Quatre Évangiles : Selon la version orientale (1933) p. XIV.**
 
 Très bien, mon ami. Maintenant, tu nous a donné une longue liste de différentes explications. Il n’est pas toujours facile d’interpréter les récits bibliques. L’explication est intéressante, bien que certaines des références aux livres de Flavius Josèphe soient erronées.
 

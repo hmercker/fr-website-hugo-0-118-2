@@ -1,13 +1,13 @@
 ---
-title: "Les expériences du Pape urbain II"
+title: "Les expériences du Pape Urbain II"
 menu_title: ""
-description: "Les expériences du Pape urbain II"
+description: "Les expériences du Pape Urbain II"
 date: 2022-06-01 06:00:01+00:145
 draft: False
 hidden: True
 weight:
 ---
-### Les expériences du Pape urbain II
+### Les expériences du Pape Urbain II
 
 Pape Urbain II <sup id="a1">[1](#f1)</sup> - reçu par FAB le 17 Août 2010, Santa Cruz, Californie, USA.
 

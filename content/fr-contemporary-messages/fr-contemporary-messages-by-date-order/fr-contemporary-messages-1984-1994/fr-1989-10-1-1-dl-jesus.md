@@ -9,7 +9,7 @@ weight:
 ---
 ### Le flux et reflux de l’Amour Divin
 
-Jésus - reçu par Révérend Dave Lampron le 1 Octobre 1989.
+Jésus - reçu par Révérend Dave Lampron le 1<sup>er</sup> Octobre 1989.
 
 *[Très cher Maître, Jésus, comme je suis sûr que vous le savez, compte tenu de votre récente visite et des impressions reçues, K____ et J____ cherchent des éclaircissements concernant les « reflux » et les « flux » de l’Amour Divin du Père, et si ce processus rythmique a lieu périodiquement ou non, indépendamment de la condition spirituelle de l’homme. C’est-à-dire, y a-t-il des périodes de temps où le Père laisse couler Son Amour à travers l’univers, et d’autres périodes de temps où Il retire cet Amour à Lui-même, peut-être pour le « recharger » ? J____ se réfère à votre sermon sur Osée dans lequel vous affirmez qu’Osée était conscient que l’Amour Divin débordait en Dieu plus de 750 ans avant votre venue, et se demande pourquoi cela se passait si longtemps avant votre apparition sur terre.*
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Le Cœur Collectif
 
-Marie - reçu par Amada Reza le 1 Mai 2002, Aptos, Californie, USA.
+Marie - reçu par Amada Reza le 1<sup>er</sup>Mai 2002, Aptos, Californie, USA.
 
 Je suis ici avec toi, ma chère sœur, et je suis Marie, la mère de Jésus, et ta gardienne et amie. Je suis très heureuse d’être avec toi, je t’entoure de mon amour et de ma gratitude d’avoir la possibilité de t’écrire.
 

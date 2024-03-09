@@ -9,7 +9,7 @@ weight:
 ---
 ### Quelques réponses à des questions personnelles, ainsi que quelques perles de sagesse...
 
-Jésus - reçu par Kathryn Stokes le 1 Avril 1997, Santa Cruz, Californie, USA.
+Jésus - reçu par Kathryn Stokes le 1<sup>er</sup> Avril 1997, Santa Cruz, Californie, USA.
 
 *[Cher Père Céleste, je me sens un peu triste cet après-midi. J'ai négligé la réception de mes messages depuis un certain temps...*
 

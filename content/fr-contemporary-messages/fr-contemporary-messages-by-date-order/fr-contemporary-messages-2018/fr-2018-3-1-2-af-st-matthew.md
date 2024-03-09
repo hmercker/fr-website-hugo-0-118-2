@@ -1,7 +1,7 @@
 ---
-title: "Cherchez l'amour de Dieu et tout viendra"
+title: "Cherchez l'Amour de Dieu et tout viendra"
 menu_title: ""
-description: "Cherchez l'amour de Dieu et tout viendra"
+description: "Cherchez l'Amour de Dieu et tout viendra"
 date: 2022-06-01 06:00:01+00:335
 draft: False
 hidden: True
@@ -9,7 +9,7 @@ weight:
 ---
 ### Cherchez l'Amour de Dieu et tout viendra
 
-St Matthieu - reçu par Al Fike le 1 Mars 2018, Homosassa Springs, FL, USA.
+St Matthieu - reçu par Al Fike le 1<sup>er</sup> Mars 2018, Homosassa Springs, FL, USA.
 
 Que Dieu touche chacune de vos âmes de son amour. Puisse ce Toucher aller profondément en vous et vous apporter un éveil et une compréhension des bénédictions que Dieu a à apporter à chacune de vous, âmes bien-aimées. Ce n’est pas difficile à voir et à reconnaître, c’est simplement un désir, un désir, une prière, un désir ardent de l’intérieur de vous. Pourtant, avec ce désir et cette prière, ce cadeau est disponible et peut être donné sur demande de cette âme pour recevoir son toucher de Dieu à l’intérieur de l’âme.
 

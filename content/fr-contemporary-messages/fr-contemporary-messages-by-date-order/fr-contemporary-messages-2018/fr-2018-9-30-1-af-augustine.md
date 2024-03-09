@@ -1,13 +1,13 @@
 ---
-title: "Il est temps de dire la vérité"
+title: "Il est temps de dire la Vérité"
 menu_title: ""
-description: "Il est temps de dire la vérité"
+description: "Il est temps de dire la Vérité"
 date: 2022-06-01 06:00:01+00:490
 draft: False
 hidden: True
 weight:
 ---
-### Il est temps de dire la vérité
+### Il est temps de dire la Vérité
 
 Augustin - reçu par Al Fike le 30 Septembre 2018, Gibsons, Colombie-Britannique, Canada.
 

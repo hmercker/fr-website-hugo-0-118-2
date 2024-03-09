@@ -1,7 +1,7 @@
 ---
-title: "Al Fike et Jimbeau Walsh rendent visite à un guérisseur"
+title: "Al Fike et Jimbeau Walsh rendent visite à une guérisseuse"
 menu_title: ""
-description: "Al Fike et Jimbeau Walsh rendent visite à un guérisseur"
+description: "Al Fike et Jimbeau Walsh rendent visite à une guérisseusee"
 date: 2022-06-01 06:00:01+00:567
 draft: False
 hidden: True

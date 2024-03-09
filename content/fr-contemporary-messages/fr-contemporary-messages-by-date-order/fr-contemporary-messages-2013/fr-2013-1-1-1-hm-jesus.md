@@ -9,7 +9,7 @@ weight:
 ---
 ### Salutations pour la Nouvelle Année
 
-Jésus - reçu par Helge Mercker le 1 Janvier 2013, Elim, Namibie.
+Jésus - reçu par Helge Mercker le 1<sup>er</sup> Janvier 2013, Elim, Namibie.
 
 C’est moi, Jésus (il sourit doucement) Tu es dans le cercle d’Amis, nous sommes ici, nous sommes tous ici pour te dire combien nous t’aimons et combien nous apprécions notre amitié (sentiment joyeux, festif, solennel). Nous sommes heureux de cette nouvelle ère et de cette nouvelle année. Nous reconnaissons tous ceux qui ont fait le travail de notre Père, nous vous exprimons à tous notre amour et notre gratitude, mes frères et sœurs, car vos efforts ne passent pas inaperçus. Nous sommes maintenant confrontés à des possibilités plus grandes que jamais de partager les vérités et l’existence du don de notre Père, Son Amour. Chacun et chacune sera apprécié dans ses efforts et de nombreuses autres tâches plus grandes vous attendent. Sachez le nombre puissant d’aides sur ce plan et vous saurez la certitude du succès de tous nos efforts. Restez intimement liés les uns aux autres, soutenez-vous mutuellement et continuez à prier ensemble, comme vous l’avez fait jusqu’à présent. C’est avec joie et bonheur que nous y participons, ainsi que beaucoup d’autres.
 

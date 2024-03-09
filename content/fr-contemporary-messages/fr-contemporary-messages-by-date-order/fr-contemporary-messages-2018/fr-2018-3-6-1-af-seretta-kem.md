@@ -1,13 +1,13 @@
 ---
-title: "Les lois du rapport dans le développement de la voix directe"
+title: "Les lois du rapport dans le développement de la Voix Directe"
 menu_title: ""
-description: "Les lois du rapport dans le développement de la voix directe"
+description: "Les lois du rapport dans le développement de la Voix Directe"
 date: 2022-06-01 06:00:01+00:343
 draft: False
 hidden: True
 weight:
 ---
-### Les lois du rapport dans le développement de la voix directe
+### Les lois du rapport dans le développement de la Voix Directe
 
 Seretta Kem - reçu par Al Fike le 6 Mars 2018, Punaluua, Oahu, HI, USA.
 

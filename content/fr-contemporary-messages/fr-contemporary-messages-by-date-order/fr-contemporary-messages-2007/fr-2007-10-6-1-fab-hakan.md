@@ -1,19 +1,19 @@
 ---
-title: "Le maître d’œuvre Egyptien confirme le message de Moïse"
+title: "Le maître d’œuvre Égyptien confirme le message de Moïse"
 menu_title: ""
-description: "Le maître d’œuvre Egyptien confirme le message de Moïse"
+description: "Le maître d’œuvre Égyptien confirme le message de Moïse"
 date: 2022-06-01 06:00:01+00:169
 draft: False
 hidden: True
 weight:
 ---
-### Le maître d’œuvre Egyptien confirme le message de Moïse
+### Le maître d’œuvre Égyptien confirme le message de Moïse
 
 Hakan - reçu par FAB le 6 Octobre 2007, Santa Cruz, Californie, USA.
 
 Je suis là, Hakan.
 
-Oui, c’est vrai, vous avez bien reçu mon nom. Je suis le maître d’œuvre égyptien que [Moïse a tué](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-10-6-2-fab-moses/), et je souhaite confirmer tout ce qu’il vient de dire.
+Oui, c’est vrai, vous avez bien reçu mon nom. Je suis le maître d’œuvre Égyptien que [Moïse a tué](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-10-6-2-fab-moses/), et je souhaite confirmer tout ce qu’il vient de dire.
 
 Lorsque je suis entré dans le monde des esprits, après la période d’adaptation initiale, je suis entré dans une sphère de ténèbres grossières. Ma cruauté envers les esclaves Hébreux m’est revenue en pleine figure. Et la haine que je nourrissais dans mon cœur à l’égard de Moïse n’a fait qu’attiser mon feu infernal.
 

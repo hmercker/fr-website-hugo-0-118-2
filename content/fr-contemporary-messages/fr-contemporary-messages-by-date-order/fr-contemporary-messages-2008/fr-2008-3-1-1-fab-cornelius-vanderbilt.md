@@ -9,7 +9,7 @@ weight:
 ---
 ### Un industriel américain est perdu
 
-Cornelius Vanderbilt <sup id="a1">[1](#f1)</sup> - reçu par FAB le 1 Mars 2008, Santa Cruz, Californie, USA.
+Cornelius Vanderbilt <sup id="a1">[1](#f1)</sup> - reçu par FAB le 1<sup>er</sup> Mars 2008, Santa Cruz, Californie, USA.
 
 Je suis Cornelius Vanderbilt.
 

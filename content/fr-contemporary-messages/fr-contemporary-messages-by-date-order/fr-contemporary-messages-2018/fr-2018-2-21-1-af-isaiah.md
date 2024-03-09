@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### L'amour de Dieu vous ouvre les portes de l'entendement
+### L'Amour de Dieu vous ouvre les portes de l'entendement
 
 Isaïe - reçu par Al Fike le 21 Février 2018, Monroeville, PA, USA.
 

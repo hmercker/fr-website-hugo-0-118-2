@@ -9,7 +9,7 @@ weight:
 ---
 ### Esprits des Temps Anciens
 
-Nous qualifions d’esprits anciens les esprits qui ont vécu sur terre avant la venue de Jésus. Parmi eux il convient de noter la présence des premiers parents de l’humanité Adam, Eve (et leurs enfants Abel et Cain) qui sont respectivement appelés Aman et Amon depuis qu’il se sont exprimés à travers James Padgett il y a tout juste un siècle. Plus proche de nous, il convient de noter les messages de Confucius et Lao Tseu. Confucius est particulièrement présent puisqu’au début de l’année 2023, il avit communiqué une soixantaine de messages. Beaucoup de ses messages sont poétiques car il appelle souvent ses  auditeurs et lecteurs ses « petits oiseaux » !!!
+Nous qualifions d’esprits anciens les esprits qui ont vécu sur terre avant la venue de Jésus. Parmi eux il convient de noter la présence des premiers parents de l’humanité Adam, Eve (et leurs enfants Abel et Cain) qui sont respectivement appelés Aman et Amon depuis qu’il se sont exprimés à travers James Padgett il y a tout juste un siècle. Plus proche de nous, il convient de noter les messages de Confucius et Lao Tseu. Confucius est particulièrement présent puisqu’au début de l’année 2023, il avait communiqué une soixantaine de messages. Beaucoup de ses messages sont poétiques car il appelle souvent ses auditeurs et lecteurs ses « petits oiseaux » !!!
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---

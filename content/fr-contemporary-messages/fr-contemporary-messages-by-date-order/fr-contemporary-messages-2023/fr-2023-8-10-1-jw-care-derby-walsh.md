@@ -22,7 +22,7 @@ Puissiez-vous reposer dans la grâce de Dieu et être assuré de mon amour ainsi
 Que Dieu vous bénisse. Je suis Care.
 <small>
 
-1. <large id="f1"> En référence à Robert James Lees [Gate of Heaven – Les portes du Ciel](/13-fr-publications-and-downloads/13-4-fr-extracts-from-spiritual-books/) et au livre [Judas de Kerioth](/3-fr-judas-of-kerioth-messages/*\3-1-fr-the-book-of-juda/) (reçu par H.R).[↩](#a1)
+1. <large id="f1"> En référence à Robert James Lees [Gate of Heaven – Les portes du Ciel](/13-fr-publications-and-downloads/13-4-fr-extracts-from-spiritual-books/) et au livre [Judas de Kerioth](/3-fr-judas-of-kerioth-messages/3-1-fr-the-book-of-judas/) (reçu par H.R).[↩](#a1)
 
 ### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
 

@@ -1,7 +1,7 @@
 ---
-title: "Un dirigeant israélien complète son message précédent"
+title: "Un dirigeant Israélien complète son message précédent"
 menu_title: ""
-description: "Un dirigeant israélien complète son message précédent"
+description: "Un dirigeant Israélien complète son message précédent"
 date: 2022-06-01 06:00:01+00:137
 draft: False
 hidden: True

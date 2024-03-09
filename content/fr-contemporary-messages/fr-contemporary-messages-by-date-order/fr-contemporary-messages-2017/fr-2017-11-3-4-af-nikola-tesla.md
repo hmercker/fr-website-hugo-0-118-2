@@ -26,7 +26,7 @@ Je vous remercie de m'avoir écouté, mes amis. Je suis Nicolas Tesla et j'espè
 Vous seriez très surpris du nombre de personnes qui vous connaissent. Vous provoquez une certaine agitation dans le monde des esprits, une certaine agitation. Que Dieu vous bénisse, mes amis. Je suis avec vous. Je continue à prier pour que l'Amour du Père remplisse mon âme afin que je puisse connaître davantage le monde, l'univers de Dieu. Une si belle aventure, n'est-ce pas ? Que Dieu vous bénisse. Que Dieu vous bénisse, mes amis.
 <small>
 
-1. <large id="f1"> Nicolas Tesla s'est également exprimé dans un seconnd message communiqué [le | 15 Mai 2022](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-15-2-af-nikola-tesla/)[↩](#a1)
+1. <large id="f1"> Nicolas Tesla s'est également exprimé dans un seconnd message communiqué [le 15 Mai 2022](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-15-2-af-nikola-tesla/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
 

@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Marcher dans la lumière à travers les bouleversements à venir - D.V.
+### Marcher dans la lumière à travers les bouleversements à venir - V.D.
 
 Tahlia<sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 2 Octobre 2017, Gibsons, Colombie-Britannique, Canada
 

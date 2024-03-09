@@ -9,7 +9,7 @@ weight:
 ---
 ### Simon le Zélote
 
-Judas - reçu par H____ le 1 Avril 2002, Cuenca, Équateur.
+Judas - reçu par H____ le 1<sup>er</sup> Avril 2002, Cuenca, Équateur.
 
 Mon cher frère H____ ,
 
@@ -47,7 +47,7 @@ Que Dieu te bénisse.
 
 ![title](/3-fr-judas-of-kerioth-messages/fr-simon_small.jpg)
 
-    # **Simon le Zélote**
+     **Simon le Zélote**
 
 © Geoff Cutler 2013
 

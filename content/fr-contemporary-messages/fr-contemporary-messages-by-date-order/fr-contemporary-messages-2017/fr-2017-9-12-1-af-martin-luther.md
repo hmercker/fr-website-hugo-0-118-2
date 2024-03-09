@@ -11,7 +11,7 @@ weight:
 
 Martin Luther - reçu par Al Fike le 12 Septembre 2017, Gibsons, Colombie-Britannique, Canada
 
-Je suis Martin Luther. J'ai écouté votre conversation de ce soir. Je vois que vous êtes arrivé à un endroit où vous voyez qu'il y a des limitations et que Dieu a placé certaines règles en ce qui concerne l'existence de chaque âme.
+Je suis Martin Luther.<sup id="a1">[1](#f1)</sup>  J'ai écouté votre conversation de ce soir. Je vois que vous êtes arrivé à un endroit où vous voyez qu'il y a des limitations et que Dieu a placé certaines règles en ce qui concerne l'existence de chaque âme.
 
 Oui, c'est une croyance populaire que l'univers est illimité, qu'il n'y a pas de limites, que l'humanité peut aller où elle veut et que les possibilités sont illimitées. Je dois vous dire que Dieu a créé un univers ordonné. Pour que toutes les choses fonctionnent en harmonie, il y a des limites. Ce qui est illimité, c'est Dieu et une bénédiction qui n'a pas de limites, le déversement de Son Essence, l'Amour Divin. C'est sans limite. Mais même avec cela, comme vous l'avez lu, il y aura un moment où cette possibilité sera terminée. Vous voyez donc que même cette opportunité qui est si pleine de la grande et illimitée générosité de Dieu prendra fin à un moment donné dans le futur.
 

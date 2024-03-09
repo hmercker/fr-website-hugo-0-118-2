@@ -1,7 +1,7 @@
 ---
-title: "Vous apportez l'amour de Dieu par votre présence"
+title: "Vous apportez l'Amour de Dieu par votre présence"
 menu_title: ""
-description: "Vous apportez l'amour de Dieu par votre présence"
+description: "Vous apportez l'Amour de Dieu par votre présence"
 date: 2022-06-01 06:00:01+00:746
 draft: False
 hidden: True

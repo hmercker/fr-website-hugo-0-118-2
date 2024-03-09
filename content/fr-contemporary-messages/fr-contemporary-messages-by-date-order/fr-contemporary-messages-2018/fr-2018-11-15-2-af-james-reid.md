@@ -23,10 +23,10 @@ Mes amis, sachez que nous vous entourons de lumière, que nous continuons notre 
 
 Mes frères, beaucoup travaillent avec vous et beaucoup cherchent à travailler à travers vous et tant que votre désir est le plus élevé, de nombreux et magnifiques cadeaux et bénédictions se manifesteront à travers vous. Sachez que chaque vie continue son voyage, un processus d’éveil et de croissance. Vous avez glané beaucoup de vérité et de connaissance dans vos vies et cela vous aide profondément dans votre croissance, votre direction et votre capacité à servir et à dire la vérité.
 
-Mes amis, votre frère James est avec vous. Que Dieu vous bénisse. C’est un cadeau de vous assister dans vos efforts et dans votre croissance de l’âme. Que Dieu vous bénisse. Que Dieu vous bénisse. Votre ami Jacques, n’est jamais loin.
+Mes amis, votre frère James<sup id="a2">[2](#f2)</sup> est avec vous. Que Dieu vous bénisse. C’est un cadeau de vous assister dans vos efforts et dans votre croissance de l’âme. Que Dieu vous bénisse. Que Dieu vous bénisse. Votre ami James, n’est jamais loin.
 <small>
 
-1. <large id="f1"> Je, Geoff Cutler, webmastrer des [sites New-Birth.net](https://new-birth.net/) et [Soul.Truth.Ca](https://soultruth.ca/) considère James comme un ami très spécial. Nous avons passé de nombreuses heures heureuses à parler de choses spirituelles et à prier ensemble. Malheureusement, comme il vivait en Queensland, je ne l’ai pas vu, lui et sa charmante épouse, aussi souvent que je l’aurais souhaité. Il n’était que récemment décédé à cette date.[↩](#a1)
+1. <large id="f1"> Je, Geoff Cutler, webmaster des [sites New-Birth.net](https://new-birth.net/) et [Soul.Truth.Ca](https://soultruth.ca/) considère James comme un ami très spécial. Nous avons passé de nombreuses heures heureuses à parler de choses spirituelles et à prier ensemble. Malheureusement, comme il vivait en Queensland, je ne l’ai pas vu, lui et sa charmante épouse, aussi souvent que je l’aurais souhaité. Il n’était que récemment décédé à cette date.[↩](#a1)
 
 2. <large id="f2"> James Reid s'est également exprimé dans les messages suivants : [↩](#a2)
 

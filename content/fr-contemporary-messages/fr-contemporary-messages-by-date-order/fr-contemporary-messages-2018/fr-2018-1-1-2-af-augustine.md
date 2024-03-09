@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous entrez dans une nouvelle phase de service
 
-Augustin - reçu par Al Fike le 1 Janvier 2018, West Vancouver, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 1<sup>er</sup> Janvier 2018, West Vancouver, Colombie-Britannique, Canada.
 
 C’est votre maître Augustin. Vous entrez dans une nouvelle phase de votre service à Dieu, car c’est un temps où des portes s’ouvriront pour vous mes âmes bien-aimées, des portes de conscience dans votre âme, des portes de service dans ce monde. Alors que vos esprits s’ajustent aux éveils de vos âmes, vous serez en mesure de percevoir et d’accepter ce qui vient pour chacun d’entre vous. Il n’y aura aucun doute, aucune confusion, aucun malentendu. La volonté de Dieu sera exposée clairement devant vous, mes âmes bien-aimées, dans toute sa puissance et sa simplicité. C’est à vous d’accepter et de permettre avec joie à la volonté de Dieu de se manifester à travers vous. Vous êtes prêts pour cela, mes bien-aimés. Vous avez prié pour cela et vous avez cherché l’Amour du Père pour faire ces guérisons et ces changements en vous et vous commencez à vous réveiller et à comprendre votre but tel qu’il vous a été donné par Dieu.
 

@@ -22,7 +22,7 @@ Et mon cher frère JW – il a été informé hier que lorsque l’air s’écla
 Que le grand don de l’Amour de Dieu continue à illuminer nos âmes et à nous élever dans la joie et la félicité qui sont le don de Dieu. Avec tout mon amour et les bénédictions d’un frère qui ne vous abandonnera jamais. Je suis Yogananda.
 <small>
 
-1. <large id="f1> Parlant à John M de son ami pasteur.[↩](#a1)
+1. <large id="f1"> Parlant à John M de son ami pasteur.[↩](#a1)
 
 ### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
 

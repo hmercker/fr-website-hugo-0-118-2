@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous ne sommes pas si différents
 
-Yogananda - reçu par Jimbeau Walsh le 1 Avril 2019, Gibsons, Colombie-Britannique, Canada.
+Yogananda - reçu par Jimbeau Walsh le 1<sup>er</sup> Avril 2019, Gibsons, Colombie-Britannique, Canada.
 
 Mon cher garçon, mon cher ami, je souhaite commencer par le début car cela semble être le meilleur endroit pour commencer.
 

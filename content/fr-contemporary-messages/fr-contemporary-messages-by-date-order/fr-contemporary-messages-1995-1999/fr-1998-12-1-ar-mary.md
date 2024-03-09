@@ -9,7 +9,7 @@ weight:
 ---
 ### L’ascension de Jésus et les prophéties de Daniel
 
-Marie - reçu par Amada Reza le  Décembre 1998, Aptos, Californie, USA.
+Marie - reçu par Amada Reza le 1<sup>er</sup> Décembre 1998, Aptos, Californie, USA.
 
 *[Cher Père Céleste, je prie pour que ton Amour remplisse mon âme, mon mental et mon corps afin que je puisse rencontrer mon guide Céleste au-dessus de ce plan terrestre pour établir un rapport avec son amour merveilleux. Je prie avec foi pour que Tu me protèges de toute influence néfaste et que la vérité prévale. Je veux être un instrument d’amour et de paix et je T’aime, mon cher Père aimant, ainsi que Tes anges célestes.]*
 

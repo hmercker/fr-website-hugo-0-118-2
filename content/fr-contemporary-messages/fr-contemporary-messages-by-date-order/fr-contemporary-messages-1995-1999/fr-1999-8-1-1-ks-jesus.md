@@ -9,7 +9,7 @@ weight:
 ---
 ### Jésus : Les canalisations du Dr Samuels
 
-Jésus - reçu par Kathryn Stokes le 1 Août 1999, Santa Cruz, Californie, USA.
+Jésus - reçu par Kathryn Stokes le 1<sup>er</sup> Août 1999, Santa Cruz, Californie, USA.
 
 Cher Créateur, Parent Céleste, Source de Tout Amour, nous nous efforçons de suivre Ton Chemin, de nous rapprocher de Ta Nature d'Amour. II nous a été dit que la meilleure façon pour nous d'aider tes enfants à apprendre la disponibilité de ton merveilleux amour transformateur est d'en donner l'exemple dans notre vie quotidienne. Il nous a été demandé d'enseigner aux gens ce qu'ils doivent faire pour activer le potentiel le plus élevé de leur âme et que, avec le temps, la puissance de Ton Amour Divin dans leur âme les amènera à un niveau spirituel plus élevé où ils seront capables de saisir des vérités spirituelles supérieures.
 

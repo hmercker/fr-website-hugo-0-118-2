@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous devez vous lever et dire la vérité
 
-Nuage Blanc - reçu par Al Fike le 1 Juin 2019, Gibsons, Colombie-Britannique, Canada.
+Nuage Blanc - reçu par Al Fike le 1<sup>er</sup> Juin 2019, Gibsons, Colombie-Britannique, Canada.
 
 Bénédictions du Créateur, je suis Nuage blanc.<sup id="a1">[1](#f1)</sup> Vous m'avez attiré dans votre cercle avec vos chansons et vos histoires de ceux qui ont fait l'expérience des vérités des peuples de votre terre, la Grande Île de la Tortue, comme on l'appelle.
 

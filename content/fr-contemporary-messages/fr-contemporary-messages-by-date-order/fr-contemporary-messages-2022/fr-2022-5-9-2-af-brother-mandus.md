@@ -1,13 +1,13 @@
 ---
-title: "Continuez à prier pour que la volonté de Dieu prévale à WHC – Ne perdez pas espoir"
+title: "Continuez à prier pour que la Volonté de Dieu prévale à WHC – Ne perdez pas espoir"
 menu_title: ""
-description: "Continuez à prier pour que la volonté de Dieu prévale à WHC – Ne perdez pas espoir"
+description: "Continuez à prier pour que la Volonté de Dieu prévale à WHC – Ne perdez pas espoir"
 date: 2022-06-01 06:00:01+00:82
 draft: False
 hidden: True
 weight:
 ---
-### Continuez à prier pour que la volonté de Dieu prévale au WHC<sup id="a1">[1](#f1)</sup> – Ne perdez pas espoir
+### Continuez à prier pour que la Volonté de Dieu prévale au WHC<sup id="a1">[1](#f1)</sup> – Ne perdez pas espoir
 
 Frère Mandus - reçu par Al Fike le 9 Mai 2022, Gibsons, Blackpool, Royaume Uni.
 
@@ -42,7 +42,7 @@ Et je vous remercie encore, et encore et encore, pour tout ce que vous faites et
 Mon travail n’est pas terminé, ni le vôtre, il y a encore tant à faire, et puissions-nous trouver notre chemin sur la voie que Dieu a désignée, sur le voyage de la lumière, de l’éveil, de l’amour de l’âme. Que Dieu vous bénisse mes amis, je suis votre frère, Mandus, et je suis avec vous. Que Dieu vous bénisse.
 <small>
 
-1. <large id="f1"> [WHC =  World Healing Center](https://www.whc.uk.net/). Ce centre a  été fondé par l'auteur de ce messsage, Frère Mandus Nyquist, dans les années 50.[↩](#a1)
+1. <large id="f1"> [WHC =  World Healing Center](https://www.whc.uk.net/). Ce centre a  été fondé par l'auteur de ce messsage, Frère Mandus Nyquist, dans les années 50, à Blackpool, en Angleterre.[↩](#a1)
 
 2. <large id="f21"> Brother Mandus s'est également exprimé dans les messages suivants : [↩](#a2)
 

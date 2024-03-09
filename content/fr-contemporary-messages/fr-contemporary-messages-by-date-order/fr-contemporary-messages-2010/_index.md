@@ -52,14 +52,14 @@ Jack London | [Les lois de Dieu sont simples](/fr-contemporary-messages/fr-conte
 Jésus | [Violence physique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-7-29-1-fab-jesus/) | 29 Juillet 2010
 Jésus | [Jésus parle de la juste indignation - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-7-29-2-fab-jesus/) | 29 Juillet 2010
 Jésus | [Jésus est né sans Péché et sans Défaut](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-9-1-fab-jesus/) | 9 Août 2010
-Pape Urbain II | [Les expériences du Pape urbain II](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-17-1-fab-pope-urban-ii/) | 17 Août 2010
-Pape Urbain II | [Les expériences du Pape urbain II -2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-18-1-fab-pope-urban-ii/) | 18 Août 2010
+Pape Urbain II | [Les expériences du Pape Urbain II](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-17-1-fab-pope-urban-ii/) | 17 Août 2010
+Pape Urbain II | [Les expériences du Pape Urbain II -2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-18-1-fab-pope-urban-ii/) | 18 Août 2010
 Saladin | [Les expériences d’un leader Musulman](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-18-2-fab-saladin/) | 18 Août 2010
 Jésus | [L'Union Européenne - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-25-3-fab-jesus/) | 25 Août 2010
 Franklin D Roosevelt | [Franklin D. Roosevelt sur les complexités d'un président](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-26-1-fab-franklin-d-roosevelt/) | 26 Août 2010
 Harry Truman | [Pensées d'un président](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-26-2-fab-harry-truman/) | 26 Août 2010
 Jésus | [Foi et succès mondains](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-27-1-fab-jesus/) | 27 Août 2010
-Emmett Till | [Affirmation afro-américaine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-30-1-fab-emmett-till/) | 30 Août 2010
+Emmett Till | [Affirmation Afro-Américaine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-30-1-fab-emmett-till/) | 30 Août 2010
 Benjamin Franklin | [La Confédération iroquoise - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-9-3-1-fab-benjamin-franklin/) | 3 Septembre 2010
 Jésus | [Optimisme en matière d'environnement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-9-3-2-fab-jesus/) | 3 Septembre 2010
 Jésus | [Préoccupations terrestres et spirituelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-9-10-1-fab-jesus/) | 10 Septembre 2010

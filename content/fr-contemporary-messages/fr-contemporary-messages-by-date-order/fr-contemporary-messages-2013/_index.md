@@ -11,7 +11,7 @@ weight:
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-Jésus | [Salutations pour la Nouvelle Année](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-1-1-hm-jesus/) | 1 Janvier 2013
+Jésus | [Salutations pour la Nouvelle Année](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-1-1-hm-jesus/) | 1<sup>er</sup> Janvier 2013
 Anne Rollins | [La communication requiert de la dévotion et de l'engagement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-2-1-hm-ann-rollins/) | 2 Janvier 2013
 Judas | [Conseils personnels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-4-1-hm-judas/) | 4 Janvier 2013
 Judas | [La joie de l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-5-1-hm-judas/) | 5 Janvier 2013
@@ -32,7 +32,7 @@ Judas | [Quelques conseils personnels](/fr-contemporary-messages/fr-contemporary
 Le Père Céleste | [En vous, je ne vois que de la beauté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-25-1-cog-father/) | 25 Janvier 2013
 Le Père Céleste | [Tu dois te donner du temps](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-26-1-cog-father/) | 26 Janvier 2013
 Le Père Céleste | [Les attentes ne laissent aucune place au mystère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-29-1-cog-father/) | 29 Janvier 2013
-Le Père Céleste | [Tu es mon temple](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-2-1-1-cog-father/) | 1 Février 2013
+Le Père Céleste | [Tu es mon temple](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-2-1-1-cog-father/) | 1<sup>er</sup> Février 2013
 Le Père Céleste | [Tombons amoureux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-2-3-1-cog-father/) | 3 Février 2013
 Le Père Céleste | [Ne laissez pas votre mental limiter votre pensée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-2-6-1-cog-father/) | 6 Février 2013
 Le Père Céleste | [Vous êtes uniques](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-2-10-1-cog-father/) | 10 Février 2013
@@ -57,12 +57,12 @@ Jésus | [La relation réflétée de nos parents et de notre Père](/fr-contempo
 Colonel Prouty | [Le Colonel Prouty décrit son travail](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-21-1-fab-colonel-prouty/) | 21 Mars 2013
 Jésus | [Encouragement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-22-1-fab-jesus/) | 22 Mars 2013
 John Fitzgerald Kennedy | [La pensée réconfortante d’un président](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-25-1-fab-john-f-kennedy/) | 25 Mars 2013
-Oscar Romero | [Le réconfort d’un martyr de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-29-1-fab-oscar-romero/) | 29 Mars 2013
-Le Père Céleste | [Vous êtes mes anges sur terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-1-1-cog-father/) | 1 Avril 2013
+Oscar Romero | [Le réconfort d’un martyr de la Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-29-1-fab-oscar-romero/) | 29 Mars 2013
+Le Père Céleste | [Vous êtes mes anges sur terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-1-1-cog-father/) | 1<sup>er</sup> Avril 2013
 Jackie Gleason | [Clarification de Jackie Gleason](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-5-1-fab-jackie-gleason/) | 5 Avril 2013
 Reine Liliuokalani | [Un message de réconfort d’une Reine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-9-1-fab-queen-liliuokalani/) | 9 Avril 2013
-Jésus | [Paix, première partie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-30-1-bs-jesus/) | 30 Avril 2013
-Le Père Céleste | [Sois Mon Amour pour changer le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-1-1-cog-father/) | 1 Mai 2013
+Jésus | [Paix, première partie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-30-1-jg-jesus/) | 30 Avril 2013
+Le Père Céleste | [Sois Mon Amour pour changer le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-1-1-cog-father/) | 1<sup>er</sup> Mai 2013
 Le Père Céleste | [Je touche ton âme avec un baiser silencieux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-5-1-cog-father/) | 5 Mai 2013
 Pablo Neruda | [Communistes – 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-5-2-fab-pablo-neruda/) | 5 Mai 2013
 Jésus | [Paix, partie II](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-7-1-jg-jesus/) | 7 Mai 2013

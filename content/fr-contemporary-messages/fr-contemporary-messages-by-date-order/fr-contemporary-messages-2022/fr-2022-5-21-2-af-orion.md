@@ -11,7 +11,7 @@ weight:
 
 Orion - reçu par Al Fike le 21 Mai 2022, Gibsons, Colombie-Britannique, Canada.
 
-Mes amis bien-aimés, je suis Orion. Il y a toujours un but et une importance à vos prières ensemble en ce moment, alors que nous renforçons et ouvrons le développement de vos dons et de votre travail ensemble. Il y a beaucoup de choses à venir, encore des âmes bien-aimées, et tout ce que vous faites ensemble dans cette unification des âmes avec un seul but et un seul désir.
+Mes amis bien-aimés, je suis Orion. Il y a toujours un but et une importance à vos prières ensemble en ce moment, alors que nous renforçions et ouvrions le développement de vos dons et de votre travail ensemble. Il y a beaucoup de choses à venir, encore des âmes bien-aimées, et tout ce que vous faites ensemble dans cette unification des âmes avec un seul but et un seul désir.
 
 Notre travail continue. Les efforts que nous faisons continuent à avoir leur effet et leur but. Puissiez-vous continuer à vous concentrer sur cela et à vous unifier en cela. Car nous avons besoin d’instruments tels que vous pour apporter ces dons, ces manifestations et ces bénédictions à votre monde.
 

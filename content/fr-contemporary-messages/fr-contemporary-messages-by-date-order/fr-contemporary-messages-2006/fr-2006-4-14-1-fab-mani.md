@@ -13,7 +13,7 @@ Mani - reçu par FAB le 14 Avril 2006, Santa Cruz, Californie, USA.
 
 Je suis ici, Mani *[le fondateur du manichéisme <sup id="a1">[1](#f1)</sup>]*.
 
-Je sais que vous n'avez aucune idée de ce que je veux dire. Souvent, nous, les esprits, vous avons "coaché" en vous donnant des impressions de pensée de ce qui va suivre, mais puisque vous êtes arrivé à un nouveau niveau dans votre médiumnité, nous avons pensé vous donner un "essai".
+Je sais que vous n'avez aucune idée de ce que je veux dire. Souvent, nous, les esprits, vous avons  *« coaché »* en vous donnant des impressions de pensée de ce qui va suivre, mais puisque vous êtes arrivé à un nouveau niveau dans votre médiumnité, nous avons pensé vous donner un *« essai »*.
 
 Oui, j'ai fondé une nouvelle religion, et j'ai effectivement reçu une vision d'un ange. Mon but était d'intégrer les différentes religions. Mes antécédents m'ont amené à regarder le monde d'un mauvais œil, et j'ai donc formulé le concept d'un monde double, fait de bien et de mal, de lumière et d'obscurité.
 

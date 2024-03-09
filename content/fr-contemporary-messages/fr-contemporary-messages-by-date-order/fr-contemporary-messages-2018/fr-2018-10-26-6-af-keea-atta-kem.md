@@ -1,7 +1,7 @@
 ---
-title: "L'éveil de l'âme par l'amour de Dieu est la clé de tous les dons"
+title: "L'éveil de l'âme par l'Amour de Dieu est la clé de tous les dons"
 menu_title: ""
-description: "L'éveil de l'âme par l'amour de Dieu est la clé de tous les dons"
+description: "L'éveil de l'âme par l'Amour de Dieu est la clé de tous les dons"
 date: 2022-06-01 06:00:01+00:545
 draft: False
 hidden: True

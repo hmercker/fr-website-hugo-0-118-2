@@ -9,7 +9,7 @@ weight:
 ---
 ### Un industriel américain est malheureux
 
-Jay Gould <sup id="a1">[1](#f1)</sup> - reçu par FAB le 1 Mars 2008, Santa Cruz, Californie, USA.
+Jay Gould <sup id="a1">[1](#f1)</sup> - reçu par FAB le 1<sup>er</sup> Mars 2008, Santa Cruz, Californie, USA.
 
 Je suis Jay Gould.
 

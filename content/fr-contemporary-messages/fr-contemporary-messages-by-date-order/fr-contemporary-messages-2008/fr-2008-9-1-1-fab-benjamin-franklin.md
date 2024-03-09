@@ -9,7 +9,7 @@ weight:
 ---
 ### La confédération Iroquoise
 
-Benjamin Franklin - reçu par FAB le 1 Septembre 2008, Santa Cruz, Californie, USA.
+Benjamin Franklin - reçu par FAB le 1<sup>er</sup> Septembre 2008, Santa Cruz, Californie, USA.
 
 Je suis là, Benjamin Franklin.<sup id="a1">[1](#f1)</sup>
 

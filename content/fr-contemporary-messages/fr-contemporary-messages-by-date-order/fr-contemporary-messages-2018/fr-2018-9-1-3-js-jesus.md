@@ -9,7 +9,7 @@ weight:
 ---
 ### Apportez la lumière au monde
 
-Jésus - reçu par Jesper Sorensen le 1 Septembre 2018, Retraite de médiumnité, Gibsons, Colombie-Britannique, Canada.
+Jésus - reçu par Jesper Sorensen le 1<sup>er</sup> Septembre 2018, Retraite de médiumnité, Gibsons, Colombie-Britannique, Canada.
 
 Je dis que c’est un cercle magnifique. La belle lumière qui a été générée ici et vous avez tous très bien réussi à construire la lumière qui est utilisée dans le monde pour l’amélioration de l’humanité. Vous êtes tous des âmes précieuses et vous sentez la lumière et les liens grandir. Il n’y a pas de meilleure vérité que cette lumière, cet amour et vous avez été choisis pour l’apporter au monde.
 

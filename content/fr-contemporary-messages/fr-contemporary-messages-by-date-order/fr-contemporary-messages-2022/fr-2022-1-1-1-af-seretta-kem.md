@@ -9,7 +9,7 @@ weight:
 ---
 ### Message pour l’année à venir
 
-Seretta Kem - reçu par Al Fike le 1 Janvier 2022, Gibsons, Colombie-Britannique, Canada.
+Seretta Kem - reçu par Al Fike le 1<sup>er</sup> Janvier 2022, Gibsons, Colombie-Britannique, Canada.
 
 ![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-eveil-spirituel8.jpg)
 

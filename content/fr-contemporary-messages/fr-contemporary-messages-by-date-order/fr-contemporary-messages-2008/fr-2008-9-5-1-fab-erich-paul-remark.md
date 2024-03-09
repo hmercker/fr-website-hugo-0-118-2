@@ -9,9 +9,9 @@ weight:
 ---
 ### Un auteur Allemand trouve la confirmation
 
-Erich Paul Remark <sup id="a1">[1](#f1)</sup> - reçu par FAB le 5 Septembre 2008, Santa Cruz, Californie, USA.
+Erich Paul Remarque <sup id="a1">[1](#f1)</sup> - reçu par FAB le 5 Septembre 2008, Santa Cruz, Californie, USA.
 
-Je suis Erich Remark.
+Je suis Erich Remarque.
 
 Je fus heureux d'avoir laissé derrière moi mon roman [Tout le calme sur le front occidental]. Les conséquences de son écriture ont largement contribué à mon bonheur ici.
 

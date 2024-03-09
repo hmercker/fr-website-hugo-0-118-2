@@ -1,13 +1,13 @@
 ---
-title: "Chercher à connaître Dieu par l'amour"
+title: "Chercher à connaître Dieu par l'Amour"
 menu_title: ""
-description: "Chercher à connaître Dieu par l'amour"
+description: "Chercher à connaître Dieu par l'Amour"
 date: 2022-06-01 06:00:01+00:408
 draft: False
 hidden: True
 weight:
 ---
-### Chercher à connaître Dieu par l'amour
+### Chercher à connaître Dieu par l'Amour
 
 St Jean - reçu par Al Fike le 9 Juin 2018, Gibsons, Colombie-Britannique, Canada.
 

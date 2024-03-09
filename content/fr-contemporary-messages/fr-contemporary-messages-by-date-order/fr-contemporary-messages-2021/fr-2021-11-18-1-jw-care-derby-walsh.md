@@ -16,7 +16,7 @@ C’est moi, Care. Je suis ravie d’être avec vous tous et oui, c’était moi
 Que toutes vos prières soient exaucées. Car l’Univers conspire pour le plus grand bien, pour la plus grande bénédiction, pour chaque âme dans l’amour de Dieu. Je vous aime. Je suis Care. Que Dieu vous bénisse.
 <small>
 
-1. <large id="f1"> Fait référence à l’enregistrement de Care où elle prie la Prière Parfaite ou Prière d’Amour Divin que Jésus a donnée à James Padgett. On peut le trouver [ici](https://www.youtube.com/watch?v=m4WdGwt-X9).[↩](#a1)
+1. <large id="f1"> Fait référence à l’enregistrement de Care où elle prie la Prière Parfaite ou Prière d’Amour Divin que Jésus a donnée à James Padgett. Cette vidéo peut-être visionnée par l'intermédiaire [de ce lien](https://www.youtube.com/watch?v=m4WdGwt-X9A).[↩](#a1)
 
 ### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
 

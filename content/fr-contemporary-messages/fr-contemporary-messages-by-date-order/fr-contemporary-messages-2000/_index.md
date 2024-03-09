@@ -13,8 +13,8 @@ weight:
 ---|---|---
 Jésus | [Sur le suicide.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-1-16-1-ar-jesus/) | 16 Janvier 2000
 Marie | [Embrasser l’unicité des qualités de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-1-28-1-ar-mary/) | 28 Janvier 2000
-Joseph | [Joseph : Sur Joseph d’Arimathie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-2-6-1-ks-joseph/) | 6 Février 2000
-Joseph | [Joseph : Le père de Jésus et Joseph d’Arimathie sont une seule et même personne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-2-9-1-ar-joseph/) | 9 Février 2000
+Joseph | [Sur Joseph d’Arimathie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-2-6-1-ks-joseph/) | 6 Février 2000
+Joseph | [Le père de Jésus et Joseph d’Arimathie sont une seule et même personne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-2-9-1-ar-joseph/) | 9 Février 2000
 Marie | [Vous avez tous la capacité d’être un canal pour les énergies de guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-2-27-1-ar-mary/) | 27 Février 2000
 Marie | [Message d’espoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-3-5-1-ar-mary/) | 5 Mars 2000
 Jésus | [Marchant sur l’eau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-3-5-2-ks-jesus/) | 5 Mars 2000
@@ -37,7 +37,7 @@ Esprit Céleste Elevé | [Sur les relations](/fr-contemporary-messages/fr-contem
 Marie | [Sur les canalisations à travers Patricia Talbott Borrero](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-8-8-2-ar-mary/) | 8 Août 2000
 St Jean | [Se débarrasser de l’influence négative des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-8-14-1-ks-st-john/) | 14 Août 2000
 Haut Esprit Céleste | [Le sens de la Foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-8-28-1-ar-a-high-celestial-spirit/) | 28 Août 2000
-Jésus | [Alfredo et Swift Bear](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-8-28-2-ar-jesus/) | 28 Août 2000
+Jésus | [Alfredo et Ourson Véloce](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-8-28-2-ar-jesus/) | 28 Août 2000
 Marie et Jean | [Encouragement donné à W___](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-9-2-1-ar-mary-john/) | 2 Septembre 2000
 Marie | [Prière et réponse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-9-2-2-ar-mary/) | 2 Septembre 2000
 André | [Le parler en langues](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-9-4-1-ks-andrew/) | 4 Septembre 2000

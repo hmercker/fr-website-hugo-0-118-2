@@ -25,7 +25,7 @@ Mais à l’automne de 26, le moment était enfin venu pour un changement de com
 
 *[H : Pilate n’était donc pas à Jérusalem le 1er janvier de l’année 26 ?]*
 
-Non, comme je te l’ai dit, il est arrivé, en Palestine, à l’automne. Je sais que tu fais [à la 14ème révélation](/fr-samuels-messages/fr-revelations/fr-rev-14-1955-12-12-samuels-jesus/) reçu par le Dr Samuelx, où cette date est précisément mentionnée. Mais je t’ai déjà dit une fois que les nombres indiqués dans ce message doivent être considérés avec beaucoup de soin.
+Non, comme je te l’ai dit, il est arrivé, en Palestine, à l’automne. Je sais que tu fais [à la 14ème Révélation](/fr-samuels-messages/fr-revelations/fr-rev-14-1955-12-12-samuels-jesus/) reçu par le Dr Samuelx, où cette date est précisément mentionnée. Mais je t’ai déjà dit une fois que les nombres indiqués dans ce message doivent être considérés avec beaucoup de soin.
 
 Une grande partie de ce que je t’ai dit jusqu’ici est seulement une répétition de ce que j’ai déjà décrit dans les autres messages. J’ai aussi mentionné la première erreur de Pilate dans sa longue carrière en tant qu’administrateur romain : Il a envoyé des nouvelles troupes à Jérusalem dont les bannières susciteraient la colère publique des habitants de la Ville Sainte. Je souhaite maintenant développer cet événement.
 

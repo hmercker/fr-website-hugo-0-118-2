@@ -9,7 +9,7 @@ weight:
 ---
 ### Un pape appelle à la paix
 
-Jean Paul II <sup id="a1">[1](#f1)</sup> - reçu par FAB le 1 Janvier 2007, Santa Cruz, Californie, USA.
+Jean Paul II <sup id="a1">[1](#f1)</sup> - reçu par FAB le 1<sup>er</sup> Janvier 2007, Santa Cruz, Californie, USA.
 
 Je suis là, le pape Jean-Paul II.
 

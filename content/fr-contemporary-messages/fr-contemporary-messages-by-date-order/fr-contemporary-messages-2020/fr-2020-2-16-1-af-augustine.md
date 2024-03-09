@@ -1,7 +1,7 @@
 ---
-title: "Avec le temps, le filet d'amour de Dieu dans votre âme deviendra un fleuve puissant"
+title: "Avec le temps, le filet d'Amour de Dieu dans votre âme deviendra un fleuve puissant"
 menu_title: ""
-description: "Avec le temps, le filet d'amour de Dieu dans votre âme deviendra un fleuve puissant"
+description: "Avec le temps, le filet d'Amour de Dieu dans votre âme deviendra un fleuve puissant"
 date: 2022-06-01 06:00:01+00:998
 draft: False
 hidden: True

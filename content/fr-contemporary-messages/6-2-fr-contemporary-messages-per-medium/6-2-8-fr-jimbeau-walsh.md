@@ -9,8 +9,7 @@ weight:
 ---
 ### Messages reçus par Jimbeau Walsh
 
-Jimbeau Walsh est un compositeur muscical et un très ancien membre du groupe de l’Amour Divin qui a souvent reçu et continue à recevoir par le biais du monde des esprits de nombreuses musiques. Après avoir très longtemps résidé à Hawai, Jimbeau Walsh réside maintenant à Nashville dans un haut lieu musical, à Nashville dans le Tenessee.
-Les nombreux messages qu’il a canalisés sont disponibles par le lien ci-dessous indiqué.
+Jimbeau Walsh est un compositeur muscical et un très ancien membre du groupe de l’Amour Divin qui a souvent reçu et continue à recevoir par le biais du monde des esprits de nombreuses musiques. Après avoir très longtemps résidé à Hawai, Jimbeau Walsh réside maintenant dans un haut lieu musical, à Nashville dans le Tenessee. Les nombreux messages qu’il a canalisés sont disponibles par les liens ci-dessous indiqués.
 
 | **Année**
 |---

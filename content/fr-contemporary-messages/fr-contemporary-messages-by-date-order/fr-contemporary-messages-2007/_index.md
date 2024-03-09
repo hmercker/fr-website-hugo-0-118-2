@@ -11,14 +11,14 @@ weight:
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-Jean Paul II | [Un pape appelle à la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-1-1-fab-john-paul-ii/) | 1 Janvier 2007
-Ronald Reagan | [Ronald Reagan a besoin d'aide](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-1-2-fab-ronald-reagan/) | 1 Janvier 2007
-Jean Paul II | [L'amour de Dieu et le pape](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-3-1-fab-john-paul-ii/) | 3 Janvier 2007
+Jean Paul II | [Un pape appelle à la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-1-1-fab-john-paul-ii/) | 1<sup>er</sup> Janvier 2007
+Ronald Reagan | [Ronald Reagan a besoin d'aide](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-1-2-fab-ronald-reagan/) | 1<sup>er</sup> Janvier 2007
+Jean Paul II | [L'Amour de Dieu et le pape](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-3-1-fab-john-paul-ii/) | 3 Janvier 2007
 Uharu | [Une discussion sur l'environnement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-10-1-fab-uharu/) | 10 Janvier 2007
 Uharu | [Une perspective amérindienne sur la société](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-10-2-fab-uharu/) | 10 Janvier 2007
 Martin Luther King jr | [La Terre Promise](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-12-1-fab-martin-luther-king-jr/) | 12 Janvier 2007
-Thomas Jefferson | [Un changement spirituel dans la politique américaine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-14-1-fab-thomas-jefferson/) | 14 Janvier 2007
-Jésus | [L'attention du public aux messages de Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-17-1-fab-jesus/) | 17 Janvier 2007
+Thomas Jefferson | [Un changement spirituel dans la politique Américaine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-14-1-fab-thomas-jefferson/) | 14 Janvier 2007
+Jésus | [L'attention du public aux messages de James Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-17-1-fab-jesus/) | 17 Janvier 2007
 St Jean | [Jean commente son Évangile et son enfance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-17-2-fab-st-john/) | 17 Janvier 2007
 Jésus | [Les plaisirs physiques et la spiritualité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-18-1-fab-jesus/) | 18 Janvier 2007
 Jésus | [Justice économique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-20-1-fab-jesus/) | 20 Janvier 2007
@@ -62,7 +62,7 @@ Jésus | [Tendre l'autre joue](/fr-contemporary-messages/fr-contemporary-message
 Ho Chi Minh | [Un message de paix de la part d’Ho Chi Minh](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-4-12-1-fab-ho-chi-minh/) | 12 Avril 2007
 Abraham Lincoln | [Abraham Lincoln commente son style dans les Messages reçus par James Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-7-1-fab-abraham-lincoln/) | 7 Juillet 2007
 Jésus | [Les races de l'humanité, et la diversité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-7-2-fab-jesus/) | 7 Juillet 2007
-Abraham Lincoln | [Abraham Lincoln comllète à son message précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-7-3-fab-abraham-lincoln/) | 7 Juillet 2007
+Abraham Lincoln | [Abraham Lincoln complète à son message précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-7-3-fab-abraham-lincoln/) | 7 Juillet 2007
 Jésus | [Meher Baba](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-7-4-fab-jesus/) | 7 Juillet 2007
 Wolfgang Amadeus Mozart | [Mozart complète son message precedent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-17-1-fab-wolfgang-amadeus-mozart/) | 17 Juillet 2007
 David Ben-Gurion | [Un dirigeant israélien complète son message précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-20-1-fab-david-ben-gurion/) | 20 Juillet 2007
@@ -73,8 +73,8 @@ William Shakespeare | [La vie de Shakespeare - 1](/fr-contemporary-messages/fr-c
 William Shakespeare | [Shakespeare - Adolescence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-13-1-fab-william-shakespeare/) | 13 Août 2007
 William Shakespeare | [Shakespeare - Enfance et adolescence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-13-2-fab-william-shakespeare/) | 13 Août 2007
 William Shakespeare | [Shakespeare - Anne Hathaway](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-14-1-fab-william-shakespeare/) | 14 Août 2007
-William Shakespeare | [Shakespeare - arrivée à Londres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-14-2-fab-william-shakespeare/) | 14 Août 2007
 William Shakespeare | [Shakespeare - en route pour Londres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-14-3-fab-william-shakespeare/) | 14 Août 2007
+William Shakespeare | [Shakespeare - arrivée à Londres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-14-2-fab-william-shakespeare/) | 14 Août 2007
 William Shakespeare | [Shakespeare - autres auteurs contemporains](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-18-1-fab-william-shakespeare/) | 18 Août 2007
 William Shakespeare | [Shakespeare - commentaires sur les messages passés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-18-2-fab-william-shakespeare/) | 18 Août 2007
 William Shakespeare | [Shakespeare - sa méthode de création](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-20-1-fab-william-shakespeare/) | 20 Août 2007
@@ -96,8 +96,8 @@ Karl Marx | [Le célèbre révolutionnaire connaît la confusion](/fr-contempora
 Aman | [Les deux natures des premiers parents et de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-9-24-2-fab-aman/) | 24 Septembre 2007
 Woodrow Wilson | [Les souffrances d'un président](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-9-29-1-fab-woodrow-wilson/) | 29 Septembre 2007
 Jésus | [Esprits qui ont assisté Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-9-30-1-fab-jesus/) | 30 Septembre 2007
-Jésus | [L'Amérique et la vérité spirituelle - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-10-1-1-fab-jesus/) | 1 Octobre 2007
-Hakan | [Le maître d’œuvre Egyptien confirme le message de Moïse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-10-6-1-fab-hakan/) | 6 Octobre 2007
+Jésus | [L'Amérique et la vérité spirituelle - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-10-1-1-fab-jesus/) | 1<sup>er</sup> Octobre 2007
+Hakan | [Le maître d’œuvre Égyptien confirme le message de Moïse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-10-6-1-fab-hakan/) | 6 Octobre 2007
 Moïse | [Moïse et le meurtre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-10-6-2-fab-moses/) | 6 Octobre 2007
 Moïse | [Les pouvoirs de Moïse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-10-25-1-fab-moses/) | 25 Octobre 2007
 David Ben-Gurion | [Le Moyen-Orient et la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-10-31-1-fab-david-ben-gurion/) | 31 Octobre 2007

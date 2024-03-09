@@ -1,13 +1,13 @@
 ---
-title: "L‘équipe d’anges qui travaille à développer les dons de chacun"
+title: "Message personnel"
 menu_title: ""
-description: "L‘équipe d’anges qui travaille à développer les dons de chacun"
+description: "Message personnel"
 date: 2022-06-01 06:00:01+00:03
 draft: False
 hidden: True
 weight:
 ---
-### L‘équipe d’anges qui travaille à développer les dons de chacun
+### Message personnel
 
 James Padgett - reçu par Révérend Dave Lampron le 21 Octobre 1997.
 

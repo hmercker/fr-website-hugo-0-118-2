@@ -9,7 +9,7 @@ weight:
 ---
 ### Pas à pas, le Royaume de Dieu se construit avec Amour
 
-Jésus - reçu par Kathryn Stokes le 1 Octobre 1989, Santa Cruz, Californie, USA.
+Jésus - reçu par Kathryn Stokes le 1<sup>er</sup> Octobre 1989, Santa Cruz, Californie, USA.
 
 Je suis ici pour écrire à nouveau, aujourd'hui, et je viens avec mon amour étendu à vous et à nos autres collaborateurs dans la chair qui poursuivent ce travail très important avec l'amour dans leurs cœurs, et l'espoir inextinguible, que la Parole continuera à se répandre dans le monde. Je suis votre ami et votre frère en Esprit, Jésus de la Bible, qui est le Maître des Cieux Célestes, et je me réjouis de l'occasion qui m'est donnée de vous livrer ainsi mes pensées.
 

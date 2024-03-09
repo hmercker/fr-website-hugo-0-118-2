@@ -47,7 +47,7 @@ Ton frère en Christ, Judas.
 
 ![title](/3-fr-judas-of-kerioth-messages/fr-andrew-large.jpg)
 
-                # **André**
+                     **André**
 
 © Geoff Cutler 2013
 

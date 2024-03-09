@@ -9,7 +9,7 @@ weight:
 ---
 ### Conseils sur la guérison... Commentaires sur les livres censés être écrits par Dieu
 
-Jésus - reçu par Kathryn Stokes le 1 Février 1997, Santa Cruz, Californie, USA.
+Jésus - reçu par Kathryn Stokes le 1<sup>er</sup> Février 1997, Santa Cruz, Californie, USA.
 
 *[Cher Père du Ciel, merci pour les nombreuses bénédictions que Tu nous accordes chaque jour. Je prie pour être capable de recevoir clairement les pensées de Jésus en réponse aux préoccupations suivantes :*
 

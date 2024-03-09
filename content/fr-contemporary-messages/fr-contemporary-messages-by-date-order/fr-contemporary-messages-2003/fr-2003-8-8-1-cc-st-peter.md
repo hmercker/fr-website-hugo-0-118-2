@@ -22,7 +22,7 @@ Le bonheur vient du lien que tu as avec Dieu. Ce qui est important, comme tu l�
 N’oublie donc pas d’être joyeux et sache que Dieu t’aime et que tous Ses enfants sont précieux. Ils ont juste besoin de se placer dans un état de réceptivité et alors ils seront si heureux. Et l’épanouissement sera le leur. Nous t’aimons et nous prions pour que l’Amour de Dieu te remplisse.
 <small>
 
-1. <large id="f1"> Après avoir lu ce message pour moi-même, je crois qu’il a utilisé « talents » à la place de « pièces d’or », faisant ainsi allusion à une parabole de la bible.[↩](#a1)
+1. <large id="f1"> Après avoir lu ce message pour moi-même, je crois qu’il a utilisé *« talents »* à la place de *« pièces d’or »*, faisant ainsi allusion à une parabole de la bible.[↩](#a1)
 
 ### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
 

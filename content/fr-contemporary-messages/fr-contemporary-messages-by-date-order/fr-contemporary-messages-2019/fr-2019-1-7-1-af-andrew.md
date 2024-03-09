@@ -1,13 +1,13 @@
 ---
-title: "Connaître la paix de l'amour de Dieu"
+title: "Connaître la paix de l'Amour de Dieu"
 menu_title: ""
-description: "Connaître la paix de l'amour de Dieu"
+description: "Connaître la paix de l'Amour de Dieu"
 date: 2022-06-01 06:00:01+00:599
 draft: False
 hidden: True
 weight:
 ---
-### Connaître la paix de l'amour de Dieu
+### Connaître la paix de l'Amour de Dieu
 
 André - reçu par Al Fike le 7 Janvier 2019, Gibsons, Colombie-Britannique, Canada.
 

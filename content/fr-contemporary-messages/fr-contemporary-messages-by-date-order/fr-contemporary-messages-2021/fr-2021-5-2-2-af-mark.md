@@ -11,7 +11,7 @@ weight:
 
 Marc - reçu par Al Fike le 2 Mai 2021, Gibsons, Colombie-Britannique, Canada.
 
-Que Dieu vous bénisse, âmes bien-aimées. Je suis Marc. Je suis le protecteur et le gardien de votre église. Je réside au sein du Royaume Céleste et je viens vous parler aujourd’hui.
+Que Dieu vous bénisse, âmes bien-aimées. Je suis Marc. Je suis le protecteur et le gardien de votre église (F.U.S.C.)<sup id="a1">[1](#f1)</sup>. Je réside au sein du Royaume Céleste et je viens vous parler aujourd’hui.
 
 Comme l’indiquent ces deux chères âmes, le pouvoir et les qualités transformatrices de l’Essence de Dieu, l’Amour Divin comme on l’appelle, sont grands et auront un effet si profond sur vous qu’ils changeront votre vie. Il vous mettra sur un chemin qui vous mènera à l’inclusion éventuelle dans le Royaume Céleste. Il n’y a pas d’autre bénédiction ni d’autre moyen d’y parvenir.
 
@@ -29,7 +29,7 @@ Pourtant, mes chers et beaux amis, le mental n’est pas si sage. Il y a une plu
 
 Je vous invite à suivre ce chemin vers une véritable connaissance de vous tous, plutôt que d’avoir, dans ce monde, la perception guindée qui vient avec un mental gonflé, plein et avide de plus, et une âme qui est diminuée et mise de côté. Marchez dans cette voie équilibrée et vous trouverez un plus grand bonheur, chers et beaux amis. Vous trouverez un chemin vers la vérité que beaucoup d’entre vous n’ont pas connue. Vous trouverez une joie qui jaillira de votre âme et éclatera en rires, avec un hosanna joyeux à Dieu qui dit « Je t’ai trouvé » et « Je me suis trouvé ». Cette grande bénédiction grandira en vous, à mesure que l’Amour vous éveillera et que tout ce qui est en vous prendra vie, dans la joie, l’amour et l’émerveillement.
 
-Que Dieu vous bénisse dans ce voyage. Je suis Marc. Je marche avec vous, chacun d’entre vous, car vous faites partie de cette belle famille d’âmes au sein de cette église <sup id="a1">[1](#f1)</sup> , qui a été consacrée et bénie par Jésus. Vous y trouverez donc le réconfort, la lumière et la paix. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse tous. Mon amour est avec vous.
+Que Dieu vous bénisse dans ce voyage. Je suis Marc. Je marche avec vous, chacun d’entre vous, car vous faites partie de cette belle famille d’âmes au sein de cette église (F.U.S.C.)<sup id="a1">[1](#f1)</sup> , qui a été consacrée et bénie par Jésus. Vous y trouverez donc le réconfort, la lumière et la paix. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse tous. Mon amour est avec vous.
 <small>
 
 1. <large id="f1"> F.U.S.C. : First United Spiritualist Church (Première Eglise Spiritualiste Unie).[↩](#a1)

@@ -9,7 +9,7 @@ weight:
 ---
 ### La vérité ne peut jamais échouer
 
-Samuel - reçu le 1 Août 1969, Vancouver, Colombie-Britannique, Canada.
+Samuel - reçu le 1<sup>er</sup> Août 1969, Vancouver, Colombie-Britannique, Canada.
 
 Je me suis tenu ici et j'ai regardé chacun d'entre vous assis en cercle ce soir et j'ai été conscient de vos pensées, de ces choses qui vous donnent du bonheur et de la tristesse et j'ai été heureux de l'opportunité de venir et de parler avec vous - car je vous aime mes enfants. Et le Père vous aime tant. Il y a une plus grande opportunité pour beaucoup dans cette pièce de recevoir le don de médiumnité et ce médium que j'utilise maintenant est simplement en formation. Elle n'a pas été perfectionnée et il y a encore beaucoup de travail à faire. Au fur et à mesure que vous découvrirez vos propres dons, vous vous ouvrirez et vous prendrez conscience des changements au sein de votre propre être. 
 

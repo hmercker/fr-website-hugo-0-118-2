@@ -55,8 +55,6 @@ Jean Sébastien Bach | [La foi inébranlable de Bach en Dieu](/fr-contemporary-m
 Jean Sébastien Bach | [Les expériences de Jean Sébastian Bach](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-26-1-na-johann-sebastian-bach/) | 26 Jjanvier 2008
 Jimmy Stewart | [Jimmy Stewart et son rôle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-12-1-fab-jimmy-stewart/) | 12 Février 2009
 Jimmy Stewart | [Jimmy Stewart fait le bilan de sa vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-22-1-fab-jimmy-stewart/) | 22 Décembre 2009
-Jean Sebastien Bach | [Les expériences de Johann Sebastian Bach](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-12-31-1-fab-johann-sebastian-bach/) | 31 Décembre 2002
-Jean Sebastien Bach | [La foi inébranlable de Bach en Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-27-1-fab-johann-sebastian-bach/) | 27 Février 2003
 John Denver | [Expériences de John Denver](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-1-1-fab-john-denver/) | 1 Janvier 2003
 John Denver | [John Denver a changé de point de vue](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-23-1-fab-john-denver/) | 23 Janvier 2003
 John Lennon | [John Lennon est toujours un bohémien](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-16-1-fab-john-lennon/) | 16 Février 2003

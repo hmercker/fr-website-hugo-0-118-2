@@ -1,19 +1,19 @@
 ---
-title: "Expériences d'un théologien américain colonial"
+title: "Expériences d'un théologien Américain colonial"
 menu_title: ""
-description: "Expériences d'un théologien américain colonial"
+description: "Expériences d'un théologien Américain colonial"
 date: 2022-06-01 06:00:01+00:02
 draft: False
 hidden: True
 weight:
 ---
-### Expériences d'un théologien américain colonial
+### Expériences d'un théologien Américain colonial
 
 Jonathan Edwards <sup id="a1">[1](#f1)</sup> - reçu par FAB le 7-8 Janvier 2009, Santa Cruz, Californie, USA.
 
 Je suis Jonathan Edwards.
 
-Oui, comme vous l'avez soupçonné, j'ai eu plus de pauvres âmes que je ne peux m'en souvenir qui sont venues me voir avec leurs tristes histoires, et j'ai vu que je leur ai profondément déformé l'image du Dieu d'amour. Je vois que vous êtes curieux de connaître mon histoire, alors je vais satisfaire votre attente.
+Oui, comme vous l'avez soupçonné, j'ai eu plus de pauvres âmes que je ne peux m'en souvenir qui sont venues me voir avec leurs tristes histoires, et j'ai vu que je leur ai profondément déformé l'image du Dieu d'Amour. Je vois que vous êtes curieux de connaître mon histoire, alors je vais satisfaire votre attente.
 
 Lorsque mon âme a quitté mon corps, je me suis senti aussi léger qu'une plume. Je m'étais souvent demandé à quoi devait ressembler le Ciel, et je savais que je passais de ce monde de larmes à un monde bien meilleur. J'ai regardé mon corps, malade et usé, et j'ai eu cette joyeuse pensée : *« C'est arrivé ! Et je vais le rejoindre. »* Puis j'ai pensé à toute ma vie, et au fait que tous les problèmes me préoccupaient allaient disparaître.
 

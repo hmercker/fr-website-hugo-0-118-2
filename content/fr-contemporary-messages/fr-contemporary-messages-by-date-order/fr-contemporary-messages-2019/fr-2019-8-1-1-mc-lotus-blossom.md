@@ -9,7 +9,7 @@ weight:
 ---
 ### Être vulnérable avec Dieu pour guérir les blessures de l'âme
 
-Fleur de Lotus - reçu par Maureen Cardoso le 1 Août 2019, F.U.S.C. Burnaby, Colombie-Britannique, Canada.
+Fleur de Lotus - reçu par Maureen Cardoso le 1<sup>er</sup> Août 2019, F.U.S.C. Burnaby, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis ici, c’est Fleur de Lotus. Je vous rejoins dans votre cercle alors que vous vous ouvrez à la Bénédiction de l’Amour Divin ; en vous ouvrant à recevoir cette Essence de Dieu la plus gracieuse, aimante et guérissante dans vos âmes, cette énergie qui guérit tout. Car lorsque quelqu’un désire guérir au niveau de son âme, la guérison est profonde et la guérison est constante. La guérison répare la blessure qui a été vécue à travers les expériences de votre vie.
 

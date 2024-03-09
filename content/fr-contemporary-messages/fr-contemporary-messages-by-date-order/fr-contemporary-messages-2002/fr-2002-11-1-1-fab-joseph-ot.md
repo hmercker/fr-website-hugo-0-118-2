@@ -9,7 +9,7 @@ weight:
 ---
 ### Joseph en Égypte
 
-Joseph (AT) - reçu par FAB le 1 Novembre 2002, Santa Cruz, Californie, USA.
+Joseph (AT) - reçu par FAB le 1<sup>er</sup> Novembre 2002, Santa Cruz, Californie, USA.
 
 Lorsque j’étais surveillant en Égypte, j’ai eu de nombreuses occasions de partager en privé mes convictions Hébraïques sur le seul vrai Dieu. Bien que de nombreux Égyptiens n’étaient pas d’accord ou ne comprenaient pas, ils respectaient néanmoins mes opinions, en raison de ma position élevée dans la société. C’était un plaisir de l’avoir, car toute ma vie précédente, j’avais occupé une position très humble. Mais j’étais prêt à assumer ces responsabilités et, en fait, de manière subtile, tout au long de ma vie, Dieu m’avait préparé à ces fonctions.
 

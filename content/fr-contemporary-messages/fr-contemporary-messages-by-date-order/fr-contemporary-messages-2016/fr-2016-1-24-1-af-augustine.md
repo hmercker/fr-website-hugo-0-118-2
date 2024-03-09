@@ -1,13 +1,13 @@
 ---
-title: "Leçon sur l'âme-désir"
+title: "Leçon sur le désir de l'âme"
 menu_title: ""
-description: "Leçon sur l'âme-désir"
+description: "Leçon sur le désir de l'âme"
 date: 2022-06-01 06:00:01+00:157
 draft: False
 hidden: True
 weight:
 ---
-### Leçon sur l'âme-désir
+### Leçon sur le désir de l'âme
 
 Augustin - reçu par Al Fike le 24 Janvier 2016, Oahu, Hawaii, USA.
 

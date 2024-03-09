@@ -1,13 +1,13 @@
 ---
-title: "Un président américain se confronte au monde des esprits"
+title: "Un président Américain se confronte au monde des esprits"
 menu_title: ""
-description: "Un président américain se confronte au monde des esprits"
+description: "Un président Américain se confronte au monde des esprits"
 date: 2022-06-01 06:00:01+00:72
 draft: False
 hidden: True
 weight:
 ---
-### Un président américain se confronte au monde des esprits
+### Un président Américain se confronte au monde des esprits
 
 Théodore Roosevelt <sup id="a1">[1](#f1)</sup> - reçu par FAB le 20 Décembre 2006, Santa Cruz, Californie, USA.
 

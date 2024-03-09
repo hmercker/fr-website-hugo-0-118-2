@@ -1,13 +1,13 @@
 ---
-title: "Répandre la vérité par l'amour"
+title: "Répandre la vérité par l'Amour"
 menu_title: ""
-description: "Répandre la vérité par l'amour"
+description: "Répandre la vérité par l'Amour"
 date: 2022-06-01 06:00:01+00:48
 draft: False
 hidden: True
 weight:
 ---
-### Répandre la vérité par l'amour
+### Répandre la vérité par l'Amour
 
 St Pierre - reçu par Kathryn Stokes le 23 Mai 2005, Santa Cruz, Californie, USA.
 

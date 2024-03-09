@@ -9,7 +9,7 @@ weight:
 ---
 ### Démonstration de médiumnité / Discussion sur les sphères spirituelles
 
-Augustin - reçu par Al Fike le 1 Novembre 2020, Gibsons, Colombie-Britannique, Canada.
+Augustin - reçu par Al Fike le 1<sup>er</sup> Novembre 2020, Gibsons, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse tous. Je suis votre enseignant, Augustin. Oui, je réside au sein du Royaume Céleste et ce, depuis de nombreux siècles. Je suis heureux d’entendre mon élève bien-aimé parler de ces vérités du monde des esprits, car en effet, chaque âme née sur ce monde qui est le vôtre est destinée à voyager à travers ces mondes mentionnés de l’esprit, à se développer et à grandir, à découvrir son véritable moi et sa véritable nature, à rechercher la vérité de nombreuses manières et expériences au fur et à mesure que la vie se déroule dans ce voyage prolifique qui est votre chemin individuel vers l’illumination. Je voudrais encourager chacun d’entre vous à chercher à éclairer votre âme avec les dons que Dieu a à offrir, avec l’Amour qui est disponible pour vous et que Dieu est toujours prêt à mettre dans votre âme si vous le désirez.
 

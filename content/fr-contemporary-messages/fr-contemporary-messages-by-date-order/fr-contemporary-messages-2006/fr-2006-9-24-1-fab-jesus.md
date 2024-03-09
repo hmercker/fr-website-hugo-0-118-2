@@ -1,19 +1,19 @@
 ---
-title: "Jésus commente le langage masculin dans les Messages de Padgett"
+title: "Jésus commente le langage masculin dans les Messages de James Padgett"
 menu_title: ""
-description: "Jésus commente le langage masculin dans les Messages de Padgett"
+description: "Jésus commente le langage masculin dans les Messages de James Padgett"
 date: 2022-06-01 06:00:01+00:44
 draft: False
 hidden: True
 weight:
 ---
-### Jésus commente le langage masculin dans les Messages de Padgett
+### Jésus commente le langage masculin dans les Messages de James Padgett
 
 Jésus - reçu par FAB le 24 Septembre 2006, Santa Cruz, Californie, USA.
 
 C'est moi, Jésus.
 
-Permettez-moi de parler de l'utilisation du langage masculin pour décrire l'humanité et Dieu dans les messages de Padgett. Nous comprenons que certaines personnes, en particulier des femmes, s'y opposent. Vous craignez que ce soit un obstacle à la réceptivité.
+Permettez-moi de parler de l'utilisation du langage masculin pour décrire l'humanité et Dieu dans les messages de James Padgett. Nous comprenons que certaines personnes, en particulier des femmes, s'y opposent. Vous craignez que ce soit un obstacle à la réceptivité.
 
 Il faut faire comprendre aux gens que la médiumnité est imparfaite et que l'esprit, aussi avancé soit-il, doit se conformer aux limites du médium mortel. L'époque où les messages de Padgett ont été reçus était différente de celle d'aujourd'hui. En ces quatre-vingt-dix ans, l'humanité a beaucoup progressé, et l'émancipation des femmes annonce ce progrès.
 

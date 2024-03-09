@@ -1,13 +1,13 @@
 ---
-title: "Il est nécessaire de toujours exprimer la vérité et l’amour"
+title: "Il est nécessaire de toujours exprimer la Vérité et l’Amour"
 menu_title: ""
-description: "Il est nécessaire de toujours exprimer la vérité et l’amour"
+description: "Il est nécessaire de toujours exprimer la Vérité et l’Amour"
 date: 2022-06-01 06:00:01+00:1157
 draft: False
 hidden: True
 weight:
 ---
-### Il est nécessaire de toujours exprimer la vérité et l’amour
+### Il est nécessaire de toujours exprimer la Vérité et l’Amour
 
 Keea Atta Kem - reçu par Al Fike le 26 Juin 2020, Gibsons, Colombie-Britannique, Canada.
 

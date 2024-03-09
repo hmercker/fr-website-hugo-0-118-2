@@ -13,7 +13,7 @@ Jésus - reçu par FAB le 24 Janvier 2009, Santa Cruz, Californie, USA.
 
 C’est moi, Jésus.
 
-J’ai dit par [l’intermédiaire de M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-28-1-jep-jesus/), le 28 février 1916 : *« Il viendra un temps où cet amour naturel sera restauré à son état originel de pureté et d’absence de péché, et où cette fraternité pourra exister dans un degré de perfection qui rendra tous les hommes heureux. »*
+J’ai dit par [l’intermédiaire de M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-28-1-jep-jesus/), le 28 Février 1916 : *« Il viendra un temps où cet amour naturel sera restauré à son état originel de pureté et d’absence de péché, et où cette fraternité pourra exister dans un degré de perfection qui rendra tous les hommes heureux. »*
 
 C’est vrai, et cela se produira effectivement. Mais bien que vous y aspiriez vous-même, vous ne voyez pas comment cela est possible. Je vais vous faire part de mes réflexions à ce sujet.
 

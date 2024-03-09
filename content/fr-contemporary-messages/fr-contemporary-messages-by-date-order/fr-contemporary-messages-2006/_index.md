@@ -11,11 +11,11 @@ weight:
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-Amy | [La traversée : L’esprit nouvellement arrivé.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-1-2-1-ks-amy/) | 2 Janvier 2006
-Elyon | [Un message d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-1-6-1-na-elyon/) | 6 Janvier 2006
-St Pierre | [Abaisser les défenses au nom de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-1-27-1-ks-st-peter/) | 27 Janvier 2006
+Amy | [La traversée : L’esprit nouvellement arrivé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-1-2-1-ks-amy/) | 2 Janvier 2006
+Elyon | [Un message d'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-1-6-1-na-elyon/) | 6 Janvier 2006
+St Pierre | [Abaisser les défenses au nom de l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-1-27-1-ks-st-peter/) | 27 Janvier 2006
 Augustin | [Les plaisirs physiques](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-3-3-1-fab-augustine/) | 3 Mars 2006
-Marie Madeleine & Jésus | [Observer l'âme humaine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-1-1-ar-mary-magdalene-jesus/) | 1 Avril 2006
+Marie Madeleine & Jésus | [Observer l'âme humaine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-1-1-ar-mary-magdalene-jesus/) | 1<sup>er</sup> Avril 2006
 Moïse | [Un médium Juif attire les mêmes esprits Juifs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-9-1-fab-moses/) | 9 Avril 2006
 Confucius | [Confucius et le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-11-1-fab-confucius/) | 11 Avril 2006
 Uharu | [Un point de vue amérindien sur la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-11-2-fab-uharu/) | 11 Avril 2006

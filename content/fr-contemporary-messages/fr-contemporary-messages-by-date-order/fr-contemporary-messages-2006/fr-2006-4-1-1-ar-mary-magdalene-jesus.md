@@ -9,7 +9,7 @@ weight:
 ---
 ### Observer l'âme humaine
 
-Marie Madeleine<sup id="a1">[1](#f1)</sup> & Jésus - reçu par Amada Reza le 1 Avril 2006, Santa Cruz, Californie, USA.
+Marie Madeleine<sup id="a1">[1](#f1)</sup> & Jésus - reçu par Amada Reza le 1<sup>er</sup> Avril 2006, Santa Cruz, Californie, USA.
 
 Je [**Marie**] souhaite partager mes réflexions sur la relation entre le mental et l'âme, en particulier pour une personne encore dans son corps mortel.
 

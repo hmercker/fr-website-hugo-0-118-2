@@ -24,7 +24,7 @@ Mes chers amis, mes frères et sœurs en Christ. Que tous soient bénis. Je suis
 
 1. <large id="f1"> Dans le système de numérotation utilisé dans les livres du Révérend George Vale Owen, il s’agirait de la 14e sphère.[↩](#a1)
 
-2. <large id="f2"> Geoff Cutler, webmaster [du site](https://new-birth.net/) considère qu’il s’agit du meilleur matériel canalisé, à l’exception des messages de James Padgett et des messages contemporains tels que ceux reçus de Judas et, plus récemment, ceux sur l’âme, qui se trouvent sur [ce site Web](https://lanouvelleverite.fr).» Mais si votre intérêt se porte sur ce qui se passe dans les Cieux, ces cinq volumes sont certainement l’étalon-or.[↩](#a2)
+2. <large id="f2"> Geoff Cutler, webmaster [du site new-bith.net](https://new-birth.net/) considère qu’il s’agit du meilleur matériel canalisé, à l’exception des messages de James Padgett et des messages contemporains tels que ceux reçus de Judas et, plus récemment, ceux sur l’âme, qui se trouvent sur [ce site : la nouvelle vérité](https://lanouvelleverite.fr).» Mais si votre intérêt se porte sur ce qui se passe dans les Cieux, ces cinq volumes sont certainement l’étalon-or.[↩](#a2)
 
 3. <large id="f3"> Révérend George Vale Owen s'est également exprimé lors des messages suivants [↩](#a3)
 

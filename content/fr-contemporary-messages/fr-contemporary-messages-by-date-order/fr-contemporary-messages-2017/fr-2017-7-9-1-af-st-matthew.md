@@ -1,13 +1,13 @@
 ---
-title: "Guides individuels pour la voix directe"
+title: "Guides individuels pour la Voix Directe"
 menu_title: ""
-description: "Guides individuels pour la voix directe"
+description: "Guides individuels pour la Voix Directe"
 date: 2022-06-01 06:00:01+00:60
 draft: False
 hidden: True
 weight:
 ---
-### Guides individuels pour la voix directe
+### Guides individuels pour la Voix Directe
 
 St Matthieu - reçu par Al Fike le 9 Juillet 2017, Gibsons, Colombie-Britannique, Canada
 
