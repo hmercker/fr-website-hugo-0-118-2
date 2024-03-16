@@ -52,6 +52,8 @@ Joseph | [Fête des Pères](/fr-contemporary-messages/fr-contemporary-messages-b
 Joseph | [Obtenir des conseils](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-28-1-af-joseph/) | 28 Août 2020
 Joseph | [Connaître les dons et les bénédictions des anges](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-11-13-2-af-joseph/) | 13 Novembre 2020
 Joseph | [L’Aube d’une ère nouvelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-11-24-1-af-joseph/) | 24 Novembre 2020
+Joseph | [Importance du phare de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-23-1-em-joseph/) | 23 Mai 2022
+Joseph | [Réflexion sur les sensibilités liées au fait d'avoir un fils différent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-1-1-af-joseph/) | 1 Août 2023
 Marie | [Message personnel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1998-8-10-1-ar-mary/) | 10 Août 1998
 Marie | [Est-ce que tout ce qui n’est pas en accord avec les lois de Dieu peut-il être considéré comme faisant partie des enfers ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1998-9-10-1-ar-mary/) | 10 Septembre 1998
 Marie | [Le choix de M. Padgett et son libre arbitre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1998-10-15-1-ar-mary/) | 15 Octobre 1998
@@ -159,6 +161,14 @@ Marie | [Vient élever et bénir](/fr-contemporary-messages/fr-contemporary-mess
 Marie | [Les anges travaillent avec nous pour transformer l’obscurité en lumière, l’erreur en vérité et le chaos en paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-12-1-af-mary/) | 12 Juin 2022
 Marie | [Bénédiction de la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-28-1-af-mary/) | 28 Octobre 2022
 Marie | [Priez avec nous alors que nous cherchons à nous preparer pour le rassemblement de Trinidad](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-12-1-af-mary/) | 12 Janvier 2023
+Marie | [Marie vient sur les faisceaux de lumière de votre chant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-1-1-af-mary/) | 1 Février 2023
+Marie | [Sachez qje vous êtes aimés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-26-1-af-mary/) | 26 Février 2023
+Marie | [Vient prier avec nous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-21-1-af-mary/) | 21 Juillet 2023
+Marie | [Nous sommes la lumière et nous brillerons ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-13-4-af-mary/) | 13 Octobre 2023
+Marie | [Partagez cette expérience avec vos frères et sœurs terrestres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-10-1-em-mary/) | 10 Décembre 2023
+Marie | [Mon amour pour chacun de vous est grand](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-6-2-af-mary/) | 6 Janvier 2024
+Marie | [La transformation apportée par la grâce de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-10-1-af-mary/) | 10 Janvier 2024
+Marie | [Le grand consolateur de l’Amour de Dieu est sur nous tous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-23-1-af-mary/) | 23 Février 2024
 Marie & White Eagle | [Le miracle de Fatima et l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-9-19-2-ar-mary-white-eagle/) | 19 Septembre 1999
 Marie & David | [Faire face à la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-3-19-2-ar-mary-david/) | 19 Mars 2000
 Marie & Jean | [Sur le manque d’amour de soi de M___](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-12-1-ar-mary-john/) | 12 Novembre 1999

@@ -120,10 +120,22 @@ André | [Choix](/fr-contemporary-messages/fr-contemporary-messages-by-date-orde
 André | [Vous ouvrez des portails de lumière avec vos prières et vos intentions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-24-1-af-andrew/) | 24 Juin 2022
 André | [Discute des vents de changement et des effets que nous expérimentons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-25-2-af-andrew/) | 25 Juin 2022
 André | [Conseils pour les changements terrestres à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-5-2-af-andrew/) | 5 Octobre 2022
+André | [Reconnaît notre instrumentalité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-4-2-af-andrew/) | 4 Février 2023
+André | [Une bénédiction apaisante pour soulager la douleur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-16-1-af-andrew/) | 16 Mars 2023
+André | [Anticiper l'aube d'un nouveau mode de vie ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-13-1-af-andrew/) | 13 Octobre 2023
+André | [Votre service envers Dieu grandira avec votre âme ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-1-1-af-andrew/) | 1 Novembre 2023
+André | [Bénédictions pour l'anniversaire de Dorothé ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-14-1-af-andrew/) | 14 Novembre 2023
+André | [Nous sommes tous appelés à servir Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-24-1-af-andrew/) | 24 Novembre 2023
+André | [Les anges viennent sur Terre pour enseigner les vérités de l’Amour de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-13-1-af-andrew/) | 13 Février 2024
 Bartholomée | [Vous réaliserez vos dons pour servir l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-2-1-af-st-bartholomew/) | 2 Décembre 2019
 Bartholomée | [Etablir un fondement de vérite, d'humilite, d'amour et de grace](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-16-2-af-st-bartholomew/) | 16 Janvier 2023
 Bartholomée | [Commentaire sur la médiumnité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-24-2-af-st-bartholomew/) | 24 Janvier 2023
 Bartholomée | [Ouvrez votre âme à la lumière de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-25-1-jw-st-bartholomew/) | 25 Avril 2023
+Bartholomée | [S'il vous plaît, poursuivez vos efforts pour éliminer les barrières entre Dieu et l'humanité ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-11-2-af-st-bartholomew/) | 11 Juillet 2023
+Bartholomée | [Le plan de Dieu pour unifier les Caraïbes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-5-1-af-st-bartholomew/) | 5 Janvier 2024
+Bartholomée | [Je suis le protecteur des îles des Caraïbes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-6-1-af-st-bartholomew/) | 6 Janvier 2024
+Bartholomée | [Il y a beaucoup de travail à faire et le temps presse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-12-1-af-st-bartholomew/) | 12 Janvier 2024
+Bartholomée | [J'ai rencontré Jésus sur Terre et continue de répandre la vérité de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-13-1-af-st-bartholomew/) | 13 Janvier 2024
 Jacques | [Instructions sur la voix directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-15-1969-anonymous-james/) |   1969
 Jacques | [Demandez davantage de l'Amour Divin de Dieu pour que vos lumières deviennent de plus en plus fortes, jour après jour et heure après heure](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-173-1969-anonymous-james/) |   1969
 Jacques | [Voix directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-27-1969-10-2-anonymous-james/) | 2 Octobre 1969
@@ -154,6 +166,7 @@ Jacques | [L’humanité néglige souvent de construire une base spirituelle sol
 Jacques | [Connaissez votre but](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-2-2-af-james/) | 2 Mars 2021
 Jacques | [Votre voyage vers les Cieux Célestes est raccourci par la prière pour l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-18-1-af-james/) | 18 Juin 2021
 Jacques | [Le seul moyen d’obtenir la lumière et la protection est de s’aligner avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-16-1-af-james/) | 16 Juillet 2021
+Jacques | [Vous devez comprendre le pouvoir de votre libre arbitre ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-20-1-af-james/) | 20 Février 2024
 Jean-Baptiste | [Nous travaillons pour servir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-81-1969-anonymous-john-the-baptist/) |   1969
 Jean-Baptiste | [Placez Dieu en premier en toutes choses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-172-1969-anonymous-john-the-baptist/) |   1969
 Jean-Baptiste | [La compréhension de la mission de Jésus par Jean le Baptiste.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-10-19-1-fab-john-the-baptist/) | 19 Octobre 2006
@@ -161,6 +174,28 @@ Jean-Baptiste | [Les Cieux Célestes ont des âmes de toutes les croyances](/fr-
 Jean-Baptiste | [Des encouragements pour enseigner la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-1-5-js-john-the-baptist/) | 1 Septembre 2018
 Jean le Baptiste | [Le premier pas pour s'ouvrir à l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-23-2-jw-john-the-baptist/) | 23 Juin 2022
 Jean le Baptiste | [Tous sont transformés, éveillés et guéris dans l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-4-2-af-john-the-baptist/) | 4 Septembre 2022
+Jean le Bien Aimé | [Marchez dans la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-21-2-af-john-the-beloved/) | 21 Mai 2014
+Jean le Bien Aimé | [Luttant pour donner un sens au monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-3-16-1-af-john-the-beloved/) | 16 Mars 2015
+Jean le Bien Aimé | [Les vents du changement soufflent sur ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-7-25-1-af-john-the-beloved/) | 25 Juillet 2015
+Jean le Bien Aimé | [La touche de Dieu dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-12-2-af-john-the-beloved/) | 12 Mars 2016
+Jean le Bien Aimé | [Au service de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-18-1-af-john-the-beloved/) | 18 Mars 2016
+Jean le Bien Aimé | [Chaque jour a le potentiel d’apporter la lumière si les intentions sont bonnes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-14-1-af-john-the-beloved/) | 14 Avril 2016
+Jean le Bien Aimé | [L’Amour de Dieu est la clé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-4-2-af-john-the-beloved/) | 4 Septembre 2016
+Jean le Bien Aimé | [S’éveiller à l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-1-2-af-john-the-beloved/) | 1 Décembre 2016
+Jean le Bien Aimé | [Les bénédictions de l'Amour du Père](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-15-1-af-john-the-beloved/) | 15 Octobre 2017
+Jean le Bien Aimé | [Cherchez d’abord cette bénédiction de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-17-4-af-john-the-beloved/) | 17 Juillet 2020
+Jean le Bien Aimé | [Servir de tout son cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-23-1-jw-john-the-beloved/) | 23 Août 2021
+Jean le Bien Aimé | [Alignez vos cœurs dans la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-13-3-jw-john-the-beloved/) | 13 Septembre 2021
+Jean le Bien Aimé | [Une histoire sans fin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-14-1-jw-john-the-beloved/) | 14 Octobre 2021
+Jean le Bien Aimé | [Prier pour l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-16-1-af-john-the-beloved/) | 16 Avril 2022
+Jean le Bien Aimé | [Nous sommes tous aimés par Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-1-1-jw-john-the-beloved/) | 1 Août 2022
+Jean le Bien Aimé | [Nos chemins seront marqués par le nombre d'âmes que nous toucherons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-5-1-af-john-the-beloved/) | 5 Octobre 2022
+Jean le Bien Aimé | [L'accomplissement de votre âme dans la famille d'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-28-2-af-john-the-beloved/) | 28 Janvier 2023
+Jean le Bien Aimé | [Prièes de l'ÂmE](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-20-2-af-john-the-beloved/) | 20 Avril 2023
+Jean le Bien Aimé | [Même si vous êtes peu nombreux, votre lumière est brillante et puissante](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-9-9-1-af-john-the-beloved/) | 9 Septembre 2023
+Jean le Bien Aimé | [La route que vous vous apprêtez à emprunter englobera le monde ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-11-3-af-john-the-beloved/) | 11 Octobre 2023
+Jean le Bien Aimé | [Gardez votre cœur ouvert](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-20-1-jw-john-the-beloved/) | 20 Novembre 2023
+Jean le Bien Aimé | [Le message de Noël reconnaît la mission de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-24-1-af-john-the-beloved/) | 24 Décembre 2023
 Judas | [L'amour vous donne un Socle et un Fondement tellement Puissants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-50-1970-1-15-anonymous-judas/) | 15 Janvier 1970
 Judas | [Judas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-20-1-hr-judas/) | 20 Août 2001
 Judas | [Communication et médiumnité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-20-2-hr-judas/) | 20 Août 2001
@@ -380,14 +415,46 @@ Judas | [Sortir de l’enfer](/fr-contemporary-messages/fr-contemporary-messages
 Judas | [Comment prier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-27-1-jw-judas/) | 27 Février 2023
 Judas | [Pilate prend ses fonctions durant l’année 26](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-3-28-1-hr-judas/) | 28 Mars 2003
 Judas | [L'âme est intemporelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-5-8-1-jw-judas/) | 8 Mai 2023
+Judas | [Vous êtes là où se   trouve votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-16-3-af-judas/) | 16 Mars 2023
+Judas | [Grands esprits et grandes âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-7-1-jw-judas/) | 7 Août 2023
+Judas | [Laissez l’amour de Dieu imprégner votre journée, illuminez votre nuit !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-9-1-jw-judas/) | 9 Octobre 2023
+Judas | [Qu’emporterez-vous avec vous dans le monde des esprits ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-27-1-jw-judas/) | 27 Novembre 2023
+Judas | [Créatures d'habitude](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-28-1-jw-judas/) | 28 Novembre 2023
+Judas | [Le chemin à parcourir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-5-1-jw-judas/) | 5 Décembre 2023
+Judas | [Les avantages du silence ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-1-1-jw-judas/) | 1 Janvier 2024
+Judas | [Orchestrer l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-19-1-jw-judas/) | 19 Février 2024
+Judas | [Intention et volonté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-5-1-jw-judas-de-kérioth/) | 5 Février 2024
+Judas | [La journée du Héros](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-26-1-jw-judas-de-kérioth/) | 26 Février 2024
+Judas | [Orchestrer l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-29-1-jw-judas-de-kérioth/) | 29 Février 2024
+Marc | [Faire entrer la volonté de Dieu dans ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-3-1-af-mark/) | 3 Janvier 2018
+Marc | [Acceptez l'invitation de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-15-1-af-mark/) | 15 Mars 2018
+Marc | [Les bénédictions viendront à mesure que vous construisez la lumière et l'amour en vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-6-1-af-mark/) | 6 Mai 2018
+Marc | [Guidance et bénédictions - Retraite F.U.S.C.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-9-3-af-mark/) | 9 Juin 2018
+Marc | [Le choix de connaître Dieu vous appartient](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-8-1-af-mark/) | 8 Août 2018
+Marc | [La foi chevauche les ailes de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-23-3-mc-mark/) | 23 Octobre 2018
+Marc | [L'Amour Divin est la clé de la transformation éternelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-8-1-mc-mark/) | 8 Novembre 2018
+Marc | [Le pouvoir de la lumière pour surmonter les ténèbres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-4-1-af-mark/) | 4 Janvier 2019
+Marc | [Se concentrer sur la volonté de Dieu et avoir la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-4-4-af-mark/) | 4 Janvier 2019
+Marc | [pporter la bénédiction de l'amour divin à ce sanctuaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-5-1-af-mark/) | 5 Janvier 2019
+Marc | [L’Amour Divin apporte à votre âme la nourriture dont elle a besoin pour s'éveiller](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-3-29-1-af-mark/) | 29 Mars 2019
+Marc | [Considérez ce que vous attirez à vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-4-14-2-af-mark/) | 14 Avril 2019
+Marc | [Vous créez un centre de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-6-6-1-af-mark/) | 6 Juin 2019
+Marc | [Écoutez les incitations que vous recevez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-7-3-af-mark/) | 7 Septembre 2019
+Marc | [Se concentrer sur l'âme où se trouve la fontaine de vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-11-1-af-mark/) | 11 Septembre 2019
+Marc | [Toutes les bonnes choses de Dieu et en harmonie resteront (2020 FUSC)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-2-1-af-mark/) | 2 Mai 2020
+Marc | [La vérité de l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-2-2-af-mark/) | 2 Mai 2021
+Marc | [Bénédictions pour la Première Eglise Spiritualiste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-4-2-af-mark/) | 4 Juillet 2021
+Marc | [Marcher au service de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-9-5-1-af-mark/) | 5 Septembre 2023
 Marie Madeleine | [L'Amour de Dieu au sein de vos âmes émane de vous et apporte aux autres la lumière et la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-53-1970-1-28-anonymous-mary-magdalene/) | 28 Janvier 1970
 Marie Madeleine | [Communication personnelle.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1992-7-9-1-dl-mary-magdalene/) | 9 Juillet 1992
 Marie Madeleine | [Différences entre les sexes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-19-2-ar-mary-magdalene/) | 19 Août 2001
 Marie Madeleine | [Le visage de l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-4-2-ar-mary-magdalene/) | 4 Novembre 2001
 Marie-Madeleine | [Plus sur les esprits liés à la terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-7-19-1-rl-mary-magdalene/) | 19 Juillet 2004
-Marie-Madeleine & Jésus | [Observer l’âme humaine.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-1-1-ar-mary-magdalene-jesus/) | 1 Avril 2006
 Marie-Madeleine | [Portez la lumière de l'amour en vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-7-2-1-dl-mary-magdalene/) | 2 Juillet 2008
+Marie-Madeleine | [Marie-Madeleine n’est pas l’âme-soeur de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-29-2-af-mary-magdalene/) | 29 Janvier 2019
 Marie-Madeleine | [La lampe de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-4-1-af-mary-magdalene/) | 4 Septembre 2022
+Marie-Madeleine & Jésus | [Observer l’âme humaine.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-1-1-ar-mary-magdalene-jesus/) | 1 Avril 2006
+Philippe | [Faire émerger les lois de l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-28-1-af-philippe/) | 28 Janvier 2024
 St Jean | [L'amour de Dieu coule à travers vous pour le monde entier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-8-1969-3-31-anonymous-st-john/) | 31 Mars 1969
 St Jean | [L’intransigeance de la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-18-1-Alfredo-st-john/) | 18 Novembre 1999
 St Jean | [Désir d'être comme Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-97-1970-anonymous-st-john/) |   1970
@@ -489,6 +556,9 @@ St Luc | [Marcher à cœur ouvert](/fr-contemporary-messages/fr-contemporary-mes
 St Luc | [La vie spirituelle est un combat](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-10-2-jw-st-luke/) | 10 Mars 2022
 St Luc | [Il y a de nombreux chemins pour la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-27-1-jw-st-luke/) | 27 Mars 2023
 St Luc | [Être en phase avec la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-7-2-af-st-luke/) | 7 Avril 2023
+St Luc | [Faites d’être dans le moment présent de l’Amour de Dieu, votre priorité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-10-2-jw-luke/) | 10 Octobre 2023
+St Luc | [Les anges nous aident à passer de la conscience de l'esprit à la conscience de l'âme ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-22-2-af-st-luke/) | 22 Octobre 2023
+St Luc | [Celui qui vous a créé ne vous abandonnera pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-22-1-jw-st-luke/) | 22 Janvier 2024
 St Luc & Seretta Kem | [Orientation V.D (Seretta Kem) et être au service (Luc)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-5-1-af-st-luke-seretta-kem/) | 5 Août 2018
 St Matthieu | [Devenez humble et silencieux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-139-1969-anonymous-st-matthew/) |   1969
 St Matthieu | [Matthieu, apôtre de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-22-1-hr-st-matthew/) | 22 Novembre 2001
@@ -582,6 +652,14 @@ St Matthieu | [Construire, étendre le portail pour amplifier les avantages](/fr
 St Matthieu | [Le voyage est court](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-11-1-af-st-matthew/) | 11 Novembre 2022
 St Matthieu | [Il est temps d'avancer et de sortir !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-11-2-af-st-matthew/) | 11 Mars 2023
 St Matthieu | [Initiation de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-28-1-af-st-matthew/) | 28 Février 2023
+St Matthieu | [Nous prions avec vous depuis les Cieux ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-14-2-af-st-matthew/) | 14 Juillet 2023
+St Matthieu | [Ce rassemblement changera vos perspectives et vos motivations pour vous faire avancer ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-11-7-af-st-matthew/) | 11 Octobre 2023
+St Matthieu | [Vous êtes les auditeurs ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-13-8-af-st-matthew/) | 13 Octobre 2023
+St Matthieu | [Nous encourage à créer plus de cercles de lumière dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-16-1-af-st-matthew/) | 16 Octobre 2023
+St Matthieu | [Vous êtes les précurseurs du nouveau monde - Épilogue de Laurelville ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-17-1-af-st-matthew/) | 17 Octobre 2023
+St Matthieu | [La Volonté de Dieu comme protection](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-23-1-em-mathhieu/) | 23 Octobre 2023
+St Matthieu | [Le choix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-12-1-af-st-matthew/) | 12 Janvier 2024
+St Matthieu | [La bienveillance de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-17-1-af-st-matthew/) | 17 Janvier 2024
 St Paul | [La sagesse vient quand on se tait et qu'on écoute](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-67-1969-anonymous-st-paul/) |   1969
 St Paul | [Nous devons enseigner à tous ceux qui le souhaitent comment se libérer de la peur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-77-1969-anonymous-st-paul/) |   1969
 St Paul | [Puissiez-vous être un véritable exemple de ce que ces bénédictions peuvent faire pour l'humanité.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-120-1969-anonymous-st-paul/) |   1969
@@ -599,6 +677,7 @@ St Paul | [Quand vous priez, vous invitez Dieu à guérir](/fr-contemporary-mess
 St Paul | [Sur la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-17-1-hm-st-paul/) | 17 Mai 2020
 St Paul | [Touchez les autres avec amour et tout se mettra en place](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-24-1-jw-st-paul/) | 24 Août 2021
 St Paul | [Un message pour tous les Tisserands de Lumière qui se réunissent en prière en ce moment](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-5-2-af-st-paul/) | 5 Février 2023
+St Paul | [Nous encourage à travers les luttes du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-18-1-af-paul-from-tarsus/) | 18 Février 2024
 St Pierre | [Vous devez semer la Graine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-75-1969-anonymous-st-peter/) |   1969
 St Pierre | [Surmonter les difficultés qui nous attendent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1997-10-27-1-dl-st-peter/) | 27 Octobre 1997
 St Pierre | [Encouragements donnés à Alfredo](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-12-19-1-Alfredo-st-peter/) | 19 Décembre 1999

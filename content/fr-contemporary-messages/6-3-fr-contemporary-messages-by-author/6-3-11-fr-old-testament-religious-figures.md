@@ -1,20 +1,20 @@
 ---
-title: "Personnalités Religieuses"
+title: "Personnalités Religieuses de l'Ancien Testament"
 menu_title: ""
-description: "Personnalités Religieuses"
+description: "Personnalités Religieuses de l'Ancien Testament"
 date: 2023-05-31 06:25:48+00:80
 draft: False
 hidden: True
 weight:
 ---
-### Personnalités Religieuses
+### Personnalités Religieuses de l'Ancien Testament
 
-Parmi les nombreux esprits qui ont communiqué au cours des 50 dernières années, il convient de noter qu’une part importante d’entre eux étaient des figures religieuses de l’Ancien ou du Nouveau Testament. Et les premiers d’entre elles furent bien entendu les disciples de Jésus mais aussi plusieurs personnalités de l’Ancien Testament comme Abraham, Sarah, Isaac, Daniel, Samuel, Saul, Salomon. A côté de ces grandes figures historiques, il convient de noter la présence de nombreuses figures historiques de la Chrétienté comme St Augustin, St François d’Assise, Claire d’Assise fondatrice de l’ordre des Clarisses, Ignace de Loyola fondateur de l’ordre des Jésuites, St Thomas d’Aquin, Jean Calvin, Martin Luther, certains papes (Pape Grégoire, Pape Clément VII, Pape Urbain II ? Pape Pie XII, Pape Jean Paul II), Joseph Smith (le fondateur de la religion mormone), de Charles Russel fondateur des Témoins de Jéhovah, mais aussi des figures du monde Indouiste ou Bouddhiste (Lao Tseu, Boudha, Yogananda, Sri Yukteswar) ou du monde musulman (Hafez, Saladin, Inayat Khan) et même du monde Juif comme l’atteste les divers messages communiqués par le Baal Shem Tov. Il est donc intéressant de noter que la progression dans le monde spirituel est totalement indépendante de l’appartenance religieuse mais est uniquement personnelle selon que l’individu ou non a été capable de s’affranchir de ses croyances religieuses.
+Parmi les nombreux esprits qui ont communiqué au cours des 50 dernières années, il convient de noter qu’une part importante d’entre eux étaient des figures religieuses de l’Ancien Testament Abraham, Sarah, Isaac, Daniel, Samuel, Saul, Salomon. Il est donc intéressant de noter que la progression dans le monde spirituel est totalement indépendante de l’appartenance religieuse mais est uniquement personnelle selon que l’individu ou non a été capable de s’affranchir de ses croyances religieuses.
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Aaron | [Les pouvoirs d'Aaron](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-9-12-1-fab-aaron/) | 12 Septembre 2007
-Aron | [Les anges accompagnent tous ceux qui cherchent l'amour de Dieu](/fr-caontemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-7-7-1-af-aaron/) | 7 Juillet 2018
+Aaron | [Les anges accompagnent tous ceux qui cherchent l'amour de Dieu](/fr-caontemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-7-7-1-af-aaron/) | 7 Juillet 2018
 Aaron | [Soyez l'agent actif de Dieu pour le changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-9-3-af-aaron/) | 9 Juillet 2019
 Aaron | [Nous supplie de faire notre part pour être intégrés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-2-3-af-aaron/) | 2 Juin 2021
 Aaron | [Le plus grand obstacle à la lumière dans votre monde est l’ignorance et l’apathie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-11-1-af-aaron/) | 11 Juillet 2021
@@ -32,6 +32,7 @@ Daniel | [Expérience de Daniel avec l’Amour Divin.](/fr-contemporary-messages
 Élie | [Une partie du plan de Dieu est la manifestation de Ses Anges sur la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-26-1-af-elijah/) | 26 Septembre 2020
 Élie | [Affirme la prophétie de ces temps](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-2-2-af-elijah/) | 2 Juillet 2021
 Élie | [Vous devez vraiment connaître votre propre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-7-1-af-elijah/) | 7 Août 2021
+Élie | [Les vents du changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-30-1-af-elijah/) | 30 Novembre 2023
 Élie & Isaïe | [Les âmes que vous attirerez pour travailler ensemble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-16-1-af-elijah-isaiah/) | 16 Décembre 2017
 Ezéchiel | [Heureux ceux qui sont prêts à aimer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-20-1-af-ezekiel/) | 20 Mai 2014
 Ézéchiel | [Dieu rassemble des lumières du monde entier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-16-1-af-ezekiel/) | 16 Mars 2021
@@ -41,6 +42,9 @@ Isaïe | [Dieu apportera une nouvelle lumière dans ce monde](/fr-contemporary-m
 Isaïe | [L'amour de Dieu vous ouvre les portes de l'entendement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-21-1-af-isaiah/) | 21 Février 2018
 Isaïe | [Une déclaration proclamant le début d'une nouvelle ère de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-29-1-af-isaiah/) | 29 Août 2018
 Isaïe | [Vous serez une lumière brillante pour la condition humaine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-2-21-1-af-isaiah/) | 21 Février 2021
+Isaïe | [Soyez en sainte communion avec Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-15-1-af-isaiah/) | 15 Octobre 2023
+Isaïe | [Nouveaux départs en République Dominicaine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-3-1-af-isaiah/) | 3 Janvier 2024
+Isaïe | [La puissante essence de Dieu sera donnée à chacun de vous avec force ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-21-1-af-isaiah/) | 21 Février 2024
 Jacob | [La foi de Jacob en Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-4-1-fab-jacob/) | 4 Février 2003
 Jacob | [Su la Foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-6-1-hm-jacob/) | 6 Mai 2020
 Jérémie | [Indignation vertueuse_3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-16-2-fab-jeremiah/) | 16 Mai 2008
@@ -106,6 +110,8 @@ Moïse | [Le temps est venu pour Dieu de transformer ce monde](/fr-contemporary-
 Jésus & Moïse & Elie | [Bénédictions de lumière pour le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-13-1-af-jesus-moses-elijah/) | 13 Juin 2021
 Moïse | [Vient nous soutenir et éclairer notre chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-31-2-af-moses/) | 31 Mai 2022
 Moïse | [Surmonter les exigences du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-2-1-af-moses/) | 2 Avril 2023
+Moïse | [Tout est possible en amour ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-13-5-af-moses/) | 13 Octobre 2023
+Moïse | [Votre responsabilité d’indiquer le chemin vers Dieu pour les autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-4-2-af-moses/) | 4 Février 2024
 Noé | [Noé et le déluge](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-2-1-fab-noah/) | 2 Février 2003
 Noé | [L'histoire du déluge](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-10-1-fab-noah/) | 10 Février 2009
 Noé | [Stop à l'obscurité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-17-1-af-noah/) | 17 Novembre 2017
@@ -136,5 +142,7 @@ Samuel | [Un fleuve puissant commence par une goutte d'eau](/fr-contemporary-mes
 Samuel | [Fait briller sa lumière sur la voie de l’Amour Divin et ses adeptes (Cercle de prière en ligne)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-31-1-af-samuel/) | 31 Octobre 2021
 Samuel | [Les changements à venir et nos familles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-5-1-af-samuel/) | 5 Décembre 2021
 Samuel | [Deux parcours spirituels distincts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-18-1-af-samuel/) | 18 Avril 2023
+Samuel | [Que Dieu vous enlève les écailles des yeux ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-15-3-af-samuel/) | 15 Août 2023
+Samuel | [Le temps presse ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-30-2-af-samuel/) | 30 Novembre 2023
 Sarah | [La naissance d'Isaac](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-12-1-fab-sarah/) | 12 Octobre 2008
 Saul | [Sur l'élévation des vibrations](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-39-1969-12-3-anonymous-saul/) | 3 Décembre 1969

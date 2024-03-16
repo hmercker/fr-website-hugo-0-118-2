@@ -15,6 +15,7 @@ Les différents messages qu’il a canalisés, plus de 1500 à ce jours, sont di
 
 | **Année**
 |---
+| [2024](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-1-12-fr-al-fike-2024/) |
 | [2023](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-1-11-fr-al-fike-2023/) |
 | [2022](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-1-10-fr-al-fike-2022/) |
 | [2021](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-1-9-fr-al-fike-2021/) |

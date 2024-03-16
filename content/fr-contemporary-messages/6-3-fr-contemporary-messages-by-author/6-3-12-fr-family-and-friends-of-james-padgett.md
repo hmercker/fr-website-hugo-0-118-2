@@ -20,6 +20,7 @@ Anne Rollins | [Réseau de l’amour](/fr-contemporary-messages/fr-contemporary-
 Anne Rollins | [Croyances erronées et Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-19-4-jw-ann-rollins/) | 19 Décembre 2020
 Anne Rollins | [N'est-ce pas le désir de votre cœur ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-30-1-jw-ann-rollins/) | 30 Janvier 2023
 Anne Rollins | [L'expiation et la loi de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-30-1-jw-ann-rollins/) | 30 Avril 2023
+Anne Rollins | [Influence spirituelle et loi de l’attraction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-14-1-jw-ann-rollins/) | 14 Août 2023
 Hélène Padgett | [Détails de la vie d’Hélène Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-7-18-1-af-helen-padgett/) | 18 Juillet 2014
 Hélène Padgett | [Ceux qui servent dans l'amour feront des percées dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-17-2-af-helen-padgett/) | 17 Septembre 2017
 Hélène Padgett | [Buvez profondément ces eaux de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-4-2-af-helen-padgett/) | 4 Octobre 2022
@@ -51,6 +52,7 @@ James Padgett | [Conseils aux enseignants du groupe d'étude Padgett](/fr-contem
 James Padgett | [Explorez la vérité avec vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-13-2-jw-james-padgett/) | 13 Mai 2021
 James Padgett | [Comprendre Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-10-1-jw-james-padgett/) | 10 Juin 2021
 James Padgett | [Le monde connaîtra ces vérités à temps](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-4-1-af-james-padgett/) | 4 Octobre 2022
+James Padgett | [L'impact considérable qu'une petite décision peut avoir ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-29-1-af-james-padgett/) | 29 Novembre 2023
 James et Hélène Padgett | [Nous bénit et nous encourage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-9-1-al-james-helen-padgett/) | 9 Octobre 2022
 Professeur Salyards | [Qui apportera la vérité à ce monde ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-21-3-af-professor-salyards/) | 21 Janvier 2018
 Professeur Salyards | [L’amour naturel contre l’Amour Divin Développement de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-20-3-af-professor-salyards/) | 20 Novembre 2018
@@ -92,3 +94,7 @@ Professeur Salyards | [Soyez conscients des opportunités qui s'offrent à vous]
 Professeur Salyards | [Guidance pour le rassemblement mondial de la célébration de l'Amour Divin.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-16-1-af-professor-salyards/) | 16 Mars 2023
 Professeur Salyards | [Opportunité de croissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-20-1-af-professor-salyards/) | 20 Avril 2023
 Professeur Salyards | [L'inspiration continue de bouillonner](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-5-18-1-af-professor-salyards/) | 18 Mai 2023
+Professeur Salyards | [Met l'accent sur l'appel à la retraite de Laurelville](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-13-1-af-professor-salyards/) | 13 Juillet 2023
+Professeur Salyards | [L'harmonie prévaudra à la retraite de Laurelville](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-20-1-af-professor-salyards/) | 20 Juillet 2023
+Professeur Salyards | [Défaire le nœud gordien ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-15-2-af-professor-salyards/) | 15 Août 2023
+Professeur Salyards | [Conseils pour le comité de planification de Laurelville ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-30-1-af-prof-salyards/) | 30 Août 2023

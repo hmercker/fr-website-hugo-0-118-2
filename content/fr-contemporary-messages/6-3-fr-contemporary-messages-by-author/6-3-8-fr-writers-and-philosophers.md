@@ -71,6 +71,10 @@ Flavius Josèphe | [Les couches de conscience dans l’âme, le mental et le mat
 Flavius Josèphe | [Avertissement et réassurance pour des changements terrestres de plus en plus intenses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-29-1-af-josephus/) | 29 Mars 2022
 Flavius Josèphe | [Apporte une plus grande comprehension de qui nous sommes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-6-1-af-josephus/) | 6 Janvier 2023
 Flavius Josèphe | [Connaître son âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-21-2-af-josephus/) | 21 Avril 2023
+Flavius Josèphe | [Dieu nous utilise pour renforcer le réseau de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-27-1-af-josephus/) | 27 Août 2023
+Flavius Josèphe | [Le pouvoir de votre volonté ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-13-3-af-josephus/) | 13 Octobre 2023
+Flavius Josèphe | [Aller au-delà de la conscience mentale et spirituelle jusqu'à l'âme ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-29-1-af-josephus/) | 29 Octobre 2023
+Flavius Josèphe | [Des vêtements sont tissés pour chacun de nous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-10-1-af-josephus/) | 10 Novembre 2023
 George Bernard Shaw | [George Bernard Shaw a trouvé l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-8-13-1-fab-george-bernard-shaw/) | 13 Août 2006
 George Bernard Shaw | [Shaw a réexaminé sa vie sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-21-1-fab-george-bernard-shaw/) | 21 Février 2008
 George Gurdjieff | [L'empereur n'a pas de vêtements](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-10-10-2-jw-george-gurdjieff/) | 10 Octobre 2019
@@ -106,6 +110,8 @@ Kahlil Gibran | [Mise à l'honneur du livre «Pour l'amour de sa création»](/f
 Kahlil Gibran | [Continuer à avancer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-19-1-jw-kahlil-gibran/) | 19 Octobre 2020
 Kahlil Gibran | [Que votre amour soit un baume de guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-29-1-jw-kahlil-gibran/) | 29 Janvier 2021
 Kahlil Gibran | [Le désir de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-21-3-jw-kahlil-gibran/) | 21 Mai 2022
+Karl Marx | [Le célèbre révolutionnaire connaît la confusion.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-9-24-1-fab-karl-marx/) | 24 Septembre 2007
+Karl Marx | [Les difficultés de Karl Marx](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-27-1-fab-karl-marx/) | 27 Mai 2009
 Lady Murasaki | [Une ancienne et célèbre Romancière Japonaise a fait l'expérience de la Nouvelle Naissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-10-20-1-fab-lady-murasaki/) | 20 Octobre 2006
 Langston Hughes | [L'Amérique sera fidèle à elle-même](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-8-31-1-fab-langston-hughes/) | 31 Août 2006
 Mani | [Le monde est bon](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-14-1-fab-mani/) | 14 Avril 2006
@@ -126,6 +132,7 @@ Robert Hugh Benson | [Merci pour votre considération](/fr-contemporary-messages
 Robert Hugh Benson | [La Septième Sphère est la porte d’entrée des Cieux Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-2-3-1-jw-robert-hugh-benson/) | 3 Février 2022
 Robert Hugh Benson | [Croyance mentale et perception de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-18-2-jw-robert-hugh-benson/) | 18 Avril 2022
 Robert Hugh Benson | [Les royaumes de l’esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-19-1-jw-robert-hugh-benson/) | 19 Avril 2022
+Robert Hugh Benson  | [Les Royaumes Spirituels de Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-11-1-jw-robert-hugh-benson/) | 11 Décembre 2023
 Robert James Lees | [L’auteur de « A travers les brumes » est très reconnaissant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-13-1-jw-robert-james-lees/) | 13 Avril 2021
 Robert James Lees | [Veuillez mettre à jour mon livre dont le texte est périmé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-25-1-jw-robert-james-lees/) | 25 Mai 2021
 Robert James Lees | [Je vous guiderai](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-18-2-jw-robert-james-lees/) | 18 Juin 2021
@@ -149,7 +156,7 @@ Voltaire | [Voltaire a trouvé le Dieu vivant.](/fr-contemporary-messages/fr-con
 Walt Whitman | [Walt Whitman et les Amérindiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-1-4-1-fab-walt-whitman/) | 4 Janvier 2005
 Walt Whitman | [Le mysticisme et les expériences personnelles en esprit de Walt Whitman](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-1-5-1-fab-walt-whitman/) | 5 Janvier 2005
 Walt Whitman | [La personnalité de Whitman en tant que poète et personne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-28-1-fab-walt-whitman/) | 28 Avril 2008
-Shakespeare | [La curiosité de Shakespeare](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-24-2-fab-shakespeare/) | 24 Janvier 2003
+William Shakespeare | [La curiosité de Shakespeare](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-24-2-fab-shakespeare/) | 24 Janvier 2003
 William Shakespeare | [Shakespeare - L'enfance et la Bible](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-12-1-fab-william-shakespeare/) | 12 Août 2007
 William Shakespeare | [La vie de Shakespeare](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-12-2-fab-william-shakespeare/) | 12 Août 2007
 William Shakespeare | [Shakespeare - Adolescence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-13-1-fab-william-shakespeare/) | 13 Août 2007

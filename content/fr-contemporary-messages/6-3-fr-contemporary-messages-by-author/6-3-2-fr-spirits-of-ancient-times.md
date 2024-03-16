@@ -15,6 +15,12 @@ Nous qualifions d’esprits anciens les esprits qui ont vécu sur terre avant la
 ---|---|---
 Abel | [Abel partage ses expériences](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-25-1-fab-abel/) | 25 Janvier 2007
 Aekarius | [Le pouvoir de l’astronomie et de l’astrologie est limité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-3-9-1-af-aekarius/) | 9 Mars 2017
+Aigle Blanc | [Les animaux et l’amour naturel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-9-4-1-ar-white-eagle/) | 4 Septembre 1999
+Aigle Blanc | [La guérison par l’intermédiaire des guérisseurs spirituels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-3-1-ar-white-eagle/) | 3 Novembre 1999
+Aigle Blanc | [L’autre vision.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-2-11-1-ar-white-eagle/) | 11 Février 2001
+Aigle Blanc | [Aigle Blanc vient offrir la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-29-2-jw-white-eagle/) | 29 Mars 2020
+Aigle Blanc | [Nous sommes tous des peuples indigènes en tant qu'enfants de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-19-2-jw-white-eagle/) | 19 Avril 2020
+Marie & Aigle Blanc | [Le soleil bondissant de Fatima](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-9-19-2-ar-mary-white-eagle/) | 19 Septembre 1999
 Aman | [La première expérience](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-6-5-1-ar-aman/) | 5 Juin 2005
 Aman | [Changements dans le programme "The First Parents"](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-24-4-fab-aman/) | 24 Janvier 2007
 Aman | [Les besoins nutritionnels des Premiers Parents et du Maître.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-24-3-fab-aman/) | 24 Janvier 2007
@@ -119,6 +125,11 @@ Confucius | [Bénédictions](/fr-contemporary-messages/fr-contemporary-messages-
 Confucius | [Partager nos dons de guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-1-22-1-af-confucius/) | 22 Janvier 2022
 Confucius | [S'envoler vers votre Père Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-7-1-al-confucius/) | 7 Octobre 2022
 Confucius | [Ne gaspillez pas ces opportunités](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-13-1-af-confucius/) | 13 Janvier 2023
+Confucius | [Dieu vous guidera dans votre service](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-2-3-af-confucius/) | 2 Février 2023
+Confucius | [Vous volerez sur le souffle de Dieu pour éveiller de nombreuses âmes ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-11-1-af-confucius/) | 11 Octobre 2023
+Confucius | [Nous avons le plein soutien de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-3-1-af-confucius/) | 3 Janvier 2024
+Confucius | [Ne gaspillez pas les bénédictions que vous recevez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-5-2-af-confucius/) | 5 Janvier 2024
+Confucius | [Bénédictions des portails pour tous ceux qui résident ici](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-9-1-af-confucius/) | 9 Janvier 2024
 Gilgamesh | [La Voie Antique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-8-16-1-rl-gilgamesh/) | 16 Août 2004
 Icarius | [Apprenez à connaître votre propre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-21-3-af-icarius/) | 21 Mai 2017
 Jael | [La sœur de Caïn et Abel raconte ses expériences](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-25-4-fab-jael/) | 25 Janvier 2007
@@ -132,6 +143,20 @@ Leytergus | [Ce que signifie vraiment la co-création avec Dieu. (Retraite Q&A G
 Leytergus | [Embrasser la diversité et l’autre dans l’acceptation et l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-23-1-af-leytergus/) | 23 Juillet 2020
 Leytergus | [Prier avec intention](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-2-23-1-af-leytergus/) | 23 Février 2021
 Mala | [La spiritualité des premiers Amérindiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-9-11-1-fab-mala/) | 11 Septembre 2005
+Nuage Blanc | [Vous devez chercher et vous préparer à recevoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-72-1969-anonymous-white-cloud/) |   1969
+Nuage Blanc et Eau Christalline | [Nuage blanc, eau cristalline](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-111-1969-anonymous-white-cloud-crystal-water/) |   1969
+Nuage Blanc | [Aidez les autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-114-1969-anonymous-white-cloud/) |   1969
+Nuage Blanc | [L'importance de la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-124-1969-anonymous-white-cloud/) |   1969
+Nuage Blanc | [Apprenez à lancer des pensées d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-143-1970-anonymous-white-cloud/) |   1970
+Nuage Blanc | [Vivez ces vérités](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-158-1970-anonymous-white-cloud/) |   1970
+Nuage Blanc | [Conférence sur la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-163-1970-anonymous-white-cloud/) |   1970
+Nuage Blanc | [Le monde a besoin de vos prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-2-2-af-white-cloud/) | 2 Décembre 2016
+Nuage Blanc | [L'amour réveillera votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-28-2-af-white-cloud/) | 28 Septembre 2017
+Nuage Blanc | [Dites la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-11-2-af-white-cloud/) | 11 Novembre 2017
+Nuage Blanc | [Vous devez vous lever et dire la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-6-1-1-af-white-cloud/) | 1 Juin 2019
+Nuage Blanc | [Demander les bénédictions et les dons de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-11-2-af-white-cloud/) | 11 Septembre 2019
+Nuage Blanc | [Priez avec nous pour plus d'équilibre et d'harmonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-3-1-af-white-cloud/) | 3 Décembre 2021
+Plume Blanche | [Être un agent de changement pour la Terre ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-9-1-1-af-white-feather/) | 1 Septembre 2023
 Melchizédek | [Un travail important est nécessaire pour rectifier les conditions non harmonieuses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-8-2-af-melchizedek/) | 8 Novembre 2019
 Socrates | [Notre boussole intérieure supérieure.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-19-1-fab-socrates/) | 19 Juillet 2006
 Tahlia | [Semer les graines de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-1-1-af-tahlia/) | 1 Décembre 2016

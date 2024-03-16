@@ -15,126 +15,9 @@ Cette catégorie d’esprits correspond à des esprits qui ne se sont pas illust
 ---|---|---
 Adriana | [Se ressourcer dans la prière pour se préparer aux défis à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-6-1-af-adriana/) | 6 Septembre 2020
 Agnès | [Ne pas ignorer l’Amour Naturel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-19-2-jr-agnes/) | 19 Mai 2014
-Alec & Elsie | [Bénédictions de mentors qui sont des âmes sœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-26-2-af-alec-elsie/) | 26 Mai 2021
-Alec Gaunt | [Le monde change](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-7-6-1-af-alec-gaunt/) | 6 Juillet 2015
-Alec Gaunt | [Vous devez être des exemples](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-17-1-af-alec-gaunt/) | 17 Mars 2016
-Alec Gaunt | [La loi du changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-27-1-af-alec-gaunt/) | 27 Avril 2016
-Alec Gaunt | [Débarrassez-vous de vos peurs et de ce qui vous encombre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-5-12-2-af-alec-gaunt/) | 12 Mai 2016
-Alec Gaunt | [Ne jugez pas la voie naturelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-5-25-1-af-alec-gaunt/) | 25 Mai 2016
-Alec Gaunt | [En progressant à l’intérieur de votre âme, vous serez en mesure de recevoir les changements qui arrivent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-21-1-af-alec-gaunt/) | 21 Décembre 2016
-Alec Gaunt | [Cherchez la vérité dans votre propre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-28-1-af-alec-gaunt/) | 28 Décembre 2016
-Alec Gaunt | [Les changements que vous allez vivre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-1-23-1-af-alec-gaunt/) | 23 Janvier 2017
-Alec Gaunt | [Comment être avec Dieu ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-1-25-1-af-alec-gaunt/) | 25 Janvier 2017
-Alec Gaunt | [Alec partage ses frustrations concernant le premier projet Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-6-12-1-af-alec-gaunt/) | 12 Juin 2017
-Alec Gaunt | [Le monde a besoin de plus de gens comme vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-26-1-af-alec-gaunt/) | 26 Septembre 2017
-Alec Gaunt | [La Transition de Percy](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-11-2-af-alec-gaunt/) | 11 Octobre 2017
-Alec Gaunt | [Sans amour, on ne peut pas progresser](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-3-3-af-alec-gaunt/) | 3 Décembre 2017
-Alec Gaunt | [Accepter les différences](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-8-2-af-alec-gaunt/) | 8 Décembre 2017
-Alec Gaunt | [Au fil des découvertes de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-24-1-af-alec-gaunt/) | 24 Janvier 2018
-Alec Gaunt | [Connaître la volonté de Dieu pour vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-9-1-af-alec-gaunt/) | 9 Mai 2018
-Alec Gaunt | [L'Amour de Dieu est la grande puissance qui va changer le monde - F.U.S.C.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-10-1-af-alec-gaunt/) | 10 Juin 2018
-Alec Gaunt | [Conseils personnels pour la retraite de médiumnité de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-8-3-af-alec-gaunt/) | 8 Août 2018
-Alec Gaunt | [Une âme en quête d'Amour Divin apporte un soutien Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-28-2-mc-alec-gaunt/) | 28 Août 2018
-Alec Gaunt | [Continuer à construire le pont entre votre âme et l'âme de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-22-1-af-alec-gaunt/) | 22 Octobre 2018
-Alec Gaunt | [Questions et réponses d'un esprit Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-26-1-af-alec-gaunt/) | 26 Février 2019
-Alec & Elsie | [Bénédictions de mentors qui sont des âmes sœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-26-2-af-alec-elsie/) | 26 Mai 2021
 Archange Gabriel | [La mort et la résurrection de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-6-21-1-rl-archangel-gabriel/) | 21 Juin 2004
 Archange Michael | [Déclaration du début de la transformation de notre monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-17-3-af-archangel-michael/) | 17 Décembre 2021
 Archange Michael | [Déclaration du début de la transformation de notre monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-17-3-af-archangel-michael/) | 17 Décembre 2021
-Barbara Davies | [Ma nouvelle maison et la vie dans l’esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-20-1-af-barbara-davies/) | 20 Janvier 2021
-Barbara Davies | [Désir de servir et d’être dans l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-6-1-af-barbara-davies/) | 6 Avril 2021
-Barbara Davies | [Progression de la cinquième à la septième sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-26-1-af-barbara-davies/) | 26 Mai 2021
-Barbara Davis | [Notre connexion avec notre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-24-2-af-barbara-davis/) | 24 Novembre 2022
-Barbara Davies | [Amitié et voyage similaire avec Grace Jordan](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-28-1-af-barbara-davies/) | 28 Janvier 2023
-Barbara Davis | [Votre famille bénéficie de vos efforts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-21-1-af-barbara-davis/) | 21 Février 2023
-Barbara Davies | [Faire la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-14-1-af-barbara-davies/) | 14 Juillet 2023
-Bernice Fike | [Confirmation du message de Barbara](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-21-2-af-bernice-fike/) | 21 Février 2023
-Care Darby Walsh | [Les potentiels en herbe de nos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-29-1-af-care-derby-walsh/) | 29 Novembre 2016
-Care Darby Walsh | [Ceux qui servent Dieu dans l'amour travaillent au niveau de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-5-28-1-jw-care-derby-walsh/) | 28 Mai 2019
-Care Darby Walsh | [La vérité divine est l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-8-7-2-jw-care-derby-walsh/) | 7 Août 2019
-Care Darby Walsh | [Suivez le chemin le moins fréquenté, le chemin de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-9-4-jw-care-derby-walsh/) | 9 Septembre 2019
-Care Darby Walsh | [Choisir de vivre dans l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-10-10-1-jw-care-derby-walsh/) | 10 Octobre 2019
-Care Darby Walsh | [Votre connexion est d'âme à âme en esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-10-31-2-jw-care-derby-walsh/) | 31 Octobre 2019
-Care Darby Walsh | [Marchez dans ce monde avec la Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-9-2-jw-care-derby-walsh/) | 9 Mars 2020
-Care Darby Walsh | [Le don de prophétie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-12-1-jw-care-derby-walsh/) | 12 Mai 2020
-Care Darby Walsh | [Réalisation de soi et réalisation de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-16-1-jw-care-derby-walsh/) | 16 Mai 2020
-Care Darby Walsh | [Frères dans l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-25-1-jw-care-derby-walsh/) | 25 Juin 2020
-Care Darby Walsh | [Vous êtes digne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-28-1-jw-care-derby-walsh/) | 28 Juin 2020
-Care Darby Walsh | [Fou de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-29-1-jw-care-derby-walsh/) | 29 Juin 2020
-Care Darby Walsh | [Pour l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-12-1-jw-care-derby-walsh/) | 12 Juillet 2020
-Care Darby Walsh | [Permettez la grâce de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-21-1-jw-care-derby-walsh/) | 21 Juillet 2020
-Care Darby Walsh | [Les enfants de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-23-2-jw-care-derby-walsh/) | 23 Juillet 2020
-Care Darby Walsh | [Dans l’amour de Dieu, il n’y a pas de mauvais choix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-2-1-jw-care-derby-walsh/) | 2 Août 2020
-Care Darby Walsh | [Je l'adore !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-2-2-jw-care-derby-walsh/) | 2 Août 2020
-Care Darby Walsh | [La foi en Dieu et en vos dons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-15-1-jw-care-derby-walsh/) | 15 Août 2020
-Care Darby Walsh | [Quel sera votre cadeau à Dieu ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-22-1-jw-care-derby-walsh/) | 22 Septembre 2020
-Care Darby Walsh | [Détendez-vous !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-11-18-1-jw-care-derby-walsh/) | 18 Novembre 2020
-Care Darby Walsh | [Levez-vous et Brillez !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-11-21-1-jw-care-derby-walsh/) | 21 Novembre 2020
-Care Darby Walsh | [Perceptions de l'âme vs. Intuition](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-23-2-jw-care-derby-walsh/) | 23 Décembre 2020
-Care Darby Walsh | [Combattez avec Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-8-1-jw-care-derby-walsh/) | 8 Janvier 2021
-Care Darby Walsh | [La multiplicité des dons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-22-2-jw-care-derby-walsh/) | 22 Janvier 2021
-Care Darby Walsh | [Il existe de nombreux médiums pour l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-2-26-1-jw-care-derby-walsh/) | 26 Février 2021
-Care Darby Walsh | [Quand vous appelez, nous venons !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-18-3-jw-care-derby-walsh/) | 18 Mars 2021
-Care Darby Walsh | [Plantez les graines et reflétez l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-19-1-jw-care-derby-walsh/) | 19 Avril 2021
-Care Darby Walsh | [Chaque âme est unique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-8-2-jw-care-derby-walsh/) | 8 Juin 2021
-Care Darby Walsh | [Ne vous faites pas d’idoles et soyez libres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-21-1-jw-care-derby-walsh/) | 21 Juin 2021
-Care Darby Walsh | [Ayez la foi que vos prières seront exaucées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-12-1-jw-care-derby-walsh/) | 12 Août 2021
-Care Darby Walsh | [Le Vrai Bonheur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-9-5-jw-care-derby-walsh/) | 9 Septembre 2021
-Care Darby Walsh | [Encouragements à terminer les projets](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-22-2-jw-care-derby-walsh/) | 22 Octobre 2021
-Care Darby Walsh | [La porte sera ouverte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-18-1-jw-care-derby-walsh/) | 18 Novembre 2021
-Care Darby Walsh | [La joie dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-23-1-jw-care-derby-walsh/) | 23 Décembre 2021
-Care Darby Walsh | [Liberté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-26-3-jw-care-derby-walsh/) | 26 Décembre 2021
-Care Darby Walsh | [Tous les cœurs brillent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-1-18-1-jw-care-derby-walsh/) | 18 Janvier 2022
-Care Darby Walsh | [C’est une question de cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-1-31-1-jw-care-derby-walsh/) | 31 Janvier 2022
-Care Darby Walsh | [Choisissez le chemin de l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-2-15-1-jw-care-derby-walsh/) | 15 Février 2022
-Care Darby Walsh | [Marcher dans la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-2-22-1-jw-care-derby-walsh/) | 22 Février 2022
-Care Darby Walsh | [Pas de regrets et service](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-3-1-jw-care-derby-walsh/) | 3 Mars 2022
-Care Darby Walsh | [Laissez derrière vous ce qui n'est pas digne de votre marche future !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2022-3-21-1-jw-care-derby-walsh/) | 21 Mars 2022
-Care Darby Walsh | [Profitez de chaque instant de l’aspiration de l’âme dans la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-5-1-jw-care-derby-walsh/) | 5 Avril 2022
-Care Darby Walsh | [Le jeûne du drame](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-11-2-jw-care-derby-walsh/) | 11 Avril 2022
-Care Darby Walsh | [Faites de votre vision une réalité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-8-3-jw-care-derby-walsh/) | 8 Mai 2022
-Care Darby Walsh | [Semences de la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-5-2-jw-care-derby-walsh/) | 5 Juin 2022
-Care Darby Walsh | [Tout moment peut être une incitation à être en Grâce](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-5-2-jw-care-derby-walsh/) | 5 Juillet 2022
-Care Darby Walsh | [Tomber en Grace](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-20-1-jw-care-derby-walsh/) | 20 Juillet 2022
-Care Darby Walsh | [Suivez la joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-22-1-jw-care-derby-walsh/) | 22 Juillet 2021
-Care Darby Walsh | [De nombreuses façons de donner de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-22-2-jw-care-derby-walsh/) | 22 Août 2022
-Care Darby Walsh | [Progression au-delà des flux et reflux de la vie terrestre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-3-1-jw-care-derby-walsh/) | 3 Octobre 2022
-Care Darby Walsh | [Faites connaitre les intentions de votre ame au monde entier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-6-1-jw-care-derby-walsh/) | 6 Novembre 2022
-Care Darby Walsh | [La connexion divine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-19-1-jw-care-derby-walsh/) | 19 Décembre 2022
-Care Darby Walsh | [Parler vrai sans regrets](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-16-2-jw-care/) | 16 Avril 2023
-Eileen Caddy | [Findhorn restauré dans l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-4-9-3-jw-eileen-caddy/) | 9 Avril 2019
-Eileen Caddy | [Maintenir la puissance spirituelle des lieux bénis](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-5-3-1-jw-eileen-caddy/) | 3 Mai 2019
-Eileen Caddy | [Que voulez-vous construire ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-8-31-4-jw-eileen-caddy/) | 31 Août 2019
-Eileen Caddy | [Soutenir les portails de lumière dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-10-6-3-jw-eileen-caddy/) | 6 Octobre 2019
-Eileen Caddy | [La clarté viendra à vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-10-20-2-jw-eileen-caddy/) | 20 Octobre 2019
-Eileen Caddy | [Permettre à nos cœurs de s'ouvrir, écouter avec nos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-10-2-jw-eileen-caddy/) | 10 Novembre 2019
-Eileen Caddy | [Ne soyez regardé par personne d'autre que Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-11-1-jw-eileen-caddy/) | 11 Novembre 2019
-Eileen Caddy | [Cultiver le jardin de son âme et s'épanouir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-2-3-jw-eileen-caddy/) | 2 Décembre 2019
-Eileen Caddy | [Faites-vous confiance et faites confiance à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-6-1-af-eileen-caddy/) | 6 Décembre 2019
-Eileen Caddy | [Vous aurez la victoire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-7-3-jw-eileen-caddy/) | 7 Décembre 2019
-Eileen Caddy | [Sensibilisation à l’égard de Findhorn](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-1-3-jw-eileen-caddy/) | 1 Janvier 2020
-Eileen Caddy | [Le pont reliant la Terre et le Ciel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-2-9-2-jw-eileen-caddy/) | 9 Février 2020
-Eileen Caddy | [Gardez le cap avec amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-6-2-jw-eileen-caddy/) | 6 Mars 2020
-Eileen Caddy | [Le courage d’aller de l’avant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-8-2-jw-eileen-caddy/) | 8 Mars 2020
-Eileen Caddy | [Suggestions de Findhorn](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-13-1-jw-eileen-caddy/) | 13 Mars 2020
-Eileen Caddy | [Fondations de Findhorn](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-15-2-jw-eileen-caddy/) | 15 Mars 2020
-Eileen Caddy | [Là où votre cœur est là, là est aussi votre trésor](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-24-2-jw-eileen-caddy/) | 24 Avril 2020
-Eileen Caddy | [Portez l'amour dans vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-24-1-jw-eileen-caddy/) | 24 Mai 2020
-Eileen Caddy | [Vous êtes la bénédiction dont ce monde a besoin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-7-1-jw-eileen-caddy/) | 7 Juillet 2020
-Eileen Caddy | [Commencez votre journée en vous ouvrant à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-11-13-1-jw-eileen-caddy/) | 13 Novembre 2020
-Eileen Caddy | [La transformation par l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-11-16-1-jw-eileen-caddy/) | 16 Novembre 2020
-Eileen Caddy | [Levez vos voiles sur l’océan de l’amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-8-1-jw-eileen-caddy/) | 8 Décembre 2020
-Eileen Caddy | [Votre volonté et la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-18-1-jw-eileen-caddy/) | 18 Décembre 2020
-Eileen Caddy | [Quel sera votre héritage ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-15-1-jw-eileen-caddy/) | 15 Janvier 2021
-Eileen Caddy | [La vie spirituelle requiert du courage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-2-3-1-jw-eileen-caddy/) | 3 Février 2021
-Eileen Caddy | [Allez à l’intérieur et permettez à Dieu d’ouvrir votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-20-3-jw-eileen-caddy/) | 20 Avril 2021
-Eileen Caddy | [Nous appelle tous à servir Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-30-1-af-eileen-caddy/) | 30 Juillet 2021
-Eileen Caddy | [Demandez en priant et vous recevrez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-19-1-jw-eileen-caddy/) | 19 Novembre 2021
-Eileen Caddy | [Permettez à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-2-8-1-jw-eileen-caddy/) | 8 Février 2022
-Eileen Caddy | [Orientation, vision et actualisation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-15-2-jw-eileen-caddy/) | 15 Mars 2022
-Eileen Caddy | [Comment être dans le monde et non pas du monde ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-19-1-jw-eileen-caddy/) | 19 Septembre 2022
-Eileen Caddy | [Orientation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-24-1-jw-eileen-caddy/) | 24 Avril 2023
-Elsie | [Une vieille amie nous soutient dans la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-22-2-af-elsie/) | 22 Octobre 2018
 Elyon | [Un message d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-1-6-1-na-elyon/) | 6 Janvier 2006
 Emi et Martin Luther | [Courage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-7-13-1-hm-emi-martin-luther/) | 13 Juillet 2017
 Esprit Céleste Elevé | [Faits, noms, dates et divergences](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-4-2-2-ks-a-high-celestial-spirit/) | 2 Avril 2000
@@ -150,24 +33,6 @@ Esprit Céleste Elevé | [Protection contre les blessures](/fr-contemporary-mess
 Esprit Céleste Elevé | [La foi et comment découvrir la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-12-19-1-ks-a-high-celestial-spirit/) | 19 Décembre 2000
 Esprit Céleste Elevé | [S’élever au-dessus du mal](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-1-23-2-ks-a-high-celestial-spirit/) | 23 Janvier 2001
 Esprit Céleste Elevé | [Tendre l’autre joue](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-2-24-1-ks-a-high-celestial-spirit/) | 24 Février 2001
-Faith | [Le simple voyage vous attend](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-9-1-af-faith/) | 9 Janvier 2016
-Faith | [Qu'est-ce que la foi ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-23-1-af-faith/) | 23 Septembre 2017
-Faith | [L'émerveillement de l'Amour Divin de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-9-1-af-faith/) | 9 Octobre 2017
-Faith | [Faites confiance à la sagesse de vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-30-1-af-faith/) | 30 Novembre 2017
-Faith | [Prendre soin de son corps physique et de son corps spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-27-3-mc-faith/) | 27 Août 2018
-Faith | [Ce que vous devez enseigner en jetant les graines](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-24-1-af-faith/) | 24 Novembre 2018
-Faith | [Comment la foi s'obtient et change la vie d'une personne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-4-28-2-mc-faith/) | 28 Avril 2019
-Faith | [Vous apportez l'amour de Dieu par votre présence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-6-14-3-mc-faith/) | 14 Juin 2019
-Faith | [Vos efforts contribuent à soutenir les portails à Blackpool et ailleurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-6-17-1-af-faith/) | 17 Juin 2019
-Faith | [Importance du Portail de Lumière au Centre Mondial de Guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-8-15-1-mc-faith/) | 15 Août 2019
-Faith | [Salutations de Faith (Atelier de la médiumnité 2020)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-4-4-hm-faith/) | 4 Mai 2020
-Faith | [Être ouvert à l’essence du créateur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-8-3-mc-faith/) | 8 Octobre 2020
-Faith | [Priez pour le monde, en particulier pour le Centre mondial de guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-10-1-af-faith/) | 10 Août 2021
-Faith | [Parler du service (Retraite Voix Directe 2021)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-12-1-af-faith/) | 12 Septembre 2021
-Faith | [Vivre la joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-12-2-af-faith/) | 12 Octobre 2021
-Faith | [Nous servons Dieu ensemble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-9-1-af-faith/) | 9 Mai 2022
-Faith | [Attribut d'âme de la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-4-1-mc-faith/) | 4 Février 2023
-Faith | [Priera avec des liens d’Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-30-1-af-faith/) | 30 Mars 2023
 Fleur de Lotus | [J'ai un grand amour pour la Chine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-76-1969-anonymous-lotus-blossom/) |   1969
 Fleur de Lotus | [Personnel pour M](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-8-10-1-af-lotus-blossom/) | 10 Août 2017
 Fleur de Lotus | [Le salut du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-24-3-af-lotus-blossom/) | 24 Septembre 2017
@@ -188,10 +53,6 @@ Fleur de Lotus | [Vos pensées ont un grand pouvoir](/fr-contemporary-messages/f
 Fleur de Lotus | [La foi est un instrument pour que la guérison se produise](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-3-3-mc-lotus-blossom/) | 3 Décembre 2019
 Fleur de Lotus  | [Comparaison des expiations entre les voies de l'Amour Divin et naturel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-20-2-af-lotus-blossom/) | 20 Mai 2020
 Fleur de Lotus | [Nous sommes à la fois récepteurs et donneurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-4-2-af-lotus-blossom/) | 4 Septembre 2020
-Frère Mandus Nyquist | [Vous allez remplir votre mandat de canal de l’Amour chez moi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-6-27-1-af-brother-mandus/) | 27 Juin 2016
-Frère Mandus Nyquist | [Une description de l’âme et de sa nature durable](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-8-27-1-af-brother-mandus/) | 27 Août 2016
-Frère Mandus Nyquist | [La porte de la grâce de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-10-1-jw-brother-mandus/) | 10 Octobre 2020
-Frère Mandus Nyquist | [Continuez à prier pour que la volonté de Dieu prévale à WHC – Ne perdez pas espoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-9-2-af-brother-mandus/) | 9 Mai 2022
 Goldie | [S'exprimer en tant qu'enseignant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-7-1969-3-25-anonymous-goldie/) | 25 Mars 1969
 Goldie | [Vous ne pouvez grandir que pas à pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-34-1969-11-1-anonymous-goldie/) | 1 Novembre 1969
 Goldie | [Une mission spéciale de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-108-1969-anonymous-goldie/) |   1969
@@ -233,15 +94,7 @@ Goldie | [Nous demande de déposer des fleurs à l’autel de WHC](/fr-contempor
 Goldie | [Mangez de la crème glacée pour célébrer l'amour de Dieu !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-17-1-af-goldie/) | 17 Novembre 2022
 Grace | [Un message de réconfort](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-24-3-af-grace/) | 24 Novembre 2022
 Grace Jordan | [Confirmation du message de Barbara_2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-21-3-af-grace-jordan/) | 21 Février 2023
-James Reid | [La valeur de la connaissance de vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-27-3-af-james-reid/) | 27 Novembre 2016
-James Reid | [Nous travaillons ensemble au service de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-15-2-af-james-reid/) | 15 Novembre 2018
-James Reid | [Le voyage de l'âme vers Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-5-1-af-james-reid/) | 5 Novembre 2019
-James Reid | [Entrerai bientôt dans les Cieux Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-24-1-af-james-reid/) | 24 Juin 2021
 Jane | [La route magique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-11-17-1-ks-jane/) | 17 Novembre 2002
-Jocelynee Harleston | [Poursuivez vos efforts pour éveiller votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-5-3-af-jocelyn-harleston/) | 5 Novembre 2018
-Joseph Babinsky | [Décrit sa vie dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-4-1-jw-joseph-babinsky/) | 4 Octobre 2021
-Joseph Babinsky | [Dans l'Amour et la Gratitude de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-24-2-af-joseph-babinsky/) | 24 Avril 2023
-Kathryn Stokes | [Goutte à goutte, l'amour a rempli mon âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-31-1-af-kathryn-stokes/) | 31 Janvier 2018
 Keea Atta Kem & Augustin | [Prévoyez la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-123-1969-anonymous-keea-atta-kem-augustine/) |   1969
 Keea Atta Kem & Goldie | [Conseils concernant vos guides](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-7-16-2-af-keea-atta-kem-goldie/) | 16 Juillet 2017
 Keea Atta Kem | [Demandez au Père d'ouvrir vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-4-1969-2-14-anonymous-keea-atta-kem/) | 14 Février 1969
@@ -331,16 +184,17 @@ Keea Atta Kem | [La vérité viendra de manière unique à chaque âme](/fr-cont
 Keea Atta Kem | [Ayez de la compassion pour vous-mêmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-22-1-af-keea-atta-kem/) | 22 Octobre 2022
 Keea Atta Kem | [Préparatifs de nos rassemblements de prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-11-1-af-keea-atta-kem/) | 11 Janvier 2023
 Keea-Atta-Kem | [Heureux d'être à nouveau réunis avec le groupe du Cercle des 7](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-13-1-af-keea-atta-kem/) | 13 Mars 2023
+Kea Atta Kem | [Vous êtes les rares privilégiés au monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-5-23-1-af-kea-atta-kem/) | 23 Mai 2023
+Kea Atta Kem | [la chaîne  de l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-9-12-2-af-kea-atta-kem/) | 12 Septembre 2023
+Kea Atta Kem | [ RÉJOUISSEZ-VOUS du dessein de Dieu ! ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-10-3-af-kea-atta-kem/) | 10 Octobre 2023
+Kea Atta Kem | [Affirme que le portail est ouvert ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-11-4-af-kea-atta-kem/) | 11 Octobre 2023
+Kea Atta Kem | [Nous sommes avec vous dans l'amour et la joie ! ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-24-1-af-kea-atta-kem/) | 24 Octobre 2023
+Kea Atta Kem | [L'harmonisation de vos prières crée une grande lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-11-1-af-kea-atta-kem/) | 11 Février 2024
 Laila | [Marchez chaque jour dans Sa lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-19-3-af-laila/) | 19 Mai 2017
 La Joya | [Éléments utilisés dans la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-8-2-mc-la-joya/) | 8 Octobre 2020
 Le père du médium | [Aide aux pays en difficulté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-23-2-fab-medium’s-father/) | 23 Janvier 2007
-Leslie Stone | [Leslie Stone est très haut dans les Cieux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-11-7-2-fab-leslie-stone/) | 7 Novembre 2005
-Leslie Stone | [La mission de Leslie Stone.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-9-19-2-fab-leslie-stone/) | 19 Septembre 2007
-Leslie Stone | [Ne vous laissez pas distraire par des questions secondaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-1-10-1-jw-leslie-stone/) | 10 Janvier 2022
 Lorenzo | [Encouragements pour Alfredo](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-15-1-Alfredo-lorenzo/) | 15 Novembre 1999
 Lorenzo | [Message personnel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-16-2-Alfredo-lorenzo/) | 16 Novembre 1999
-Lorna Scott | [Donnez aux autres, aimez les autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-13-1-af-lorna-kincaid/) | 13 Novembre 2016
-Lorna Scott | [Notre croissance dans l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-24-1-af-lorna-scott/) | 24 Novembre 2022
 Mabeko | [Personnel pour Lorika en Afrique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-23-2-af-mabeko/) | 23 Décembre 2021
 Martha | [Un nouveau départ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-15-9-af-martha/) | 15 Décembre 2017
 Martha | [Je suis là pour vous aider](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-18-2-af-martha/) | 18 Décembre 2017
@@ -370,6 +224,7 @@ Michael Collier  | [La chance d'avoir une communauté](/fr-contemporary-messages
 Michael Collier | [Notre rôle sur terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-25-1-af-michael-collier/) | 25 Janvier 2023
 Michael Collier | [Notre rôle dans le plan de dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-26-1-af-michael-collier/) | 26 Janvier 2023
 Michael Collier | [Également engagé envers des liens d’äme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-30-4-af-michael-collier/) | 30 Mars 2023
+Michael Collier | [L’intensité de la prière nous rapproche de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-8-1-af-michael-collier/) | 8 Décembre 2023	
 Mylora | [Votre lumière est très attirante dans le monde spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-3-2-af-mylora/) | 3 Décembre 2019
 Mylora | [Je suis avec vous dans vos efforts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-2-3-af-mylora/) | 2 Octobre 2020
 Mylora | [Prier avec une intention et une motivation aimantes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-16-1-af-mylora/) | 16 Mai 2021
@@ -384,9 +239,9 @@ Mylora | [Comment Dieu veille sur nous tous](/fr-contemporary-messages/fr-contem
 Mylora | [Honorer la terre merre qui nous aime tant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-2-1-af-mylora/) | 2 Septembre 2022
 Mylora | [Soyez dans la grâce de Dieu ; cherchez son amour maintenant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-8-1-al-mylora/) | 8 Octobre 2022
 Mylora | [Lorsque vous placez Dieu en premier, il y a du temps pour tout](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-16-1-af-mylora/) | 16 Octobre 2022
+Mylora | [Bénédiction de guérison profonde alors que nous voyageons à Laurelville ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-11-6-af-mylora/) | 11 Octobre 2023
+Mylora | [Commentaires sur les niveaux de guérison ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-7-1-af-mylora/) | 7 Novembre 2023
 Ophélius | [La couleur dans la mosaïque de la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-9-4-1-chris-ophelius/) | 4 Septembre 2011
-Percy Hayes | [Salutations de Percy depuis le Royaume d'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-12-1-af-percy-hayes/) | 12 Octobre 2017
-Percy Hayes | [Percy Hayes annonce son entrée dans le Royaume Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-27-2-af-percy-hayes/) | 27 Janvier 2021
 PSR | [L’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-10-1-pjr-psr/) | 10 Avril 2002
 PSR | [Difficultés à atteindre le Père](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-24-1-pjr-psr/) | 24 Avril 2002
 PSR | [Fatigué et distrait.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-8-28-1-pjr-psr/) | 28 Août 2003
@@ -616,3 +471,16 @@ Seretta Kem | [Un développement plus important est nécessaire pour la manifest
 Seretta Kem | [Les fascinantes distractions de l'intégration de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-4-1-af-seretta-kem/) | 4 Mars 2023
 Seretta Kem | [Développer la conscience de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-18-1-af-seretta-kem/) | 18 Mars 2023
 Seretta Kem | [Trouver l'équilibre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-21-2-af-seretta-kem/) | 21 Mars 2023
+Seretta Kem | [Orientations pour la poursuite du développement de la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-5-6-1-af-seretta-kem/) | 6 Mai 2023
+Seretta Kem | [Souligne (encore une fois) ce qui est nécessaire pour obtenir une voix directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-6-3-1-af-seretta-kem/) | 3 Juin 2023
+Seretta Kem | [Point de contrôle à mi-chemin ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-6-28-1-af-seretta-kem/) | 28 Juin 2023
+Seretta Kem | [La transformation continue dans l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-6-29-1-af-seretta-kem/) | 29 Juin 2023
+Seretta Kem | [Encourage l'intégration de la retraite](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-4-2-af-seretta-kem/) | 4 Juillet 2023
+Seretta Kem | [Ne manquez pas les opportunités que Dieu vous propose](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-8-1-af-seretta-kem/) | 8 Juillet 2023
+Seretta Kem | [Offre son point de vue et ses encouragements au groupe des douze ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-18-1-af-seretta-kem/) | 18 Juillet 2023
+Seretta Kem | [L'importance de ce que chaque individu apporte au cercle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-10-4-af-seretta-kem/) | 10 Octobre 2023
+Seretta Kem | [Les anges sont prêts et attendent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-12-2-af-seretta-kem/) | 12 Octobre 2023
+Seretta Kem | [lI y a un ange assigné à chacun de nous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-13-6-af-seretta-kem/) | 13 Octobre 2023
+Seretta Kem | [La vérité grandira de votre âme à votre esprit ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-13-7-af-seretta-kem/) | 13 Octobre 2023
+Seretta Kem | [Exprime sa gratitude pour tout ce qui a été accompli ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-15-3-af-seretta-kem/) | 15 Octobre 2023
+Seretta Kem | [Les cadeaux surprenants de vos âmes s'ouvrent ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-10-1-af-seretta-kem/) | 10 Février 2024

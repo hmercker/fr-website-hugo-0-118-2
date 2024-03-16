@@ -13,6 +13,7 @@ Jimbeau Walsh est un compositeur muscical et un très ancien membre du groupe de
 
 | **Année**
 |---
+| [2024](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-8-6-fr-jimbeau-walsh-2024/) |
 | [2023](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-8-5-fr-jimbeau-walsh-2023/) |
 | [2022](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-8-4-fr-jimbeau-walsh-2022/) |
 | [2021](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-8-3-fr-jimbeau-walsh-2021/) |

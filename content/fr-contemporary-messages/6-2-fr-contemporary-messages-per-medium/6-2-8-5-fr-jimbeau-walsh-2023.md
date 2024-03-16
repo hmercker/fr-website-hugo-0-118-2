@@ -51,6 +51,25 @@ Jésus | [Invitation à se rassembler dans l'unité](/fr-contemporary-messages/f
 Yogananda | [Vivez dans la grâce en dehors de vos cases](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-31-1-jw-yogananda/) | 31 Juillet 2023
 Care Derby Walsh | [Aide Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-10-1-jw-care-derby-walsh/) | 10 Août 2023
 Care Derby Walsh | [Marcher dans la grâce](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-21-1-jw-care-derby-walsh/) | 21 Août 2023
+Care Derby Walsh | [Faites aux autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-27-2-jw-care-derby-walsh/) | 27 Août 2023
+St Jean | [Âmes en transition](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-28-1-jw-st-john/) | 28 Août 2023
+Yogananda | [L'âme dans l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-9-4-1-jw-yogananda/) | 4 Septembre 2023
+Care Derby Walsh | [Qu'est-ce qui vous attend dans le monde des esprits !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-9-26-1-jw-care-derby-walsh/) | 26 Septembre 2023
+Judas | [Laissez l’amour de Dieu imprégner votre journée, illuminez votre nuit !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-9-1-jw-judas/) | 9 Octobre 2023
+Luc | [Faites d’être dans le moment présent de l’Amour de Dieu, votre priorité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-10-2-jw-luke/) | 10 Octobre 2023
+Yogananda | [La progression de l'âme vers la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-16-2-jw-yogananda/) | 16 Octobre 2023
+Noah & Care Derby Walsh | [L’acte de foi et la création de sanctuaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-23-1-jw-noah-care-derby-walsh/) | 23 Octobre 2023
+Jésus | [Permettez à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-30-1-jw-jésus/) | 30 Octobre 2023
+Claire d'Assise | [Sachez que cet amour est éternel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-6-1-jw-clare-von-assisi/) | 6 Novembre 2023
+Jean le Bien Aimé | [Gardez votre cœur ouvert](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-20-1-jw-john-the-beloved/) | 20 Novembre 2023
+Judas | [Qu’emporterez-vous avec vous dans le monde des esprits ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-27-1-jw-judas/) | 27 Novembre 2023
+Judas | [Créatures d'habitude](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-28-1-jw-judas/) | 28 Novembre 2023
+St François d'Assise | [Foi et Persévérance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-1-2-jw-st-francis-of-assisi/) | 1 Décembre 2023
+Care Derby Walsh | [Santé du corps et de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-4-1-jw-care-derby-walsh/) | 4 Décembre 2023
+Claire d'Assise | [Les richesses de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-4-2-jw-clare-von-assisi/) | 4 Décembre 2023
+Judas | [Le chemin à parcourir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-5-1-jw-judas/) | 5 Décembre 2023
+Robert Hugh Benson  | [Les Royaumes Spirituels de Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-11-1-jw-robert-hugh-benson/) | 11 Décembre 2023
+Jean le Baptiste | [Vous êtes l'accomplissement de la mission des Maîtres sur la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-18-1-jw-john-the-baptist/) | 18 Décembre 2023
 
 ## [Lien vers les messages contemporains reçus par Jimbeau walsh au cours de l’année 2024](/fr-contemporary-messages\6-2-fr-contemporary-messages-per-medium/6-2-8-6-fr-jimbeau-walsh-2024/)
 
