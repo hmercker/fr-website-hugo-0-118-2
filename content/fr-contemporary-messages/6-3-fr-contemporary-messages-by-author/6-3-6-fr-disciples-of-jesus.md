@@ -515,7 +515,7 @@ St Jean | [Dieu est amour](/fr-contemporary-messages/fr-contemporary-messages-by
 St Jean | [Répandre l’amour par tous les moyens disponibles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-20-2-jw-st-john/) | 20 Janvier 2021
 St Jean | [L’Amour Divin est le rocher de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-4-1-af-st-john/) | 4 Juillet 2021
 St Jean | [Le temps de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-21-1-jw-st-john/) | 21 Novembre 2021
-St Jean | [Dieu murmure à nos âmes pour qu’il puisse travailler à travers nous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-24-1-af-st-john/) | 24 Mai 2022
+St Jean | [Dieu murmure à nos âmes pour qu’il puisse travailler à travers nous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-24-1-af-john/) | 24 Mai 2022
 St Luc | [Commentaires sur le travail avec les esprits sombres.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1963/fr-1935-1-23-1-emorgan-st-luke/) | 23 Janvier 1935
 St Luc | [Parle de la Bible, de la guérison et de l'Orientation Correcte.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-117-1969-anonymous-st-luke/) |   1969
 St Luc | [Un seul chemin vers la santé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-135-1969-anonymous-st-luke/) |   1969

@@ -204,7 +204,7 @@ Martha | [Nous sommes avec vous sur le chemin de l'amour](/fr-contemporary-messa
 Martha | [Soyez ouverts et réceptifs à ce que nous faisons - Que chacun de vous puisse donner à chacun de vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-20-4-af-martha/) | 20 Janvier 2019
 Meera | [L’espoir change la réalité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-2-4-2-wv-meera/) | 4 Février 2004
 Meera | [Importance de la dualité et des limites](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-2-19-1-wv-meera/) | 19 Février 2004
-Mère du médiumn | [Dieu est juste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-8-1-fab-mother-of-medium/) | 8 Août 2007
+Mère du médium | [Dieu est juste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-8-1-fab-mother-of-medium/) | 8 Août 2007
 Michael Collier | [Comment apporter la vérité aux nouvelles âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-18-1-af-michael-collier/) | 18 Novembre 2018
 Michael Collier | [Apporter une plus grande vie à l’humanité en tant que canaux d’amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-26-2-af-michael-collier/) | 26 Novembre 2018
 Michael Collier | [Prions pour la bénédiction de l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-10-6-2-af-michael-collier/) | 6 Octobre 2019

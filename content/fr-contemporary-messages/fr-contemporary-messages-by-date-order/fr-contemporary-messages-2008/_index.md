@@ -26,7 +26,7 @@ Jésus | [Le regard positif de Jésus sur l'humanité](/fr-contemporary-messages
 Tristiana | [J’ai fait un long voyage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-17-1-na-tristiana/) | 17 Janvier 2008
 Mère Teresa | [Servir dans l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-19-1-na-mother-teresa/) | 19 Janvier 2008
 Martin Luther King jr | [Le Dr King réaffirme la non-violence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-20-1-fab-martin-luther-king-jr/) | 20 Janvier 2008
-Jean Sébastien Bach | [Artisans Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-26-1-fab-johann-sebastian-bach/) | 26 Janvier 2008	
+Jean Sébastien Bach | [Artisans Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-26-1-na-johann-sebastian-bach/) | 26 Janvier 2008	
 Jésus | [Quelle est la vérité sur l'évolution ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-5-1-fab-jesus/) | 5 Février 2008
 Jésus | [Quelle est la vérité sur l'évolution - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-5-2-fab-jesus/) | 5 Février 2008
 Jésus | [Quelle est la vérité sur l'évolution - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-6-1-fab-jesus/) | 6 Février 2008

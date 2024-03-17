@@ -133,7 +133,7 @@ Orion | [Nous sommes toujours avec vous pour veiller à votre développement](/f
 Kahlil Gibran | [Le désir de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-21-3-jw-kahlil-gibran/) | 21 Mai 2022
 Jésus | [Apporte sa bénédiction et prie avec nous pour l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-22-1-af-jesus/) | 22 Mai 2022
 Joseph | [Importance du phare de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-23-1-em-joseph/) | 23 Mai 2022
-St Jean | [Dieu murmure à nos âmes pour qu’il puisse travailler à travers nous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-24-1-af-john/) | 24 Mai 2022
+St Jean | [Dieu murmure à nos âmes pour qu’il puisse travailler à travers nous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-24-1-af-st-john/) | 24 Mai 2022
 Yogananda | [Le don de donner dans l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-31-1-jw-yogananda/) | 31 Mai 2022
 Moïse | [Vient nous soutenir et éclairer notre chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-31-2-af-moses/) | 31 Mai 2022
 St Matthieu | [Être une expression de l'amour et de la lumière de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-31-3-af-st-matthew/) | 31 Mai 2022

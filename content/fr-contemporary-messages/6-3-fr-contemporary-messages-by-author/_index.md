@@ -20,6 +20,6 @@ weight: 345
 9. [Famille  de Jésus](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-9-fr-family-of-jesus/)
 10. [Personnalités Historiques](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-10-fr-historical-figures/)
 11. [Personnalités Religieuses de l'Ancien Testament](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-fr-old-testament-religious-figures/)
-12. [Personnalités Religieuses du Nouveau estament](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-14-fr-new-testament-religious-figures/)
+12. [Personnalités Religieuses du Nouveau Testament](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-14-fr-new-testament-religious-figures/)
 13. [Famille et Amis de James Padgett](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-12-fr-family-and-friends-of-james-padgett/)
 14. [Le Père Céleste](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-13-fr-the-heavenly-father/)

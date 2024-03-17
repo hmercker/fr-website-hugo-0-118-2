@@ -14,7 +14,7 @@ Vous trouverez ci-dessous une liste des médiums de l'Amour Divin présents et p
 1. [Al Fike](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-1-fr-al-fike/)
 2. [Amada Résa](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-2-fr-amada-reza/)
 3. [David Lampron](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-3-fr-david-lampron/)
-4. [Elizabeth Mack](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-14-fr-elizabeth_mack/)
+4. [Elizabeth Mack](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-14-fr-elizabet-mack/)
 5. [Enfant de dieu](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-4-fr-child-of-god/)
 6. [Révérend Arthur Finman](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-5-fr-fab/)
 7. [Helge Elisabeth Mercker](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-6-fr-helge-mercker/)

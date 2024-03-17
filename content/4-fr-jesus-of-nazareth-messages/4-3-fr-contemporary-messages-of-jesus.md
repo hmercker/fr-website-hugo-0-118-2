@@ -16,3 +16,4 @@ weight: 230
 5. [Année 2021](/4-fr-jesus-of-nazareth-messages/4-3-5-fr-messages-jesus-years-2021/)
 6. [Année 2022](/4-fr-jesus-of-nazareth-messages/4-3-6-fr-messages-jesus-years-2022/)
 7. [Année 2023](/4-fr-jesus-of-nazareth-messages/4-3-7-fr-messages-jesus-years-2023/)
+8. [Année 2024](/4-fr-jesus-of-nazareth-messages/4-3-8-fr-messages-jesus-years-2024/)

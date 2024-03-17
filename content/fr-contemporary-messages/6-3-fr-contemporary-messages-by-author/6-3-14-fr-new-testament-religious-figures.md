@@ -453,7 +453,6 @@ St Étienne | [Il y a un pouvoir à ce don de perspicacité](/fr-contemporary-me
 St Étienne | [Ne présumez pas de la manière dont la volonté de Dieu s'accomplit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-3-15-1-af-st-stephen/) | 15 Mars 2019
 St Étienne | [Vous trouverez votre refuge en Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-26-2-af-st-stephen/) | 26 Octobre 2021
 St Étienne | [Parlez au monde depuis votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-26-1-jw-st-stephen/) | 26 Décembre 2021
-***********************************
 St François d'Assise | [Saint François d’Assise sur les motivations](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-6-1-fab-st-francis-of-assisi/) | 6 Janvier 2003
 St François d'Assise | [L'état d'âme de François d'Assise](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-7-30-1-fab-st-francis-of-assisi/) | 30 Juillet 2008
 St François d'Assise | [« S’aimer les uns les autres »](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-26-1-jr-st-francis-of-assisi/) | 26 Mai 2014
