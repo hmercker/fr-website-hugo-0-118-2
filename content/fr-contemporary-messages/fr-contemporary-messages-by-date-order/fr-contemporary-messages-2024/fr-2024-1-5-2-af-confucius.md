@@ -1,0 +1,28 @@
+---
+title: "Ne gaspillez pas les bénédictions que vous recevez"
+menu_title: ""
+description: "Ne gaspillez pas les bénédictions que vous recevez"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Ne gaspillez pas les bénédictions que vous recevez
+
+Confucius - reçu par Al Fike le 5 Janvier  2024, Trinidate.
+
+Oh, je vois que les beaux oiseaux se sont réunis une fois de plus pour chanter leurs louanges à Dieu. Nous venons vous élever, vous aimer. Je suis Confucius et je vous aime. J’apporterai la guérison à chacun d’entre vous et à bien d’autres qui viendront. Je vous servirai tout au long du processus avec ceux qui m’assistent et d’autres anges qui sont avec vous pour vous élever et vous guérir.
+
+Notre désir le plus ardent est que, lorsque vous vous sentez élevés, comme vous le serez et comme vous l’êtes en ce moment, vous ne gaspilliez pas la lumière lorsque vous allez dans le monde, mais que vous la gardiez près de vous. Faites le choix d’être toujours dans la lumière, de sorte que lorsque la lumière est donnée, lorsque vous êtes bénis, elle s’ajoute à la lumière qui est là, et que la lumière grandisse. Mais si vous allez dans le monde, comme vous le faites, et que ce monde n’est pas fait de lumière, alors vous gaspillez la lumière. Elle se détache de vous à cause de vos choix, de votre façon d’être dans le monde. Ces schémas, ces habitudes et ces choix que vous faites pour être dans le monde ne renforcent souvent pas la lumière. Nous venons donc à vous pour vous enseigner, pour vous aider à vous élever, pour vous aider à être toujours dans la lumière. Pas seulement pour un moment, mais toujours, mes amis bien-aimés. Je sais que c’est difficile, parce que vous vivez dans un endroit difficile.
+
+Le monde entier est un endroit difficile à vivre. Vous devez être vigilant. Vous devez reconnaître les parties de vous qui sont attirées par des conditions qui ne sont pas lumineuses. Ensuite, c’est à vous de changer votre comportement, votre façon d’être dans le monde. Cela présente deux avantages. Un grand bénéfice pour vous-même, mais aussi un grand bénéfice pour ceux que vous aimez et ceux qui vous entourent dans le monde. Car ils ressentent la lumière apaisante qui est avec vous. Ils ressentent les différences qui font partie de vous. Vous devenez un individu différent, tout en ne perdant pas votre personnalité. Non, je ne veux pas dire que c’est le cas. Mais votre façon de vous comporter, ce qui vous attire, ce que vous manifestez dans le monde change à mesure que vous changez. À mesure que la lumière grandit en vous et autour de vous, vous changez, âmes bien-aimées.
+
+Parfois, vous n’en êtes pas conscient, mais les autres autour de vous le sont. Lorsque vous marchez sur la route et que vous croisez de nombreux frères et sœurs, des bénédictions peuvent vous être données lorsque vous devenez des instruments de Dieu, des canaux de lumière et d’amour dans le monde. Ces bénédictions profitent à tout le monde. N’est-ce pas un grand objectif, une grande ambition, d’être une lumière pour le monde, de marcher dans le monde, d’être toujours dans la lumière ?
+
+Mes chers et magnifiques amis, nous sommes ici pour vous aider à devenir cette lumière. Nous sommes ici pour vous nourrir et vous servir afin que vous puissiez être cette lumière. Nos efforts ne doivent pas être continus et constants, et être réduits à néant par votre comportement. Ce n’est pas ainsi que Dieu fonctionne. Dieu vous donne l’occasion d’être dans la lumière. Il vous élève pour vous montrer ce que c’est. C’est à vous d’adopter la vérité, d’être la vérité dans votre vie, de mettre de côté les conditions qui ne sont pas de l’amour, de mettre de côté l’erreur, de mettre de côté les pensées qui ne sont pas de l’amour.
+
+Âmes bien-aimées, je sais que nous vous demandons beaucoup, mais effectivement, le monde doit changer. Le monde est perdu et il a besoin de ceux qui sont suffisamment disposés et forts pour être cet agent de changement. Êtes-vous cet agent de changement, âmes bien-aimées ? Je sais que vous pensez d’abord que vous devez vous changer vous-même, et c’est vrai. Mais à mesure que vous poursuivez le processus de changement et de guérison, le recalibrage de votre être dans l’amour, la lumière et l’Amour de Dieu, alors vous êtes, par choix, un agent de lumière. Vous êtes un exemple pour les autres. Vous êtes cet être magnifique.
+
+Nous vous encourageons, mes beaux, beaux frères et sœurs, à être l’agent de Dieu, à être un changement pour chacun. Cela se fera de proche en proche. Comme vous êtes une lumière et que vous influencez les autres, s’ils font ce choix, alors ils seront une lumière et ils influenceront les autres. Il en va ainsi dans votre monde, une bougie en allumant une autre et encore une autre. C’est la voie de Dieu. C’est la vérité de Dieu. La lumière est l’amour et l’amour est la lumière. Soyez cette lumière qui en allumera d’autres. Nous allons donc poursuivre.
+
+Que Dieu vous bénisse, âmes bien-aimées. Je m’appelle Confucius et je vous aime. Je souhaite être une lumière pour vous. Je souhaite que vous soyez une lumière pour vous-mêmes. Je souhaite que vous soyez une lumière pour les autres. Que Dieu vous bénisse. Que Dieu vous bénisse. Que la grâce de Dieu vous touche profondément, âmes bien-aimées, et vous élève vers des conditions d’amour très élevées. Faites flotter de petits oiseaux dans la lumière et soyez les belles et belles créations de Dieu, tout ce que vous pouvez être et tout ce que vous êtes dans les intentions et la bénédiction de Dieu pour vous. Que Dieu vous bénisse. Je suis Confucius et je vous aime tous. Oiseaux précieux, âmes précieuses, je vous aime tous. Que Dieu vous bénisse.

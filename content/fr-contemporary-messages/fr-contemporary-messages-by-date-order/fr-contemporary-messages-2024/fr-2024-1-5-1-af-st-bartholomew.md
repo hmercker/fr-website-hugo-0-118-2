@@ -1,5 +1,5 @@
 ---
-title: Le plan de Dieu pour unifier les Caraïbes"
+title: "Le plan de Dieu pour unifier les Caraïbes"
 menu_title: ""
 description: "Le plan de Dieu pour unifier les Caraïbes"
 date: 2023-09-01 06:00:01+00:01
@@ -9,7 +9,7 @@ weight:
 ---
 ### Le plan de Dieu pour unifier les Caraïbes
 
-Battholomée - reçu par Al Fike le 3 Janvier  2024, Trinidate.
+Battholomée - reçu par Al Fike le 5 Janvier  2024, Trinidate.
 
 Amis bien-aimés, je m’appelle Bartholomée (Barthélemy). Je suis très heureux de vous voir tous ensemble, de voir ce magnifique Cercle de Lumière et tous les efforts que vous avez déployés sur cette île, ouvrant la voie, étant l’exemple pour beaucoup. Vos efforts porteront des fruits qui contribueront à apporter la paix, l’harmonie et l’amour, non seulement dans votre nation mais aussi à cette partie du monde.
 

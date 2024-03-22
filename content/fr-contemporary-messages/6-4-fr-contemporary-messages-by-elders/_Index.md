@@ -5,17 +5,16 @@ description: "Messages contemporains des membres décédés de la communauté de
 date: 2023-05-31 06:25:48+00:80
 draft: False
 hidden: False
-weight: 146
+weight: 350
 ---
 ### Messages contemporains des membres décédés de la communauté de l'Amour Divin
 
-Cette catégorie correspond aux membres et amis de la communauté de l'Amour Divin qui sont décédés et qui se sont succédés depuis le décès de James Padgett. Bien entendu, on retrouve parmi eux les figures historiques du mouvement de l'Amour Divin  commme le Dr Leslie Stone, le Dr Daniel G. Samuels, Jocelyne Harleston, Victor Summers mais aussi divers anciens membres de la communauté comme Alec Gaunt ou Barbara Davis mais aussi divers amis proches de la communauté comme Eileen Caddy qui fut la fondatrice de la commmunauté Findhorn en Écosse ou le frère Mandus Nyquist qui fut, au début des années 1950, le fondateur du Centre Mondial de Guérison fondé, à Blackpool, en Angleterre.
+Cette catégorie correspond aux membres et amis de la communauté de l'Amour Divin qui sont décédés et qui se sont succédés depuis le décès de James Padgett. Bien entendu, on retrouve parmi eux les figures historiques du mouvement de l'Amour Divin  commme le Dr Leslie Stone, le Dr Daniel G. Samuels, Jocelyne Harleston, Victor Summers mais aussi divers anciens membres de la communauté comme Alec Gaunt ou Barbara Davies mais aussi divers amis proches de la communauté comme Eileen Caddy qui fut la fondatrice de la commmunauté Findhorn en Écosse ou le frère Mandus Nyquist qui fut, au début des années 1950, le fondateur du Centre Mondial de Guérison fondé, à Blackpool, en Angleterre.
 
-La liste des messages communiqués est affiché dans la tableeau ci-dessous.
+La liste des messages communiqués est affiché dans la tableau ci-dessous.
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-
  | <p align="center">**Alec Gaunt : décédé en 1970**</p> |
  Alec Gaunt | [Le monde change](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-7-6-1-af-alec-gaunt/) | 6 Juillet 2015
 Alec Gaunt | [Vous devez être des exemples](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-17-1-af-alec-gaunt/) | 17 Mars 2016
