@@ -4,8 +4,8 @@ menu_title: ""
 description: "Messages contemporains des membres décédés de la communauté de l'Amour Divin"
 date: 2023-05-31 06:25:48+00:80
 draft: False
-hidden: True
-weight:
+hidden: False
+weight: 146
 ---
 ### Messages contemporains des membres décédés de la communauté de l'Amour Divin
 
