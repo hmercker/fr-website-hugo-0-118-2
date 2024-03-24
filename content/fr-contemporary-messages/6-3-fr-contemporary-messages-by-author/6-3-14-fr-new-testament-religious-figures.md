@@ -112,9 +112,9 @@ Salome | [Les désirs de notre âme en alignement avec la volonté de Dieu (2021
 Salome | [Le monde a besoin de vos prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-21-1-af-salome/) | 21 Juin 2022
 Saint Jean Chrysostome | [Le bonheur d'un père de l'Église](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-25-2-fab-john-chrysostom/) | 25 Mai 2009
 Sri Yukteswar| [Le gourou Hindou Sri Yukteswar parle de l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-30-2-fab-sri-yarisupta/) | 30 Janvier 2014
-Sri Yukteswar | [La loi de la création et Sathya Sai Baba](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/
+Sri Yukteswar | [La loi de la création et Sathya Sai Baba](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/)
 Sri Yukteswar | [Réponses aux questions sur la guérison par l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-26-3-af-sri-yarisupta/) | 26 Janvier 2019
-Sri Yarisupta | [Qu’y a-t-il dans un nom ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-27-4-af-sri-yarisupta/) | 27 Janvier 2019
+Sri Yukteswar | [Qu’y a-t-il dans un nom ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-27-4-af-sri-yarisupta/) | 27 Janvier 2019
 Sri Yukteswar | [La dualité de l'âme et de l'esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-4-9-2-af-sri-yukteswar/) | 9 Avril 2019
 Sri Yukteswar | [Sri Yukteswar honors Yogananda](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-18-1-jw-sri-yukteswar/) | 18 Septembre 2020
 Sri Yukteswar | [L'instrumentalité de Lorraine se manifeste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-15-2-af-sri-yuktesar/) | 15 Octobre 2022
@@ -217,7 +217,9 @@ Thomas Merton | [La simplicité de la prière](/fr-contemporary-messages/fr-cont
 Thomas Mitchell | [Parle de l'espace extra-atmosphérique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-86-1970-anonymous-thomas-mitchell/) |   1970
 William Bradford | [Pensées d'un leader Pèlerin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-14-1-fab-william-bradford/) | 14 Décembre 2006
 [Les enseignements de St Augustin](/12-fr-the-main-spiritual-teachers/12-2-fr-the-teachings-of-augustine/)
+</br>
 [Les enseignements de Martin Luther](/12-fr-the-main-spiritual-teachers/12-4-fr-the-teachings-of-martin-luther/)
+</br>
 [Les enseignements de Yogananda](/12-fr-the-main-spiritual-teachers/12-5-fr-the-teachings-of-yogananda/)
 
 

@@ -163,5 +163,6 @@ Sam | [Retraite spirituelle - Hawaii_2](/fr-contemporary-messages/fr-contemporar
 Sarah Elizabeth Egelburg | [Nous rencontrons Sarah](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-10-11-1-ks-sarah-elizabeth-egelburg/) | 11 Octobre 2004
 Sashaquaha | [Honorer la Terre Mère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-2-4-1-af-sashaquaha/) | 4 Février 2022
 [Les enseignements de Kea Atta Kem](/12-fr-the-main-spiritual-teachers/12-7-fr-the-teachings-of-kea-atta-kem/)
+</br>
 [Les enseignements de Seretta Kem](/12-fr-the-main-spiritual-teachers/12-6-fr-the-teachings-of-seretta-kem/)
 

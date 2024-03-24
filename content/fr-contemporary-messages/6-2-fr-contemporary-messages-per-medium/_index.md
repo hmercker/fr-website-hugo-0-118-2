@@ -12,7 +12,7 @@ weight: 340
 Vous trouverez ci-dessous une liste des médiums de l'Amour Divin présents et passés. Certains ont été très prolifiques dans la réception de messages, tandis que d'autres n'en ont publié qu'un ou deux.
 
 1. [Al Fike](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-1-fr-al-fike/)
-2. [Amada Résa](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-2-fr-amada-reza/)
+2. [Amada Réza](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-2-fr-amada-reza/)
 3. [David Lampron](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-3-fr-david-lampron/)
 4. [Elizabeth Mack](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-14-fr-elizabeth-mack/)
 5. [Enfant de dieu](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-4-fr-child-of-god/)
