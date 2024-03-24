@@ -1,5 +1,6 @@
 ---
 title: "Messages de Vicky Forest"
+menu_title: ""
 description: "Messages de Vicky Forest"
 date: 2023-09-01 06:00:01+00:01
 draft: False

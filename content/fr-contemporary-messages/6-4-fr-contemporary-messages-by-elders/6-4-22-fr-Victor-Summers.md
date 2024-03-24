@@ -1,5 +1,6 @@
 ---
 title: "Messages de Victor Summers"
+menu_title: ""
 description: "Messages de Victor Summers"
 date: 2023-09-01 06:00:01+00:01
 draft: False

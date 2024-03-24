@@ -1,5 +1,6 @@
 ---
-title: "Messages de Percy Hayes
+title: "Messages de Percy Hayes"
+menu_title: ""
 description: "Messages de Percy Hayes"
 date: 2023-09-01 06:00:01+00:01
 draft: False
