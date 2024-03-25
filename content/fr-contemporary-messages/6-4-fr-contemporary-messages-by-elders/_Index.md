@@ -30,7 +30,7 @@ Auteur | Date du décès
 [James Reid](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-13-fr-james-reid/) | Novembre 2016
 [Jocelyne Harleston](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-14-fr-jocelyne-harleston/) | Novembre 2018
 [Joseph Babinsky](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-15-fr-joseph-babinsky/) | Juin 2021
-[Katryn Stokes](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-16-fr-katryn-stokes/) | 02 Ddécembre 2016
+[Kathryn Stokes](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-16-fr-katryn-stokes/) | 02 Décembre 2016
 [Kevin O'Neill](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-17-fr-kevin-oneill/) | 15 Septembre 2023
 [Leslie Stone](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-18-fr-leslie-stone/) | 
 [Lorna Scott](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-19-fr-lorna-scott/)  | 19 Octobre 2016

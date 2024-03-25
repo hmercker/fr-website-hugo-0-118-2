@@ -14,8 +14,8 @@ weight:
 Faith Nyquist | [Le simple voyage vous attend](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-9-1-af-faith/) | 9 Janvier 2016
 Faith Nyquist | [Qu'est-ce que la foi ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-23-1-af-faith/) | 23 Septembre 2017
 Faith Nyquist | [L'émerveillement de l'Amour Divin de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-9-1-af-faith/) | 9 Octobre 2017
-Faith  Nyquist| [Faites confiance à la sagesse de vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-30-1-af-faith/) | 30 Novembre 2017
-Faith Nyquist [Prendre soin de son corps physique et de son corps spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-27-3-mc-faith/) | 27 Août 2018
+Faith  Nyquist | [Faites confiance à la sagesse de vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-30-1-af-faith/) | 30 Novembre 2017
+Faith Nyquist  | [Prendre soin de son corps physique et de son corps spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-27-3-mc-faith/) | 27 Août 2018
 Faith Nyquist| [Ce que vous devez enseigner en jetant les graines](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-24-1-af-faith/) | 24 Novembre 2018
 Faith Nyquist | [Comment la foi s'obtient et change la vie d'une personne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-4-28-2-mc-faith/) | 28 Avril 2019
 Faith Nyquist| [Vous apportez l'amour de Dieu par votre présence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-6-14-3-mc-faith/) | 14 Juin 2019
