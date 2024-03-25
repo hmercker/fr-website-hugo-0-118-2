@@ -20,8 +20,7 @@ Flavius Josèphe | [Q&R : Méditation guidée et prière](/fr-contemporary-messa
 Flavius Josèphe | [Se préparer spirituellement aux changements à venir dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-12-1-af-josephus/) | 12 Juillet 2019
 Flavius Josèphe | [Q&R : Questions diverses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-12-2-af-josephus/) | 12 Juillet 2019
 Flavius Josèphe | [Q&R : La loi de l'attraction et les attachements d'esprits sombres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-13-3-af-josephus/) | 13 Juillet 2019
-Flavius Josèphe | [Q&R : L'impact sur un mortel d'être pleinement 
-transformé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-13-4-af-josephus/) | 13 Juillet 2019
+Flavius Josèphe | [Q&R : L'impact sur un mortel d'être pleinement transformé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-13-4-af-josephus/) | 13 Juillet 2019
 Flavius Josèphe | [Q&R : Les anges Célestes souhaitent encourager et aider l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-14-1-af-josephus/) | 14 Juillet 2019
 Flavius Josèphe | [Q&R : Choisissez toujours la lumière et l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-15-2-af-josephus/) | 15 Juillet 2019
 Flavius Josèphe | [Les portails de lumière sont de puissants instruments de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-8-5-1-af-josephus/) | 5 Août 2019
