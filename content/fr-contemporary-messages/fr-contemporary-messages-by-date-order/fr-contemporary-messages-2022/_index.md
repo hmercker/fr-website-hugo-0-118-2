@@ -78,7 +78,7 @@ Flavius Josèphe | [Nous encourage à prier pour combattre les forces des ténè
 Anna (Grand mère de Jésus) | [Le plus grand nombre possible d’anges tentent d’entrer en relation avec nous tous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-18-1-af-anna-grandmother-of-jesus/) | 18 Mars 2022
 Professeur Salyards | [L’élan se construit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-19-1-af-professor-salyards/) | 19 Mars 2022
 Orion | [Discerner entre la conscience de l’âme et la conscience de l’esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-19-2-af-orion/) | 19 Mars 2022
-Care Darby Walsh | [Laissez derrière vous ce qui n'est pas digne de votre marche future](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-21-1-jw-care-derby-walsh.md) | 21 Mars 2022
+Care Darby Walsh | [Laissez derrière vous ce qui n'est pas digne de votre marche future](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-21-1-jw-care-derby-walsh/) | 21 Mars 2022
 Judas | [Revisiter les messages Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-22-1-jw-judas/) | 22 Mars 2022
 André | [Continuez à faire ressortir la Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-24-1-af-andrew/) | 24 Mars 2022
 Marie | [Tournée d'éveil de l'âme 2022](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-24-2-af-mary/) | 24 Mars 2022

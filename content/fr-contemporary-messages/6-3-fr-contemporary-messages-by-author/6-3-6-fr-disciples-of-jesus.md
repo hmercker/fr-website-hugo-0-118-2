@@ -29,7 +29,7 @@ Bien entendu une grande partie des messagers furent et sont encore des disciples
 </br>
 [St Jean](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-6-9-fr-st-john/)
 </br>
-[St Luc](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-6-10-fr-st-luk/)
+[St Luc](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-6-10-fr-st-luke/)
 </br>
 [St Matthieu](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-6-11-fr-st-matthew/)
 </br>

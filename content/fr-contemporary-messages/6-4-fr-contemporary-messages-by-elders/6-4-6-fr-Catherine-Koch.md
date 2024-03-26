@@ -9,6 +9,13 @@ weight:
 ---
 ### Messages de Catherine Koch
 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-elders/Kathryn Koch.jpg)
+
+Catherine Koch est la fondatrice d'une assocation d'aide aux enfants Ougandais. Le site internet de son association est http://www.loveistheanswer.ca/
+
+Vous pouvez trouver plus d'informations sur l'association qu'elle avait fondéeà cette adresse : https://www.facebook.com/Loveistheanswer.ca/
+
+
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Catherine Koch | [Catherine Koch parle de son décès ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-29-2-af-catherine-koch/) | 29 Mars 2023

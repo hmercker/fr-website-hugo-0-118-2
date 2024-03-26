@@ -9,8 +9,14 @@ weight:
 ---
 ### Messages de Barbara Davies
 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-elders/fr-2021-barbara-davies.jpg)
+
+Barbara Davies, connue familièremeent sous le nom de Barb, a longtemps été un important pilier du mouvement de l'Amour Divin à Vancouver, en Colombie Britanique, au Canada. Elle fut, pndant plusieurs dizaines d'années, le mentor du médium Albert Fike. Barbara Davies a commencé à organiser des cercles de prière pour l'Amour Divin, dans sa maison de Vancouver Ouest, à la fin des années 1970, jusqu'à son décès en Octobre 2020. Après son décès et la vente de sa  maison, les cercles de prière qu'elle avait initiés se sont poursuivis et continuent à exister grâce à Terry Adler qui fut très proche de Barbara Davies au cours des dernières années de sa vie.
+
+
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
+Augustin | [Barb est passée dans la Cinquième Sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-28-1-af-augustine/) | 28 Octobre 2020
 Barbara Davies | [Ma nouvelle maison et la vie dans l’esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-20-1-af-barbara-davies/) | 20 Janvier 2021
 Barbara Davies | [Désir de servir et d’être dans l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-6-1-af-barbara-davies/) | 6 Avril 2021
 Barbara Davies | [Progression de la cinquième à la septième sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-26-1-af-barbara-davies/) | 26 Mai 2021

@@ -9,6 +9,8 @@ weight:
 ---
 ### Messages de Faith Nyquist
 
+Faith Nyquist était la belle fille du frère Mandus Nyquist.
+
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Faith Nyquist | [Le simple voyage vous attend](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-9-1-af-faith/) | 9 Janvier 2016

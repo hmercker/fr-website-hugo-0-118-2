@@ -9,6 +9,11 @@ weight:
 ---
 ### Messages de Bill Reilly
 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-elders/XXX.jpg)
+
+Bill Reilly était le président de la FCDT au moment de son passage à la vie spirituelle en 1995. 
+
+
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Bill Reilly | [Bill Reilly vient en esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1995-10-10-1-dl-bill-reilly/) | 10 Octobre 1995
