@@ -9,7 +9,7 @@ weight:
 ---
 ### Messages de Bill Reilly
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-elders/XXX.jpg)
+
 
 Suite à la démission de Jocelyne Harleston qui fut la première présidente  de la F.C.D.T, Bill Reilly est devenu le président de la F.C.D.T. Cependant, en raison de problèmes de santé, il n'a pas été en mesure assumer longtemps totalement sa fonction.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Messages de Vicky Forest
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-elders/fr-vicky-forest.jpg)
+
 
 Vicky Forest souffrait énormément à la fin de sa vie. Elle s'est alors inscrite au processus d'euthanasie Canadien. Ce message est très significatif dans la mesure où c’est le seul que nous ayons jamais reçu de quelqu’un qui a emprunté un tel chemin pour mettre fin à ses jours. Il est donc très réconfortant de savoir que de telles décisions n’ont pas de conséquences spirituelles négatives.
 
