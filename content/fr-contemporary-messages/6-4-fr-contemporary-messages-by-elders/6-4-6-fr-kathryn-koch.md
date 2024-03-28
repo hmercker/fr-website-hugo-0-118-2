@@ -9,7 +9,7 @@ weight:
 ---
 ### Messages de Catherine Koch
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-elders/Kathryn Koch.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-elders/fr-kathryn-koch.jpg)
 
 Catherine Koch est la fondatrice d'une assocation d'aide aux enfants Ougandais. Le site internet de son association est http://www.loveistheanswer.ca/
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Messages d'Eileen Caddy
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-elders/Eileen Caddy3.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-elders/fr-eileen-caddy.jpg)
 
 Eileen Caddy est une des fondatrices de la Fondation Findhorn, dans les régions du nord de l’Écosse, en 1962, avec son mari Pierre Caddy et une amie Dorothy Maclean. Elle est également connue pour ses ouvrages de spiritualité, en particulier "God Spoke to me (Dieu m'a parlé)", "The  Dawn of Change (l'Aube du Changement)" et "La petite voix" qui est un recueil de méditations quotidiennes, lequel fut un best-seller. En 2004, elle a reçu, de la part de la Reine d'Angleterre, l’Ordre de l’Empire britannique (grade de “membre” MBE). Elle est décédée à l'âge de 89 ans.
 

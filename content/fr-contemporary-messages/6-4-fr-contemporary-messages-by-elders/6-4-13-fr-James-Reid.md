@@ -9,6 +9,10 @@ weight:
 ---
 ### Messages de James Reid
 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-elders/fr-james-reid.jpg)
+
+James Reid était un médecin généraliste qui s'est impliqué pendant de très nombreuses années dans diverses recherches spirituelles. Après avoir rejoint la communauté de l'Amour Divin,  James Reid a organisé la première retraite de l'Amour Divin à Caloundra dans le Queensland en Australie. Ayant développé des capacités médiumniques, il est devenu le récepteur et éditeur [des Messages de Richard](https://www.amazon.fr/Richard-Messages-James-Reid/dp/1291631038) dont quelques uns ont été partagés sur ce site.
+
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 James Reid | [La valeur de la connaissance de vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-27-3-af-james-reid/) | 27 Novembre 2016

@@ -9,6 +9,10 @@ weight:
 ---
 ### Messages de Lorna Scott
 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-elders/fr-lorna-scott.jpg)
+
+Lorna Scott est décédée le 19 Octobre 2016. Sa première communication a eu lieu le 13 Novembre 2016. Il lui a fallu quelques années pour atteindre la cinquième sphère, qui est la première sphère « unique » de l'Amour Divin et une preuve solide de ses progrès dans les enseignements enseignés par James Padgett et par Jésus lui-même. C'est rythme de progression très raisonable bien que certains ont pu connaître une progression plus rapide vers les Cieux Divins.
+
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Lorna Scott | [Donnez aux autres, aimez les autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-13-1-af-lorna-kincaid/) | 13 Novembre 2016

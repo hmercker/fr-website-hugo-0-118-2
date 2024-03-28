@@ -11,7 +11,7 @@ weight: 700
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-Augustin | [St Augustin explique que l’on ne peut pas faire confiance aux enseignements de la Bible](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-7-2-jep-augustine/) | 7 Août 1915
+St Augustin | [St Augustin explique que l’on ne peut pas faire confiance aux enseignements de la Bible](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-7-2-jep-augustine/) | 7 Août 1915
 Augustin | [Nous devons faire un plus grand effort pour recevoir de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1963/fr-1963-4-15-3-anonymous-augustine/) | 15 Avril 1963
 Augustin | [Vous connaissez les vôtres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-62-1969-anonymous-augustine/) |   1969
 Augustin | [Élevez votre vision vers le haut, vers le plus élevé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-63-1969-anonymous-augustine/) |   1969

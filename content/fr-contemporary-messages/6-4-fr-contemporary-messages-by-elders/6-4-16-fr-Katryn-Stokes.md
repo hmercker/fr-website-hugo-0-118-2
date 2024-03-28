@@ -9,6 +9,8 @@ weight:
 ---
 ### Messages de Kathryn Stokes
 
+Kathryn Stokes était un membre ancien du groupe de l'Amour Divin et l'épouse de George Stokes.
+
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Kathryn Stokes | [Goutte à goutte, l'amour a rempli mon âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-31-1-af-kathryn-stokes/) | 31 Janvier 2018

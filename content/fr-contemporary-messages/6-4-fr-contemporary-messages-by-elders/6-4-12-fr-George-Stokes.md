@@ -9,6 +9,8 @@ weight:
 ---
 ### Messages de George-Stokes
 
+George Stokes était, lors de sa transition vrrs le monde des esprits, un membre très ancien de la communauté de l'Amour Divin et il a animé pendant de longues années, à Santa Cruz, un groupe d'études des messages de James Padgett dont il avait pris connaissance, dans une bibliotèque, lors de la lecture des premiers volumes des messages de James Padgett alors publés. Il est décédé en 1978.
+
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 George Stokes | [La prière est essentielle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-6-1-em-george-stokes/) | 6 Octobre 2022

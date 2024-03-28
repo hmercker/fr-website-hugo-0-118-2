@@ -249,7 +249,7 @@ St Pierre | [Le libre arbitre - la Volonté de Dieu](/fr-contemporary-messages/f
 Jean le Bien Aimé | [Nos chemins seront marqués par le nombre d'âmes que nous toucherons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-5-1-af-john-the-beloved/) | 5 Octobre 2022
 André | [Conseils pour les changements terrestres à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-5-2-af-andrew/) | 5 Octobre 2022
 Judas | [Discute des exigences de la médiumnité Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-6-1-af-judas/) | 6 Octobre 2022
-Judas | [Discute des exigences de la médiumnité Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-6-1-af-judas/) | 6 Octobre 2022
+Georges Stokes | [DLa prière est vitale](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-6-1-em-george-stokes/) | 6 Octobre 2022
 Confucius | [S'envoler vers votre Père Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-7-1-al-confucius/) | 7 Octobre 2022
 Augustin | [Abstenez-vous de toute discussion politique ou relative aux changements terrestres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-7-2-al-augustine/) | 7 Octobre 2022
 Mylora | [Soyez dans la grâce de Dieu ; cherchez son amour maintenant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-8-1-al-mylora/) | 8 Octobre 2022
