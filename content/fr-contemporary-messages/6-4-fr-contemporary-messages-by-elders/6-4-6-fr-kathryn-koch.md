@@ -11,9 +11,9 @@ weight:
 
 ![](/fr-contemporary-messages/fr-contemporary-messages-by-elders/fr-kathryn-koch.jpg)
 
-Catherine Koch est la fondatrice d'une assocation d'aide aux enfants Ougandais. Le site internet de son association est http://www.loveistheanswer.ca/
+Catherine Koch est la fondatrice d'une assocation d'aide aux enfants Ougandais. Le site internet de son association est [Love is the answer](http://www.loveistheanswer.ca).
 
-Vous pouvez trouver plus d'informations sur l'association qu'elle avait fondéeà cette adresse : https://www.facebook.com/Loveistheanswer.ca/
+Vous pouvez trouver plus d'informations sur l'association qu'elle avait fondée sur [la page facebook de l'association](https://www.facebook.com/Loveistheanswer.ca).
 
 
 **Auteur** | **Titre du message** | **Date du message**  

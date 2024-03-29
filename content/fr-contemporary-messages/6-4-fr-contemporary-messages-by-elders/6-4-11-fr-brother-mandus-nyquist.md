@@ -11,7 +11,7 @@ weight:
 
 ![](/fr-contemporary-messages/fr-contemporary-messages-by-elders/fr-brother-mandus-nyquist.jpg)
 
-Frère Mandus Nyquist a fondé, à Blackpool, en Angleterre, suite à une expérience mytique, le Centre Mondial de Guérison (World Healing center : W.H.C) au début des années 1950. Plus d'informations sont disponibles par l'intermdiaire de ce lien : https://www.whc.uk.net/. 
+Frère Mandus Nyquist a fondé, à Blackpool, en Angleterre, suite à une expérience mytique, le Centre Mondial de Guérison (World Healing center : W.H.C) au début des années 1950. Plus d'informations sont disponibles par l'intermdiaire [de ce lien](https://www.whc.uk.net). 
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
