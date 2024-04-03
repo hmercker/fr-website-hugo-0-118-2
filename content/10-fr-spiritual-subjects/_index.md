@@ -14,3 +14,4 @@ weight: 100
 3. [Guérison et Miracles](/10-fr-spiritual-subjects/10-3-fr-healing-and-miracles/)
 4. [Anges](/10-fr-spiritual-subjects/10-4-fr-angels/)
 5. [Les Âmes Sœurs](/10-fr-spiritual-subjects/10-5-fr-soul-mates/)
+6. [Le Sacrifice d'Isaac par Abraham](/10-fr-spiritual-subjects/10-6-fr-on-abraham-sacrifice-of-isaac/)

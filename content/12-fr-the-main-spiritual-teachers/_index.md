@@ -17,3 +17,4 @@ weight: 130
 6. [Les enseignements de Martin Luther](/12-fr-the-main-spiritual-teachers/12-4-fr-the-teachings-of-martin-luther/)
 7. [Les enseignements de Seretta Kem](/12-fr-the-main-spiritual-teachers/12-6-fr-the-teachings-of-seretta-kem/)
 8. [Les enseignements de Yogananda](/12-fr-the-main-spiritual-teachers/12-5-fr-the-teachings-of-yogananda/)
+9. [Les enseignements de St Augustin-Nouveau](/12-fr-the-main-spiritual-teachers/12-9-fr-the-teachings-of-augustine-new/)

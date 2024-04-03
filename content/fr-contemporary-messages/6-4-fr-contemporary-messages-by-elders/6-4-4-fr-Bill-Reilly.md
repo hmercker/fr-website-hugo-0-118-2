@@ -11,7 +11,7 @@ weight:
 
 
 
-Suite à la démission de Jocelyne Harleston qui fut la première présidente  de la F.C.D.T, Bill Reilly est devenu le président de la F.C.D.T. Cependant, en raison de problèmes de santé, il n'a pas été en mesure assumer longtemps totalement sa fonction.
+Suite à la démission de Jocelyne Harleston, Bill Reilly est devenu le président de la F.C.D.T. Cependant, en raison de problèmes de santé, il n'a pas été en mesure assumer longtemps totalement sa fonction.
 
 [Le lien suivant](/fr-james-padgett-messages/1-12-fr-continuity-of-james-padgetts-messages/) permet de découvrir le cheminement qui a permis la naissance de la F.C.D.T (Fondation Church for the Divine Truth : Fondation de l'église de la Vérité Divine). 
 
