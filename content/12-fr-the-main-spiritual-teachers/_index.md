@@ -10,10 +10,11 @@ weight: 130
 ## Les principaux enseignants spirituels
 
 1. [Messages de Jésus au Monde](/12-fr-the-main-spiritual-teachers/12-1-fr-messages-from-jesus-to-the-world/)
-2. [Les enseignements de St Augustin](/12-fr-the-main-spiritual-teachers/12-9-fr-the-teachings-of-augustine/)
+2. [Les enseignements de St Augustin](/12-fr-the-main-spiritual-teachers/12-2-fr-the-teachings-of-augustine/)
 3. [Les enseignements de Confucius](/12-fr-the-main-spiritual-teachers/12-8-fr-the-teachings-of-confucius/)
 4. [Les enseignements de Flavius Josèphe](/12-fr-the-main-spiritual-teachers/12-3-fr-the-teachings-of-flavius-joseph/)
 5. [Les enseignements de Kea Atta Kem](/12-fr-the-main-spiritual-teachers/12-7-fr-the-teachings-of-kea-atta-kem/)
 6. [Les enseignements de Martin Luther](/12-fr-the-main-spiritual-teachers/12-4-fr-the-teachings-of-martin-luther/)
 7. [Les enseignements de Seretta Kem](/12-fr-the-main-spiritual-teachers/12-6-fr-the-teachings-of-seretta-kem/)
 8. [Les enseignements de Yogananda](/12-fr-the-main-spiritual-teachers/12-5-fr-the-teachings-of-yogananda/)
+9. [Les enseignements de St Augustin-nouveau](/12-fr-the-main-spiritual-teachers/12-9-fr-the-teachings-of-augustine-new/)
