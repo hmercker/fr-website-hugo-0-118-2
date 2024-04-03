@@ -21,7 +21,7 @@ Ce récit est présent dans les trois grandes traditions monothéistes dont l’
 **LES SACRIFICES D'ENFANTS : UNE COUTUME**
 </span>
 
-La crainte de Dieu est présente tout au long de la tradition élohiste1. Selon l’Élohiste, l’épreuve est pour Dieu une façon de tester la fidélité du peuple. Mais cette mise à l’épreuve appelle de nombreuses questions. Comment Dieu peut-il demander à Abraham de sacrifier son « fils, son unique, celui qu’il aime », en vue d’éprouver sa foi ? Pour mettre Abraham à l’épreuve, Dieu ne pouvait-il pas exiger autre chose ? Que faut-il penser d’un tel Dieu ? Et que faut-il penser d’Abraham se prêtant à un infanticide pour obéir à Dieu ? N’enfreint-il pas l’ordre formel de ne pas commettre de meurtre (Exode 20,13), opposant ainsi Dieu à Dieu ? Bref, ce récit est difficile à entendre, à moins qu’Abraham ait mal compris l’ordre divin.
+La crainte de Dieu est présente tout au long de la tradition élohiste<sup id="a1">[1](#f1)</sup>. Selon l’Élohiste, l’épreuve est pour Dieu une façon de tester la fidélité du peuple. Mais cette mise à l’épreuve appelle de nombreuses questions. Comment Dieu peut-il demander à Abraham de sacrifier son « fils, son unique, celui qu’il aime », en vue d’éprouver sa foi ? Pour mettre Abraham à l’épreuve, Dieu ne pouvait-il pas exiger autre chose ? Que faut-il penser d’un tel Dieu ? Et que faut-il penser d’Abraham se prêtant à un infanticide pour obéir à Dieu ? N’enfreint-il pas l’ordre formel de ne pas commettre de meurtre (Exode 20,13), opposant ainsi Dieu à Dieu ? Bref, ce récit est difficile à entendre, à moins qu’Abraham ait mal compris l’ordre divin.
 
 Le rite cananéen des sacrifices d’enfants s’était introduit en Israël et il était pratiqué dans la vallée de la Géhenne (hébr. biblique gē-Hinnōm « vallée de Hinnom », vallée au sud de Jérusalem, où des Juifs idolâtres offraient des enfants en sacrifice au dieu Moloch). Moloch ou Molech (mlk signifie « régner, être roi ») est une divinité dont le culte était pratiqué dans la région de Canaan selon la tradition biblique.
 
@@ -136,8 +136,9 @@ A propos du sacrifice d’Isaac par Abraham, Marc Alain Ouaknin exprime l’idé
 Dans la mythologie grecque, Athamas de Béotie tend la main pour immoler son fils Phrixos mais Héraclès envoyé par Zeus crie à Athamas d'épargner son fils et le bélier appelé Chrysomallos, envoyé par Zeus, apparaît alors.
 
 Selon certaines interprétations, le sacrifice d’Abraham signifierait la fin des sacrifices humains, pratique qui aurait perduré chez d’autres peuples sémitiques. Les Phéniciens (carthaginois en particulier) continuèrent à sacrifier les premiers nés mâles en gage de fécondité dans les sanctuaires de Tanit et de Baal Hamon. Les lieux où se pratiquaient ces sacrifices sont appelés « tophets ». Ce rite se serait prolongé jusqu’au IIe siècle av. J.-C. d’après les fouilles effectuées en Sardaigne, en Sicile et à Carthage. Dans cette perspective, Abraham aurait accompli un rite ethnique cohérent avec la promesse d’une nombreuse descendance.
+<small>
 
-<u>Note 1</u> : L'adjectif "Élohiste" se réfère à l'ensemble de textes du Pentateuque caractérisés par l'usage exclusif du nom "Élohim" pour désigner Dieu.
+1. <large id="f1"> L'adjectif "Élohiste" se réfère à l'ensemble de textes du Pentateuque caractérisés par l'usage exclusif du nom "Élohim" pour désigner Dieu.[↩](#a1)
 
 <u>Références</u> :
 
