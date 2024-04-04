@@ -9,6 +9,13 @@ weight:
 ---
 ### Messages de Care Darby Walsh
 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-elders/fr-care-darby-walsh.jpg)
+
+Care Darby Walsh  était l'épouse de médium Jimbeau Walsh, qui est un médium et artiste très connu et très appécié dans la communauté de l'Amour Divin. Care darby Walsh est née le 9 Février 1947 et a grandi à Cambridge Maryland où sa grand-mère et sa mère possédaient des capacités psychiques. Elle est devenue membre de la communauté de l'Amour Divin dans les années 70 et était très appréciée dans la communauté en tant que médium douée.
+
+Care Darby Walsh et son mari, le Révérend Jimbau Walsh, se sont encontrés dans des circonstances un peu exceptionnelles et leur union fut toujours placée sous le signe de la spiritualité. Tous les deux étaient également des artistes confimés et c'est leur engagement musical qui, sur le plan extérieur, fut à la source de leur renconttre. Sur le plan intérieur leur rencontre a pu prendre place en réponse à une profonde recherche spirituelle de son mari, le révérend Jimbeau Wwalsh. Care Darby Walsh est décédée avec trois autres personnes dans un terrible accident de voiture. Elle avait été informée de cette fin tragique peu de temps avant.
+
+
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Care Darby Walsh | [Les potentiels en herbe de nos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-29-1-af-care-derby-walsh/) | 29 Novembre 2016
