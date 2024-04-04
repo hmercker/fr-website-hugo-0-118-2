@@ -9,8 +9,6 @@ weight:
 ---
 ### Messages de Bernice Fike
 
-Elle était la mère de Al Fike.
-
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Bernice Fike | [Confirmation du message de Barbara](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-21-2-af-bernice-fike/) | 21 Février 2023
