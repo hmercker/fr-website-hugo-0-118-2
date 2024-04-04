@@ -15,7 +15,7 @@ La tableau ci-dessous offre une brève présentation de chasun des membres déc�
 
 Auteur | Date du décès
 ---|---
-[Alec Gaunt](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders-old/6-4-1-fr-alec-gaunt-old/) | 1970
+[Alec Gaunt](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders-old/6-4-1-fr-alec-gaunt/) | 1970
 [Barbara Davies](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders-old/6-4-2-fr-barbara-davies/) | Octobre 2020
 [Bernice  Fike](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders-old/6-4-3-fr-bernice-fike/) | 2023
 [Bill ReilLy](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders-old/6-4-4-fr-bill-reilly/)| 30 Juin 1995

@@ -9,7 +9,7 @@ weight:
 ---
 ### Messages de Victor Summers
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-elders/fr-victor-summers.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-elders-old/fr-victor-summers.jpg)
 
 Après la démission de Jean Paul Gibson et de la période de transition qui a suivi, Victor Summers a été nommé président de la F.C.N.B (Eglise de la Fondation de la Nouvelle Naissance) le 10 Avril 1983. Comme Victor Summers n'était âgé que de 29 ans, il n'a pas réussi à assumer sa position et il a alors quitté la fondation. Sa démission ne fut cependant effective que lors d'une réunion des adamnistrateurs qui s'est tenue le 25 Décembre 1984. C'est au cours de cette réunion que lui et six administrateurs (plus que ce que prévoyaient les statuts) ont adopté les motions visant à dessaisir la F.C.N.B. de tous ses actifs. C’est également lors de cette réunion que les documents publiés, essentiellement les volumes des messages de James Padgett, ont été mis dans le domaine public. Victor Summers a transité vers le monde Spirituel en 2011.
 

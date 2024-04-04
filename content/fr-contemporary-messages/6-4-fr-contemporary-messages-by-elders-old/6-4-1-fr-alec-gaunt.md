@@ -9,7 +9,7 @@ weight:
 ---
 ### Messages d'Alec Gaunt
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-elders/fr-alec-gaunt.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-elders-old/fr-alec-gaunt.jpg)
 
 Alec Gaunt était un médium et un guérisseur naturellement doué, fasciné par la communication avec les esprits. Il a été impliqué dans des groupes spiritualistes pendant la majeure partie de sa vie. Sa capacité à communiquer avec les esprits et à connaître leurs intentions était extraordinaire. C'était un guérisseur puissant et de nombreuses personnes de la région ont bénéficié de ses dons.
 
