@@ -9,7 +9,7 @@ weight:
 ---
 ### Messages de Catherine Koch
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-elders-old/fr-kathryn-koch.jpg)
+![](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders-old/fr-kathryn-koch.jpg)
 
 Lorsque ses parents sont décédés en 2000, Catherine Koch a pris le temps de faire son deuil et de réévaluer sa vie. Elle a voyagé, appris et trouvé son but. En 2007, Catherine a vendu sa maison et est partie en Ouganda avec l'argent récolté. Là, elle a travaillé avec des œuvres caritatives, a vécu parmi des familles pauvres et a appris ce dont les gens avaient besoin pour les soutenir et les autonomiser. En 2011, [LITA (Love is the Answer)](http://www.loveistheanswer.ca) fut enregistrée comme organisme de bienfaisance Canadien. Son parcours professionnel l'a amenée à occuper de nombreux postes qui lui ont permis d'acquérir les outils nécessaires à son travail cpour LITA. 
 
