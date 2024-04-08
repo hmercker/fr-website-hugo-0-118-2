@@ -110,7 +110,7 @@ Certains mots de la bible en hébreu ont dérangé les traducteurs qui les ont p
 Toutes les différentes traductions de la Bible parlent d’offrir Isaac en Holocauste. Dans la version Littérale Hébreu – Français, il est écrit « Prends ton fils, ton unique, et fais-le monter en Holocause. Cependant, dans son livre « Le Sacrifice Interdit », Marie Balmary écrit  « Prends ton fils, ton unique et fais le monter en Montée. Il n’y a plus la traduction « en Holocauste ».
 
 <span style="color:red">
-**COMPREHENSION DE L'OFFRANDE SACRIFICIELLE **
+**COMPREHENSION DE L'OFFRANDE SACRIFICIELLE**
 </span>
 
 <u>Sens premier</u> : Action sacrée par laquelle une personne ou une communauté, offre à la divinité, selon un certain rite, et pour se la concilier, une victime mise à mort (réellement ou symboliquement) ou des objets qu'elle abandonne ou brûle sur un autel. 
@@ -164,7 +164,7 @@ A propos du sacrifice d’Isaac par Abraham, Marc Alain Ouaknin exprime l’idé
 Selon certaines interprétations, le sacrifice d’Abraham signifierait la fin des sacrifices humains, pratique qui aurait perduré chez d’autres peuples sémitiques. Les Phéniciens (carthaginois en particulier) continuèrent à sacrifier les premiers nés mâles en gage de fécondité dans les sanctuaires de [Tanit](https://fr.wikipedia.org/wiki/Tanit) et de [Baal Hamon](https://fr.wikipedia.org/wiki/Baal_Hamon). Les lieux où se pratiquaient ces sacrifices sont appelés  [tophets](https://fr.wikipedia.org/wiki/Tophet). Ce rite se serait prolongé jusqu’au [IIe siècle av. J.C.](https://fr.wikipedia.org/wiki/IIe_si%C3%A8cle_av._J.-C.) d’après les fouilles effectuées en Sardaigne, en Sicile et à Carthage. Dans cette perspective, Abraham aurait accompli un rite ethnique cohérent avec la promesse d’une nombreuse descendance.
 
 <span style="color:red">
-**SUR LE VÉRITABLE SENS DU SACRIFICE**<sup id="a2">[2](#f2)</sup>**
+**SUR LE VÉRITABLE SENS DU SACRIFICE**<sup id="a2">[2](#f2)</sup>
 </span>
 
 L’histoire biblique retrace une lente conversion sur le sens du sacrifice et également sur la nature de Dieu. Le peuple Hébreu apprend progressivement à quitter la logique du calcul et du mérite pour entrer dans celle du don gratuit. Passer d’un Dieu qui approuve les sacrifices sanglants à un Dieu amour demande du temps. Le rôle des prophètes dans cette conversion est déterminant.
