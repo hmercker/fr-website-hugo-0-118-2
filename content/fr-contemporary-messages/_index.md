@@ -14,3 +14,4 @@ weight: 60
 3. [Messages contemporains par auteur](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/)
 4. [Messages contemporains des membres décédés de la communauté de l'Amour Divin-Old_index-old/](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders-old/_index-old/)
 5. [Messages contemporains des membres décédés de la communauté de l'Amour Divin](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/_index/)
+6. [Messages contemporains des membres décédés de la communauté de l'Amour Divin-New/](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders-new/_index-old/)

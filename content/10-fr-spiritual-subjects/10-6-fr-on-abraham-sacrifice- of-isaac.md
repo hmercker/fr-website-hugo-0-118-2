@@ -12,6 +12,32 @@ weight: 625
 ![](/10-fr-spiritual-subjects/verite-et-reconciliation.jpg)
 
 <span style="color:red">
+**SUR LE SENS DU SACRIFICE**
+</span>
+
+Dans les temps reculés, tous les lieux étaient le fief des Dieux. Il fallait surtout ne pas les fâcher. Tous les peuples, toutes le cultures ont trouvé des façons de ne pas le courroucer. Le concept d’offrandes, de sacrifices et même du sacrifice suprême s’est développé et imposé. Ce n’est qu’avec Abraham que Dieu a révélé qu’il ne voulait pas de sacrifice humain. Le Dieu d’Abraham déteste le meurtre et le sacrifice humain. Néanmoins, cette idée s’est imposée par étapes. Ce ne fut pas simple, car le peuple d’Israël a été tenté par le culte sacrificiel des Cananéens voisins. Pour passer de l’habitude ancestrale des sacrifices humains à Zéro sacrifice, il a fallu une étape intermédiaire : les sacrifices animaux. Nous pouvons donc de cette façon réellement comprendre qu’à travers Abraham, Dieu voulait enseigner au peuple Juif l’interdiction du sacrifice humain.
+
+[Lévitique 18:21](https://saintebible.com/leviticus/18-21.htm) : « Tu ne donneras aucun de tes enfants pour le faire passer par le feu en l’honneur de Moloch, et tu ne profaneras pas le nom de ton Dieu.  »
+
+[Isaïe 1:11-18](https://saintebible.com/isaiah/1-11.htm) : « Que m’importe le multitude de vos sacrifices ? Dit Dieu. J’en ai assez de vos holocaustes de béliers et de la graisse des veaux, je ne prends pas plaisir au sang des taureaux, des brebis et des boucs. Quand vous venez vous présenter devant ma face, qui vous a demandé de fouler mon parvis ?
+
+[Isaïe 1:13-17](https://saintebible.com/isaiah/1-13.htm) : « Ne continuez pas à m’apporter de vaines oblations Quand vous multipliez vos prières, je n’écoute pas. Vos mains sont pleines de sang …. Recherchez la justice, redressez l’oppresseur, faites droit à l’orphelin, défendez la veuve (Isaïe I, II).
+
+Zéro sacrifice humain  ===> zéro sacrifice animaux ====> Nouvelle humanité
+
+A l’opposé des sacrifices humains exigés par le paganisme, on trouve le respect de tout être humain tel qu’il est enseigné par les prophètes d’Israël. Le peuple Hébreu a été le premier peuple à interdire l’esclavage. Le peuple hébreu a pu évoluer non pas parce qu’il était le meilleur mais grâce au travail considérable accompli par les prophètes, ce qu’ils ont fait le plus souvent au péril de leur vie.
+
+<span style="color:red">
+LE SACRIFICE D'ISAAC RAPPORTE DANS LA BIBLE : [GENESE 22:1-19](https://www.bible.com/fr/bible/compare/GEN.22.1-18)
+</span>
+
+Alors que les promesses que Dieu avait faites à Abraham semblent s'être réalisées, Il lui demande de prendre son fils unique aimé, Isaac, dans le pays de Moriah, et de l'offrir en holocauste. Tôt le lendemain, Abraham sangle son âne, coupe le bois pour l'offrande et fait route avec ses deux serviteurs et Isaac vers le lieu prévu. Arrivés après trois jours de marche, il y monte seul avec Isaac, prend la pierre à feu et le couteau et place le bois sur Isaac. Lorsque Isaac demande à Abraham où est le bélier pour l'offrande en holocauste, Abraham répond que « Dieu y pourvoira ».
+
+Arrivé à l'endroit que Dieu avait nommé, Abraham construit l'autel, pose le bois, lie Isaac, l'étend sur l'autel, et lève la main pour abattre son fils. Un ange de Dieu l'arrête, lui disant de ne pas lever la main contre son fils (« Ne porte pas la main sur ce jeune homme, ne lui fais aucun mal !... ton fils, ton fils unique ! ») , car à présent, Dieu sait qu'Abraham le craint, car il ne lui a pas dérobé son fils. Un bélier qui s'était pris les cornes dans un buisson est sacrifié sur le lieu, nommé Adonaï-Yirè (« Dieu-pourvoira »)11. Abraham est béni d'une descendance nombreuse et victorieuse, et toutes les nations de la Terre seront bénies par ses descendants.
+
+Abraham retourne à ses serviteurs, et ils partent pour Beer-Sheva, où Abraham réside, jusqu'à la mort de Sarah.
+
+<span style="color:red">
 **INTERPRETATION CONVENTIONNELLE : UNE MISE A L’EPREUVE**
 </span>
 
@@ -138,15 +164,69 @@ A propos du sacrifice d’Isaac par Abraham, Marc Alain Ouaknin exprime l’idé
 Selon certaines interprétations, le sacrifice d’Abraham signifierait la fin des sacrifices humains, pratique qui aurait perduré chez d’autres peuples sémitiques. Les Phéniciens (carthaginois en particulier) continuèrent à sacrifier les premiers nés mâles en gage de fécondité dans les sanctuaires de [Tanit](https://fr.wikipedia.org/wiki/Tanit) et de [Baal Hamon](https://fr.wikipedia.org/wiki/Baal_Hamon). Les lieux où se pratiquaient ces sacrifices sont appelés  [tophets](https://fr.wikipedia.org/wiki/Tophet). Ce rite se serait prolongé jusqu’au [IIe siècle av. J.C.](https://fr.wikipedia.org/wiki/IIe_si%C3%A8cle_av._J.-C.) d’après les fouilles effectuées en Sardaigne, en Sicile et à Carthage. Dans cette perspective, Abraham aurait accompli un rite ethnique cohérent avec la promesse d’une nombreuse descendance.
 <small>
 
-1. <large id="f1"> L'adjectif "Élohiste" se réfère à l'ensemble de textes du Pentateuque caractérisés par l'usage exclusif du nom "Élohim" pour désigner Dieu.[↩](#a1)
+<span style="color:red">
+**SUR LE VÉRITABLE SENS DU SACRIFICE<sup id="a2">[2](#f2)</sup>**
+</span>
 
-<u>Références</u> :
+L’histoire biblique retrace une lente conversion sur le sens du sacrifice et également sur la nature de Dieu. Le peuple Hébreu apprend progressivement à quitter la logique du calcul et du mérite pour entrer dans celle du don gratuit. Passer d’un Dieu qui approuve les sacrifices sanglants à un Dieu amour demande du temps. Le rôle des prophètes dans cette conversion est déterminant.
+
+[1 Samuel 15:22](https://saintebible.com/1_samuel/15-22.htm) : Samuel dit alors : Le SEIGNEUR aime-t-il les holocaustes et les sacrifices autant que l’obéissance à la parole du SEIGNEUR ? Non ! L’obéissance est préférable au sacrifice, la docilité à la graisse des béliers.
+
+[Michée 6:7-8](https://saintebible.com/micah/6-7.htm) : L’Éternel agréera-t-il des milliers de béliers, Des myriades de torrents d'huile ? Donnerai-je pour mes transgressions mon premier-né, Pour le péché de mon âme le fruit de mes entrailles ? On t'a fait connaître, ô homme, ce qui est bien ; Et ce que l’Éternel demande de toi, C'est que tu pratiques la justice, Que tu aimes la miséricorde, Et que tu marches humblement avec ton Dieu.
+
+[Isaïe 1:11-17](https://saintebible.com/isaiah/1-11.htm) : Qu’ai-je affaire de la multitude de vos sacrifices ? dit l’Éternel. Je suis rassasié des holocaustes de béliers et de la graisse des veaux ; je ne prends point plaisir au sang des taureaux, des brebis et des boucs. Quand vous venez vous présenter devant moi, qui vous demande de souiller mes parvis ? Cessez d’apporter de vaines offrandes : j’ai en horreur l’encens, les nouvelles lunes, les sabbats et les assemblées ; je ne puis voir le crime s’associer aux solennités. Mon âme hait vos nouvelles lunes et vos fêtes ; elles me sont à charge ; je suis las de les supporter. Quand vous étendez vos mains, je détourne de vous mes yeux ; quand vous multipliez les prières, je n’écoute pas : vos mains sont pleines de sang. Lavez-vous, purifiez-vous, ôtez de devant mes yeux la méchanceté de vos actions ; cessez de faire le mal. Apprenez à faire le bien, recherchez la justice, protégez l’opprimé ; faites droit à l’orphelin, défendez la veuve.
+
+[Isaïe 58:6-7](https://saintebible.com/isaiah/58-6.htm) : Le jeûne que je préfère, n’est-ce pas ceci : dénouer les liens provenant de la méchanceté, détacher les courroies du joug, renvoyer libres ceux qui ployaient, bref que vous mettiez en pièces tous les jougs ! N’est-ce pas partager ton pain avec l’affamé ? Et encore : les pauvres sans abri, tu les hébergeras, si tu vois quelqu’un nu, tu le couvriras : devant celui qui est ta propre chair, tu ne te déroberas pas.
+
+[Ecclésiastique 35:2-5](http://otremolet.free.fr/otbiblio/bible/ancien/ecclesiastique/si35.html) : Observer la loi c’est multiplier les offrandes, s’attacher aux préceptes c’est offrir des sacrifices de communion. Se montrer charitable c’est faire une oblation de fleur de farine, faire l’aumône c’est offrir un sacrifice de louange. Ce qui plaît au Seigneur c’est qu’on se détourne du mal, c’est offrir un sacrifice expiatoire que de fuir l’injustice.
+
+La réconciliation avec son frère passe avant toute offrande à l’autel (Mt 5,23-24). Jésus enseigne d’ailleurs lui-même la primauté de la miséricorde et de l’amour sur les sacrifices :
+
+[Marc 12:33](https://saintebible.com/mark/12-33.htm) :  Aimer Dieu de tout son cœur, de toute sa pensée, de toute son âme et de toute sa force, et aimer son prochain comme soi-même, c’est plus que tous les holocaustes et tous les sacrifices.
+
+[Matthieu 9:13](https://saintebible.com/matthew/9-13.htm) : Allez, et apprenez ce que signifie : Je prends plaisir à la miséricorde, et non aux sacrifices.
+
+Le sacrifice Chrétien ne consiste pas à donner à Dieu une chose qu’il ne posséderait pas sans nous, mais à nous rendre disponibles et réceptifs et à nous laisser saisir totalement par Lui. « Laisser Dieu agir en nous, voilà le sacrifice Chrétien », écrit Joseph Ratzinger. (Joseph Ratzinger, La Foi chrétienne, hier et aujourd’hui, Cerf).
+
+Le sacrifice consiste à « faire du sacré » pour entrer en communion avec ses frères et avec Dieu. Le sacrifice expiatoire et sanglant est dénoncé au profit d’une éthique de la justice et de la miséricorde. Le Christ a remplacé la logique de rétribution par la logique de miséricorde. 
+
+Le don de soi au jour le jour ne veut pas la mort, mais assume le risque de la souffrance lié à l’amour. En ce sens, on peut parler de la mort d’Arnaud Beltrame comme d’un sacrifice, car il a donné sa vie en servant et en acceptant le risque de mourir au bénéfice d’un autre.
+
+*« Nous le savons bien ! Faire des prières n’est pas exactement prier. Et Dieu n’attend pas de nous des gestes ou des dons extérieurs. C’est la question qu’Il se pose dans le psaume 50 : « Mangerais-je la chair des taureaux ? Boirais-je le sang des boucs ? »*. Le geste liturgique qui prend sens et valeur dans le Nouveau Testament doit exprimer une transformation intérieure pour vivre le commandement que Jésus donne : aimer Dieu et son prochain. Il n’y a pas d’autre sacrifice que celui-là. Et c’est bien un sacrifice dont il ne faut rejeter en rien la notion. Ce que nous devons bannir est le faux sacrifice, le sacrifice purement rituel et extérieur, l’accomplissement que produiraient certains gestes convenus. La lettre aux Hébreux le dit bien : les sacrifices sanglants n’ont jamais été que des esquisses. *« Le vrai sacrifice - comme le définit St Augustin- est toute bonne œuvre qui contribue à nous unir à Dieu dans une sainte société, à savoir toute œuvre rapportée à ce bien suprême, l’union à Dieu, grâce auquel nous pouvons être heureux »* (Cité de Dieu X, 6). Ce que faisait déjà entendre le psaume 39 : Tu ne voulais ni offrandes, ni sacrifices. Alors j’ai dit : *« voici, je viens faire Ta volonté »* et que St Augustin traduit de manière Chrétienne.
+
+Lorsque Jésus dit, en reprenant la parole du prophète Osée : *« c’est la miséricorde que je veux et non le sacrifice »*, il n’exclut pas le *« sacrifice »* pour le remplacer par la *« miséricorde »*. Il nous fait comprendre que le vrai sacrifice est la miséricorde. Il ajoute d’ailleurs : *« je ne suis pas venu abolir la loi mais l’accomplir »* c’est-à-dire permettre à cette loi de manifester son vrai sens. Et chacun de nous le sait bien : mener sa vie selon la loi ne va pas sans sacrifice si l’on n’oublie pas que cette notion reflète aussi une dimension de pénibilité. Car, reconnaissons-le ! : renoncer aux mensonges, à la dérision, aux hypocrisies de toutes sortes comme refuser de poursuivre des buts égoïstes est pénible.
+
+Le Christianisme est une religion du cœur où tout rite ne prend sens que s’il traduit et engage une conversion intime et où le sacrifice, le vrai, se déploie dans l’exercice d’une miséricorde bienfaisante. (Source : https://catechese.catholique.fr/outils/conference-contribution/618-reflexion-sur-la-notion-de-sacrifice/) »
+
+<span style="color:red">
+**SUR LE SACRIFICE DE JÉSUS SUR LA CROIX ET LE SENS DE LA MESSE** 
+</span>
+
+Selon le point de vue Chrétien traditionnel, Jésus s’offre lui-même en sacrifice pour le pardon de nos péchés et pour notre salut. Jésus meurt pour nos péchés. Le Nouveau Testament désigne Jésus comme l’agneau immolé (Ap 5,6) ou encore comme la victime expiatoire (1Jn 2,2).
+
+Aux origines de l’Église, le christianisme retient le terme « hostie », du latin hostia, pour désigner Jésus comme victime expiatoire. Le mot latin est quasiment synonyme de « victime ». Les Romains nommaient hostia les animaux sacrifiés aux divinités. Le terme désignait aussi les soldats morts à la guerre, victimes de l’attaque ennemie pour défendre l’empereur et la patrie. La même racine se retrouve dans le mot latin hostis, pour désigner l’ennemi (hostile, hostilité).
+
+Le Christianisme, au contact de la culture latine, a inclus dans son langage théologique et liturgique le mot « hostie » pour désigner Jésus comme « victime ». Jésus est l’hostie, c’est-à-dire l’agneau immolé (sacrifié), la victime expiatoire qui verse son sang pour sauver l’humanité.
+
+Or, si l'on comprend le sens profond du pseudo sacrifice d'Isaac par Abraham, il devient essentiel de donner un sens nouveau au "sacrifice" de Jésus sur le croix et de bien comprendre que d'une part la mort de Jésus sur la croix n'était pas voulue par Dieu et que d'autre part la mort de Jésus sur la croix n'efface pas les péchés de l'humanité.
+
+Le vrai sens de la mission de Jésus et de sa mort sur la croix est traitée dans le sujet [Un résumé de l'enseignement de Jésus](/5-fr-the-key-points-of-jesus-messages/) et plus particulièrement dans le 4ème point "<span style="color:red">La crucifixion n’est la source d’aucun salut</span>" et dans le 9ème point "<span style="color:red">Le vrai sens de la mission de Jésus</span>."
+
+1. <large id="f1"> L'adjectif « Élohiste » se réfère à l'ensemble de textes du Pentateuque caractérisés par l'usage exclusif du nom "Élohim" pour désigner Dieu.[↩](#a1)
+
+2. <large id="f1"> [Source](https://www.sacrements.fr/veritable-sacrifice.php)[↩](#a2) 
+
+<u>Pour aller plus loin</u> :
 
 [Sacrifice d'Isaac](https://fr.wikipedia.org/wiki/Ligature_d%27Isaac)
 </br>
 [Vidéo de Brunor](https://www.youtube.com/watch?v=XlBPT1OaYd4)
 </br>
 [Site de formation théologique](https://www.sacrements.fr/isaac.php)
+</br>
+[Sur le sens du sacré](https://www.sacrements.fr/sacre.php)
+</br>
+[Sur le sens du sacrifice religieux](https://www.sacrements.fr/sacrifice-religieux.php)
 </br>
 [Marie Balmary](https://fr.wikipedia.org/wiki/Marie_Balmary)
 </br>
