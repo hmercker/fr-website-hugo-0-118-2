@@ -156,16 +156,15 @@ Lors de l’émission « Origines » sur France 2 du 13/09/2020 et à l’occasi
 A propos du sacrifice d’Isaac par Abraham, Marc Alain Ouaknin exprime l’idée que ce passage biblique est, sans équivoque, une « leçon de texte ». C’est une véritable mise en scène, théâtrale, dramatique, pour dire qu’à partir d’Abraham il ne sera plus jamais possible qu’au nom de Dieu, d’une valeur supérieure, ou du Bien, on se croie autoriser à porter la main sur un autre homme. Ce qui est révolutionnaire dans ce récit, c’est précisément que le sacrifice d’Isaac ne se réalise pas ! Si on entend bien ce message, cela veut dire : jamais de violence parmi les hommes à cause de Dieu !
 
 <span style="color:red">
-**LE SACRIFICE DANS LA MYTHOLOGIE  GRECQUE**
+**LE SACRIFICE DANS LA MYTHOLOGIE GRECQUE**
 </span>
 
 [Dans la mythologie grecque](https://fr.wikipedia.org/wiki/Mythologie_grecque), [Athamas](https://fr.wikipedia.org/wiki/Athamas) de Béotie tend la main pour immoler son fils Phrixos mais [Héraclès](https://fr.wikipedia.org/wiki/H%C3%A9racl%C3%A8s) envoyé par [Zeus](https://fr.wikipedia.org/wiki/Zeus) crie à [Athamas](https://fr.wikipedia.org/wiki/Athamas) d'épargner son fils et le bélier appelé [Chrysomallos](https://fr.wikipedia.org/wiki/Chrysomallos), envoyé par [Zeus](https://fr.wikipedia.org/wiki/Zeus), apparaît alors.
 
 Selon certaines interprétations, le sacrifice d’Abraham signifierait la fin des sacrifices humains, pratique qui aurait perduré chez d’autres peuples sémitiques. Les Phéniciens (carthaginois en particulier) continuèrent à sacrifier les premiers nés mâles en gage de fécondité dans les sanctuaires de [Tanit](https://fr.wikipedia.org/wiki/Tanit) et de [Baal Hamon](https://fr.wikipedia.org/wiki/Baal_Hamon). Les lieux où se pratiquaient ces sacrifices sont appelés  [tophets](https://fr.wikipedia.org/wiki/Tophet). Ce rite se serait prolongé jusqu’au [IIe siècle av. J.C.](https://fr.wikipedia.org/wiki/IIe_si%C3%A8cle_av._J.-C.) d’après les fouilles effectuées en Sardaigne, en Sicile et à Carthage. Dans cette perspective, Abraham aurait accompli un rite ethnique cohérent avec la promesse d’une nombreuse descendance.
-<small>
 
 <span style="color:red">
-**SUR LE VÉRITABLE SENS DU SACRIFICE<sup id="a2">[2](#f2)</sup>**
+**SUR LE VÉRITABLE SENS DU SACRIFICE**<sup id="a2">[2](#f2)</sup>**
 </span>
 
 L’histoire biblique retrace une lente conversion sur le sens du sacrifice et également sur la nature de Dieu. Le peuple Hébreu apprend progressivement à quitter la logique du calcul et du mérite pour entrer dans celle du don gratuit. Passer d’un Dieu qui approuve les sacrifices sanglants à un Dieu amour demande du temps. Le rôle des prophètes dans cette conversion est déterminant.
@@ -211,10 +210,11 @@ Le Christianisme, au contact de la culture latine, a inclus dans son langage th�
 Or, si l'on comprend le sens profond du pseudo sacrifice d'Isaac par Abraham, il devient essentiel de donner un sens nouveau au "sacrifice" de Jésus sur le croix et de bien comprendre que d'une part la mort de Jésus sur la croix n'était pas voulue par Dieu et que d'autre part la mort de Jésus sur la croix n'efface pas les péchés de l'humanité.
 
 Le vrai sens de la mission de Jésus et de sa mort sur la croix est traitée dans le sujet [Un résumé de l'enseignement de Jésus](/5-fr-the-key-points-of-jesus-messages/) et plus particulièrement dans le 4ème point "<span style="color:red">La crucifixion n’est la source d’aucun salut</span>" et dans le 9ème point "<span style="color:red">Le vrai sens de la mission de Jésus</span>."
+<small>
 
 1. <large id="f1"> L'adjectif « Élohiste » se réfère à l'ensemble de textes du Pentateuque caractérisés par l'usage exclusif du nom "Élohim" pour désigner Dieu.[↩](#a1)
 
-2. <large id="f1"> [Source](https://www.sacrements.fr/veritable-sacrifice.php)[↩](#a2) 
+2. <large id="f2"> [Source : En conclusion, le véritable sacrifice](https://www.sacrements.fr/veritable-sacrifice.php)[↩](#a2) 
 
 <u>Pour aller plus loin</u> :
 
