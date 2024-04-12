@@ -1,0 +1,32 @@
+---
+title: "La bienveillance de l’Amour de Dieu"
+menu_title: ""
+description: "La bienveillance de l’Amour de Dieu"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### La bienveillance de l’Amour de Dieu
+
+St Matthieu - reçu par Albert Fike le 14 Janvier 2024, La Barbade.
+
+Que Dieu vous bénisse, âmes bien-aimées. Je suis Matthieu. L’esprit des hommes continue de tourbillonner au sein de la condition humaine. Ce sombre nuage de pensée, résultat de millénaires d’actions et de pensées de l’humanité, crée autour de la Terre un miasme d’obscurité et d’erreur. L’humanité est conditionnée à cela, pensant et sentant que c’est la norme, que cela doit être ainsi, et que Dieu a créé le monde de cette manière, que Dieu approuve les actions de l’homme parce que l’homme se considère comme le créateur du monde et des choses.
+
+En effet, l’humanité est la créatrice des choses. Elle crée beaucoup de choses avec ses pensées et ses actions, tempérant le monde pour qu’il reflète la condition de l’homme. Alors, vous vous retrouvez parfois rejetés par les autres, différents des autres, à part des autres, parce que vous n’adhérez plus à cette condition, à cette façon d’être au monde. Beaucoup dans votre monde se sentent justifiés pour leurs pensées, leurs jugements, leurs actions qui ne reflètent pas l’amour. Beaucoup cherchent à opprimer les autres, à les amener dans un état de souffrance et pourtant, ils se sentent tout à fait justifiés.
+
+Ceux qui apportent les ténèbres et la souffrance au monde ne connaissent pas Dieu. Car s’ils le faisaient vraiment, ils aimeraient et refléteraient Dieu en tout. Les Lois de l’Amour de Dieu sont des lois qui apportent l’harmonie et la paix. Ils rapprochent l’individu du Créateur. Ils enseignent à l’individu comment être en harmonie avec le créé, avec lui-même et les uns avec les autres. Ce sont les choses de Dieu. Pourtant, l’humanité continue de s’efforcer de créer sa propre réalité et ses propres conditions qui sont souvent contraires aux Lois de la Création, les Lois de l’Amour.
+
+Ce grand stress, cette tension entre ce qui est de l’obscurité et ce qui est de la lumière, continue de faire partie de votre réalité et de votre expérience de vie. Je sais que pour beaucoup d’entre vous, il est plus facile de se taire, de ne pas parler de la vérité, ou du moins de la vérité que vous comprenez. Pourtant, beaucoup autour de vous parlent de leur vérité et de leur compréhension et vous êtes conscient, à travers les perceptions de votre âme, que ce dont ils parlent n’est pas vrai, mais est contraire à l’amour. Le meilleur antidote à cela est d’être amour, d’accepter les autres, de les embrasser et d’être les canaux de l’Amour de Dieu dans le monde. De cette façon, quelles que soient les ténèbres qui vous sont imposées, elles ne peuvent pas vraiment vous toucher. Car les ténèbres ne peuvent pénétrer la lumière à moins qu’elles ne soient invitées par votre esprit et par ces sentiments en vous qui sont blessants, critiques et erronés pour l’amour.
+
+Mes amis bien-aimés et magnifiques, soyez élevés dans l’amour. Même si vous êtes conscient et connaissez la condition humaine qui vous entoure, soyez avec Dieu. Soyez avec votre Créateur Céleste en toutes choses. De cette façon, ceux qui voudraient vous blesser, vous agresser, vous juger, vous condamner, ne toucheront pas votre cœur. Vous ressentirez de la compassion pour ceux qui expriment exactement ce pour quoi ils vous condamnent. C’est que vous êtes des ténèbres, que vous avez tort, que vous avez l’intention de nuire et de faire du mal aux autres.
+
+Il n’y a personne d’aussi aveugle que ceux qui ne voient pas, mes amis. Nombreux sont ceux qui sont aveuglés, sourds et muets face à la vérité. La vérité est que Dieu est Amour et que Dieu exprime Son amour à chaque enfant de Sa création. Chaque être est aimé de Dieu. Cet amour n’inclut ni jugement ni condamnation. L’amour n’est aucune de ces choses. L’amour est pur et expansif, embrassant et indulgent. L’amour apporte l’harmonie et la paix. L’amour est l’essence de Dieu.
+
+Vous, dans vos prières, souhaitez recevoir, incarner et absorber cette grande Essence qu’est Dieu, ce don merveilleux qui fait partie de Dieu. De cette façon, vous devenez une confrontation vivante avec l’obscurité. Là où vous apportez de la lumière en vous, vous apportez de la lumière au monde. C’est ce que vous êtes censés faire, âmes bien-aimées, dans vos efforts pour vivre une vie d’amour et de lumière. Vous apportez la lumière au monde. Ceux qui se sentent mal à l’aise avec cela, ou qui sont confrontés parce que vous n’êtes pas d’accord et parlent leur langage et leurs paradigmes de vérité, vous jugent et vous repoussent et disent que vous êtes mauvais et obscur, que vous avez tort et que vous êtes trompés. Pitoyable, mes amis, pitoyable. Car s’ils regardaient en eux-mêmes, ils verraient le puits de la douleur intérieure. Ils reconnaîtraient qu’il existe un grand besoin d’être guéri et élevé dans l’amour. Avec le temps, ils le feront.
+
+Pour ceux que vous aimez et qui sont perdus dans ces conditions sombres, je vous dis : soyez patients et fidèles, soyez un exemple. Votre force, avec le temps, les maintiendra. Avec le temps, votre force soutiendra beaucoup, beaucoup de ceux qui auront un grand besoin de vérité, de paix, d’être installés dans la paix, de connaître Dieu dans leur cœur. En effet, cette dichotomie entre l’esprit matériel et celui de l’âme continue de se manifester dans le monde. Ainsi, ces divergences, jugements et conditions prolifèrent en raison des conditions de pleine conscience.
+
+Pourtant, certains vivent dans les deux mondes. Il y en a qui ont une âme brillante, mais qui pourtant condamnent et jugent les autres à cause de leur paradigme de pensée. N’est-il pas déconcertant de voir à quel point le monde est ainsi biaisé ? Pourtant, Dieu continue de soutenir, de guérir, d’apporter la vérité, d’éduquer et d’apporter abondamment des bénédictions à la Terre. Avec le temps, l’humanité sera élevée et guérie. Alors il y aura un grand pas vers la lumière, une nouvelle façon de vivre, la merveilleuse condition de lumière qui viendra de la miséricorde et de la bienveillance de Dieu envers l’humanité. Son Amour brillera. L’humanité profitera de la lumière et connaîtra la paix pour toujours.
+
+Que Dieu vous bénisse, âmes bien-aimées. Je suis Matthieu. Je vous aime très, très chères, âmes bien-aimées. Que Dieu vous bénisse.

@@ -1,0 +1,36 @@
+---
+title: "Les anges viennent sur Terre pour enseigner les vérités de l’Amour de Dieu"
+menu_title: ""
+description: "Les anges viennent sur Terre pour enseigner les vérités de l’Amour de Dieu"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Les anges viennent sur Terre pour enseigner les vérités de l’Amour de Dieu 
+
+André - reçu par Albert Fike le 13 Février 2024, Sechelt, Colombie-Britannique, Canada.
+
+Nous sommes venus sur Terre à maintes reprises depuis que le Maître bien-aimé est venu apporter la bonne nouvelle de l’Amour de Dieu. Nous nous sommes consacrés à l’humanité, aux anges qui habitent le Royaume Céleste, aux anges qui souhaitent accomplir l’œuvre de Dieu en la servant. Apporter cette vérité non seulement à votre monde, mais à tous les mondes spirituels qui existent au-delà de ce monde. Nous nous efforçons de travailler pour apporter cette vérité afin que d’autres puissent la connaître et la vivre, pour que d’autres puissent trouver leur chemin vers le Royaume Céleste.
+
+Ils n’ont pas besoin de croire en la doctrine. Tout ce qu’il faut, c’est une soif de vérité. Rechercher la vérité à travers les voies éprouvées de la prière, du désir et de l’effort. Comment peut-on venir à Dieu sans un profond désir d’être avec Dieu ? Oui, ils peuvent réciter une prière par cœur. Ils peuvent appartenir à une église ou à une religion. Ou bien ils peuvent emprunter cette voie simple et ce voyage qui amène Dieu dans leur vie. Quelle que soit la voie empruntée par l’individu, tant qu’il y a un désir et un désir sincères de recevoir le grand don de l’Amour de Dieu, alors il sera profondément touché dans Son cœur.
+
+Ils connaîtront leur propre âme et la capacité de leur âme à connaître Dieu. Car tant que vous aspirez à être avec Dieu, lorsque votre cœur s’ouvre à Dieu, Dieu répond par Son Amour. Car Dieu est Amour. Dieu est avant tout Amour. Il n’y a pas de jugement. Dieu ne refuse Son amour à personne, quelles que soient ses circonstances et sa condition. S’ils prient et demandent ce don, s’ils prient et demandent à être proches de Dieu, alors leurs prières seront exaucées en temps opportun, de manière puissante.
+
+Alors, ne jugez pas vos frères et sœurs, mes amis bien-aimés. Parce que Dieu ne les juge pas. Les individus se jugent eux-mêmes. Les individus créent des conditions qui les condamnent aux ténèbres, mais ce n’est pas l’œuvre de Dieu. C’est le leur. Par leurs actes, par leur manque d’amour tant pour eux-mêmes que pour les autres, ils attirent vers eux une obscurité. Un état pitoyable de douleur, d’angoisse et de solitude. Pourtant, même ces pauvres âmes qui continuent de languir dans les ténèbres se voient promettre la bénédiction et le Toucher de Dieu sur elles, à condition qu’elles soient prêtes à le demander et à le désirer.
+
+Avec le temps, personne ne sera abandonné aux sphères sombres et à sa propre angoisse et à sa douleur. Chaque âme est destinée à trouver la lumière. Chaque âme trouvera la lumière. Mais le temps qu’il faudra pour que cela se produise pourrait être long. De très nombreuses années de souffrance sont souvent le lot de l’homme, car l’humanité est têtue et figée dans ses habitudes et refuse d’ouvrir son esprit, son cœur et son âme à la lumière. Ainsi, ils continuent de souffrir, coincés dans des conditions terribles qui ne cessent de se renforcer encore et encore.
+
+Mes amis bien-aimés, vous devez prier pour l’humanité, pour tous ceux qui sont dans les ténèbres. Car leur souffrance est auto-imposée et également imposée par d’autres qui sont également coincés dans cet état. Pourtant, la liberté est à leur portée s’ils la connaissaient. Alors, nous vous le demandons, amis bien-aimés. Lorsque l’occasion vous en est donnée, lorsque Dieu vous guide dans des conditions qui ne sont pas de l’amour, afin que vous puissiez dire la vérité. Afin que vous soyez une lumière, exemplaire dans l’Amour, afin qu’en effet vous puissiez montrer le chemin au-delà des ténèbres vers la lumière.
+
+Beaucoup en ont besoin. Dans leur cœur, ils aspirent à cela, mais dans leur esprit, ils sont coincés dans ces terribles conditions. Ayez de la compassion pour vos frères et sœurs qui sont en effet si insensibles et si durs de cœur, qui ne croient pas parce qu’ils blâment Dieu pour leur douleur ou parce qu’ils sentent que Dieu n’existe pas ou que Dieu les a abandonnés. Rien n’est plus éloigné de la vérité. Souvent, ils ont abandonné Dieu parce que, dans leur esprit, ils s’attendent à ce que Dieu corrige tous les torts, que Dieu les délivrera des ténèbres sans aucun effort de leur part.
+
+Mais ce n’est pas la loi en action. La loi stipule que chaque individu doit agir et assumer ses responsabilités afin de pouvoir avancer et trouver le chemin de sa rédemption personnelle. Beaucoup ne peuvent pas s’humilier de cette façon. Beaucoup ne voient pas la validité de ce choix. Ils cherchent plutôt à se donner les moyens de réparer les torts qui, selon eux, leur ont été causés, et ce, avec force, haine et angoisse, exprimées de manière déformée et inquiétante. Ces pauvres, pauvres âmes qui continuent à lutter contre les ténèbres, mais, ce faisant, se créent souvent de plus grandes ténèbres pour elles-mêmes. Une telle ignorance et une telle incompréhension, âmes bien-aimées.
+
+Vous, mes beaux amis, n’êtes pas ces individus. Vous avez trouvé la délivrance des ténèbres. Vous avez créé pour vous-même l’opportunité de la lumière. Vous avez recherché la vérité et cherché à appliquer la vérité dans votre vie. Vous continuez à aller de l’avant, à tester la vérité, à l’appliquer et à la tester à nouveau. En effet, vous avez découvert que la vérité vous a libéré dans une certaine mesure et elle vous libérera de plus en plus à mesure que vous grandissez dans ce don, à mesure que vous le recherchez en vous-même.
+
+Ne vous laissez pas aller aux ténèbres, âmes bien-aimées. Même si vous avez en vous des vestiges de ces ténèbres, vous pouvez avoir des blessures et des douleurs et vous mettre en colère à cause d’elles, cherchez à y remédier avec Dieu. Cherchez à mettre ces choses aux pieds de Dieu, afin qu’Il puisse les dissoudre et apporter la lumière et la joie, l’expansion et la liberté. Car ces choses peuvent être accordées sur demande de votre prière, sur vos efforts pour conjurer les ténèbres et marcher pleinement dans la lumière.
+
+C’est une collaboration entre vous et votre Père Céleste. Nous, du Royaume Céleste, continuons à vous accompagner, à vous encourager et à vous soutenir dans cette voie, et nous le ferons jusqu’à ce que vienne ce jour merveilleux où nous vous saluerons lorsque vous entrerez dans le Royaume de l’Amour.
+
+Que Dieu vous bénisse, âmes bien-aimées. Je m’appelle André et je vous aime. Vraiment, je vous aime tous. Puissiez-vous continuer à être béni, éveillé et guéri avec une plus grande lumière chaque jour, connaître une plus grande vérité à chaque prière et moment de contemplation. Nous sommes toujours là avec vous. Vous n’êtes jamais seul, jamais, bien-aimés, jamais. Mon amour est avec vous. L’Amour de Dieu continue de briller afin que vous puissiez être bénis, et vous serez bénis, âmes bien-aimées. Que Dieu vous bénisse. Je m’appelle André et je vous aime. Que Dieu vous bénisse.

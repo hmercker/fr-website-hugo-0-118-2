@@ -9,7 +9,7 @@ weight:
 ---
 ### L'orientation continue
 
-Augustin - reçu par Al Fike le <sup>er</sup> Janvier 2024, République Dominicaine.
+Augustin - reçu par Albert Fike le <sup>er</sup> Janvier 2024, République Dominicaine.
 
 Il est peu probable qu’il (José) se joigne à vous en raison de la date tardive. Mais si vous êtes en mesure de les surmonter, alors oui, bien sûr, il bénéficiera de sa participation à ces cercles et cela lui procurera un très bon exemple de la manière dont il peut procéder. Nous contribuerons à faciliter cela. En considérant la façon dont votre monde fonctionne, il se peut que ce ne soit pas facile ou possible. En effet, vos sentiments et votre inspiration pour l’amener avec vous sont bien placés et votre âme vous parle, chère fille. Je sais que vous êtes sceptique quant à la façon dont votre âme communique avec votre conscience, mais ceci en est un très bon exemple.
 
