@@ -9,7 +9,7 @@ weight:
 ---
 ### Transcender l'esprit égoïste : Un avertissement Céleste
 
-Augustin - reçu par Al Fike le 5 Juillet 2023, Sechelt, Colombie-Britannique, Canada.
+Augustin - reçu par Albert Fike le 5 Juillet 2023, Sechelt, Colombie-Britannique, Canada.
 
 Que Dieu te bénisse, ma chère fille, ton maître Augustin est ici. Lorsque nous t’ obligeons sur le plan terrestre à rechercher ce qu’il y a de plus élevé, qu’est-ce que cela signifie dans ta vie ? Comment cela se manifeste-t-il dans ta vie ? Lorsque tu cherches Dieu, ne cherches-tu pas ce qu’il y a de plus élevé ? Lorsque tu cherches à être une lumière, ne cherches-tu pas à être la lumière la plus brillante, à être le canal d’Amour de Dieu dans le monde et à suivre les conseils de Dieu lorsque tu traverses ce monde ?
 

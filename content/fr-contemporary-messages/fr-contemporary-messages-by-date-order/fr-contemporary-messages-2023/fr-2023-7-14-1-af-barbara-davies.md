@@ -9,7 +9,7 @@ weight:
 ---
 ### Faire la Volonté de Dieu
 
-Barbara Davies - reçu par Al Fike le 14 Juillet 2023, Sechelt, Colombie-Britannique, Canada.
+Barbara Davies - reçu par Albert Fike le 14 Juillet 2023, Sechelt, Colombie-Britannique, Canada.
 
 Dieu vous bénisse, c’est Barbara.<sup id="a1">[1](#f1)</sup> L’œuvre de Dieu n’est pas quelque chose de spécifique, l’œuvre de Dieu est ce qui est infusé dans tout ce que vous faites, de sorte que la touche divine puisse imprégner tout ce que vous êtes et tout ce que vous faites. Ainsi, ce que vous faites dans le monde apporte plus d’harmonie et de lumière. Ce n’est pas que Dieu ait une tâche spécifique à accomplir à tout moment, mais plutôt que lorsque vous vivez, bougez et respirez dans la Grâce de Dieu, et que vous continuez à grandir dans l’Amour de Dieu, alors les manifestations de vos dons influenceront et s’ouvriront avec les nombreuses choses que vous faites dans la vie.
 

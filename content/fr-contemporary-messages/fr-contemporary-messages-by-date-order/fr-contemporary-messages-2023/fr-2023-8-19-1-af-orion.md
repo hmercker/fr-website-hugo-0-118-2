@@ -9,7 +9,7 @@ weight:
 ---
 ### La foi opposée à la peur pendant le nettoyage du monde
 
-Orion - reçu par Al Fike le 19 Août 2023, Sechelt, Colombie-Britannique, Canada.
+Orion - reçu par Albert Fike le 19 Août 2023, Sechelt, Colombie-Britannique, Canada.
 
 Soyez bénis mes amis bien-aimés, je suis Orion. Vous êtes tous confrontés à des défis dans votre vie, reflet de la condition humaine et des conditions terrestres. Cela ne cessera malheureusement pas mais s’intensifiera à mesure que les conditions de votre Terre continueront de s’assombrir. Pourtant, je dirais que si vous repensiez à la façon dont vous avez pu faire face à ces conditions dans le passé et voyez comment vous vous débrouillez maintenant, cela reflète la croissance, la force et la foi alors que vous avez développé dans vos âmes une certaine force, consistance de la lumière qui vous permet de faire face à toute situation, et de le faire avec grâce, avec paix, avec joie.
 

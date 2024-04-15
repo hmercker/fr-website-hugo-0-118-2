@@ -9,7 +9,7 @@ weight:
 ---
 ### L'importance de la cohérence, du dévouement et de la foi
 
-Michael Collier - reçu par Al Fike le 4 Juillet 2023, Sechelt, Colombie-Britannique, Canada.
+Michael Collier - reçu par Albert Fike le 4 Juillet 2023, Sechelt, Colombie-Britannique, Canada.
 
 Merci chère fille, pour tes prières. Elles ont une qualité d’innocence et de foi que, pour beaucoup d’entre vous sur le plan terrestre, il est souvent difficile d’exprimer. Je vois pour toi, bien-aimée lumière du monde, que tu prieras avec beaucoup d’autres et que tu dirigeras ces prières en raison de la qualité de lumière, de foi et d’innocence que yu portes.
 

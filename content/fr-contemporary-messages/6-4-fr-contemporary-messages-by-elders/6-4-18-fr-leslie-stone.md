@@ -9,7 +9,7 @@ weight:
 ---
 ### Messages de Leslie Stone
 
-![](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders-old/fr-leslie-stone.jpg)
+![](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/fr-leslie-stone.jpg)
 
 le Dr Leslie Stone fut un compagnon de James Padgett durant toutes les annnées où ce dernier a reçu les messages de James Padgett et il fut le premier éditeur de ces messages. Le Dr Stone a financé tout cela à partir de ses propres ressources, et il a donc dû continuer à travailler pour dégager un revenu. Il a été suggéré que le Dr Stone a reçu un paiement d’assurance en ce qui concerne un accident corporel, et a appliqué ces fonds à la publication. Juste avant sa mort, le Dr Stone vivait dans une petite chambre qu'il louait et les boîtes contenant les anuscrits des messages reçus par James Padgett étaient stockées sous son lit. 
 

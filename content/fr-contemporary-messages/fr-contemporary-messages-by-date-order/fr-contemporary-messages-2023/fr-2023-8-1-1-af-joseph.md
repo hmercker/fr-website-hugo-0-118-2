@@ -9,7 +9,7 @@ weight:
 ---
 ### Réflexion sur les sensibilités liées au fait d'avoir un fils différent
 
-Joseph - reçu par Al Fike le 1<sup>er</sup> Août 2023, Sechelt, Colombie-Britannique, Canada.
+Joseph - reçu par Albert Fike le 1<sup>er</sup> Août 2023, Sechelt, Colombie-Britannique, Canada.
 
 Chères âmes bien-aimées, je suis Joseph, père de Jésus. Beaucoup d’entre vous se sont sentis différents de ceux qui les entourent et qui les ont entourés dans leur vie. Vous avez ressenti une certaine sensibilité en vous, le sentiment de ne pas être en accord avec la plupart des pensées et des actions des autres. En effet, j’ai eu un fils qui était lui aussi différent, qui ne suivait pas les foules, mais qui battait la mesure de sa vie. Beaucoup d’entre vous sont ainsi parce qu’ils ont en eux une sensibilité, des perceptions et des sentiments qu’ils se sentent vulnérables d’avoir et d’exprimer dans le monde.  Car le monde n’est pas un endroit agréable pour ceux qui ont des sensibilités profondes. Beaucoup d’entre vous se sont cachés, ont vécu leur vie tranquillement et n’ont pas attiré l’attention sur eux. Et à bien des égards, cela a été un cadeau pour vous, frères et sœurs bien-aimés. Vous avez pu explorer votre monde intérieur, comprendre ces sensibilités en vous, et ce faisant, cela vous a amené à une recherche spirituelle, à un désir de connaître votre moi intérieur. Et pour beaucoup d’entre vous, vous avez appris à connaître Dieu de quelque manière que ce soit, et dans cette recherche, vous avez trouvé la vérité de l’amour divin et la manière dont il peut nourrir votre âme. C’est ainsi que les inclinations de votre âme vous ont conduit à cet endroit et que Dieu vous a guidé le long de la route qui y mène.
 

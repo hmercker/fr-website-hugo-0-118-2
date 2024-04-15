@@ -9,7 +9,7 @@ weight:
 ---
 ### Préparation de la retraite de Laurelville
 
-Michael Collier - reçu par Al Fike le 29 Août 2023, Sechelt, Colombie-Britannique, Canada.
+Michael Collier - reçu par Albert Fike le 29 Août 2023, Sechelt, Colombie-Britannique, Canada.
 
 Je m'appelle Michael Collier et je sais que ce n'est pas habituel pour moi de prendre la parole dans ce groupe. Mais aujourd’hui, je suis là pour vous encourager et vous guider. Vous êtes à la veille de grands événements et de grandes possibilités, mes amis. Cela se construit et vous répondez avec un cœur, un esprit et une âme ouverts pour faire partie intégrante de l’effusion et du déploiement du plan de Dieu.
 

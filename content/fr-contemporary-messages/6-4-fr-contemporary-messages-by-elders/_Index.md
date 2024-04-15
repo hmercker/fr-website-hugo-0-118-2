@@ -20,6 +20,7 @@ Auteur | Date du décès
 [Bernice  Fike](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-3-fr-bernice-fike/) | 2023
 [Bill ReilLy](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-4-fr-bill-reilly/)| 30 Juin 1995
 [Care Darby Walsh](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-5-fr-care-darby-walsh/) | 25 Juillet 1992
+[Catherine Koch](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-6-fr-catheryne-koch/) 29 Mars 2023
 [Daniel G. Samuels](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-7-fr-daniel-g-samuels/) | Mars 1982
 [Eileen Caddy](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-8-fr-eileen-caddy/)  | 13 Décembre 2006
 [Elsie Grossart](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-9-fr-elsie-grossart/) | 
@@ -29,7 +30,6 @@ Auteur | Date du décès
 [James Reid](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-13-fr-james-reid/) | Novembre 2016
 [Jocelyne Harleston](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-14-fr-jocelyn-harleston/) | 8 Juillet 2015
 [Joseph Babinsky](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-15-fr-joseph-babinsky/) | Juin 2021
-[Catheryne Koch](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-6-fr-catheryne-koch/) | Mars 2023
 [Kathryn Stokes](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-16-fr-kathryn-stokes/) | 02 Décembre 2016
 [Kevin O'Neill](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-17-fr-kevin-oneill/) | 15 Septembre 2023
 [Leslie Stone](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-18-fr-leslie-stone/) | 15 Janvier 1967

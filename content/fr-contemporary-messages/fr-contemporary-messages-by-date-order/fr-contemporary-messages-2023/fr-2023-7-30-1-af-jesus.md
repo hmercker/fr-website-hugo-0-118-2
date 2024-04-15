@@ -9,7 +9,7 @@ weight:
 ---
 ### Invitation à se rassembler dans l'unité
 
-Jésus - reçu par Al Fike le 30 Juillet 2023, Sechelt, Colombie-Britannique, Canada.
+Jésus - reçu par Albert Fike le 30 Juillet 2023, Sechelt, Colombie-Britannique, Canada.
 
 Bénédictions d’amour à vous et que son amour soit avec vous, mes frères et sœurs bien-aimés. Je viens. Je suis Jésus. Je viens prier avec vous. Car vous priez pour le plus grand de tous les dons, la plus grande de toutes les bénédictions et vos âmes le recherchent avec ferveur, aspirant à l’expiation avec Dieu. Et ainsi, ce don dans le temps vous permettra de connaître cette expiation, de connaître Dieu comme vous n’avez jamais connu Dieu, d’être avec Dieu dans des voies et des gloires de lumière, de révélation et d’élévation, qui seront profondes et puissantes.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Met l'accent sur l'appel à la retraite de Laurelville
 
-Professeur Salyards - reçu par Al Fike le 13 Juillet 2023, Sechelt, Colombie-Britannique, Canada.
+Professeur Salyards - reçu par Albert Fike le 13 Juillet 2023, Sechelt, Colombie-Britannique, Canada.
 
 Je suis le professeur Salyards. Je viens vous parler aujourd’hui pour vous encourager dans vos efforts concernant le rassemblement qui s’annonce, afin que chacun joue sa rôle de bon gré, inspiré par ce qui est nécessaire et ce qui, grâce à ses dons, peut être accompli. Il y a beaucoup à faire pour rassembler ce rassemblement et renforcer l’harmonie parmi les personnes qui viendront.
 

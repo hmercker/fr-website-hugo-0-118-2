@@ -9,7 +9,7 @@ weight:
 ---
 ### Restez éveillé dans l'Amour Divin
 
-George Gurdjieff - reçu par Al Fike le 24 Juillet 2023, Sechelt, Colombie-Britannique, Canada.
+George Gurdjieff - reçu par Albert Fike le 24 Juillet 2023, Sechelt, Colombie-Britannique, Canada.
 
 Je viens votre frère en Christ et le grand-père spirituel de celui-ci. Je suis George Gurdjieff,<sup id="a1">[1](#f1)</sup> Papa G.
 

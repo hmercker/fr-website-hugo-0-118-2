@@ -9,7 +9,7 @@ weight:
 ---
 ### Messages de Daniel G. Samuels
 
-![](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders-old/fr-daniel-samuels.jpg)
+![](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/fr-daniel-samuels.jpg)
 
 Le Dr Daniel G. Samuels est le médium d'origine Juive à travers lequel Jésus a exprimé plus de 150 messages entre les années 1954 et 1966. Ces messages s'inscrivent dans le prolongement des révélations reçues par James Padgett. Pour autant que nous puissions en juger, il a surtout reçu des messages de Jésus nommés, respectivement, [révélations](/fr-samuels-messages/fr-revelations/) et [sermons](/fr-samuels-messages/fr-sermons/). Les Révélations sont des messages relatifs à des explications sur le Nouveau Testament et les Sermons sont des explications relatives à l'Ancien Testament. 
 

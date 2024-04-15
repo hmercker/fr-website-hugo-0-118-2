@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous implore tous de « nous élever au-dessus des conditions terrestres au service de Dieu »
 
-Augustin - reçu par Al Fike le 12 Septembre 2023, Sechelt, Colombie-Britannique, Canada.
+Augustin - reçu par Albert Fike le 12 Septembre 2023, Sechelt, Colombie-Britannique, Canada.
 
 Que les bénédictions de l’Amour de Dieu continuent de couler dans vos âmes, étudiants bien-aimés. Je suis votre enseignant, Augustin. Puissiez-vous continuer à vous ouvrir aux conseils et aux directions de Dieu, sa volonté se manifestant dans votre vie. Puissiez-vous mettre de côté toute condition de regret, de réticence ou de suppression des conseils donnés.
 

@@ -1,0 +1,30 @@
+---
+title: "Le message de Noël reconnaît la mission de Jésus"
+menu_title: ""
+description: "Le message de Noël reconnaît la mission de Jésus"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Le message de Noël reconnaît la mission de Jésus
+
+Jean le Bien Aimé - reçu par Albert Fike le 24 Décembre 2023, Sechelt, Colombie-Britannique, Canada.
+
+En effet, nous reconnaissons le Maître comme celui qui nous conduit vers les royaumes supérieurs du Royaume Céleste. Je suis Jean, connu sous le nom de Jean le bien-aimé, et je viens aujourd’hui me joindre à vous dans votre reconnaissance envers notre bien-aimé frère et ami, enseignant et guérisseur. Nous n’adorons pas le Maître. Au contraire, nous le reconnaissons avec amour et nous nous réunissons avec lui dans la prière comme notre frère le plus exalté et le plus beau qui habite les royaumes les plus élevés du Royaume Céleste et continue de nous ouvrir la voie à mesure qu’il progresse, afin que nous puissions le suivre.
+
+C’est pour vous, âmes bien-aimées. Il ouvrira les portes, les portes de l’amour, de la joie et de la lumière éternels. Dans son humilité et sa grâce, il reconnaît chacun de nous et chacun d’entre vous tandis que vous vous efforcez d’atteindre le Royaume, tandis que vous cherchez à être cette âme purifiée et transformée qui accompagne l’Amour du Père. Car Jésus était le messager et l’exemple du voyage que devait entreprendre chaque âme vers l’unité avec Dieu.
+
+Sa lumière et son être nous ont montré le chemin, à nous tous, vers ce qui peut être atteint et qui est disponible pour chaque âme de ce monde et du nôtre. Chaque âme peut suivre cette route. Quels que soient les péchés passés et les ténèbres intérieures, ils peuvent être rachetés par l’amour. Car Dieu pardonne et Dieu bénit chaque âme qui demande cette bénédiction, ce grand don de l’afflux de l’Amour du Père. Nous nous réunissons aujourd’hui, non seulement pour reconnaître le Maître bien-aimé, mais pour reconnaître la vérité et le chemin vers le bonheur éternel et la lumière et l’éveil de l’âme dans les joies de l’amour. À quel point la création de Dieu, âmes bien-aimées, est-elle merveilleuse pour rendre possible un tel voyage, pour nous éveiller à une telle manière d’être dans l’univers, dans nos vies ? Chacun de vous est attiré par cela. Vos âmes connaissent et sont impatientes de boire les eaux vives de l’Amour de Dieu. Chacun de vous continue de faire ses prières, de s’étirer et d’aspirer à Dieu, d’être dans ce lieu de reconnaissance, de bonheur et d’amour qui accompagne votre relation avec votre Créateur.
+
+Nous marchons ensemble, âmes bien-aimées, vers la Source de tout amour. Nous l’avons fait parce que notre frère bien-aimé, Jésus, nous a montré le chemin. Que Dieu a rendu possible son incarnation sur le plan terrestre et, ce faisant, a ouvert la porte des possibilités que Jésus, notre frère bien-aimé, peut nous enseigner, peut nous montrer le chemin comme il l’a fait il y a toutes ces années. Il continue de le faire jusqu’à ce jour et le fera jusqu’à ce que les portes du Ciel soient fermées.
+
+Il montrera le chemin à tous ceux qui sont prêts à parcourir le chemin de la transformation et de la rédemption de l’âme s’éveillant à l’Amour de Dieu, ce beau voyage qui peut être entrepris par n’importe quelle âme, quelles que soient ses origines, sa religion ou sa perspective sur le monde. C’est l’âme répondant au grand Amour de Dieu, émanant de Sa grande Âme envers chaque âme, qui rend possible ce voyage et cet éveil.
+
+Vous êtes tous sur cette route et Jésus continue de vous faire avancer. Et c’est ce que nous ferons. Nous connaîtrons l’émerveillement et le bonheur de l’Amour de Dieu pour toute l’éternité. Âmes bien-aimées, vous avez trouvé le chemin et vous le parcourez avec diligence et urgence. Nous continuons de marcher avec vous, en tant que frères et sœurs, afin que vous ne vous sentiez pas seuls. Afin que vous sachiez en effet que vous bénéficiez de l’élévation, de la communion fraternelle et de l’amour des autres qui sont également sur cette route. C’est à vous, donnée par la grâce et l’Amour de Dieu, Sa grande et merveilleuse miséricorde envers l’humanité, afin que beaucoup de ceux qui sont perdus puissent être retrouvés dans l’amour et la lumière.
+
+Nous vous demandons d’être cette lumière, d’être cet exemple tel qu’était notre Maître il y a tant d’années. Vous connaissez la vérité et vous la vivez. Continuez à parcourir le chemin, embrassez vos frères et sœurs et montrez-leur le chemin. En cela, vous faites l’œuvre de Dieu. En cela, vous accomplissez l’œuvre que Jésus a commencée il y a si longtemps. Ensemble, nous continuons à récolter les âmes vers le voyage de l’éveil, de la rédemption et de la transformation afin que vous, nous et les autres puissions continuer à franchir les portes du Ciel vers cette terre promise de grande joie, de bonheur et d’amour.
+
+Que Dieu vous bénisse, âmes bien-aimées. Je m’appelle Jean et je viens prier avec vous aujourd’hui et reconnaître notre frère bien-aimé, reconnaître le grand Amour de Dieu et reconnaître chacun de vous alors que vous poursuivez votre chemin vers l’unité avec notre Créateur. Que Dieu vous bénisse, mes amis bien-aimés. Que Dieu vous bénisse dans la joie de l’amour, dans l’émerveillement de la lumière et les émanations de l’âme de Dieu vers chacun de vous.
+
+Ouvrez-vous largement aux bénédictions, aux éveils et à la transformation. Vous recevrez, car vous avez reconnu la vérité et faites partie de ce grand frère et de cette grande fraternité de la vérité. Nous sommes ensemble aujourd’hui dans cet émerveillement et cette beauté des âmes qui aspirent au grand don de Dieu. Que Dieu vous bénisse, bien-aimés. Mon amour est avec vous, vous tous. Nous continuerons à faire ce voyage ensemble pour toute l’éternité. Que Dieu vous bénisse. Que Dieu vous bénisse, bien-aimés.

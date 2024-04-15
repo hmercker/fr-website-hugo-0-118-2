@@ -9,7 +9,7 @@ weight:
 ---
 ### Messages de Percy Hayes
 
-![](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders-old/fr-percy-and-phyllis-hayes.jpg)
+![](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/fr-percy-and-phyllis-hayes.jpg)
 
 Percy Hayes, comme Alec Gaunt, fut tout au long de sa vie, un chercheur de vérité et lorsqu'il a les volumes de Padgett, il a su, lui aussi, qu'il avait trouvé la vérité qu'il recherchait depuis longtemps.
 

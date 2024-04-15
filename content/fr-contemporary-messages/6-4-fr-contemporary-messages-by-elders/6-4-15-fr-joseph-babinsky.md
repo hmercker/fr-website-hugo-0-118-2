@@ -9,7 +9,7 @@ weight:
 ---
 ### Messages de Joseph Babinsky
 
-![](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders-old/fr-joseph-babinsky.jpg)
+![](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/fr-joseph-babinsky.jpg)
 
 Joseph Babinsky est né en 1935 dans le New Jersey (États-Unis), douzième enfant et septième fils. Son père était né en Hongrie qui a immigré aux États-Unis en 1910 et a été un pasteur Chrétien jusqu'à sa mort en 1951. Joseph Babinsky est diplômé du Monmouth College (Illinois) et de l'Union Theological Seminary (New York) et il a été ordonné en 1964. dans l’Église presbytérienne (États-Unis). Plus tard, en 1976, il a été ordonné dans l’Église pentecôtiste unie
 

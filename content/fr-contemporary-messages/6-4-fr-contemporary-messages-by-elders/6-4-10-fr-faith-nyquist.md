@@ -9,7 +9,7 @@ weight:
 ---
 ### Messages de Faith Nyquist
 
-![](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders-old/fr-faith-nyquist.jpg)
+![](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/fr-faith-nyquist.jpg)
 
 Faith Nyquist était l'épouse de Conrad Nyquist, fils de Frère mandus Nyquist. A la mort de ce dernier, son fils et sa belle fille ont pris la relève. Comme Faith Nyquits possédait de nombreux dons de guérison, ellee s'est énormément  investi dans ce travail tout en donnant de nombreuses conférences et en organisant des groupes d'étude spirituelle avec les gens, tant au Royaume-Uni qu'en Irlande. Malheureusement, Faith Nyquits a développé un cancer et est décédée. Une de ses amies proches a témoigné que Faith lui avait dit, lorsqu'elle était proche de la mort, qu'elle avait réalisé trop tard que son cancer était dû au fait qu'elle ne s'était pas assez bien occupée d'elle-même dans son désir d'être au service de Dieu. Un bon rappel que Dieu souhaite que nous nous aimions et que nous prenions soin de nous-mêmes et des autres, et qu'il y a des conséquences à ne pas le faire !
 

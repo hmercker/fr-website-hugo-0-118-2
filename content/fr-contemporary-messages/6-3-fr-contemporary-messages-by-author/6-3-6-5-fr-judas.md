@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Jeudas
+### Judas
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---

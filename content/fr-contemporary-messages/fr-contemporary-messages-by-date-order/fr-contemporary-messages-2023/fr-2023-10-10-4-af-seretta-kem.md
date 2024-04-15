@@ -1,0 +1,35 @@
+---
+title: "L'importance de ce que chaque individu apporte au cercle"
+menu_title: ""
+description: "L'importance de ce que chaque individu apporte au cercle"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### L'importance de ce que chaque individu apporte au cercle
+
+Seretta Kem - reçu par Albert Fike le 10 Octobre 2023, Pennsylvanie, États-Unis
+
+Oui, il y a une chimie dans la proximité de chaque individu avec l’autre individu et ce qu’il émane par rapport à ce que l’autre émane. Parfois, lorsque ces énergies sont mélangées, cela génère une énergie complètement différente. Celle-ci est souvent très bénéfique en termes de mélange de ces énergies les unes avec les autres. Ainsi, la manière dont vous vous asseyez en cercle, la manière dont vous êtes ensemble dans la prière, est importante car elle crée une condition harmonieuse. Les émanations de chaque âme se mélangeant aux autres âmes créent des résultats et des bénédictions merveilleuses qui peuvent être utilisées de différentes manières.
+
+Lorsque vous priez ensemble et que vous sentez que vous devez vous asseoir avec telle ou telle personne, c’est pour une raison. Cela aide à créer une condition, une condition spirituelle, qui est bénéfique pour vous, pour eux et pour tous les membres du cercle. Cela n’est pas toujours nécessaire, car parfois les prières sont de simples aspirations sincères envers Dieu et ont pour but et désir de recevoir le grand Amour de Dieu. Il s’agit en effet d’une vocation noble et d’un effort qui n’est pas vain.
+
+Mais lorsque vous vous réunissez dans un but précis, éventuellement pour apporter la guérison au monde, pour apporter l’élévation et le bénéfice à l’un et à l’autre au sein du cercle, alors, l’endroit où vous vous asseyez, la façon dont vous vous comportez au sein du cercle, les pensées que vous avez, ce que vous émanez à ce moment-là, votre état spirituel, jouent un grand rôle dans ce qui peut résulter de vos efforts communs Ceux-ci se situent à de nombreux niveaux différents. Car au niveau matériel, il y a une chimie, comme vous le savez bien. Au niveau spirituel, il existe une alchimie. Au niveau de l’âme, il existe une sorte d’alchimie, même si elle est très différente des deux autres.
+
+En effet, nous souhaitons que vous soyez conscient de l’âme, de ses interactions d’âme à âme, de ses interactions avec Dieu. Car c’est là que la plus grande lumière est créée, que la chimie la plus puissante s’accomplit. À mesure que vous continuez à être éveillé à la conscience de l’âme et à ses aspects, vous deviendrez alors à l’écoute de ces chimies, si je peux l’appeler ainsi, de l’âme, des interactions énergétiques entre âmes. Ce sont les interactions les plus importantes, celles qui apportent les plus grandes bénédictions. Bien que souvent vous soyez simplement conscient de la chimie spirituelle, celle de la métaphysique. Ceci est également important.
+
+Quant au matériel, être en harmonie ensemble, s’aimer, s’honorer les uns les autres, aide à éliminer les obstacles et les conditions qui pourraient causer des difficultés entre vous. À mesure que ces niveaux s’alignent et que les chimies sont en harmonie, vous êtes effectivement synchronisés les uns avec les autres. Alors de très nombreuses et belles bénédictions pourront affluer, non seulement vers vous mais à travers vous, parmi vous et dans le monde.
+
+Pensez à ces choses, mes chers et beaux amis. Qu’est-ce que vous apportez dans un cercle ? Quelles sont vos pensées en ce moment ? Quelles sont vos conditions en ce moment ? Quel est le désir qui vous habite en ce moment ? Ces choses contribuent à apporter l’alignement et l’harmonie entre vous. Soyez conscient, car la conscience est la clé. Car si vous êtes assis dans l’ignorance, votre esprit n’est pas en harmonie avec votre âme et votre esprit. Ensuite, plutôt que de contribuer beaucoup au cercle, vous recevez et bénéficiez, mais il est important que vous vous aligniez également sur ce qui est requis, ce qui est nécessaire à ce moment-là.
+
+Bien que nous ne nous attendions pas à ce que vous connaissiez tous les aspects de cet échange, de cette interconnexion de diverses âmes au sein d’un cercle, il est important que vous connaissiez en vous la condition que vous portez. Soyez conscient des pensées que vous avez. Soyez conscient de votre condition physique, de votre condition spirituelle, de votre état d’âme. De cette façon, notre espoir est que vous fassiez des efforts pour aligner ces aspects de vous-même, mais aussi avec la plus haute bénédiction et que vous vous efforciez de servir, d’être avec Dieu au service, d’être en paix ensemble et ouverts afin que tous puissent se réunir, s’épanouir ensemble dans l’harmonie et la lumière.
+
+Lorsque vous vous réunissez de cette manière, ce n’est pas une chose fortuite. Il y a toujours du travail à faire, mes frères et sœurs bien-aimés. Il y a toujours la possibilité de ce qui peut être accompli. Il y a toujours la Volonté de Dieu à l’œuvre et apportant à travers chacun de vous et collectivement un résultat qui apportera une plus grande lumière et une plus grande harmonie entre vous et dans le monde. De nombreux plans et niveaux, mes amis bien-aimés, de nombreuses choses peuvent être accomplies grâce à vos efforts et à vos prières réunies dans l’harmonie et l’amour.
+
+Alors que vous commencez ce cercle qui grandira et grandira, mettez en œuvre votre conscience et vos efforts vers la lumière, l’harmonie et l’amour. Vous serez récompensé et les autres seront récompensés. Car beaucoup ne comprennent pas ces concepts, ils ne sont pas assez mûrs pour percevoir et connaître ces choses. C’est à vous de les connaître et de les percevoir, mes frères et sœurs bien-aimés. Il s’agit pour vous de faire partie de ce grand cercle qui comporte de nombreuses parties mobiles, de nombreuses dynamiques, de nombreux aspects, de nombreuses couches. Nous pouvons vous utiliser pour aplanir les moments difficiles, pour ainsi dire, pour calmer les eaux, pour apporter plus d’harmonie et de paix, pour aider à ouvrir les nombreuses personnes qui seront parmi vous et pour être véritablement en alignement avec la Volonté de Dieu.
+
+Vous avez beaucoup de travail à faire et beaucoup de responsabilités à assumer, mais en effet, vous êtes chacun à la hauteur. Vous avez chacun des dons spéciaux. Vous donnez quelque chose d’unique à ce cercle et les uns aux autres, renforçant et produisant de puissantes bénédictions grâce à votre instrumentation, grâce à l’instrumentalité des anges et au Toucher de Dieu sur tout cela.
+
+Que Dieu vous bénisse, âmes bien-aimées, vous garde dans la lumière, vous garde en harmonie, vous garde guidé et destiné aux bénédictions et aux résultats les plus élevés. Que Dieu vous bénisse. Je suis Seretta Kem et je vous aime chacun, de belles âmes remplies de tant de potentiel. Tant de cadeaux uniques qui s’offrent avec amour, que Dieu a créé ces fleurs uniques, si belles, prêtes à éclater d’amour, de lumière et de beauté. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse tous. Mon amour est avec vous.
+

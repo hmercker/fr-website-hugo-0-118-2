@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous avons tous de puissants dons de guérison
 
-Mylora - reçu par Al Fike le 26 Août 2023, Sechelt, Colombie-Britannique, Canada.
+Mylora - reçu par Albert Fike le 26 Août 2023, Sechelt, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse mes amis, je m’appelle Mylora. Vous ne considérez pas souvent qu’une partie de votre rôle et une partie du plan en cours d’élaboration consiste à exprimer les dons de guérison qui sont inhérents à chacun de vous. Car lorsque vos frères et sœurs sont perdus mais cherchent et viennent vers vous, souvent la première chose à laquelle ils sont réceptifs est l’expression de réconfort et de guérison qui peut s’exprimer à travers vous.
 

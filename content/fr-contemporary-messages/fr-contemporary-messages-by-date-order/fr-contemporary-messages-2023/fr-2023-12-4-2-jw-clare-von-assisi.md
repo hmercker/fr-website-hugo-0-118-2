@@ -1,0 +1,26 @@
+---
+title: "Les richesses de l’Amour de Dieu"
+menu_title: ""
+description: "Les richesses de l’Amour de Dieu"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Les richesses de l’Amour de Dieu
+
+Claire d'Assise - reçu par Jimbeau Walsh le 2 Décembre 2023, Nashville, Tennesse, USA.
+
+C'est moi, Claire. Je viens dans l’Amour de Dieu pour apporter à ce cercle des choses qui, je pense, peuvent vous aider et que mon frère ici présent, qui aime les informations pratiques, souhaite servir. Je suis Claire, originaire d’Assise, et certains d’entre vous savent peut-être que j’ai fondé un ordre de religieuses inspiré par mon bien-aimé François et ses frères qui ont fait vœu de pauvreté et ont choisi de vivre dans la nature et de compter sur Dieu pour pourvoir à leurs besoins. Mes sœurs et moi avons suivi ces traces et aujourd’hui encore, nous sommes connues sous le nom de « Pauvres Claires ». Dans notre ordre, le service et la prière étaient primordiaux. Souvent, nous ne parlions pas, mais chantions ensemble, donc ce qui sortait de nos bouches louait Dieu et était saint. Nous avons travaillé ensemble pour fournir de la nourriture à tous, et nous avons souvent jeûné et j’aurais alors appelé cela « souffrance consciente », mais pas de manière cruelle, mais seulement pour amener l’âme à désirer Dieu.
+
+J’ai souvent parlé à mes sœurs de la transformation dans l’Amour de Dieu et je leur ai rappelé que ce qu’on aime, on le devient. Je vais vous donner des exemples. Si quelqu’un est épris d’une célébrité, que ce soit dans le domaine des arts, du sport ou du divertissement, cette personne devient son centre d’intérêt, les gens s’attachent à cette personnalité. Et, bien entendu, dans le domaine des activités humaines, il y a beaucoup de relations avec de nombreuses personnes, mais vous voyez où se trouve le centre d’intérêt dans l’exaltation de la célébrité et dans la prédominance des choses matérielles. C’est toujours pour moi un honneur et un plaisir de venir parler à mes aimables souris, un petit groupe qui compte sur Dieu et c’est donc un honneur pour moi de parler à vous tous, visibles et invisibles aujourd’hui.
+
+Quel est le prix de l’eau pure ? Quel est le prix d’une terre généreuse ? Quel est le prix d’un ciel dégagé ou d’un vent pur ? Ces choses qui soutiennent la vie sont inestimables dans le domaine matériel terrestre. Dans le domaine spirituel, il y a les eaux vives, les cieux Célestes, le vent de l’esprit et le fondement de la vérité sur lequel marcher. Pour vos âmes, je vous demande de vous rappeler que ces choses n’ont pas de prix et de vous rappeler que lorsque les eaux que vous buvez sont polluées, elles peuvent causer de grands dommages. Et il en va de même pour l’environnement sur terre en général. Les eaux que vous avez bues de l’Amour de Dieu, ne permettent pas qu’elles soient polluées par la haine. Invoquez Dieu lorsque la colère éclate, lorsque vous ne vous sentez pas aimé, lorsque vous êtes troublé, lorsque vous êtes malade ou en désaccord. C’est ce que nous demandons et ces choses, vous le savez, car vos âmes sont éclairées.
+
+Je tiens à vous dire que chaque fois que vous servez un autre, vous êtes récompensé. Car vous savez ce que ça fait d’offrir un cadeau, surtout celui qui vous est cher. Il est facile de donner des choses que vous possédez et auxquelles vous n’êtes pas attaché, mais de donner quelque chose qui vous est précieux, qui suscite une grande chaleur, une grande appréciation et une gratitude des deux côtés envers celui qui le reçoit et celui qui le donne. Faire le don des vérités de et dans l’Amour de Dieu ne vous coûte qu’un peu de temps avec une parole édifiante ou un chant qui touche le cœur, qui fait vibrer l’âme. Et même si vous ne pouvez pas placer l’Amour de Dieu dans l’âme d’autrui, vous pouvez sûrement toucher quelqu’un d’autre avec l’Amour de Dieu qui réside dans votre âme. N’est-ce pas merveilleux ?
+
+Enfin, je peux vous dire ceci. Vous n’êtes pas obligé de vivre dans la pauvreté matérielle. Reconnaissez cependant la pauvreté spirituelle qui existe sur terre. Prenez vos richesses, dans l’Amour de Dieu et partagez-les avec tous. Car les choses qui se trouvent à la périphérie de votre chemin ne doivent pas nécessairement avoir la préséance sur les désirs de votre âme. Ces choses qui sont nocives et je dirais délétères pour votre être physique, pour votre état mental et, surtout, pour votre vie spirituelle, évitez-les si vous le pouvez. Marchons tous ensemble dans l’Amour de Dieu, transformés sur ce chemin qui mène au Royaume Céleste où vous me rejoindrez ainsi que tant d’autres qui vous aiment profondément, qui vous honorent, qui vous soutiennent.
+
+Je remercie mon frère d’avoir porté ce message et chaque âme ici, tant sur terre qu’en esprit, de s’être jointe à nous aujourd’hui dans la célébration et dans la réception du grand don de l’Amour de Dieu. Combien je vous aime et combien Dieu vous aime, seul Dieu le sait. Partez en paix et que Dieu vous bénisse.
+
+Je suis Claire, autrefois d’Assise, aujourd’hui habitante du Royaume Céleste et disciple du Maître.

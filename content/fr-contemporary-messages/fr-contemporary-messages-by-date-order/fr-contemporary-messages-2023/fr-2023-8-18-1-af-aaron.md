@@ -9,7 +9,7 @@ weight:
 ---
 ### Commentaires sur notre discussion et nos défis avec les conditions terrestres
 
-Aaron - reçu par Al Fike le 18 Août 2023, Sechelt, Colombie-Britannique, Canada.
+Aaron - reçu par Albert Fike le 18 Août 2023, Sechelt, Colombie-Britannique, Canada.
 
 Je suis Aaron. J’ai été avec vous dans vos conversations et vos réflexions sur les complications et les difficultés de votre vie terrestre. Faire face à la condition humaine sera toujours votre défi, cela mettra toujours en avant ces dilemmes qui font partie de la vie humaine. À mon époque, mon frère Moïse et moi avions de nombreux défis à surmonter. Ces histoires sont connues encore aujourd’hui, et Moïse était celui qui était le plus sensible, même si on s’interroge sur la façon dont il est décrit dans la Bible. C’est lui qui était guidé par Dieu. C’était celui qui avait l’âme ouverte, cherchant la vérité et il était guidé. Mais qui était celui qui protégeait et gardait mon frère ? C’est moi, avec ma force et mon courage, ma clarté, ma loyauté, ces choses en moi qui m’ont donné la capacité de marcher dans le monde et de prendre les décisions et les efforts qui garantissaient la sécurité et l’intégrité de mon frère.
 

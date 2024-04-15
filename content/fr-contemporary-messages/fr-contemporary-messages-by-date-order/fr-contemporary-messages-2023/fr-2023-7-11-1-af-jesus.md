@@ -9,7 +9,7 @@ weight:
 ---
 ### Le but et le pouvoir du rassemblement de Laurelville
 
-Jésus - reçu par Al Fike le 11 Juillet 2023, Sechelt, Colombie-Britannique, Canada.
+Jésus - reçu par Albert Fike le 11 Juillet 2023, Sechelt, Colombie-Britannique, Canada.
 
 Dieu vous rassemble, âmes bien-aimées. Je suis Jésus. Je viens vous assurer et vous encourager dans vos efforts ensemble. En effet, Dieu vous bénira tous puissamment si vous vous réunissez de cette manière. L’intention de Dieu est que vous forgiez et renforciez tous vos liens ensemble, que vous vous sentiez unifiés et que vous commenciez à vous faire confiance, tous ceux qui ont lutté et fait leur chemin sur le chemin de l’Amour Divin.
 

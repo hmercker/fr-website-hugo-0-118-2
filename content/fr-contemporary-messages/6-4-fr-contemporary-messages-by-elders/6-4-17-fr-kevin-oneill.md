@@ -9,7 +9,7 @@ weight:
 ---
 ### Messages de Kevin O'Neill
 
-![](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders-old/fr-kevin-oneill.jpg)
+![](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/fr-kevin-oneill.jpg)
 
 Kevin fut un membre actif du Mouvement de l'Amour Divin et a supervisé pendant un temps la rédaction et le tri des nombreux messages reçus de divers médiums. Quelques heures après sa mort, Kevin a rendu visite aux divers médiums de l'Amour Divin et a laissé à chacun d'eux de précieux messages spirituels. Kevin a joué un rôle très important dans le mouvement de l'Amour Divin - il était familier non seulement avec tous les messages de James Padgett et Judas, mais aussi avec tous les messages actuels que les médiums du mouvement de l'Amour Divin ont reçu au cours de la dernière décennie. 
 
