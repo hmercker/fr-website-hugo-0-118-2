@@ -34,7 +34,7 @@ Auteur | Date du décès
 [Kevin O'Neill](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-17-fr-kevin-oneill/) | 15 Septembre 2023
 [Leslie Stone](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-18-fr-leslie-stone/) | 15 Janvier 1967
 [Lorna Scott](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-19-fr-lorna-scott/)  | 19 Octobre 2016
-[Percy Hayes](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-20-fr-percy-and-phyllis-hayes/)  | 2017
+[Percy et Phyllis Hayes](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-20-fr-percy-and-phyllis-hayes/)  | 2017
 [Vicky Forest](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-21-fr-vicky-forest/) | 24 Septembre 2018
 [Victor Summers](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders-old/6-4-22-fr-victor-summers/) | 2011
 
