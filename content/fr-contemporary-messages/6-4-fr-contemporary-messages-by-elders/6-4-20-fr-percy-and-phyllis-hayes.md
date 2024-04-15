@@ -1,13 +1,13 @@
 ---
-title: "Messages de Percy et de Phyllys Hayes"
+title: "Messages de Percy et de Phyllis Hayes"
 menu_title: ""
-description: "Messages de Percy et de Phyllys Hayes"
+description: "Messages de Percy et de Phyllis Hayes"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### Messages de Percy et de Phyllys Hayes
+### Messages de Percy et de Phyllis Hayes
 
 ![](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/fr-percy-and-phyllis-hayes.jpg)
 
