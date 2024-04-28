@@ -1,13 +1,13 @@
 ---
-title: "Tendez la main dans l’amour de Dieu"
+title: "Tendez la main dans l’Amour de Dieu"
 menu_title: ""
-description: "Tendez la main dans l’amour de Dieu"
+description: "Tendez la main dans l’Amour de Dieu"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### Tendez la main dans l’amour de Dieu 
+### Tendez la main dans l’Amour de Dieu 
 
 Orion - reçu par Albert Fike le 22 Août 2023, Sechelt, Colombie-Britannique, Canada.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### L'Amour de Dieu conduit à la  transformation
 
-Care Darby Walsh - reçu par Jimbeau Walsh le 5 Février 2024, Nashville, Tennesse, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 12 Février 2024, Nashville, Tennesse, USA.
 
 Beaucoup a été dit au sujet des changements terrestres à venir, sur les événements qui se produisent sur la terre et qui sont si inharmonieux et cela a généré une certaine peur dans le champ vibratoire. Bien sûr, la peur peut motiver quelqu’un. Si une tempête arrive, vous pouvez fermer les écoutilles. Vous pouvez chercher un abri. Et souvent, nous guidons ceux qui se trouvent dans des situations très précaires, de violence, de famine, de tempêtes de toutes sortes, vers des lieux sûrs chaque fois que nous le pouvons. Mais il est temps d’écouter les voix de l’espoir, car même si la peur peut être un grand facteur de motivation, seul l’amour peut inspirer.
 

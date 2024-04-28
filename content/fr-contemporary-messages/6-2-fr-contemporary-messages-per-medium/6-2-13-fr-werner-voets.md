@@ -41,4 +41,4 @@ St Jean | [Fonctionnement de la loi de Compensation](/fr-contemporary-messages/f
 St Jean | [La différence entre l’ego et l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-6-25-1-wv-st-john/) | 25 Juin 2016
 John | [Le pouvoir de l'ego peut subvertir le processus de croissance de l'âme dans l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-2-2-wv-john/) | 2 Octobre 2017
 
-## [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)
+# [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

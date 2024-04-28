@@ -1,13 +1,13 @@
 ---
-title: "Laissez l’amour de Dieu imprégner votre journée, illuminez votre nuit !"
+title: "Laissez l’Amour de Dieu imprégner votre journée, illuminez votre nuit !"
 menu_title: ""
-description: "Laissez l’amour de Dieu imprégner votre journée, illuminez votre nuit !"
+description: "Laissez l’Amour de Dieu imprégner votre journée, illuminez votre nuit !"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### Laissez l’amour de Dieu imprégner votre journée, illuminez votre nuit !
+### Laissez l’Amour de Dieu imprégner votre journée, illuminez votre nuit !
 
 Judas - reçu par Jimbeau Walsh le 9 Octobre 2023, Nashville, TN, USA.
 

@@ -41,4 +41,6 @@ Jacques | [L’humanité néglige souvent de construire une base spirituelle sol
 Jacques | [Connaissez votre but](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-2-2-af-james/) | 2 Mars 2021
 Jacques | [Votre voyage vers les Cieux Célestes est raccourci par la prière pour l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-18-1-af-james/) | 18 Juin 2021
 Jacques | [Le seul moyen d’obtenir la lumière et la protection est de s’aligner avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-16-1-af-james/) | 16 Juillet 2021
+Jacques | [Soyez fidèle à vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-2-1-af-james/) | 2 Février 2023
+Jacques | [La lumière de vos âmes enflamme de nombreuses âmes sur cette île ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-12-4-em-james/) | 12 Janvier 2024
 Jacques | [Vous devez comprendre le pouvoir de votre libre arbitre ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-20-1-af-james/) | 20 Février 2024

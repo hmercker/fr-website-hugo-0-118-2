@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Goutte à goutte, l’amour de Dieu touche les âmes de l’humanité
+### Goutte à goutte, l’Amour de Dieu touche les âmes de l’humanité
 
 Orion - reçu par Albert Fike le 14 Janvier 2024, La Barbade.
 

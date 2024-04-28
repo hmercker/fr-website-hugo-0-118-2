@@ -11,7 +11,7 @@ weight:
 
 Seretta Kem - reçu par Albert Fike le 28 Juin 2023, Sechelt, Colombie-Britannique, Canada.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/spirituel11.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/spiritualite-11.jpg)
 
 Je m’appelle Seretta Kem<sup id="a1">[1](#f1)</sup>. Nous sommes arrivés à mi-chemin de notre voyage ensemble dans ce Cercle de Lumière. Nous avons bien progressé. Nous espérons de grands changements de conscience en chacun de vous. En effet, vous vous en approchez. Certains d’entre vous ont effectivement franchi ce seuil. Et même si vous avez franchi ce seuil, vous ne vous en êtes pas encore rendu compte. En effet, la conscience de ces changements et changements en vous deviendra apparente. Vous vous retrouverez à percevoir le monde différemment, à percevoir votre vie différemment. Pourtant, à mesure que ces changements de conscience se produisent, il arrive un moment où vous accepterez ou rejetterez cette nouvelle compréhension, cette nouvelle perception du monde et de vous-même en son sein.
 

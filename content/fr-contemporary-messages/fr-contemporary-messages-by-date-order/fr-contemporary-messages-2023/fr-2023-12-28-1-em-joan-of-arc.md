@@ -9,7 +9,7 @@ weight:
 ---
 ### Comme Dieu le veut, ainsi cela sera 
 
-Jeanne d'Arc - reçu par Elizabeth Mack le 22 Octobre 2023, Liverpool, New York, USA.
+Jeanne d'Arc - reçu par Elizabeth Mack le 28 Décembre 2023, Liverpool, New York, USA.
 
 Je suis là, Jeanne, Jeanne d’Arc. Oui, tu m’entends bien. Je viens avec les bénédictions du Père. Vous demandez et vous recevrez et vous demandez à vos âmes cet amour et vos désirs, ils grandissent en vous et Dieu sait ce qu’ils sont. Dieu prépare le chemin pour qu’ils soient exaucés, et se réalisent lorsqu’ils sont en harmonie avec Son plan pour le salut de l’humanité. Le timing sur votre planète est important. Ayez confiance que vous recevrez les choses que vous désirez le plus et qui sont en harmonie avec la Volonté de Dieu. Ayez confiance que ce que vous recherchez est en harmonie avec la Volonté de Dieu. Et surtout, faites confiance à votre Père Céleste et à ceux qui le servent pour vous apporter les choses que vous désirez et qui sont en harmonie avec la Volonté de Dieu.
 

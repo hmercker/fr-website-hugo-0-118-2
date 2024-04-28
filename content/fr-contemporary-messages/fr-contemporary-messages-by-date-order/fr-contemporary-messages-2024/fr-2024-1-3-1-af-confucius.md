@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous avons le plein soutien de Dieu
 
-Confucius- reçu par Al Fike le 3 Janvier 2024, République Dominicaine.
+Confucius- reçu par Al Fike le 3 Janvier 2024, Liverpool, New York.
 
 Oh, âmes précieuses, précieuses, je suis Confucius. En effet, nous veillons sur vous, âmes bien-aimées. Combien peu de personnes sur cette Terre recherchent la vérité comme vous le faites et sont dévouées comme vous. Nous vous gardons parce que vous êtes vraiment précieux. En effet, l’Amour de Dieu pour vous coule facilement et magnifiquement sur vous et en vous.
 

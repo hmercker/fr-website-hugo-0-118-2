@@ -98,3 +98,4 @@ Professeur Salyards | [Met l'accent sur l'appel à la retraite de Laurelville](/
 Professeur Salyards | [L'harmonie prévaudra à la retraite de Laurelville](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-20-1-af-professor-salyards/) | 20 Juillet 2023
 Professeur Salyards | [Défaire le nœud gordien ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-15-2-af-professor-salyards/) | 15 Août 2023
 Professeur Salyards | [Conseils pour le comité de planification de Laurelville ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-30-1-af-prof-salyards/) | 30 Août 2023
+Professeur Salyards | [Attendez-vous à l'inattendu ! ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-16-1-af-professor-salyards/) | 16 Novembre 2023

@@ -72,3 +72,4 @@ St Jean | [Répandre l’amour par tous les moyens disponibles](/fr-contemporary
 St Jean | [L’Amour Divin est le rocher de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-4-1-af-st-john/) | 4 Juillet 2021
 St Jean | [Le temps de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-21-1-jw-st-john/) | 21 Novembre 2021
 St Jean | [Dieu murmure à nos âmes pour qu’il puisse travailler à travers nous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-24-1-af-john/) | 24 Mai 2022
+St Jean | [Âmes en transition](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-28-1-jw-st-john/) | 28 Août 2023

@@ -11,7 +11,7 @@ weight:
 
 Marthe - reçu par Albert Fike le 18 Août 2023, Sechelt, Colombie-Britannique, Canada.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/spiritualit-36.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/spiritualite-36.jpg)
 
 Que Dieu soit avec vous et vous bénisse, âmes bien-aimées. Je suis Marthe, Marthe de la Bible. Vous avez demandé que l’un d’entre nous qui vivait sur le plan terrestre à l’époque de Jésus et qui le soutenait vienne parler. En effet, j’étais une femme qui avait une vie humble et pourtant mon cœur était plein d’amour, de gentillesse et de générosité. C’est ma nature. Dieu m’a utilisé de nombreuses manières pour aider à bénir ceux qui commençaient à formuler les grands efforts de Dieu pour apporter la vérité de l’Amour de Dieu au monde.
 

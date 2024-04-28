@@ -1,13 +1,13 @@
 ---
-title: "la chaîne  de l'Amour"
+title: "La chaîne  de l'Amour"
 menu_title: ""
-description: "la chaîne  de l'Amour"
+description: "La chaîne  de l'Amour"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### la chaîne  de l'Amour
+### La chaîne  de l'Amour
 
 Kea Atta Kem - reçu par Albert Fike le 12 Septembre 2023, Sechelt, Colombie-Britannique, Canada.
 

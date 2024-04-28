@@ -48,4 +48,9 @@ Flavius Josèphe | [Les couches de conscience dans l’âme, le mental et le mat
 Flavius Josèphe | [Avertissement et réassurance pour des changements terrestres de plus en plus intenses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-29-1-af-josephus/) | 29 Mars 2022
 Flavius Josèphe | [Apporte une plus grande comprehension de qui nous sommes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-6-1-af-josephus/) | 6 Janvier 2023
 Flavius Josèphe | [Connaître son âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-21-2-af-josephus/) | 21 Avril 2023
+Flavius Josèphe | [Dieu nous utilise pour renforcer le réseau de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-27-1-af-josephus/) | 27 Août 2023
+Flavius Josèphe | [Le pouvoir de votre volonté ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-13-3-af-josephus/) | 13 Octobre 2023
+Flavius Josèphe | [Aller au-delà de la conscience mentale et spirituelle jusqu'à l'âme ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-29-1-af-josephus/) | 29 Octobre 2023
+Flavius Josèphe | [Des vêtements sont tissés pour chacun de nous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-10-1-af-josephus/) | 10 Novembre 2023
+Flavius Josèphe | [Répond à la question de Geoff Cutler](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-19-1-af-josephus/) | 19 Mars 2024
 

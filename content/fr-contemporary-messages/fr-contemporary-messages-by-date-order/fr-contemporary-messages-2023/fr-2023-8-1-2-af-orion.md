@@ -1,13 +1,13 @@
 ---
-title: "Vivre dans la joie de l’amour de Dieu"
+title: "Vivre dans la joie de l’Amour de Dieu"
 menu_title: ""
-description: "Vivre dans la joie de l’amour de Dieu"
+description: "Vivre dans la joie de l’Amour de Dieu"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### Vivre dans la joie de l’amour de Dieu 
+### Vivre dans la joie de l’Amour de Dieu 
 
 Orion - reçu par Albert Fike le  1<sup>er</sup>Août 2023, Sechelt, Colombie-Britannique, Canada.
 

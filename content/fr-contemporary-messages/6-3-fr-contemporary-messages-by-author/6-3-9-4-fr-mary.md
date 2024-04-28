@@ -125,7 +125,9 @@ Marie | [Nous sommes la lumière et nous brillerons ](/fr-contemporary-messages/
 Marie | [Partagez cette expérience avec vos frères et sœurs terrestres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-10-1-em-mary/) | 10 Décembre 2023
 Marie | [Mon amour pour chacun de vous est grand](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-6-2-af-mary/) | 6 Janvier 2024
 Marie | [La transformation apportée par la grâce de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-10-1-af-mary/) | 10 Janvier 2024
+Marie | [Une expérience de communion avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-18-2-em-mary/) | 18 Janvier 2024
 Marie | [Le grand consolateur de l’Amour de Dieu est sur nous tous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-23-1-af-mary/) | 23 Février 2024
+Marie | [Un don de guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-7-1-em-mary/) | 7 Mars 2024
 Marie & White Eagle | [Le miracle de Fatima et l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-9-19-2-ar-mary-white-eagle/) | 19 Septembre 1999
 Marie & David | [Faire face à la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-3-19-2-ar-mary-david/) | 19 Mars 2000
 Marie & Jean | [Sur le manque d’amour de soi de M___](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-12-1-ar-mary-john/) | 12 Novembre 1999

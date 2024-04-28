@@ -22,7 +22,7 @@ Yogananda | [Vous pouvez effectivement dissiper l'obscurité](/fr-contemporary-m
 Seretta Kem | [Il vous sera donné de dont vous aurez besoin pour servir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-7-3-af-seretta-kem/) | 7 Janvier 2020
 Jésus | [L’amour doit devenir la monnaie de l’humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-12-1-af-jesus/) | 12 Janvier 2020
 Seretta Kem | [Vous devez vous concentrer sur la Prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-12-2-af-seretta-kem/) | 12 Janvier 2020
-Kea Atta Kem | [Soyez attentifs à la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-12-3-af-kea-atta-kem/) | 12 Janvier 2020
+Keea Atta Kem | [Soyez attentifs à la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-12-3-af-keea-atta-kem/) | 12 Janvier 2020
 Augustin | [Être en harmonie est de la plus haute importance pour être un instrument de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-13-1-af-augustine/) | 13 Janvier 2020
 Yogananda | [Différences et similitudes entre la méditation et la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-14-1-jw-yogananda/) | 14 Janvier 2020
 St Matthieu | [Le pouvoir de la prière et du libre arbitre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-16-1-af-st-matthew/) | 16 Janvier 2020

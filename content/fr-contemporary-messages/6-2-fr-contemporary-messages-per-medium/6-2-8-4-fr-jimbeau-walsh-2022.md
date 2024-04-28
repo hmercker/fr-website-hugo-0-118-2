@@ -86,6 +86,6 @@ St François d'Assise | [Dons de l'âme](/fr-contemporary-messages/fr-contempora
 Care Darby Walsh | [La connexion divine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-19-1-jw-care-derby-walsh/) | 19 Décembre 2022
 Elizabeth Barret Browning | [Comment Dieu vous aime t-il ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-31-2-jw-elizabeth-barret-browning/) | 31 Décembre 2022
 
-## [Lien vers les messages contemporains reçus par Jimbeau walsh au cours de l’année 2023](/fr-contemporary-messages\6-2-fr-contemporary-messages-per-medium/6-2-8-5-fr-jimbeau-walsh-2023/)
+# [Lien vers les messages contemporains reçus par Jimbeau walsh au cours de l’année 2023](/fr-contemporary-messages\6-2-fr-contemporary-messages-per-medium/6-2-8-5-fr-jimbeau-walsh-2023/)
 
-## [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)
+# [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

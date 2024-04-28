@@ -1,15 +1,15 @@
 ---
-title: ""
+title: "Qu'est-ce qui vous attend dans le monde des esprits !"
 menu_title: ""
-description: ""
+description: "Qu'est-ce qui vous attend dans le monde des esprits !"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### 
+### Qu'est-ce qui vous attend dans le monde des esprits !
 
-Care Darby Walsh - reçu par Jimbeau Walsh le 26 Septembre 2023, Nashville, TN, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 26 Septembe 2023, Nashville, TN, USA.
 
 Mes très chers, vous êtes une église existant dans une réalité à la fois sur le plan terrestre et au-dessus. Vous appelleriez cela une réalité virtuelle mais en réalité cela a de la substance et c’est une réalité spirituelle et vous quatre êtes les piliers de ce beau lieu de prière, lieu d’apprentissage. C’est une chose merveilleuse de venir et d’être avec vous et les nombreux participants. Cela me réconforte également que vous ayez emprunté tous ces chemins avec beaucoup d’enthousiasme pour accroître votre compréhension du voyage qui vous attend en esprit mais aussi c’est notre souhait ici que ces idées, ces révélations vous apportent la paix dans l’assurance que l’avenir est non seulement réel, mais si béni, si plein de lumière, si plein d’amour. Lorsque vous traverserez la frontière, vous ne souhaiterez pas une seule seconde revenir, sauf dans les cas où vous souhaitez influencer un être cher sur la Terre.
 

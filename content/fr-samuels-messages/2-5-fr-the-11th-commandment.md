@@ -9,7 +9,7 @@ weight: 128
 ---
 ## Le 11ème commandement
 
-Dans Jean 14-1, Jésus s’est exprimé ainsi :
+Dans Jean 14-15, Jésus s’est exprimé ainsi :
 
 *« Si vous m’aimez, vous garderez mes commandements. »*
 

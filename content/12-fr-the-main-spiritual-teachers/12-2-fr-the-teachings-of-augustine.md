@@ -316,3 +316,7 @@ Augustin | [L'orientation continue](/fr-contemporary-messages/fr-contemporary-me
 Augustin | [Message puissant pour vivre la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-10-2-af-augustine/) | 10 Janvier 2024
 Augustín | [Se préparer aux changements terrestres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-18-1-af-augustin/) | 18 Janvier 2024
 Augustin | [Faites toujours face à la lumière de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-9-2-af-augustine/) | 9 Février 2024
+Augustin | [Conseils pour chaque participant à la retraite de la médiumnité d’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-14-2-af-augustine/) | 14 Février 2024
+Augustin | [Importance de partager la vérité de l’Amour de Dieu avec le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-2-1-af-augustine/) | 2 Mars 2024
+Augustin | [Atteindre la conscience de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-12-1-af-augustine/) | 12 Mars 2024
+

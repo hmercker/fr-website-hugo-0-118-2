@@ -9,7 +9,7 @@ weight:
 ---
 ### Messages de Kathryn Stokes
 
-Kathryn Stokes était un membre ancien du groupe de l'Amour Divin et l'épouse de George Stokes.
+Kathryn Stokes est décédée accidentellement le 2 Décembre 2017 à Santa Cruz, en Californie, à l'âge de  82 ans. Kathryn était travailleuse, directe, altruiste, une architecte et une ingénieure talentueuse et une gardienne aimante. Chaque jour, elle portait des fleurs dans ses cheveux et tenait un blog avant que cela ne devienne populaire. Elle était infatigable dans ses efforts pour promouvoir la paix et la bonne volonté parmi les gens, envoyant souvent des lettres à des organisations influentes pour développer une prise de conscience de notre responsabilité de nous aimer nous-mêmes et les uns les autres. Kathryn a rejoint la communauté de l'Amour Divin au début des années 1970. Elle était l'épouse de George Stokes.
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---

@@ -112,10 +112,12 @@ Moïse | [Vient nous soutenir et éclairer notre chemin](/fr-contemporary-messag
 Moïse | [Surmonter les exigences du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-2-1-af-moses/) | 2 Avril 2023
 Moïse | [Tout est possible en amour ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-13-5-af-moses/) | 13 Octobre 2023
 Moïse | [Votre responsabilité d’indiquer le chemin vers Dieu pour les autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-4-2-af-moses/) | 4 Février 2024
+Moïse | [La loi de l'Amour Divin ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-21-1-em-moses/) | 21 Mars 2024
 Noé | [Noé et le déluge](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-2-1-fab-noah/) | 2 Février 2003
 Noé | [L'histoire du déluge](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-10-1-fab-noah/) | 10 Février 2009
 Noé | [Stop à l'obscurité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-17-1-af-noah/) | 17 Novembre 2017
 Noé | [A propos du déluge](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-29-1-jw-noah/) | 29 Décembre 2020
+Noé & Care Derby Walsh | [L’acte de foi et la création de sanctuaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-23-1-jw-noah-care-derby-walsh/) | 23 Octobre 2023
 Salomon | [Laissez les esprits de votre âme prendre le dessus (Salomon de l'Ancien Testament)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-36-1969-11-20-anonymous-solomon/) | 20 Novembre 1969
 Salomon | [L'Amour de Dieu a un pouvoir illimité - Shalom - Solomon](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-175-1969-anonymous-solomon/) |   1969
 Salomon | [Bouclez votre ceinture.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-6-30-2-cc-solomon/) | 30 Juin 2003
@@ -144,5 +146,6 @@ Samuel | [Les changements à venir et nos familles](/fr-contemporary-messages/fr
 Samuel | [Deux parcours spirituels distincts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-18-1-af-samuel/) | 18 Avril 2023
 Samuel | [Que Dieu vous enlève les écailles des yeux ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-15-3-af-samuel/) | 15 Août 2023
 Samuel | [Le temps presse ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-30-2-af-samuel/) | 30 Novembre 2023
+Samiel et Joie | [Vous êtes nécessaires à la transformation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-8-2-em-samuel-and-joy/) | 8 Janvier 2024
 Sarah | [La naissance d'Isaac](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-12-1-fab-sarah/) | 12 Octobre 2008
 Saul | [Sur l'élévation des vibrations](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-39-1969-12-3-anonymous-saul/) | 3 Décembre 1969

@@ -11,4 +11,3 @@ weight:
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-Thomas l’Apôtre | [L'âme touchée par Dieu est la vraie preuve](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-25-1-jw-thomas-the-apostle/) | 25 Juillet 2022

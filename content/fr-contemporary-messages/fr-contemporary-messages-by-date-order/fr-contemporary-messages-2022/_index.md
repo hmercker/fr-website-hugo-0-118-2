@@ -64,7 +64,7 @@ Anna (Grand mère de Jésus) | [Bénédiction d’une rose](/fr-contemporary-mes
 Claire d'Assise | [Tendre la main au Monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-6-1-jw-clare-of-assisi/) | 6 Mars 2022
 Yogananda | [Progression spirituelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-6-2-jw-yogananda/) | 6 Mars 2022
 Rumi | [Laissez votre cœur prendre son envol](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-7-1-jw-rumi/) | 7 Mars 2022
-Kea Atta Kem | [Nos pensées sont très puissantes et manifestes dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-8-1-af-kea-atta-kem/) | 8 Mars 2022
+Keea Atta Kem | [Nos pensées sont très puissantes et manifestes dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-8-1-af-keea-atta-kem/) | 8 Mars 2022
 Jésus | [Bénédiction puissante et réassurance pour la tournée d'éveil de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-10-1-af-jesus/) | 10 Mars 2022
 St Luc | [La vie spirituelle est un combat](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-10-2-jw-st-luke/) | 10 Mars 2022
 Augustin | [Il est temps de mettre en pratique tout ce que nous avons appris](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-11-2-af-augustine/) | 11 Mars 2022

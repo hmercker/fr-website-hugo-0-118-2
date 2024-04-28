@@ -25,17 +25,18 @@ Bien entendu une grande partie des messagers furent et sont encore des disciples
 </br>
 [Marie Madeleine](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-6-7-fr-mary-magdalene/)
 </br>
-[Philippe](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-6-8-fr-philip/)
+[St Jean](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-6-8-fr-st-john/)
 </br>
-[St Jean](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-6-9-fr-st-john/)
+[St Luc](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-6-9-fr-st-luke/)
 </br>
-[St Luc](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-6-10-fr-st-luke/)
+[St Matthieu](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-6-10-fr-st-matthew/)
 </br>
-[St Matthieu](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-6-11-fr-st-matthew/)
+[St Paul](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-6-11-fr-st-paul/)
 </br>
-[St Paul](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-6-12-fr-st-paul/)
+[St Pierre](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-6-12-fr-st-peter/)
 </br>
-[St Pierre](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-6-13-fr-st-peter/)
+[Thomas l’Apôtre](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-6-13-fr-st-thomas/)
 </br>
-[Thomas l’Apôtre](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-6-14-fr-st-thomas/)
+[Autres](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-6-14-fr-autres/)
+</br>
 
