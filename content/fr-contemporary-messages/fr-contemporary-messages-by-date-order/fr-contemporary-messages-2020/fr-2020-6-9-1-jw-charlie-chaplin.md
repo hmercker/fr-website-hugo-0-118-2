@@ -1,13 +1,13 @@
 ---
-title: "Le voleur de cœurs "
+title: "Le voleur de cœur"
 menu_title: ""
-description: "Le voleur de cœurs "
+description: "Le voleur de cœur"
 date: 2022-06-01 06:00:01+00:1130
 draft: False
 hidden: True
 weight:
 ---
-### Le voleur de cœurs
+### Le voleur de cœur
 
 Charlie Chaplin - reçu par Jimbeau Walsh le 9 Juin 2020, Punalu’u, Oahu, Hawaii, USA.
 

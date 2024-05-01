@@ -9,6 +9,14 @@ weight:
 ---
 ### Jacques
 
+![title](/3-fr-judas-of-kerioth-messages\fr-jakobus_small.jpg)
+
+Sous ce même prénom, sont regroupés les messages de Jacques, le frère de Jésus, souvent nommé "Jacques le mineur" et de Jacques, le frère de Jean, fils de Zébédée, souvent appelé "Jacques le Majeur". 
+
+**Jacques, dit Jacques le mineur, est parfois appelé Jacques fils d'Alphée** dans la mesure où les théologiens ou les spécialistes des écritures religieuses n'ont jamais accepté l'idée  que Jacques dit le mineur, pouvait être le frère biologique de Jésus. Dans le message que Judas a communiqué le [4 Mars 2002](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-4-1-hr-judas/), Judas explique que Jésus est revenu visiter sa famille et précher dans les rues de Nazareth, ville où s'étaient installés Joseph et Marie à leur retour d'Égypte. Il fut très mal accueilli par la population et sa famille n'a pas vraiment pris sa défense. Néanmoins, au moment de son départ, deux de ses deux frères, Jacques et Simon, se sont joints à Jésus. Jacques, fils  d'Alphée,  était surnommé “le juste” de part la grande intégrité de sa vie. Ssaint Paul parlait de lui comme d’une “colonne” de l’Église de Jérusalem. [Source](https://hozana.org/saints/saint-jacques-le-mineur).
+
+**Jacques, fils de Zébédée, fut avec André, Jean et Pierre l'un des quatre premiers disciples de Jésus.** Dans le message qu'il a communiqué le [15 Février 2002](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-15-1-hr-judas/.md), Judas explique que Jean et Jacques s'étaient rapprochés de l’idéologie des Zélotes dont le but était l’expulsion des Romains de Palestine et le rétablissement d’une théocratie parmi les Juifs. Cette position était conforme avec la pensée Juive de l'époque qui défendait l'idée selon laquelle la mission du messsie était d'établir un royaume physique. Bien entendu Jésus a apporté une toute autre vision et compréhension de la mission du messsie qui prône l'établissement premier d'un royaume spirituel par la transformation intérieure de chaque personne. Selon la tradition, jacques le majeur aurait évangélisé l'Espagne au prix d'énormes difficultés mentionnées dans un article [du pélerin](https://www.lepelerin.com/chemins-pelerinages/chemin-de-saint-jacques-de-compostelle-4100/qui-est-saint-jacques-le-majeur-4460).
+
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Jacques | [Instructions sur la voix directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-15-1969-anonymous-james/) |   1969

@@ -17,6 +17,6 @@ Vous qui pouvez trouver un sanctuaire dans ces cercles de prière et souvent dan
 
 Ne vous laissez donc pas troubler par les murs qui ont été construits, par les règles et les règlements qui existent dans le monde, car vous avez la clé qui ouvre la porte du grand Amour de Dieu et c’est la clé du bonheur, du vrai bonheur. Je vous dis que j’en ai fait l’expérience alors que j’étais encore sur terre en priant constamment, de sorte que j’ai commencé à sentir mon être entier rempli de l’essence de Dieu. Cela m’a rendu très humble et m’a apporté en même temps une grande joie que j’ai pu partager avec ma famille, avec mes amis et avec le monde. Que cette joie soit la vôtre en abondance. Restez calme, ouvrez votre cœur. Envoyez vos désirs à Dieu et permettez à cet amour, à cette lumière, d’entrer dans vos âmes à tout moment. C’est à vous de le demander. Je remercie mon bien-aimé d’avoir accepté ce message et de m’avoir permis de m’exprimer. C’est ma grande joie d’être utile et je vous envoie tout mon amour et mon souhait que l’Amour de Dieu soit dans chacune de vos âmes pour toujours. Je suis à vous. Je suis Care.
 
-## [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
+### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

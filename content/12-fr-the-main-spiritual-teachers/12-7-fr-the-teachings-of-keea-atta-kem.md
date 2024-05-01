@@ -12,10 +12,10 @@ weight: 730
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Keea Atta Kem & Augustin | [Prévoyez la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-123-1969-anonymous-keea-atta-kem-augustine/) |   1969
-Keea Atta Kem & Goldie | [Conseils concernant vos guides](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-7-16-2-af-keea-atta-kem-goldie/) | 16 Juillet 2017
 Keea Atta Kem | [Contrôle de l'instrument](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-57-1969-anonymous-keea-atta-kem/) |   1969
 Keea Atta Kem | [Faites en sorte que vos âmes soient dignes de recevoir, puis priez et demandez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-132-1969-anonymous-keea-atta-kem/) |   1969
 Keea Atta Kem | [Leçon sur la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-82-1969-anonymous-keea-atta-kem/) |   1969
+Keea Atta Kem & Goldie | [Conseils concernant vos guides](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-7-16-2-af-keea-atta-kem-goldie/) | 16 Juillet 2017
 Keea Atta Kem | [Sentir l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-5-2-af-keea-atta-kem/) | 5 Février 2019
 Keea Atta Kem | [Demandez au Père d'ouvrir vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-4-1969-2-14-anonymous-keea-atta-kem/) | 14 Février 1969
 Keea Atta Kem | [Les lois de Dieu sont universelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-16-1969-7-24-anonymous-keea-atta-kem/) | 24 Juillet 1969
@@ -58,7 +58,7 @@ Keea Atta Kem | [Communiquez d'âme à âme](/fr-contemporary-messages/fr-contem
 Keea Atta Kem | [Compassion pour soi et pour les autres pendant l'éveil de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-11-4-mc-keea-atta-kem/) | 11 Octobre 2018
 Keea Atta Kem | [Keea-atta Kem se présente - Cercle de prière en ligne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-21-2-af-keea-atta-kem/) | 21 Octobre 2018
 Keea Atta Kem | [Intégrer les éveils de l'âme au corps et à l'esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-24-2-mc-keea-atta-kem/) | 24 Octobre 2018
-Keea Atta Kem | [L'éveil de l'âme par l'amour de Dieu est la clé de tous les dons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-26-6-af-keea-atta-kem/) | 26 Octobre 2018
+Keea Atta Kem | [L'éveil de l'âme par l'Amour de Dieu est la clé de tous les dons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-26-6-af-keea-atta-kem/) | 26 Octobre 2018
 Keea Atta Kem | [L'Amour de Dieu nourrira votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-4-3-af-keea-atta-kem/) | 4 Novembre 2018
 Keea Atta Kem | [Votre relation la plus profonde est avec votre Créateur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-4-4-mc-keea-atta-kem/) | 4 Novembre 2018
 Keea Atta Kem | [Le don d’un mental discipliné](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-12-2-2-mc-keea-atta-kem/) | 2 Décembre 2018
@@ -102,10 +102,10 @@ Keea Atta Kem | [La vérité viendra de manière unique à chaque âme](/fr-cont
 Keea Atta Kem | [Ayez de la compassion pour vous-mêmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-22-1-af-keea-atta-kem/) | 22 Octobre 2022
 Keea Atta Kem | [Préparatifs de nos rassemblements de prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-11-1-af-keea-atta-kem/) | 11 Janvier 2023
 Keea Atta Kem | [Heureux d'être à nouveau réunis avec le groupe du Cercle des 7](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-13-1-af-keea-atta-kem/) | 13 Mars 2023
-Keea Atta Kem | [Vous êtes les rares privilégiés au monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-5-23-1-af-kea-atta-kem/) | 23 Mai 2023
+Keea Atta Kem | [Vous êtes les rares privilégiés au monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-5-23-1-af-keea-atta-kem/) | 23 Mai 2023
 Keea Atta Kem | [la chaîne  de l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-9-12-2-af-keea-atta-kem/) | 12 Septembre 2023
 Keea Atta Kem | [ RÉJOUISSEZ-VOUS du dessein de Dieu ! ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-10-3-af-keea-atta-kem/) | 10 Octobre 2023
-Kea Atta Kem | [Affirme que le portail est ouvert ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-11-4-af-kea-atta-kem/) | 11 Octobre 2023
-Kea Atta Kem | [Nous sommes avec vous dans l'amour et la joie ! ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-24-1-af-keea-atta-kem/) | 24 Octobre 2023
-Kea ata Kem | [Avec les bénédictions de Jésus. Encourage les expressions de nos âmes ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-10-2-af-keea-ata-kem/) | 10 Décembre 2023
-Kea Atta Kem | [L'harmonisation de vos prières crée une grande lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-11-1-af-keea-atta-kem/) | 11 Février 2024
+Keea Atta Kem | [Affirme que le portail est ouvert ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-11-4-af-keea-atta-kem/) | 11 Octobre 2023
+Keea Atta Kem | [Nous sommes avec vous dans l'amour et la joie ! ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-24-1-af-keea-atta-kem/) | 24 Octobre 2023
+Keea ata Kem | [Avec les bénédictions de Jésus. Encourage les expressions de nos âmes ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-10-2-af-keea-ata-kem/) | 10 Décembre 2023
+Keea Atta Kem | [L'harmonisation de vos prières crée une grande lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-11-1-af-keea-atta-kem/) | 11 Février 2024

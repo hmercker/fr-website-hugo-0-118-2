@@ -9,6 +9,8 @@ weight:
 ---
 ### Marie
 
+Marie, mère de Jésus, est très considérée dans l'Eglise Catholique où elle est particulièrmnt vénérée. Une véritable légende est née autour d'elle et cette légend est à l'origin du dogme de la naissance virginale qui stipule que Jésus serait né sans faire l'objet d'une conception traditionnelle et donc ne serait pas le résultat d'une relation entre elle et Joseph. La bible renferme de nombreuses légendes qui semblent avoir été introduit dans les récits bibliques aux premiers temps des églises Chrétiennes dans le but de présenter Jésus comme étant un personnaga hors du commun.
+
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Marie | [Message personnel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1998-8-10-1-ar-mary/) | 10 Août 1998
@@ -51,14 +53,14 @@ Marie | [Pourquoi nous avons besoin d’amour](/fr-contemporary-messages/fr-cont
 Marie | [Le Cœur Collectif](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-5-1-2-ar-mary/) | 1 Mai 2002
 Marie | [L’amour est présent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-11-30-1-ar-mary/) | 30 Novembre 2002
 Marie | [Voir le monde avec les yeux de l’âme.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-7-19-1-cc-mary/) | 19 Juillet 2003
-Marie | [Aime-toi totalement.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-10-18-1-cc-mary/) | 18 Octobre 2003
-Marie | [La radio de l’amour.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-11-12-1-ar-mary/) | 12 Novembre 2003
+Marie | [Aime-toi totalement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-10-18-1-cc-mary/) | 18 Octobre 2003
+Marie | [La radio de l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-11-12-1-ar-mary/) | 12 Novembre 2003
 Marie | [Assez est ennuyeux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-2-4-1-ar-mary/) | 4 Février 2004
 Marie | [L'humble corps](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-5-15-1-ar-mary/) | 15 Mai 2004
 Marie | [Où se trouve le monde des esprits ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-10-31-1-ar-mary/) | 31 Octobre 2004
 Marie | [L’amour d’une mère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-12-11-1-rl-mary/) | 11 Décembre 2004
 Marie | [L'Amour est la Vérité que nous recherchons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-7-24-1-ar-mary/) | 24 Juillet 2005
-Marie | [Un don à Dieu.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-9-3-1-ar-mary/) | 3 Septembre 2005
+Marie | [Un don à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-9-3-1-ar-mary/) | 3 Septembre 2005
 Marie | [L'étoffe de l'éternité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-6-5-1-ar-mary/) | 5 Juin 2006
 Marie | [Je suis la chaleur de ton cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-7-18-1-cog-mary/) | 18 Juillet 2012
 Marie | [Se soumetre à l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-7-1-hm-mary/) | 7 Décembre 2012
@@ -87,7 +89,7 @@ Marie | [Au service de la volonté de Dieu](/fr-contemporary-messages/fr-contemp
 Marie | [Bénédiction de Marie - Cercle de prière en ligne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-21-3-af-mary/) | 21 Octobre 2018
 Marie | [Les anges prient pour nous dans notre éveil](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-22-5-mc-mary/) | 22 Octobre 2018
 Marie | [Beaucoup croient que leur mental apporte la conscience de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-12-17-1-af-mary/) | 17 Décembre 2018
-Marie | [Que l'amour de Dieu vous submerge](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-15-2-mc-mary/) | 15 Janvier 2019
+Marie | [Que l'Amour de Dieu vous submerge](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-15-2-mc-mary/) | 15 Janvier 2019
 Marie | [Le plan de Dieu est magnifique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-3-9-3-af-mary/) | 9 Mars 2019
 Marie | [Partager la vérité de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-3-16-1-mc-mary/) | 16 Mars 2019
 Marie | [Marcher avec foi en Dieu et son plan pour vous et l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-4-12-1-af-mary/) | 12 Avril 2019
@@ -136,4 +138,4 @@ Marie & Jean | [Encouragement donné à W___](/fr-contemporary-messages/fr-conte
 Marie & Jean | [Le parler en langues et les animaux dans le monde spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-9-24-1-ar-mary-john/) | 24 Septembre 2000
 Marie & Jean | [Invitez-vous dans votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-2-2-ar-mary-john/) | 2 Février 2002
 Marie & Jean | [Esprit Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-5-16-1-ar-mary-john/) | 16 Mai 2003
-Marie & Jean | [L’amour est notre cause.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-8-1-1-cc-mary-john/) | 1 Août 2003
+Marie & Jean | [L’amour est notre cause](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-8-1-1-cc-mary-john/) | 1 Août 2003

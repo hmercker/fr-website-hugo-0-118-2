@@ -1,13 +1,13 @@
 ---
-title: "Marcher dans la grace"
+title: "Marcher dans la grâce"
 menu_title: ""
-description: "Marcher dans la grace"
+description: "Marcher dans la grâce"
 date: 2023-09-01 06:00:01+00:31
 draft: False
 hidden: True
 weight:
 ---
-### Marcher dans la grace
+### Marcher dans la grâce
 
 Yogananda - reçu par Jimbeau Walsh le 29 Mai 2023, Nashville, TN, USA.
 

@@ -70,15 +70,16 @@ Care Darby Walsh | [De nombreuses façons de donner de l'amour](/fr-contemporary
 Care Darby Walsh | [Progression au-delà des flux et reflux de la vie terrestre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-3-1-jw-care-derby-walsh/) | 3 Octobre 2022
 Care Darby Walsh | [Faites connaitre les intentions de votre ame au monde entier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-6-1-jw-care-derby-walsh/) | 6 Novembre 2022
 Care Darby Walsh | [La connexion divine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-19-1-jw-care-derby-walsh/) | 19 Décembre 2022
-Care Darby Walsh | [Parler vrai sans regrets](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-17-1-jw-care/) | 17 Avril 2023
-Care Derby Walsh | [Suivez votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-6-8-1-jw-care-derby-walsh/) | 8 Juin 2023
-Care Derby Walsh | [Le vrai bonheur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-6-12-1-jw-care-derby-walsh/) | 12 Juin 2023
-Care Derby Walsh | [Votre destin dans l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-6-26-1-jw-care-derby-walsh/) | 26 Juin 2023
-Care Derby Walsh | [Aide Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-10-1-jw-care-derby-walsh/) | 10 Août 2023
-Care Derby Walsh | [Marcher dans la grâce](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-21-1-jw-care-derby-walsh/) | 21 Août 2023
-Care Derby Walsh | [Faites aux autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-27-1-jw-care-derby-walsh/) | 27 Août 2023
-Care Derby Walsh | [Qu'est-ce qui vous attend dans le monde des esprits !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-9-26-1-jw-care-derby-walsh/) | 26 Septembre 2023
-Care Derby Walsh | [Santé du corps et de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-4-1-jw-care-derby-walsh/) | 4 Décembre 2023
-Care Derby Walsh | [Chagrin et amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-12-1-jw-care-derby-walsh/) | 12 Janvier 2024
-Care Derby Walsh | [Embrassez-les comme Dieu vous a embrassé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-15-1-jw-care-derby-walsh/) | 15 Janvier 2024
-Care Derby Walsh | [Toutes choses conspirent pour votre bonheur dans l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-12-1-jw-care-derby-walsh/) | 12 Février 2024
+Care Darby Walsh | [Parler vrai sans regrets](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-17-1-jw-care-darby-walsh/) | 17 Avril 2023
+Care Darby Walsh | [Suivez votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-6-8-1-jw-care-darby-walsh/) | 8 Juin 2023
+Care Darby Walsh | [Le vrai bonheur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-6-12-1-jw-care-darby-walsh/) | 12 Juin 2023
+Care Darby Walsh | [Votre destin dans l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-6-26-1-jw-care-darby-walsh/) | 26 Juin 2023
+Care Darby Walsh | [Aide Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-10-1-jw-care-darby-walsh/) | 10 Août 2023
+Care Darby Walsh | [Marcher dans la grâce](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-21-1-jw-care-darby-walsh/) | 21 Août 2023
+Care Darby Walsh | [Faites aux autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-27-1-jw-care-darby-walsh/) | 27 Août 2023
+Care Darby Walsh | [Qu'est-ce qui vous attend dans le monde des esprits !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-9-26-1-jw-care-darby-walsh/) | 26 Septembre 2023
+Care Darby Walsh | [Santé du corps et de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-4-1-jw-care-darby-walsh/) | 4 Décembre 2023
+Care Darby Walsh | [Chagrin et amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-12-1-jw-care-darby-walsh/) | 12 Janvier 2024
+Care Darby Walsh | [Embrassez-les comme Dieu vous a embrassé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-15-1-jw-care-darby-walsh/) | 15 Janvier 2024
+Care Darby Walsh | [Toutes choses conspirent pour votre bonheur dans l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-12-1-jw-care-darby-walsh/) | 12 Février 2024
+Care Darby Walsh | [Survivre à la mort avec les perceptions de l’éternité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-28-1-jw-care-darby-walsh/) | 28 Mars 2024

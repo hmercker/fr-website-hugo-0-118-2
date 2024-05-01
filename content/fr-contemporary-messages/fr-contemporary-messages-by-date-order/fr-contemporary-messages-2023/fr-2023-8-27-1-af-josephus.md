@@ -1,13 +1,13 @@
 ---
-title: "Bénédictions de Flavius Josèphe"
+title: "Dieu nous utilise pour renforcer le réseau de lumière"
 menu_title: ""
-description: "Bénédictions de Flavius Josèphe"
+description: "Dieu nous utilise pour renforcer le réseau de lumière"
 date: 2023-09-01 06:00:01+00:68
 draft: False
 hidden: True
 weight:
 ---
-### Bénédictions de Flavius Josèphe
+### Dieu nous utilise pour renforcer le réseau de lumière
 
 Flavius Josèphe - reçu par Albert Fike le 27 Août 2023, Sechelt, Colombie-Britannique, Canada.
 

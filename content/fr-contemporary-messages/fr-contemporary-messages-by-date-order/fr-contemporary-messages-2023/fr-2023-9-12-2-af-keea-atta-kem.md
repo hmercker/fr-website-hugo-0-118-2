@@ -9,7 +9,7 @@ weight:
 ---
 ### La chaîne  de l'Amour
 
-Kea Atta Kem - reçu par Albert Fike le 12 Septembre 2023, Sechelt, Colombie-Britannique, Canada.
+Keea Atta Kem - reçu par Albert Fike le 12 Septembre 2023, Sechelt, Colombie-Britannique, Canada.
 
 Que l’Amour Divin continue de relier chacun de vous à Dieu. Je suis Keea Atta Kem et je viens être avec vous dans vos prières, vos aspirations, vos désirs, vos efforts pour vous élever et vous soutenir mutuellement dans le monde. Quel cadeau précieux chacun de vous est dans ce monde. Quelle belle lumière vous apportez parce que vous avez pris une décision dans votre vie. Autrement dit, vous souhaitez être avec Dieu. Que vous désirez, depuis ce lieu profond en vous, une relation avec votre Créateur.
 

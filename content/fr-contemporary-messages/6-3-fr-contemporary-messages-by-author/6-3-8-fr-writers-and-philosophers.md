@@ -31,7 +31,7 @@ Elizabeth Barret Browning | [Comment Dieu vous aime t-il ?](/fr-contemporary-mes
 Elizabeth Barret Browning | [Dans les bras du Ciel, tu demeureras](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-11-3-jw-elizabeth-barret-browning/) | 11 Mars 2023
 Emerson | [Emerson ne croit toujours pas à l’Amour Divin.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-15-1-fab-emerson/) | 15 Juillet 2006
 Erasmus | [Érasme et la Réforme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-17-2-fab-erasmus/) | 17 Février 2009
-Erich Maria Remarque | [Un auteur Allemand trouve la confirmation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-5-1-fab-erich-maria-remarque/) | 5 Septembre 2008
+Erich Paul Remarque | [Un auteur Allemand trouve la confirmation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-5-1-fab-erich-paul-remark/) | 5 Septembre 2008
 Eschyle | [Un dramaturge de la Grèce antique a trouvé la voie Divine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-12-2-fab-aeschylus/) | 12 Août 2008
 George Bernard Shaw | [George Bernard Shaw a trouvé l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-8-13-1-fab-george-bernard-shaw/) | 13 Août 2006
 George Bernard Shaw | [Shaw a réexaminé sa vie sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-21-1-fab-george-bernard-shaw/) | 21 Février 2008
@@ -40,14 +40,14 @@ George Gurdjieff | [Vous ne pouvez pas vous révolter contre les ténèbres, mai
 George Gurdjieff | [Laissez entrer l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-12-3-jw-george-gurdjieff/) | 12 Octobre 2020
 George Gurdjieff | [Continuez à apporter cette lumière dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-14-1-jw-george-gurdjieff/) | 14 Juin 2021
 George Gurdjieff | [Manifestations et expériences Sprituelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-28-1-af-george-gurdjieff/) | 28 Septembre 2021
-George Gurdjieff | [Rester éveillé]( fr-contemporary-messages\fr-contemporary-messages-by-date-order\fr-contemporary-messages-2023\fr-2023-7-24-1-af-george-gurdjieff/) | 24 Juillet 2023
+George Gurdjieff | [Rester éveillé dans l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-24-1-af-george-gurdjieff/) | 24 Juillet 2023
 H.G. Wells | [Les expériences de H.G. Wells dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-9-13-1-fab-hg-wells/) | 13 Septembre 2011
 Hafiz | [Musulmans dans le Monde des Esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-3-3-1-fab-hafiz/) | 3 Mars 2011
 Hafiz | [Ma poésie est le reflet de ma communion avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-4-1-jw-hafiz/) | 4 Décembre 2019
 Hafiz | [Un rayon de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-13-3-jw-hafiz/) | 13 Mars 2020
 Hafiz | [Quel rôle choisirez-vous de jouer ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-7-1-jw-hafiz/) | 7 Octobre 2020
 Hafiz | [La présence de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-10-4-jw-hafiz/) | 10 Octobre 2020
-Hafiz | [Dans l'étreinte de l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-7-1-jw-hafiz/) | 7 Décembre 2020
+Hafiz | [Dans l'étreinte de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-7-1-jw-hafiz/) | 7 Décembre 2020
 Hafiz | [Le danseur de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-9-1-jw-hafiz/) | 9 Décembre 2020
 Hafiz | [Cette Attente, ce Désir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-11-2-jw-hafiz/) | 11 Avril 2021
 Hafiz | [Océan infini](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-2-2-jw-hafiz/) | 2 Juin 2021
@@ -55,8 +55,8 @@ Hafiz | [Poèmes de Haffiz](/fr-contemporary-messages/fr-contemporary-messages-b
 Hafiz | [Soyez la vraie vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-25-1-jw-hafiz/) | 25 Octobre 2021
 Ida Tarbell | [Quelque chose de merveilleux à attendre avec impatience](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-24-1-fab-ida-tarbell/) | 24 Décembre 2009
 Jack Kerouac | [Le voyage d'un écrivain de l'époque](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-16-1-fab-jack-kerouac/) | 16 Avril 2008
-Jack Kerouac | [Un écrivain de l’époque trouve l'Amour Divin - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-18-2-fab-jack-kerouac/) | 18 Avril 2008
-Jack Kerouac | [Un écrivain de l’époque trouve l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-9-1-fab-jack-kerouac/) | 9 Mai 2008
+Jack Kerouac | [Un écrivain de l’époque trouve l'Amour Divin_2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-18-2-fab-jack-kerouac/) | 18 Avril 2008
+Jack Kerouac | [Un écrivain de l’époque trouve l'Amour Divin_3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-9-1-fab-jack-kerouac/) | 9 Mai 2008
 Jack Kerouac | [La douleur de Jacques Kerouac](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-9-25-1-fab-jack-kerouac/) | 25 Septembre 2009
 Jack Kerouac | [L'identité religieuse de Jack Kerouac](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-9-28-1-fab-jack-kerouac/) | 28 Septembre 2009
 Jack London | [La Loi Morale](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-9-1-fab-jack-london/) | 9 Janvier 2008
@@ -101,16 +101,16 @@ Robert James Lees | [Une chose à la fois](/fr-contemporary-messages/fr-contempo
 Robert James Lees | [Tous sont dignes de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-11-2-jw-robert-james-lees/) | 11 Novembre 2021
 Robert James Lees | [Une synchronicite de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-1-1-jw-robert-james-lee/) | 1 Décembre 2022
 Robert Louis Stevenson | [Un auteur sur la nature du soi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-11-2-fab-robert-louis-stevenson/) | 11 Août 2008
-Rumi | [Rumi parle de la voix directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-15-3-af-rumi/) | 15 Novembre 2017
+Rumi | [Rumi parle de la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-15-3-af-rumi/) | 15 Novembre 2017
 Rumi | [La loi de Dieu est progressive](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-11-3-jw-rumi/) | 11 Septembre 2019
 Rumi | [Laissez votre cœur prendre son envol](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-7-1-jw-rumi/) | 7 Mars 2022
-Samuel Beckett | [Samuel Beckett est malheureux.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-13-1-fab-samuel-beckett/) | 13 Avril 2006
+Samuel Beckett | [Samuel Beckett est malheureux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-13-1-fab-samuel-beckett/) | 13 Avril 2006
 Sigmund Freud | [L'amour peut guérir la douleur de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-19-2-af-sigmund-freud/) | 19 Novembre 2017
-Socrates | [Notre boussole intérieure supérieure.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-19-1-fab-socrates/) | 19 Juillet 2006
+Socrates | [Notre boussole intérieure supérieure](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-19-1-fab-socrates/) | 19 Juillet 2006
 Tolkien | [Tolkien a remarqué que je lisais son livre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-17-1-pjr-tolkien/) | 17 Janvier 2002
 Tolkien | [Tolkien fait son rapport](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-7-29-1-pjr-tolkien/) | 29 Juillet 2002
 Tolkien | [La guerre, et l’armée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-3-24-1-pjr-tolkien/) | 24 Mars 2003
-Voltaire | [Voltaire a trouvé le Dieu vivant.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-8-28-1-fab-voltaire/) | 28 Août 2006
+Voltaire | [Voltaire a trouvé le Dieu vivant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-8-28-1-fab-voltaire/) | 28 Août 2006
 Walt Whitman | [Walt Whitman et les Amérindiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-1-4-1-fab-walt-whitman/) | 4 Janvier 2005
 Walt Whitman | [Le mysticisme et les expériences personnelles en esprit de Walt Whitman](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-1-5-1-fab-walt-whitman/) | 5 Janvier 2005
 Walt Whitman | [La personnalité de Whitman en tant que poète et personne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-28-1-fab-walt-whitman/) | 28 Avril 2008

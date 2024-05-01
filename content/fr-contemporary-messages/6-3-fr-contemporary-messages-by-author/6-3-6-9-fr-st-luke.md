@@ -9,26 +9,32 @@ weight:
 ---
 ### Saint Luc
 
+![title](/3-fr-judas-of-kerioth-messages\fr-lukas_small.jpg)
+
+Selon le témoignage de saint Paul, à la fin de sa Lettre aux Colossiens (4, 14), saint Luc était médecin. D’après l’historien Eusèbe (267–338), Saint Luc serait née à Atioche qui était la métropole de la Syrie et l’une des plus illustres cités de l’Orient. Deux livres du Nouveau Testament ont saint Luc pour auteur, le troisième Evangile et les Actes des Apôtres.
+
+On pourrait même considérer ces deux livres comme un seul et même ouvrage, divisé en deux parties. Dans la première, Saint Luc expose la vie de Jésus jusqu’à son Ascension. Dans la seconde, il raconte l’histoire de l’Eglise naissante, et en particulier l’apostolat de Saint Paul jusqu’à sa première captivité à Rome, captivité qui dura deux années, de l’an 62 à l’an 64. Nous avons ainsi, grâce à Saint Luc, une histoire sommaire de nos origines Chrétiennes pendant les deux tiers du premier siècle. [Source](https://laportelatine.org/spiritualite/vies-de-saints/saint-luc-evangeliste).
+
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-St Luc | [Commentaires sur le travail avec les esprits sombres.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1963/fr-1935-1-23-1-emorgan-st-luke/) | 23 Janvier 1935
-St Luc | [Parle de la Bible, de la guérison et de l'Orientation Correcte.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-117-1969-anonymous-st-luke/) |   1969
+St Luc | [Commentaires sur le travail avec les esprits sombres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1963/fr-1935-1-23-1-emorgan-st-luke/) | 23 Janvier 1935
+St Luc | [Parle de la Bible, de la guérison et de l'Orientation Correcte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-117-1969-anonymous-st-luke/) |   1969
 St Luc | [Un seul chemin vers la santé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-135-1969-anonymous-st-luke/) |   1969
 St Luc | [Combattre l’obscurité des conditions de la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-2-29-1-af-st-luke/) | 29 Février 2016
 St Luc | [Inscrustations de l’Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-11-1-af-st-luke/) | 11 Mars 2016
 St Luc | [Le pouvoir de la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-19-1-af-st-luke/) | 19 Mars 2016
-St Luc | [Luc souhaite la bienvenue à ceux qui font partie du rassemblement de Punnalu’u](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-28-3-af-st-luke/) | 28 Novembre 2016
+St Luc | [Luc souhaite la bienvenue à ceux qui font partie du rassemblement de Punnalu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-28-3-af-st-luke/) | 28 Novembre 2016
 St Luc | [Leçons sur le pardon et la compassion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-9-2-af-st-luke/) | 9 Décembre 2016
 St Luc | [Débarrassez-vous de ces choses qui ne sont pas d’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-1-11-1-af-st-luke/) | 11 Janvier 2017
 St Luc | [Se lier d’amitié avec son âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-3-5-1-af-st-luke/) | 5 Mars 2017
 St Luc | [Introduction à la création d'un cercle de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-12-2-af-st-luke/) | 12 Mars 2018
-St Luc | [Le chemin de la guérison et de la compassion par l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-21-2-af-st-luke/) | 21 Mars 2018
+St Luc | [Soyez des guerriers contre l’obscurité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-21-2-af-st-luke/) | 21 Mars 2018
 St Luc | [Une intervention sur les péchés des parents](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-4-4-1-af-st-luke/) | 4 Avril 2018
 St Luc | [La loi de compensation – le chemin naturel comparé au chemin Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-12-1-af-st-luke/) | 12 Mai 2018
 St Luc | [Rechercher l'humilité et la compassion pour soi et pour les autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-24-1-af-st-luke/) | 24 Juin 2018
-St Luc | [La vérité passe par l'âme éveillée par l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-22-3-af-st-luke/) | 22 Septembre 2018
+St Luc | [La vérité passe par l'âme éveillée par l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-22-3-af-st-luke/) | 22 Septembre 2018
 St Luc | [L'importance des cercles de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-29-2-af-st-luke/) | 29 Novembre 2018
-St Luc | [La prière pour l'Amour Divin est le Noyau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2019-1-20-3-af-st-luke/) | 20 Janvier 2019
+St Luc | [La prière pour l'Amour Divin est le Noyau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-20-3-af-st-luke/) | 20 Janvier 2019
 St Luc | [Q&R : Une explication de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-13-2-af-st-luke/) | 13 Juillet 2019
 St Luc | [L'unité de la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-6-4-1-af-st-luke/) | 4 Juin 2019
 St Luc | [Le magnétisme de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-23-1-jw-st-luke/) | 23 Septembre 2019
@@ -44,7 +50,7 @@ St Luc | [Équilibre entre les poursuites matérielles et spirituelles](/fr-cont
 St Luc | [Les pensées que vous entretenez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-1-1-jw-st-luke/) | 1 Septembre 2020
 St Luc | [Choisissez ce qui touche votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-11-1-jw-st-luke/) | 11 Septembre 2020
 St Luc | [Facettes de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-23-2-af-st-luke/) | 23 Octobre 2020
-St Luc | [L'amour de Dieu ouvre le cœur et transforme l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-26-1-jw-st-luke/) | 26 Avril 2021
+St Luc | [L'Amour de Dieu ouvre le cœur et transforme l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-26-1-jw-st-luke/) | 26 Avril 2021
 St Luc | [Cherchez d’abord le Royaume, et tout le reste vous sera donné](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-27-1-jw-st-luke/) | 27 Juillet 2021
 St Luc | [Avancer dans la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-1-1-jw-st-luke/) | 1 Novembre 2021
 St Luc | [Marcher à cœur ouvert](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-2-22-2-jw-st-luke/) | 22 Février 2022

@@ -37,7 +37,7 @@ Chacun est responsable du développement de l’amour de son âme. Chacun a son 
 
 Avec le temps, la condition de votre âme éclairée changera les croyances de votre esprit en pensées aimantes et positives. Il se peut que vous ne soyez même pas conscient du moment où ces changements se produisent, mais peu importe comment ou quand ils se produisent – le simple fait de savoir que vous êtes né de nouveau dans l’amour de Dieu est ce qui a de la valeur dans votre vie.
 
-J’espère et je prie que j’ai expliqué cela d’une manière que vous pourrez comprendre et accepter ; que vous continuerez à vous efforcer d’accroître la spiritualité de vos pensées, alors que vous continuerez à prier pour que l’Amour de Dieu transforme la nature amoureuse de votre âme en une substance divine d’amour.
+J’espère et je prie que ce que j’ai expliqué vous pourrez le comprendre et l'accepter ; que vous continuerez à vous efforcer d’accroître la spiritualité de vos pensées, alors que vous continuez à prier pour que l’Amour de Dieu transforme la nature amoureuse de votre âme en une substance divine d’amour.
 
 Je vous laisse pour le moment, mais je resterai avec vous en esprit, et je viendrai chaque fois que vous demanderez de l’aide, de la protection ou de l’amour. Je suis ton ami, qui t’aime avec l’Amour de Dieu dans mon âme. J’accepte rarement cette opportunité de délivrer des messages à travers vous.
 

@@ -9,6 +9,10 @@ weight:
 ---
 ### Judas
 
+Judas est avant connu et perçu comme étant le disciple qui a trahi Jésus. Dans le messagee qu'il a communiqué le [16 Novembre 2002](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-11-16-1-hr-judas/) Judas explique qu'il n’a pas trahi Jésus suite à sa colère devant le gaspillage d’argent causé par le versement d'un parfum sur la tête ou les pieds de Jésus comme il est expliqué dans [Mathhieu 26:6-18](https://saintebible.com/matthew/26-6.htmhttps://saintebible.com/matthew/26-6.htm), dans [Jean 2:1-5](https://saintebible.com/john/12-1.htm) ou dans [Luc 7:36-39](https://saintebible.com/luke/7-36.htm).
+
+Ce n'est pas non plus en raison des reproches que Jésus a adressé à ses disciples car ce n’était pas la première fois qu’il le faisait. Judas a clairement expliqué les raisons de sa trahison dans un message qu'il a communiqué par l'intermédiiare de James Padgett le [23 Août 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-23-3-jep-judas/). Il explique qu'il pas commis ce crime parce que Dieu lui avait ordonné de le faire, qu'une telle affirmation n’a pas de sens et que ce fut seulement sa décision personnelle et un geste irréfléchi.
+
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Judas | [L'amour vous donne un Socle et un Fondement tellement Puissants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-50-1970-1-15-anonymous-judas/) | 15 Janvier 1970
@@ -37,22 +41,22 @@ Judas | [Diverses questions concernant le passage vers l’au-delà](/fr-contemp
 Judas | [Recommencer à zéro](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-9-3-jw-judas/) | 9 Septembre 2021
 Judas | [Une question sur l’épître aux Éphésiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-10-1-hr-judas/) | 10 Septembre 2001
 Judas | [Que pouvons-nous faire pour compenser les effets du mal ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-15-1-hr-judas/) | 15 Septembre 2001
-Judas | [La seconde sphere](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-16-1-hr-judas/) | 16 Septembre 2001
+Judas | [La seconde sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-16-1-hr-judas/) | 16 Septembre 2001
 Judas | [Islam et Mohammed](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-18-1-hr-judas/) | 18 Septembre 2001
 Judas | [La troisième sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-19-1-hr-judas/) | 19 Septembre 2001
 Judas | [Écoute ta voix intérieure](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-21-1-hr-judas/) | 21 Septembre 2001
 Judas | [La Quatrième Sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-23-1-hr-judas/) | 23 Septembre 2001
 Judas | [Les Âmes sœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-24-1-hr-judas/) | 24 Septembre 2001
-Judas | [La cinquième sphere](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-25-1-hr-judas/) | 25 Septembre 2001
-Judas | [La sixième sphere](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-27-1-hr-judas/) | 27 Septembre 2001
-Judas | [La septième sphere](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-28-1-hr-judas/) | 28 Septembre 2001
+Judas | [La cinquième sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-25-1-hr-judas/) | 25 Septembre 2001
+Judas | [La sixième sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-27-1-hr-judas/) | 27 Septembre 2001
+Judas | [La septième sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-28-1-hr-judas/) | 28 Septembre 2001
 Judas | [Divorce, les douze apôtres et les douze tribus d’Israël](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-29-1-hr-judas/) | 29 Septembre 2001
 Judas | [Parties innocentes au terrorisme ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-1-1-hr-judas/) | 1 Octobre 2001
 Judas | [Joseph se marie avec Marie et retourne à Bethléem](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-3-1-hr-judas/) | 3 Octobre 2001
 Judas | [Parallèles entre la Galilée à l’époque de Jésus et aujourd’hui](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-3-2-hr-judas/) | 3 Octobre 2001
 Judas | [La naissance de Jésus à Bethléem](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-4-1-hr-judas/) | 4 Octobre 2001
 Judas | [La fuite en Égypte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-5-1-hr-judas/) | 5 Octobre 2001
-Judas | [Aide au suicide et symboles chrétiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-5-2-hr-judas/) | 5 Octobre 2001
+Judas | [Aide au suicide et symboles Chrétiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-5-2-hr-judas/) | 5 Octobre 2001
 Judas | [La justification de la violence et les âmes sœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-6-2-hr-judas/) | 6 Octobre 2001
 Judas | [L’éducation de Jésus en Égypte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-8-1-hr-judas/) | 8 Octobre 2001
 Judas | [Le retour de Joseph et Marie à Nazareth](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-9-1-hr-judas/) | 9 Octobre 2001
@@ -88,7 +92,7 @@ Judas | [Le poids de l’Amour](/fr-contemporary-messages/fr-contemporary-messag
 Judas | [Les fêtes religieuses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-17-1-hr-judas/) | 17 Décembre 2001
 Judas | [Jésus et Judas – amis d’enfance ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-26-1-hr-judas/) | 26 Décembre 2001
 Judas | [La transe Médiumnité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-27-1-hr-judas/) | 27 Décembre 2001
-Judas | [Le Peuple Elu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-2-1-hr-judas/) | 2 Janvier 2002
+Judas | [Le Peuple Élu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-2-1-hr-judas/) | 2 Janvier 2002
 Judas | [Le début du ministère public de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-2-2-hr-judas/) | 2 Janvier 2002
 Judas | [La réponse à la déclaration de Jésus qu’il est le Messie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-3-1-hr-judas/) | 3 Janvier 2002
 Judas | [Signes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-1-6-1-jw-judas/) | 6 Janvier 2022
@@ -108,7 +112,7 @@ Judas | [Le baptême de Jésus](/fr-contemporary-messages/fr-contemporary-messag
 Judas | [Le retour à Capharnaüm](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-5-1-hr-judas/) | 5 Février 2002
 Judas | [Jésus rencontre Simon Pierre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-8-1-hr-judas/) | 8 Février 2002
 Judas | [Vivre dans ce monde, sans en faire partie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-14-1-hr-judas/) | 14 Février 2002
-Judas | [Jésus rencontre la famille Zebedee](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-15-1-hr-judas/) | 15 Février 2002
+Judas | [Jésus rencontre la famille Zébédée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-15-1-hr-judas/) | 15 Février 2002
 Judas | [Le vrai sens des paroles de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-19-1-hr-judas/) | 19 Février 2002
 Judas | [Judas et Jean le Baptiste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-20-1-hr-judas/) | 20 Février 2002
 Judas | [Judas rencontre le Maître](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-22-1-hr-judas/) | 22 Février 2002
@@ -136,7 +140,7 @@ Judas | [La guérison du lépreux](/fr-contemporary-messages/fr-contemporary-mes
 Judas | [Levez-vous et soyez comptés (1)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-15-1-hr-judas/) | 15 Avril 2002
 Judas | [Levez-vous et soyez comptés (2)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-16-1-hr-judas/) | 16 Avril 2002
 Judas | [Levez-vous et soyez comptés (3)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-17-1-hr-judas/) | 17 Avril 2002
-Judas | [L’administrateur infidel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-19-1-hr-judas/) | 19 Avril 2002
+Judas | [L’administrateur infidèle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-19-1-hr-judas/) | 19 Avril 2002
 Judas | [Les démons jetés dans les porcs ? Jésus prêche aux païens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-25-1-hr-judas/) | 25 Avril 2002
 Judas | [Médiumnité et la valeur des messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-28-1-hr-judas/) | 28 Avril 2002
 Judas | [L’Antéchrist](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-29-1-hr-judas/) | 29 Avril 2002
@@ -163,18 +167,25 @@ Judas | [L’intégrisme](/fr-contemporary-messages/fr-contemporary-messages-by-
 Judas | [Les miracles et les pensées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-8-8-1-hr-judas/) | 8 Août 2002
 Judas | [Paul de Tarse et la Première Épître aux Corinthiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-8-15-1-hr-judas/) | 15 Août 2002
 Judas | [La popularité des « révélations » absurdes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-8-20-1-hr-judas/) | 20 Août 2002
+Judas | [Les conseils viennent de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-9-22-1-hm-judas/) | 22 Septembre 2012
 Judas | [Pourquoi Judas a trahi Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-11-16-1-hr-judas/) | 16 Novembre 2002
 Judas | [Passage dans l’au-delà](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-12-7-1-hr-judas/) | 7 Décembre 2002
+Judas | [Le vent du changement souffle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-9-1-hm-judas/) | 9 Décembre 2012
+Judas | [Conseils personnels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-4-1-hm-judas/) | 4 Janvier 2013
+Judas | [La joie de l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-5-1-hm-judas/) | 5 Janvier 2013
 Judas | [Une nouvelle forme de communication](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-18-1-hr-judas/) | 18 Janvier 2003
 Judas | [Jésus confond les Pharisiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-22-1-hr-judas/) | 22 Janvier 2003
+Judas | [Quelques conseils personnels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-22-3-hm-judas/) | 22 Janvier 2013
 Judas | [Le plan des Pharisiens pour se débarrasser de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-24-1-hr-judas/) | 24 Janvier 2003
 Judas | [La Parabole de l’amandier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-27-1-hr-judas/) | 27 Janvier 2003
 Judas | [La parabole du bois pourri](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-31-1-hr-judas/) | 31 Janvier 2003
 Judas | [La confiance en Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-3-1-hr-judas/) | 3 Février 2003
 Judas | [Le manque d’espoir dans les Enfers](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-5-1-hr-judas/) | 5 Février 2003
 Judas | [Les choses sont ce qu’elles sont](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-25-1-hr-judas/) | 25 Février 2003
+Judas | [La source des émotions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-14-1-af-judas/) | 14 Mars 2013
 Judas | [La dynamique de la vie 1 : Le mal](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-3-21-1-hr-judas/) | 21 Mars 2003
 Judas | [La dynamique de la vie 2 : L’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-3-21-2-hr-judas/) | 21 Mars 2003
+Judas | [Pilate prend ses fonctions durant l’année 26](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-3-28-1-hr-judas/) | 28 Mars 2003
 Judas | [Le bien qui se cache](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-4-3-1-hr-judas/) | 3 Avril 2003
 Judas | [La pièce de monnaie dans la bouche du poisson](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-4-14-1-hr-judas/) | 14 Avril 2003
 Judas | [La parabole de la roseraie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-4-23-1-hr-judas/) | 23 Avril 2003
@@ -183,12 +194,6 @@ Judas | [La parabole des deux chambres](/fr-contemporary-messages/fr-contemporar
 Judas | [Contenants de pensée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-5-24-1-hr-judas/) | 24 Mai 2003
 Judas | [Le monde d’un enfant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-6-29-1-hr-judas/) | 29 Juin 2003
 Judas | [La suite des pensées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-6-30-1-hr-judas/) | 30 Juin 2003
-Judas | [Les conseils viennent de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-9-22-1-hm-judas/) | 22 Septembre 2012
-Judas | [Le vent du changement souffle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-9-1-hm-judas/) | 9 Décembre 2012
-Judas | [Conseils personnels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-4-1-hm-judas/) | 4 Janvier 2013
-Judas | [La joie de l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-5-1-hm-judas/) | 5 Janvier 2013
-Judas | [Quelques conseils personnels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-22-3-hm-judas/) | 22 Janvier 2013
-Judas | [La source des émotions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-14-1-af-judas/) | 14 Mars 2013
 Judas | [Racheté par le pouvoir de l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-10-11-1-af-judas/) | 11 Octobre 2014
 Judas | [Le but de l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-31-2-af-judas/) | 31 Mars 2016
 Judas | [Mettez de côté les objectifs et les ambitions de votre mental](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-29-2-af-judas/) | 29 Novembre 2016
@@ -202,7 +207,7 @@ Judas | [Exploration des messages de Judas](/fr-contemporary-messages/fr-contemp
 Judas | [Guérir dans la lumière et l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-20-1-jw-judas/) | 20 Août 2020
 Judas | [Mettez Dieu à la première place](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-19-1-jw-judas/) | 19 Septembre 2020
 Judas | [Un petit conseil](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-24-1-jw-judas/) | 24 Septembre 2020
-Judas | [La cristallisation de l’âme dans l’amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-16-1-jw-judas/) | 16 Octobre 2020
+Judas | [La cristallisation de l’âme dans l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-16-1-jw-judas/) | 16 Octobre 2020
 Judas | [L'Amour de Dieu est primordial](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-11-11-1-jw-judas/) | 11 Novembre 2020
 Judas | [L'étincelle de lumière dans votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-6-1-jw-judas/) | 6 Janvier 2021
 Judas | [Pensez à l'éternité et non à la mort](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-2-12-1-jw-judas/) | 12 Février 2021
@@ -211,7 +216,7 @@ Judas | [Lâcher prise et laisser faire, s'en remettre à Dieu pour tout](/fr-co
 Judas | [Représentations du monde des esprits au cinéma](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-7-1-jw-judas/) | 7 Juin 2021
 Judas | [La prière est la réponse à tous les problèmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-22-2-jw-judas/) | 22 Juillet 2021
 Judas | [La présence de l’Amour dans nos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-26-1-jw-judas/) | 26 Juillet 2021
-Judas | [Dieu aime tous ses enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-30-1-jw-judas/) | 30 Août 2021
+Judas | [Dieu aime tous Ses enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-30-1-jw-judas/) | 30 Août 2021
 Judas | [Énergie Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-18-1-jw-judas/) | 18 Octobre 2021
 Judas | [Astronautes spirituels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-1-11-1-jw-judas/) | 11 Janvier 2022
 Judas | [Soyez des explorateurs de l’âme !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-1-20-1-jw-judas/) | 20 Janvier 2022
@@ -221,24 +226,22 @@ Judas | [La solitude est un état béni](/fr-contemporary-messages/fr-contempora
 Judas | [La faim de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-4-1-jw-judas/) | 4 Juillet 2022
 Judas | [Avoir la Foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-19-2-jw-judas/) | 19 Juillet 2022
 Judas | [Chaque crise est une opportunité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-23-1-jw-judas/) | 23 Août 2022
-Judas | [Les deux frères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2022-8-23-2-jw-judas/) | 23 Août 2022
+Judas | [Les deux frères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-23-2-jw-judas/) | 23 Août 2022
 Judas | [Foi, responsabilité et dévouement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-20-1-jw-judas/) | 20 Septembre 2022
-Judas | [Discute des exigences de la médiumnité Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-4-6-af-judas/) | 4 Octobre 2022
+Judas | [Discute des exigences de la médiumnité Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-6-1-af-judas/) | 6 Octobre 2022
 Judas | [La foi au delà de la peur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-2-1-jw-judas/) | 2 Janvier 2023
 Judas | [Plus sur la communication avec les esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-16-1-jw-judas/) | 16 Janvier 2023
 Judas | [Sortir de l’enfer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-6-1-hr-judas/) | 6 Février 2003
 Judas | [Comment prier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-27-1-jw-judas/) | 27 Février 2023
-Judas | [Pilate prend ses fonctions durant l’année 26](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-3-28-1-hr-judas/) | 28 Mars 2003
 Judas | [L'âme est intemporelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-5-8-1-jw-judas/) | 8 Mai 2023
-Judas | [Vous êtes là où se   trouve votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-16-3-af-judas/) | 16 Mars 2023
+Judas | [Vous êtes là où se trouve votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-16-3-jw-judas/) | 16 Mars 2023
 Judas | [Grands esprits et grandes âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-7-1-jw-judas/) | 7 Août 2023
-Judas | [Laissez l’amour de Dieu imprégner votre journée, illuminez votre nuit !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-9-1-jw-judas/) | 9 Octobre 2023
+Judas | [Laissez l’Amour de Dieu imprégner votre journée, illuminez votre nuit !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-9-1-jw-judas/) | 9 Octobre 2023
 Judas | [Qu’emporterez-vous avec vous dans le monde des esprits ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-27-1-jw-judas/) | 27 Novembre 2023
 Judas | [Créatures d'habitude](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-28-1-jw-judas/) | 28 Novembre 2023
 Judas | [Le chemin à parcourir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-5-1-jw-judas/) | 5 Décembre 2023
 Judas | [Les avantages du silence ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-1-1-jw-judas/) | 1 Janvier 2024
-Judas | [Orchestrer l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-19-1-jw-judas/) | 19 Février 2024
-Judas | [Intention et volonté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-5-1-jw-judas-de-kérioth/) | 5 Février 2024
-Judas | [La journée du Héros](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-26-1-jw-judas-de-kérioth/) | 26 Février 2024
-Judas | [Orchestrer l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-29-1-jw-judas-de-kérioth/) | 29 Février 2024
+Judas | [Intention et volonté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-5-1-jw-judas/) | 5 Février 2024
+Judas | [La journée du Héros](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-26-1-jw-judas/) | 26 Février 2024
+Judas | [Orchestrer l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-29-1-jw-judas/) | 29 Février 2024
 Judas | [Les Trois Naissances](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-1-2-jw-judas/) | 1 Avril 2024

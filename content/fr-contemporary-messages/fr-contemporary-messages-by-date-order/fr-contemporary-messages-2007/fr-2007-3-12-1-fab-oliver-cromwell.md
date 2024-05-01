@@ -1,13 +1,13 @@
 ---
-title: "Souffrances d’un souverain anglais"
+title: "Souffrances d’un souverain Anglais"
 menu_title: ""
-description: "Souffrances d’un souverain anglais"
+description: "Souffrances d’un souverain Anglais"
 date: 2022-06-01 06:00:01+00:122
 draft: False
 hidden: True
 weight:
 ---
-### Souffrances d’un souverain anglais
+### Souffrances d’un souverain Anglais
 
 Oliver Cromwell <sup id="a1">[1](#f1)</sup> - reçu par FAB le 12 Mars 2007, Santa Cruz, Californie, USA.
 

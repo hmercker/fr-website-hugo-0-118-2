@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Parle de la Bible, de la guérison et de l'Orientation Correcte.
+### Parle de la Bible, de la guérison et de l'Orientation Correcte
 
 St Luc - reçu en 1969, Vancouver, Colombie-Britannique, Canada.
 

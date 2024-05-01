@@ -129,6 +129,6 @@ St Étienne | [Parlez au monde depuis votre âme](/fr-contemporary-messages/fr-c
 Care Darby Walsh | [Liberté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-26-3-jw-care-derby-walsh/) | 26 Décembre 2021
 Jude, le frère de Jésus | [Chaque voyage commence par un premier pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-30-1-jw-jesus-brother-jude/) | 30 Décembre 2021
 
-# [Lien vers les messages contemporains reçus par Jimbeau walsh au cours de l’année 2022](/fr-contemporary-messages\6-2-fr-contemporary-messages-per-medium/6-2-8-4-fr-jimbeau-walsh-2022/)
+## [Lien vers les messages contemporains reçus par Jimbeau walsh au cours de l’année 2022](/fr-contemporary-messages\6-2-fr-contemporary-messages-per-medium/6-2-8-4-fr-jimbeau-walsh-2022/)
 
-# [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)
+## [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous sommes avec vous dans l'amour et la joie ! 
 
-Kea Atta Kem - reçu par Albert Fike le 24 Octobre 2023, Sechelt, Colombie-Britannique, Canada.
+Keea Atta Kem - reçu par Albert Fike le 24 Octobre 2023, Sechelt, Colombie-Britannique, Canada.
 
 Nous avons de la joie. Nous sommes heureux parce que vous êtes réunis dans une harmonie aimante. Nous sommes heureux parce que nous voyons le dévouement accru que vous avez tous envers cette belle vérité. Nous avons de la joie parce que nous pouvons venir et être avec vous dans la prière. Vous connaissez notre présence, et vous sentez l’Amour de Dieu nous unir ensemble. Je m’appelle Keea Atta Kem et je viens saluer chacun d’entre vous, avec joie, dans vos efforts et vos prières pour apporter une plus grande lumière au monde.
 

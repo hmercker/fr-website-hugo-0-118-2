@@ -13,8 +13,8 @@ weight:
 ---|---|---
 Judas | [Les avantages du silence ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-1-1-jw-judas/) | 1 Janvier 2024
 St François d'Assise | [Restez en grâce](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-8-1-jw-st-francis-of-assisi/) | 8 Janvier 2024
-Care Derby Walsh | [Chagrin et amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-12-1-jw-care-derby-walsh/) | 12 Janvier 2024
-Care Derby Walsh | [Embrassez-les comme Dieu vous a embrassé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-15-1-jw-care-derby-walsh/) | 15 Janvier 2024
+Care Darby Walsh | [Chagrin et amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-12-1-jw-care-darby-walsh/) | 12 Janvier 2024
+Care Darby Walsh | [Embrassez-les comme Dieu vous a embrassé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-15-1-jw-care-darby-walsh/) | 15 Janvier 2024
 St Luc | [Celui qui vous a créé ne vous abandonnera pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-22-1-jw-st-luke/) | 22 Janvier 2024
 Georges Gurdjieff | [Un cœur transformé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-24-1-jw-georges-gurdjieff/) | 24 Janvier 2024
 Yogananda | [Héritage spirituel et ADN](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-29-1-jw-yogananda/) | 29 Janvier 2024
@@ -29,5 +29,7 @@ St François d'Assise | [Nourrir d'amour les âmes affamées ](/fr-contemporary-
 Luc | [La liberté de changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-25-1-jw-luke/) | 25 Mars 2024
 Care Darby Walsh | [Survivre à la mort avec les perceptions de l’éternité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-28-1-jw-care-darby-walsh/) | 28 Mars 2024
 Judas | [Les Trois Naissances](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-1-2-jw-judas/) | 1 Avril 2024
+Claire d'Assise | [Pour la Terre et toutes ses créatures](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-18-1-jw-clare-of-assisi/) | 18 Avril 2024
+Amon | [Nous nous réjouissons en vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-22-1-jw-amon/) | 22 Avril 2024
 
-# [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)
+## [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

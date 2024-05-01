@@ -31,6 +31,6 @@ Puissiez-vous être bénis et inspirés dans vos efforts. Puissiez-vous toujours
 
 Que Dieu vous bénisse, mes amis. Je suis votre professeur Salyards. Je suis heureux d’être avec vous dans vos efforts, comme beaucoup de ceux qui sont à vos côtés, qui continuent de servir avec amour. Nous sommes donc ensemble, cherchant la Volonté de Dieu, pour être dans le courant de cette Volonté et de cet Amour où tout est en harmonie. Tout se déroulera en harmonie avec son dessein et son plan. Que Dieu vous bénisse, mes amis. Mon amour est toujours avec vous. Que Dieu vous bénisse.
 
-## [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
-## [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
+### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

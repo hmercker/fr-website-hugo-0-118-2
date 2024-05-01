@@ -36,7 +36,7 @@ Eileen Caddy | [Portez l'amour dans vos âmes](/fr-contemporary-messages/fr-cont
 Eileen Caddy | [Vous êtes la bénédiction dont ce monde a besoin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-7-1-jw-eileen-caddy/) | 7 Juillet 2020
 Eileen Caddy | [Commencez votre journée en vous ouvrant à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-11-13-1-jw-eileen-caddy/) | 13 Novembre 2020
 Eileen Caddy | [La transformation par l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-11-16-1-jw-eileen-caddy/) | 16 Novembre 2020
-Eileen Caddy | [Levez vos voiles sur l’océan de l’amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-8-1-jw-eileen-caddy/) | 8 Décembre 2020
+Eileen Caddy | [Levez vos voiles sur l’océan de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-8-1-jw-eileen-caddy/) | 8 Décembre 2020
 Eileen Caddy | [Votre volonté et la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-18-1-jw-eileen-caddy/) | 18 Décembre 2020
 Eileen Caddy | [Quel sera votre héritage ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-15-1-jw-eileen-caddy/) | 15 Janvier 2021
 Eileen Caddy | [La vie spirituelle requiert du courage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-2-3-1-jw-eileen-caddy/) | 3 Février 2021

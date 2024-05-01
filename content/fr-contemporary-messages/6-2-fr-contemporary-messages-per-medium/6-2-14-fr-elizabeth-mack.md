@@ -26,7 +26,7 @@ George Stokes | [Développer une relation avec Dieu ](/fr-contemporary-messages/
 George Stokes | [Envoyer de l'Amour à Dieu est une communion spéciale](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-5-1-em-george-stokes/) | 5 Décembre 2022
 St Pierre  | [Cherchez la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-13-4-em-st-peter/) | 13 Janvier 2023
 Jésus | [Vous avez un but](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-13-2-em-jesus/) | 13 Janvier 2023
-Jésus | [L'Amour Divin favorise l'unité et l'harmonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-20-3-em-joan-of-arc/) | 20 Avril 2023
+Jeanne d'Arc | [L'Amour Divin favorise l'unité et l'harmonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-20-3-em-joan-of-arc/) | 20 Avril 2023
 Jesus | [Je vous accueillerai dans le Royaume quand le temps sera venu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-22-1-em-jésus/) | 22 Avril 2023
 Jeanne d'Arc | [L’Amour de Dieu est expansif](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-27-1-em-joan-of-arc/) | 27 Avril 2023
 Jeanne d'Arc | [L'Amour Divin exprimé dans le plan terrestre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-6-16-1-em-joan-of-arc/) | 16 Juin 2023
@@ -34,12 +34,12 @@ Jeanne d'Arc | [Vous progressez](/fr-contemporary-messages/fr-contemporary-messa
 Jeanne d'Arc | [La réponse de Dieu aux demandes de guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-13-2-em-joan-of-arc/) | 13 Juillet 2023
 Jeanne d'Arc | [L'Amour Divin comme moyen de communication/Faites confiance à Dieu/Bénédiction ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-21-2-em-joan-of-arc/) | 21 Août 2023
 Jeanne d'Arc | [Dieu désire guérir l’angoisse de ses enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-22-3-em-joan-of-arc/) | 22 Octobre 2023
-Jeanne d'Arc | [La Volonté de Dieu comme protection](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-23-2-em-st-matthew/) | 23 Octobre 2023
+St Matthieu | [La Volonté de Dieu comme protection](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-23-2-em-st-matthew/) | 23 Octobre 2023
 Jeanne d'Arc | [Vous pouvez rechercher secrètement un véritable désir ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-16-2-em-joan-of-arc/) | 16 Novembre 2023
 Marie | [Partagez cette expérience avec vos frères et sœurs terrestres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-10-1-em-mary/) | 10 Décembre 2023
 Jeanne d'Arc | [Jeanne nous encourage à développer une relation avec nos guides ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-12-1-em-joan-of-arc/) | 12 Décembre 2023
 Jeanne d'Arc | [Comme Dieu le veut, ainsi cela sera ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-28-1-em-joan-of-arc/) | 28 Décembre 2023
-Matthieu | [Vous êtes le fondement de la vérité sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-2-1-em-st-matthew/) | 2 Janvier 2024
+St Matthieu | [Vous êtes le fondement de la vérité sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-2-1-em-st-matthew/) | 2 Janvier 2024
 George et Will | [Une offre d’assistance/de confiance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-2-2-em-georges-and-will/) | 2 Janvier 2024
 Jean Hughes | [L’âme, l’esprit et le corps physique ne feront plus qu’un](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-4-1-em-john-hughes/) | 4 Janvier 2024
 Samuel et Joie | [Vous êtes nécessaires à la transformation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-8-2-em-samuel-and-joy/) | 8 Janvier 2024
@@ -54,8 +54,8 @@ Marie Madeleine | [Notre amour touche vos âmes ](/fr-contemporary-messages/fr-c
 Marie | [Une expérience de communion avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-18-2-em-mary/) | 18 Janvier 2024
 Jean Hugues | [Remerciez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-19-2-em-john-hugues/) | 19 Janvier 2024
 James Tudor Sr. | [Je suis avec vous et je suis là pour vous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-20-1-em-james-tudor-sr/) | 20 Janvier 2024
-Matthieu | [La nature de l'Angélisme Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-25-1-em-st-matthew/) | 25 Janvier 2024
-Jean le Bien-Aimé | [Bienvenue aux nouvelles âmes de ce cercle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-28-1-em-john-the-beloved/) | 28 Janvier 2024
+St Matthieu | [La nature de l'Angélisme Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-25-1-em-st-matthew/) | 25 Janvier 2024
+Jean le Bien-Aimé | [Bienvenue aux nouvelles âmes de ce cercle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-28-2-em-john-the-beloved/) | 28 Janvier 2024
 Jeanne d'Arc | [Nous sommes prêts et disposés à vous aider à exprimer vos dons ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-4-1-em-joan-of-arc/) | 4 Février 2024
 Jeanne d'Arc | [L’Amour de Dieu est votre droit de naissance ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-9-1-em-joan-of-arc/) | 9 Février 2024
 Jean le Baptiste | [Concentrez-vous sur l'amour du Père](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-11-2-em-john-the-baptist/) | 11 Février 2024
@@ -84,5 +84,4 @@ George | [Adaptez-vous, enfants de Dieu](/fr-contemporary-messages/fr-contempora
 Jean - 7ème Sphérien | [Merci de nous avoir invités à prier avec vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-31-2-em-john-7th-spherian/) | 31 Mars 2024
 Jean le Bien Aimé | [Prière continue](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-1-1-em-john-the-beloved/) | 1 Avril 2024
 
-
-# [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)
+## [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

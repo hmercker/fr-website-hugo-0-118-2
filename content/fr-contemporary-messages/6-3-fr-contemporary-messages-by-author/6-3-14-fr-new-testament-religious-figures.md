@@ -58,6 +58,7 @@ Claire d'Assise | [Les fondements solides de la prière et de la foi](/fr-contem
 Claire d'Assise | [Vous êtes là où se trouve votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-5-16-2-jw-clare-von-assisi/) | 16 Mai 2023
 Claire d'Assise | [Sachez que cet amour est éternel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-6-1-jw-clare-von-assisi/) | 6 Novembre 2023
 Claire d'Assise | [Les richesses de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-4-2-jw-clare-von-assisi/) | 4 Décembre 2023
+Claire d'Assise | [Toutes choses conspirent pour votre bonheur dans l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-18-2-jw-clare-von-assisi/) | 18 Février 2024
 Elizabeth Ashbridge | [Une quaker de l'Amérique coloniale](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-1-8-2-fab-elizabeth-ashbridge/) | 8 Janvier 2009
 Francis Fenelon | [Instruction pour les débutants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-55-1969-anonymous-francis-fenelon/) |   1969
 Frederick T. Gates | [Un collègue de John D. Rockefeller SR. confirme son channeling](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-16-1-fab-frederick-t-gates/) | 16 Mars 2013

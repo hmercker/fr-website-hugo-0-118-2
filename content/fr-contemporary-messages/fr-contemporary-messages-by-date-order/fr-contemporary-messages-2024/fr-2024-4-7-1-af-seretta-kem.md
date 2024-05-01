@@ -9,7 +9,7 @@ weight:
 ---
 ### Les prières inébranlables sont essentielles au développement des médiums de l’Amour Divin 
 
-Seretta Kem - reçu par Albert Fike le 7 Avril 2024, MS. NOORDAM
+Seretta Kem - reçu par Albert Fike le 7 Avril 2024, à bord du MS. NOORDAM
 
 Je m’appelle Seretta Kem en ce qui concerne la médiumnité. Je souhaite transmettre ce message à ceux qui se réuniront dans un avenir proche et qui cherchent à ouvrir leurs dons et à explorer les possibilités de médiumnité qui se développent et s’ouvrent en eux. La médiumnité, dans sa définition la plus complète, engage tous les aspects de l’être de l’individu. Il y a une composante physique, il y a une composante spirituelle et une composante de l’âme lorsqu’il s’agit d’être véritablement engagé dans un niveau supérieur, dirons-nous, de médiumnité à cet égard, en recevant les messages et les communications des Anges des Cieux Célestes.
 

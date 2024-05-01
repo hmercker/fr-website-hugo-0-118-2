@@ -18,7 +18,7 @@ Auteur | Date du décès
 [Alec Gaunt](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-1-fr-alec-gaunt/) | 1970
 [Barbara Davies](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-2-fr-barbara-davies/) | Octobre 2020
 [Bernice  Fike](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-3-fr-bernice-fike/) | 2023
-[Bill ReilLy](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-4-fr-bill-reilly/)| 30 Juin 1995
+[Bill Reilly](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-4-fr-bill-reilly/)| 30 Juin 1995
 [Care Darby Walsh](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-5-fr-care-darby-walsh/) | 25 Juillet 1992
 [Catherine Koch](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-6-fr-catheryne-koch/) | 29 Mars 2023
 [Daniel G. Samuels](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/6-4-7-fr-daniel-g-samuels/) | Mars 1982

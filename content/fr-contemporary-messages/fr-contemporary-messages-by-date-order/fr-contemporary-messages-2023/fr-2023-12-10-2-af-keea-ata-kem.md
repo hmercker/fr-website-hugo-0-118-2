@@ -9,7 +9,7 @@ weight:
 ---
 ### Avec les bénédictions de Jésus. Encourage les expressions de nos âmes 
 
-Kea Atta Kem - reçu par Albert Fike le 10 Décembre 2023, Sechelt, Colombie-Britannique, Canada.
+Keea Atta Kem - reçu par Albert Fike le 10 Décembre 2023, Sechelt, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, amis bien-aimés. Je suis Keea-atta-Kem, votre vieil ami qui a été avec vous plusieurs fois. À de nombreuses reprises, j’ai été proche. Aujourd’hui, je souhaite parler de la vitalité de l’âme. Comment votre âme peut être nourrie et comment grâce à cette éducation, peut-elle parvenir à un éveil et à une expression en vous et à travers vous. Comme vous le savez bien, le grand soin de l’âme vient avec l’Amour Divin de Dieu. Lorsque vous priez d’âme à âme, elle est réveillée et animée par l’Amour, l’Essence de Dieu.
 

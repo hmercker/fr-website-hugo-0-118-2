@@ -9,7 +9,7 @@ weight:
 ---
 ###  RÉJOUISSEZ-VOUS du dessein de Dieu ! 
 
-Kea Atta Kem - reçu par Albert Fike le 10 Octobre 2023, Pennsylvanie, États-Unis.
+Keea Atta Kem - reçu par Albert Fike le 10 Octobre 2023, Pennsylvanie, États-Unis.
 
 Je m’appelle Keea Atta Kem. Les anges se réjouissent de votre rassemblement, belles lumières pour Dieu dans une harmonie et une communion aimantes, reconnaissant la sororité<sup id="a1">[1](#f1)</sup> et la fraternité qui se forgent à partir de l’Amour de Dieu qui grandit dans chacune de vos âmes, s’étendant si puissamment en vous, créant ensemble une belle lumière. Cette harmonie, ces teintes et ces couleurs qui se mélangent à partir de chacun de vous, créent un arc-en-ciel de lumière qui vous soutient tous et soutiendra ceux qui viennent.
 

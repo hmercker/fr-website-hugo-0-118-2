@@ -9,7 +9,7 @@ weight:
 ---
 ### Parle clairement de la progression du groupe 
 
-Alec Gaunt - reçu par Albert Fike le 13 Mai 2024, Sechelt, Colombie-Britannique, Canada.
+Alec Gaunt - reçu par Albert Fike le 13 Mai 2023, Sechelt, Colombie-Britannique, Canada.
 
 Bénédictions à vous, mes amis, je suis Alec Gaunt. Je souhaite parler de la progression de ce groupe, des défis et des conditions que vous apportez dans ce Cercle de Lumière. Lorsque nous avons dirigé un groupe d’initiés à la Voix Directe il y a de nombreuses années, il avait une grande force et une grande faiblesse. Cette force et cette faiblesse reflétaient le leadership de ce groupe, dont j’étais le leader et, à bien des égards, contrôlais la façon dont le groupe fonctionnait et restait uni. J’avais une forte personnalité comme je continue à l’avoir. Ainsi, la force de ma personnalité a permis d’assurer une cohésion dans le groupe. Parce que je me connectais sans cesse, communiquais avec ces membres du groupe de la Voix Directe, aidant à les soutenir et à les responsabiliser dans la manière dont ils priaient et se réunissaient dans ce cercle de développement. J’ai aussi exprimé la plus grande faiblesse du groupe, parce que lorsque j’ai soudainement quitté ce plan terrestre, tout était en désordre et ce groupe s’est dissous. Quel dommage que cela soit arrivé si vite.
 

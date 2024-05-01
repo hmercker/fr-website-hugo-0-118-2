@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous êtes les rares privilégiés au monde
 
-Kea Atta Kem - reçu par Al Fike le 23 Mai 2023, Sechelt, Colombie-Britannique, Canada.
+Keea Atta Kem - reçu par Al Fike le 23 Mai 2023, Sechelt, Colombie-Britannique, Canada.
 
 Avec un grand afflux de Son Amour dans votre âme, mes amis bien-aimés. Je suis Keea Atta Kem, et je viens vous encourager dans la joie, afin que vous puissiez ressentir la puissance du Toucher rédempteur de Dieu dans votre âme et vous réjouir de ce beau cadeau qu’Il vous a fait. Car combien sur votre plan terrestre connaissent ce don comme vous le ressentez, ressentent ce don de la manière dont vous le ressentez et prient pour ce don de la même manière que vous priez pour lui ? Très peu, en effet, mes amis bien-aimés. Ainsi, vous êtes les rares chanceux au monde à avoir trouvé un tel don si jeune et si tôt dans votre éveil et votre développement en tant qu’être, création de Dieu.
 

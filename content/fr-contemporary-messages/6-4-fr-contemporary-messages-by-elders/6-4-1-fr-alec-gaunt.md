@@ -36,7 +36,7 @@ Alec Gaunt | [La Transition de Percy](/fr-contemporary-messages/fr-contemporary-
 Alec Gaunt | [Sans amour, on ne peut pas progresser](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-3-3-af-alec-gaunt/) | 3 Décembre 2017
 Alec Gaunt | [Accepter les différences](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-8-2-af-alec-gaunt/) | 8 Décembre 2017
 Alec Gaunt | [Au fil des découvertes de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-24-1-af-alec-gaunt/) | 24 Janvier 2018
-Alec Gaunt | [Connaître la volonté de Dieu pour vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-9-1-af-alec-gaunt/) | 9 Mai 2018
+Alec Gaunt | [Connaître la Volonté de Dieu pour vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-9-1-af-alec-gaunt/) | 9 Mai 2018
 Alec Gaunt | [L'Amour de Dieu est la grande puissance qui va changer le monde - F.U.S.C.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-10-1-af-alec-gaunt/) | 10 Juin 2018
 Alec Gaunt | [Conseils personnels pour la retraite de médiumnité de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-8-3-af-alec-gaunt/) | 8 Août 2018
 Alec Gaunt | [Une âme en quête d'Amour Divin apporte un soutien Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-28-2-mc-alec-gaunt/) | 28 Août 2018

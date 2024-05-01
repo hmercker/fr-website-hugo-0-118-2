@@ -13,7 +13,7 @@ weight: 710
 ---|---|---
 Martin Luther | [Continuez à tendre la main](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-29-1-jb-martin-luther/) | 29 Mai 2012
 Martin Luther | [Tes prières ont été entendues](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-29-3-jb-martin-luther/) | 29 Mai 2012
-Martin Luther | [A poursuite de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-7-18-1-af-martin-luther/) | 18 Juillet 2016
+Martin Luther | [A la  poursuite de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-7-18-1-af-martin-luther/) | 18 Juillet 2016
 Martin Luther | [Défendez la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-9-1-af-martin-luther/) | 9 Décembre 2016
 Martin Luther | [Les Salutations de Martin Luther](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-8-22-1-af-martin-luther/) | 22 Août 2017
 Martin Luther | [Comprendre les lois de l'amour et la régénération de nos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-12-1-af-martin-luther/) | 12 Septembre 2017

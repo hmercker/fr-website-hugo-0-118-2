@@ -86,7 +86,7 @@ St François d'Assise | [L’amour est la vraie monnaie de la vie](/fr-contempor
 Jésus | [Recevoir des conseils](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-7-4-2-af-jesus/) | 4 Juillet 2016
 Augustin | [Choisissez le mental ou l'âme pour votre voyage spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-7-10-1-af-augustine/) | 10 Juillet 2016
 Seretta Kem | [Expiation et purification de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-7-13-1-af-seretta-kem/) | 13 Juillet 2016
-Martin Luther | [A poursuite de la Vvérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-7-18-1-af-martin-luther/) | 18 Juillet 2016
+Martin Luther | [A la poursuite de la Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-7-18-1-af-martin-luther/) | 18 Juillet 2016
 Seretta Kem | [La puissance exponentielle des prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-7-25-1-af-seretta-kem/) | 25 Juillet 2016
 James Padgett | [Chacun de vous fait l’expérience de Dieu et de la Vérité d’une manière unique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-8-17-1-af-james-padgett/) | 17 Août 2016
 St Matthieu | [La différence entre le mental et l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-8-25-1-af-st-matthew/) | 25 Août 2016
@@ -136,7 +136,7 @@ James Reid | [La valeur de la connaissance de vos âmes](/fr-contemporary-messag
 Jésus | [Jésus apporte sa bénédiction au groupe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-27-4-af-jesus/) | 27 Novembre 2016
 Seretta Kem | [Car le changement doit venir, l’amour doit apporter l’harmonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-28-1-af-seretta-kem/) | 28 Novembre 2016
 Moïse | [Les adeptes de l’Amour Divin doivent s’unir au nom de l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-28-2-af-moses/) | 28 Novembre 2016
-St Luc | [Luc souhaite la bienvenue à ceux qui font partie du rassemblement de Punnalu’u](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-28-3-af-st-luke/) | 28 Novembre 2016
+St Luc | [Luc souhaite la bienvenue à ceux qui font partie du rassemblement de Punnalu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-28-3-af-st-luke/) | 28 Novembre 2016
 Goldie | [Pourquoi se compliquer la vie ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-28-4-af-goldie/) | 28 Novembre 2016
 Care Darby Walsh | [Les potentiels en herbe de nos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-29-1-af-care-derby-walsh/) | 29 Novembre 2016
 Judas | [Mettez de côté les objectifs et les ambitions de votre mental](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-29-2-af-judas/) | 29 Novembre 2016

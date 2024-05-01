@@ -9,7 +9,9 @@ weight:
 ---
 ### Survivre à la mort avec les perceptions de l’éternité
 
-Care Darby Walsh - reçu par Jimbeau Walsh le 28 Février 2024, Nashville, Tennesse, USA.
+Care Darby Walsh - reçu par Jimbeau Walsh le 28 Mars 2024, Nashville, Tennesse, USA.
+
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-care-darby-walsh)
 
 Je suis votre sœur en Christ. Je suis Care. Je vois la gentillesse dans ce cercle et le grand désir de liberté dans l'Amour de Dieu et je dois vous dire, si vous ne le savez pas déjà ou n'en êtes pas conscient, que ceux d'entre nous ici que vous invoquez, que vous lisez , qui vous inspirent, nous sommes ravis d'être à votre service. Nous sommes éternellement reconnaissants pour tous les cadeaux que nous avons offerts et ceux que nous continuons de pouvoir offrir, grâce à votre ouverture et votre volonté de recevoir. Car chaque être humain possède le libre arbitre et la volonté de survivre est inscrite dans la condition humaine. Une fois que vous aurez réellement découvert que vous survivrez au-delà de la condition humaine dans ces royaumes de l’esprit que vous aimez tant lire et poussés par les désirs de votre âme à vous transformer et à entrer dans le royaume céleste, vous serez libre.
 

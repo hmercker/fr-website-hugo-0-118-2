@@ -9,7 +9,7 @@ weight:
 ---
 ### Heureux d'être à nouveau réunis avec le groupe du Cercle des 7
 
-Kea Atta Kem - reçu par Al Fike le 13 Mars 2023, Sechelt, Colombie-Britannique, Canada.
+Keea Atta Kem - reçu par Al Fike le 13 Mars 2023, Sechelt, Colombie-Britannique, Canada.
 
 Je suis Keea-Atta-Kem. Oui, nous sommes heureux de vous voir ensemble, et nous sommes heureux d’avoir vécu ces nombreuses années ensemble dans le développement, dans la croissance de l’âme, dans votre éveil continu et votre épanouissement dans l’Amour de Dieu. Ce développement ne cessera pas et ne sera pas entièrement achevé au fur et à mesure que vous poursuivrez votre voyage sur ce plan terrestre, mais il va de pair avec l’Amour qui grandit dans vos âmes. C’est une réponse à cet Amour qui continue à apporter la Lumière et la transformation à l’intérieur.
 

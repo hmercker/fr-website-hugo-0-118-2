@@ -27,7 +27,7 @@ Flavius Josèphe | [Les portails de lumière sont de puissants instruments de Di
 Flavius Josèphe | [Qui et qu’est-ce que Dieu ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-8-31-2-af-josephus/) | 31 Août 2019
 Flavius Josèphe | [Q&R : Qu'est-ce que la lumière spirituelle ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-8-31-3-af-josephus/) | 31 Août 2019
 Flavius Josèphe | [Les pensées sont des choses puissantes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-4-2-af-josephus/) | 4 Septembre 2019
-Flavius Josèphe | [Le progrès de l'âme en recevant l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-22-1-af-josephus/) | 22 Septembre 2019
+Flavius Josèphe | [Le progrès de l'âme en recevant l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-22-2-af-josephus/) | 22 Septembre 2019
 Flavius Josèphe | [La vérité arrive quand l'âme commence à se réveiller de ses profonds sommeils](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-16-1-af-josephus/) | 16 Novembre 2019
 Flavius Josèphe | [Questions et réponses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-24-1-af-josephus/) | 24 Novembre 2019
 Flavius Josèphe | [Q&R : Les adeptes du Livre d’Urantia sont-ils à l’écoute de leur âme ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-4-2-af-josephus/) | 4 Décembre 2019
@@ -47,7 +47,7 @@ Flavius Josèphe | [Les merveilles de l’âme](/fr-contemporary-messages/fr-con
 Flavius Josèphe | [Les couches de conscience dans l’âme, le mental et le matériel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-6-1-af-josephus/) | 6 Décembre 2020
 Flavius Josèphe | [Avertissement et réassurance pour des changements terrestres de plus en plus intenses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-29-1-af-josephus/) | 29 Mars 2022
 Flavius Josèphe | [Apporte une plus grande comprehension de qui nous sommes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-6-1-af-josephus/) | 6 Janvier 2023
-Flavius Josèphe | [Connaître son âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-21-2-af-josephus/) | 21 Avril 2023
+Flavius Josèphe | [Connaître son âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-21-1-af-josephus/) | 21 Avril 2023
 Flavius Josèphe | [Dieu nous utilise pour renforcer le réseau de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-27-1-af-josephus/) | 27 Août 2023
 Flavius Josèphe | [Le pouvoir de votre volonté ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-13-3-af-josephus/) | 13 Octobre 2023
 Flavius Josèphe | [Aller au-delà de la conscience mentale et spirituelle jusqu'à l'âme ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-29-1-af-josephus/) | 29 Octobre 2023

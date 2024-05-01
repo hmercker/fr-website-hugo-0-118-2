@@ -1,13 +1,13 @@
 ---
-title: "Le Peuple Elu"
+title: "Le Peuple Élu"
 menu_title: ""
-description: "Le Peuple Elu"
+description: "Le Peuple Élu"
 date: 2022-06-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### Le Peuple Elu
+### Le Peuple Élu
 
 Judas - reçu par H____ le 2 Janvier 2002, Cuenca, Équateur.
 

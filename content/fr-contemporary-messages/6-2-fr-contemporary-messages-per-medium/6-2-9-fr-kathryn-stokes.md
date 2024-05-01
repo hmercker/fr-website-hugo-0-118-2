@@ -106,4 +106,4 @@ James Padgett | [Le pouvoir de l’Amour pour effacer les erreurs](/fr-contempor
 St Pierre | [Les règles du jeu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-20-1-ks-st-peter/) | 20 Juillet 2006
 Inconnu | [Un avenir radieux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-24-1-ks-unknown/) | 24 Juillet 2006
 
-# [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)
+### [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)
