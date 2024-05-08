@@ -25,15 +25,15 @@ La transformation d'une âme naturelle en une âme divine est un processus gradu
 
 Au fur et à mesure que l'Amour Divin augmente en quantité, le changement et la transformation deviennent plus grands, jusqu'à ce que, finalement, la transformation devienne si grande que l'âme entière devienne une chose de cette Essence Divine, et participe de sa nature et de sa substance, un être de la Divinité. Jusqu'à ce que l'âme ait expérimenté cette transformation complète, la Nouvelle Naissance, l'Amour Divin et le péché peuvent encore coexister dans l'âme.
 
-[Réconcilier les messages de Padgett avec la Bible](***************https://new-birth.net/topical-subjects/reconciling-the-padgett-messages-to-the-bible/).
+[Réconcilier les messages de Padgett avec la Bible](https://new-birth.net/topical-subjects/reconciling-the-padgett-messages-to-the-bible/).
 
 Ce contenu est apparu à l'origine sur le site web de Mark Kramer divine-love.org, mais il y a quelques années il ne l'a pas renouvelé et le site a disparu.
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-Jésus | [Jésus – La puissance de l’Amour pour racheter les hommes du péché et de l’erreur](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-3-6-1-jep-jesus/) | 6 Mars 1915
-Jésus | [Jésus: Beaucoup d’anciens esprits ne sont pas dans les Cieux Célestes](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-2-2-jep-jesus/) | 2 Juin 1915
-Anne Rollins | [Anne Rollins – Le sang de Jésus ne sauve pas du péché](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-5-3-jep-ann-rollins/) | 5 Septembre 1915
+Jésus | [La puissance de l’Amour pour racheter les hommes du péché et de l’erreur](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-3-6-1-jep-jesus/) | 6 Mars 1915
+Jésus | [Beaucoup d’anciens esprits ne sont pas dans les Cieux Célestes](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-2-2-jep-jesus/) | 2 Juin 1915
+Anne Rollins | [Le sang de Jésus ne sauve pas du péché](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-5-3-jep-ann-rollins/) | 5 Septembre 1915
 Jésus | [Jésus n’est pas Dieu, mais un frère aîné. Le péché n’a aucune existence sauf s’il est créé par l’humanité, l’homme doit alors payer les pénalités](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-25-1-jep-jesus/) | 25 Décembre 1915
 Judas | [Le plus grand péché est contre l’Esprit Saint qui transmet l’Amour Divin dans l’âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-10-21-1-jep-judas/) | 21 Octobre 1916
 Jésus | [Ce que les hommes peuvent faire pour supprimer la guerre et le mal des âmes des hommes. Jésus n’est jamais venu apporter une épée, mais apporter la paix par ses enseignements](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-24-1-jep-jesus/) | 24 Décembre 1916

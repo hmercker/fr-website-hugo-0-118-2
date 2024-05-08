@@ -9,7 +9,7 @@ weight:
 ---
 ### Marie
 
-Marie, mère de Jésus, est très considérée dans l'Eglise Catholique où elle est particulièrmnt vénérée. Une véritable légende est née autour d'elle et cette légend est à l'origin du dogme de la naissance virginale qui stipule que Jésus serait né sans faire l'objet d'une conception traditionnelle et donc ne serait pas le résultat d'une relation entre elle et Joseph. La bible renferme de nombreuses légendes qui semblent avoir été introduit dans les récits bibliques aux premiers temps des églises Chrétiennes dans le but de présenter Jésus comme étant un personnaga hors du commun.
+Marie, mère de Jésus, est très considérée dans l'Eglise Catholique où elle est particulièrmnt vénérée. Une véritable légende est née autour d'elle et cette légened est à l'origine du dogme de la naissance virginale qui stipule que Jésus serait né sans faire l'objet d'une conception traditionnelle et donc ne serait pas le résultat d'une relation entre elle et Joseph. La bible renferme de nombreuses légendes qui semblent avoir été introduites dans les récits bibliques aux premiers temps des églises Chrétiennes dans le seul but de présenter Jésus comme étant un personnaga hors du commun.
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
@@ -129,6 +129,7 @@ Marie | [Mon amour pour chacun de vous est grand](/fr-contemporary-messages/fr-c
 Marie | [La transformation apportée par la grâce de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-10-1-af-mary/) | 10 Janvier 2024
 Marie | [Une expérience de communion avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-18-2-em-mary/) | 18 Janvier 2024
 Marie | [Le grand consolateur de l’Amour de Dieu est sur nous tous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-23-1-af-mary/) | 23 Février 2024
+Marie | [Exprime son amour en se joignant à la prière avec nous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-28-2-af-mary/) | 28 Février 2024
 Marie | [Un don de guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-7-1-em-mary/) | 7 Mars 2024
 Marie & White Eagle | [Le miracle de Fatima et l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-9-19-2-ar-mary-white-eagle/) | 19 Septembre 1999
 Marie & David | [Faire face à la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-3-19-2-ar-mary-david/) | 19 Mars 2000

@@ -1,13 +1,13 @@
 ---
-title: "Je vous ai entendu et j'ai répondu à votree appel"
+title: "Je vous ai entendu et j'ai répondu à ton appel"
 menu_title: ""
-description: "Je vous ai entendu et j'ai répondu à votree appel"
+description: "Je vous ai entendu et j'ai répondu à ton appel"
 date: 2022-06-01 06:00:01+00:69
 draft: False
 hidden: True
 weight:
 ---
-### Je vous ai entendu et j'ai répondu à votree appel
+### Je vous ai entendu et j'ai répondu à ton  appel
 
 Le Père Céleste - reçu par Enfant de Dieu le 8 Août 2013.<sup id="a1">[1](#f1)</sup>
 

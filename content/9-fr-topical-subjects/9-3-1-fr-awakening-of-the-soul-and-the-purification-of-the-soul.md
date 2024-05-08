@@ -29,7 +29,7 @@ Thomas d'Aquin | [Connaître Dieu avec le mental de l’âme](/fr-contemporary-m
 Seretta Kem | [Un kaléidoscope de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-16-1-af-seretta-kem/) | 16 Octobre 2018
 Seretta Kem | [L'éveil de l'âme, la puissance de vos dons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-23-2-af-seretta-kem/) | 23 Octobre 2018
 St Matthieu | [La guérison par l'amour crée la richesse de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-26-4-af-st-matthew/) | 26 Octobre 2018
-Keea Atta Kem | [L'éveil de l'âme par l'amour de Dieu est la clé de tous les dons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-26-6-af-keea-atta-kem/) | 26 Octobre 2018
+Keea Atta Kem | [L'éveil de l'âme par l'Amour de Dieu est la clé de tous les dons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-26-6-af-keea-atta-kem/) | 26 Octobre 2018
 St Paul | [Le chemin le moins fréquenté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-29-1-af-st-paul/) | 29 Octobre 2018
 Augustin | [La lutte du mental matériel pour être en harmonie avec l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-6-1-af-augustine/) | 6 Novembre 2018
 Lotus Blossom | [L’importance de vos Pensées, Émotions et Sentiments](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-22-3-mc-lotus-blossom/) | 22 Novembre 2018

@@ -9,13 +9,18 @@ weight:
 ---
 ### Judas
 
+![title](/3-fr-judas-of-kerioth-messages/fr-judas.jpg)
+
 Judas est avant connu et perçu comme étant le disciple qui a trahi Jésus. Dans le messagee qu'il a communiqué le [16 Novembre 2002](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-11-16-1-hr-judas/) Judas explique qu'il n’a pas trahi Jésus suite à sa colère devant le gaspillage d’argent causé par le versement d'un parfum sur la tête ou les pieds de Jésus comme il est expliqué dans [Mathhieu 26:6-18](https://saintebible.com/matthew/26-6.htmhttps://saintebible.com/matthew/26-6.htm), dans [Jean 2:1-5](https://saintebible.com/john/12-1.htm) ou dans [Luc 7:36-39](https://saintebible.com/luke/7-36.htm).
 
 Ce n'est pas non plus en raison des reproches que Jésus a adressé à ses disciples car ce n’était pas la première fois qu’il le faisait. Judas a clairement expliqué les raisons de sa trahison dans un message qu'il a communiqué par l'intermédiiare de James Padgett le [23 Août 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-23-3-jep-judas/). Il explique qu'il pas commis ce crime parce que Dieu lui avait ordonné de le faire, qu'une telle affirmation n’a pas de sens et que ce fut seulement sa décision personnelle et un geste irréfléchi.
 
+En dépit ou peut-être parce qu'il a eu un chemin tellement difficile, Judas est une personne merveilleuse et ses messages sont  toujours extrêmement précieux. La série de 180 messages qu'il a communiqué entre le 19 Août 2001 et le 30 Juin 2003 est particulièrement remarquable.
+
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Judas | [L'amour vous donne un Socle et un Fondement tellement Puissants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-50-1970-1-15-anonymous-judas/) | 15 Janvier 1970
+Judas | [L’Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-19-1-hr-anonymous/) | 19 Août 2001
 Judas | [Judas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-20-1-hr-judas/) | 20 Août 2001
 Judas | [Communication et médiumnité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-20-2-hr-judas/) | 20 Août 2001
 Judas | [L’Incident du Temple](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-21-1-hr-judas/) | 21 Août 2001

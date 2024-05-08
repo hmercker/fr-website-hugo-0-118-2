@@ -59,6 +59,7 @@ Claire d'Assise | [Vous êtes là où se trouve votre âme](/fr-contemporary-mes
 Claire d'Assise | [Sachez que cet amour est éternel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-6-1-jw-clare-von-assisi/) | 6 Novembre 2023
 Claire d'Assise | [Les richesses de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-4-2-jw-clare-von-assisi/) | 4 Décembre 2023
 Claire d'Assise | [Toutes choses conspirent pour votre bonheur dans l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-18-2-jw-clare-von-assisi/) | 18 Février 2024
+Claire d'Assise | [Pour la Terre et toutes ses créatures](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-18-1-jw-clare-of-assisi/) | 18 Avril 2024
 Elizabeth Ashbridge | [Une quaker de l'Amérique coloniale](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-1-8-2-fab-elizabeth-ashbridge/) | 8 Janvier 2009
 Francis Fenelon | [Instruction pour les débutants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-55-1969-anonymous-francis-fenelon/) |   1969
 Frederick T. Gates | [Un collègue de John D. Rockefeller SR. confirme son channeling](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-16-1-fab-frederick-t-gates/) | 16 Mars 2013
@@ -72,11 +73,11 @@ Guru Ram Das | [Embrasser d'autres cultures](/fr-contemporary-messages/fr-contem
 Hazrat Inayat Khan | [Gardez une chanson dans votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-9-1-jw-hazrat-inayat-khan/) | 9 Novembre 2021
 Hildegard of Bingen | [Une mystique médiévale exulte dans le monde spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-7-1-fab-hildegard-of-bingen/) | 7 Août 2008
 Jacobus Arminius | [Un théologien néerlandais découvre la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-21-1-fab-jacobus-arminius/) | 21 Mars 2007
-Jean Paul II | [L'amour de Dieu et le pape](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-3-1-fab-john-paul-ii/) | 3 Janvier 2007
+Jean Paul II | [L'Amour de Dieu et le pape](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-3-1-fab-john-paul-ii/) | 3 Janvier 2007
 Jean Paul II | [Un pape appelle à la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-1-1-fab-john-paul-ii/) | 1 Janvier 2007
 Jérôme | [Vous êtes soutenu dans vos luttes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-12-1-af-jerome/) | 12 Septembre 2016
 Jerry Falwell | [La tristesse de Jerry Falwell](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-4-5-1-fab-jerry-falwell/) | 5 Avril 2009
-John Wesley | [Le rôle de la voix directe dans l'éveil de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-20-1-af-john-wesley/) | 20 Mai 2018
+John Wesley | [Le rôle de la Voix Directe dans l'éveil de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-20-1-af-john-wesley/) | 20 Mai 2018
 John Wesley | [Toute vérité commence avec l’âme éveillée dans l’amour – Retraite F.U.S.C.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-9-2-af-john-wesley/) | 9 Juin 2018
 John Wesley | [Exprimez-vous pour la vérité et le changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-5-2-af-john-wesley/) | 5 Novembre 2018
 John Wesley | [Il est temps d’apporter la vérité à l’humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-22-1-af-john-wesley/) | 22 Août 2021
@@ -87,7 +88,6 @@ Joseph Smith | [L’imagination et les idées des hommes créent des faussetés 
 Joseph Smith | [Il est important d'apporter la vérité à l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-16-5-af-joseph-smith/) | 16 Novembre 2017
 Laila | [Marchez chaque jour dans Sa lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-19-3-af-laila/) | 19 Mai 2017
 Maharishi Mahesh Yogi | [Utilisez vos dons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-16-4-af-maharishi-mahesh-yogi/) | 16 Novembre 2017
-Maharishi Mahesh Yogi | [Utilisez vos dons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-16-4-af-maharishi-mahesh-yogi/) | 16 Novembre 2017
 Mère Teresa | [Servir dans l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-19-1-na-mother-teresa/) | 19 Janvier 2008
 Mère Teresa | [Les possibilités du service](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-23-3-af-mother-teresa/) | 23 Novembre 2017
 Osho Bhagwan | [L'Amour de Dieu est la véritable voie de la libération](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-12-1-af-osho-bhagwan/) | 12 Février 2019
@@ -97,7 +97,7 @@ Pape Jean-Paul II | [Le pape Jean Paul II est dans le Royaume des Cieux](/fr-con
 Pape Pie XII | [L’erreur d’un pape](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-26-1-fab-pope-pius-xii/) | 26 Janvier 2014
 Pape Urbain II | [Les expériences du Pape urbain II](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-17-1-fab-pope-urban-ii/) | 17 Août 2010
 Pape Urbain II | [Les expériences du Pape urbain II -2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-18-1-fab-pope-urban-ii/) | 18 Août 2010
-Pasteur George Vale Owen | [Prier pour s'ouvrir à l'amour du Créateur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-10-1-jw-rev-george-vale-owen/) | 10 Août 2020
+Pasteur George Vale Owen | [Prier pour s'ouvrir à l'Amour du Créateur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-10-1-jw-rev-george-vale-owen/) | 10 Août 2020
 Pasteur George Vale Owen | [Dans la gratitude et l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-12-1-jw-rev-george-vale-owen/) | 12 Août 2020
 Pasteur George Vale Owen | [Quelques propos du Révérend GV Owen](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-11-1-jw-rev-george-vale-owen/) | 11 Janvier 2021
 Pelage | [Pelage est conforté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-8-24-1-fab-pelagius/) | 24 Août 2006
@@ -109,19 +109,19 @@ Roger Williams | [Un dissident colonial](/fr-contemporary-messages/fr-contempora
 Richard | [Donner, recevoir, émotions et pensées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-15-1-jr-richard/) | 15 Mars 2013
 Richard | [Gratitude](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-18-1-jr-richard/) | 18 Mai 2014
 Saladin | [Les expériences d’un leader Musulman](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-18-2-fab-saladin/) | 18 Août 2010
-Salome | [Les désirs de notre âme en alignement avec la volonté de Dieu (2021 Voix directe II)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-17-1-af-salome/) | 17 Septembre 2021
-Salome | [Le monde a besoin de vos prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-21-1-af-salome/) | 21 Juin 2022
+Salome | [Les désirs de notre âme en alignement avec la Volonté de Dieu (2021 Voix directe II)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-17-1-af-salome/) | 17 Septembre 2021
+Salome | [Le monde a besoin de vos prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-21-2-af-salome/) | 21 Juin 2022
 Saint Jean Chrysostome | [Le bonheur d'un père de l'Église](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-25-2-fab-john-chrysostom/) | 25 Mai 2009
 Sri Yukteswar| [Le gourou Hindou Sri Yukteswar parle de l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-30-2-fab-sri-yarisupta/) | 30 Janvier 2014
-Sri Yukteswar | [La loi de la création et Sathya Sai Baba](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/)
+Sri Yukteswar | [La loi de la création et Sathya Sai Baba](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-2-4-1-wv-sri-yarisupta/) | 4 Février 2014
 Sri Yukteswar | [Réponses aux questions sur la guérison par l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-26-3-af-sri-yarisupta/) | 26 Janvier 2019
 Sri Yukteswar | [Qu’y a-t-il dans un nom ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-27-4-af-sri-yarisupta/) | 27 Janvier 2019
 Sri Yukteswar | [La dualité de l'âme et de l'esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-4-9-2-af-sri-yukteswar/) | 9 Avril 2019
-Sri Yukteswar | [Sri Yukteswar honors Yogananda](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-18-1-jw-sri-yukteswar/) | 18 Septembre 2020
-Sri Yukteswar | [L'instrumentalité de Lorraine se manifeste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-15-2-af-sri-yuktesar/) | 15 Octobre 2022
-St Étienne | [Prier pour l’amour, s’épanouir dans l’amour.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-6-5-1-af-st-stephen/) | 5 Juin 2017
+Sri Yukteswar | [Sri Yukteswar rend hommage à Yogananda](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-18-1-jw-sri-yukteswar/) | 18 Septembre 2020
+Sri Yukteswar | [L'instrumentalité de Lorraine se manifeste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-15-3-af-sri-yuktesar/) | 15 Octobre 2022
+St Étienne | [Prier pour l’amour, s’épanouir dans l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-6-5-1-af-st-stephen/) | 5 Juin 2017
 St Étienne | [Il y a un pouvoir à ce don de perspicacité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-3-13-1-af-st-stephen/) | 13 Mars 2019
-St Étienne | [Ne présumez pas de la manière dont la volonté de Dieu s'accomplit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-3-15-1-af-st-stephen/) | 15 Mars 2019
+St Étienne | [Ne présumez pas de la manière dont la Volonté de Dieu s'accomplit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-3-15-1-af-st-stephen/) | 15 Mars 2019
 St Étienne | [Vous trouverez votre refuge en Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-26-2-af-st-stephen/) | 26 Octobre 2021
 St Étienne | [Parlez au monde depuis votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-26-1-jw-st-stephen/) | 26 Décembre 2021
 St François d'Assise | [Saint François d’Assise sur les motivations](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-6-1-fab-st-francis-of-assisi/) | 6 Janvier 2003
@@ -173,11 +173,11 @@ St François d'Assise | [Soyez Bénis](/fr-contemporary-messages/fr-contemporary
 St François d'Assise | [Se tenir nu devant Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-11-10-2-jw-st-francis-of-assisi/) | 10 Novembre 2020
 St François d'Assise | [Ce chemin exige que vous sachiez ce qui est important](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-1-1-jw-st-francis-of-assisi/) | 1 Janvier 2021
 St François d'Assise | [L’illumination par l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-13-1-jw-st-francis-of-assisi/) | 13 Janvier 2021
-St François d'Assise | [Tendre la main avec l’amour de Dieu dans vos cœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-2-15-1-jw-st-francis-of-assisi/) | 15 Février 2021
+St François d'Assise | [Tendre la main avec l’Amour de Dieu dans vos cœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-2-15-1-jw-st-francis-of-assisi/) | 15 Février 2021
 St François d'Assise | [L’Etat de Grâce](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-20-2-jw-st-francis-of-assisi/) | 20 Avril 2021
 St François d'Assise | [L'amour va changer le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-7-2-jw-st-francis-of-assisi/) | 7 Juin 2021
 St François d'Assise | [Marchez dans la grâce ! C'est simple](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-22-1-jw-st-francis-of-assisi/) | 22 Mars 2021
-St François d'Assise | [Partager l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-28-1-jw-st-francis-of-assisi/) | 28 Juin 2021
+St François d'Assise | [Partager l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-28-1-jw-st-francis-of-assisi/) | 28 Juin 2021
 St François d'Assise | [Allez en paix, ne soyez pas troublés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-13-2-jw-st-francis-of-assisi/) | 13 Juillet 2021
 St François d'Assise | [Bénis soient les enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-6-3-jw-st-francis-of-assisi/) | 6 Septembre 2021
 St François d'Assise | [Nous implore d’apporter une plus grande lumière dans le monde (Cercle de Prière en ligne)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-17-1-af-st-francis-of-assisi/) | 17 Octobre 2021
@@ -193,13 +193,13 @@ St François d'Assise | [Quand on donne beaucoup, on attend beaucoup](/fr-contem
 St François d'Assise | [Laissez votre crise vous propulser vers une vie en Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-23-1-jw-st-francis-of-assisi/) | 23 Février 2023
 St François d'Assise | [Des paroles sans actes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-14-1-jw-st-francis-of-assisi/) | 14 Mars 2023
 St François d'Assise | [Perfection en Grâce](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-5-15-1-jw-st-francis-of-assisi/) | 15 Mai 2023
-St François d'Assise | [Egaux dans l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-6-19-1-jw-st-francis-of-assisi/) | 19 Juin 2023
+St François d'Assise | [Égaux dans l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-6-19-1-jw-st-francis-of-assisi/) | 19 Juin 2023
 St François d'Assise | [Calme dans la tempête](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-17-1-jw-st-francis-of-assisi/) | 17 Juillet 2023
 St François d'Assise | [Foi et Persévérance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-1-2-jw-st-francis-of-assisi/) | 1 Décembre 2023
 St François d'Assise | [Puissions-nous être transformés par le don de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-6-1-af-st-francis-of-assisi/) | 6 Janvier 2024
 St François d'Assise | [Restez en grâce](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-8-1-jw-st-francis-of-assisi/) | 8 Janvier 2024
 St. George | [Notre nation, Guernesey, a grand besoin de s’élever](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-15-4-af-st-george/) | 15 Mai 2022
-Thérèse | [Cherchez l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-12-1969-7-14-anonymous-therese/) | 14 Juillet 1969
+Thérèse | [Cherchez l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-12-1969-7-14-anonymous-therese/) | 14 Juillet 1969
 Thérèse | [Chaque prière crée un sanctuaire invisible (Cercle de Prière de Gibsons)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-11-2-jw-therese/) | 11 Octobre 2021
 Thomas d'Aquin | [Seule la vérité nous sauvera](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-18-1-fab-thomas-aquinas/) | 18 Septembre 2008
 Thomas d'Aquin | [S'accorder les uns avec les autres apporte une puissante harmonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-29-1-af-thomas-aquinas/) | 29 Octobre 2017

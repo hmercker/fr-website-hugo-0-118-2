@@ -96,7 +96,7 @@ Le Père Céleste | [Mon amour vit et tu le sens](/fr-contemporary-messages/fr-c
 Le Père Céleste | [Vous êtes un mystère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-7-29-1-cog-father/) | 29 Juillet 2013
 Le Père Céleste | [Laissez tes larmes couler comme des diamants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-8-3-1-cog-father/) | 3 Août 2013
 Le Père Céleste | [Mon amour va guérir tes blessures](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-8-7-1-cog-father/) | 7 Août 2013
-PLe Père Céleste | [Je t'ai entendu et j'ai répondu à ton appel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-8-8-1-cog-father/) | 8 Août 2013
+PLe Père Céleste | [Je t'ai entendu et j'ai répondu à votre appel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-8-8-1-cog-father/) | 8 Août 2013
 Le Père Céleste | [Laissez Mon Amour être votre fondement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-9-3-1-cog-father/) | 3 Septembre 2013
  | <p align="center">**Année 2014**</p> |
 Le Père Céleste | [L’amour que je suis est l’amour que tu es](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-7-9-1-cog-father/) | 9 Juillet 2014

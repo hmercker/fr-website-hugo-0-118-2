@@ -9,7 +9,7 @@ weight:
 ---
 ### Importance de partager la vérité de l’Amour de Dieu avec le monde
 
-Augustin - reçu par Albert Fike le 3 Mars 2024, Big Island, Hawaï, USA
+Augustin - reçu par Albert Fike le 2 Mars 2024, Big Island, Hawaï, USA
 
 Que Dieu vous bénisse, mes enfants bien-aimés. Je suis votre enseignant, Augustin. Je souhaite vous encourager à être courageux et fort dans vos relations avec le monde. Car il est facile de résider dans votre propre sécurité et dans votre demeure de lumière. Être nourri par Dieu dans vos prières. Vivre une vie simple et bénie. C’est un beau cadeau de Dieu. Chacun de vous a ses sanctuaires, ses lieux de lumière, de sécurité, bénis de lumière. Mais c’est sur le monde dans le besoin, mes chers et beaux étudiants, que vous devez poser votre regard. Car comment Dieu va-t-il agir si vous vous retranchez dans votre maison sûre et bénie ? Les prières sont certes utiles et peuvent être puissantes, mais les actions sont plus puissantes. Les efforts sont plus directs lorsque l’on est dans le monde, cherchant à être utilisé comme canal par Dieu. Cela peut être fait de manière simple et silencieuse. Pourtant, vous devez être en mouvement à travers vos communautés, à travers ce monde, afin de devenir un agent actif pour Dieu.
 

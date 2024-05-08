@@ -13,7 +13,7 @@ weight:
 
 Dans plusieurs messages, Jésus et Jean le Baptiste ont expliqué que le récit de la naissance de Jean était une pure fiction. Nous lisons dans la Bible que l’ange du Seigneur apparut à Zacharie, le vieux prêtre, dans le Saint du Temple.
 
-Tout d’abord, Zacharie n’était pas un vieillard, de plus, seul le grand prêtre pouvait entrer dans le Saint des Saints et, ceci, seulement une fois par an. Et comme je l’ai dit, le pauvre Zacharie n’en était pas le Grand Prêtre.
+Tout d’abord, Zacharie n’était pas un vieillard, de plus, seul le grand prêtre pouvait entrer dans le Saint des Saints et, ceci, seulement une fois par an. En fait, Zacharie n’en était pas le Grand Prêtre.
 
 Ce que les auteurs des textes de l'Évangile, tels qu’ils existent aujourd'hui, essaient de faire, c’est d’établir un lien avec l’Ancien Testament. Donc nous comprenons que l’histoire du vieux couple qui ne pouvait pas avoir d'enfants mais qui a pu donner naissance à un fils de façon miraculeuse était déjà présente dans l’ancien Testament. C’est l’histoire d’Abraham et de Sarah.
 

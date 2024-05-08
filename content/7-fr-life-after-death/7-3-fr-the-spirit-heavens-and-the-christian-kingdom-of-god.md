@@ -1,21 +1,19 @@
 ---
-title: "Les cieux spirituels et le royaume chrétien de dieu"
-menu_title: "Les cieux spirituels et le royaume chrétien de dieu"
-description: "Les cieux spirituels et le royaume chrétien de dieu"
+title: "Les Cieux Spirituels et le Royaume Chrétien de Dieu"
+menu_title: "Les Cieux Spirituels et le Royaume Chrétien de Dieu"
+description: "Les Cieux Spirituels et le Royaume Chrétien de Dieu"
 date: 2020-07-03 02:18:11+11:00
 draft: False
 hidden: False
 weight: 370
 ---
-## Les cieux spirituels et le royaume chrétien de dieu
+### Les Cieux Spirituels et le Royaume Chrétien de Dieu
 
-### Les cieux spirituels et le royaume de dieu chretien
-
-Les Chrétiens orthodoxes qui arrivent sur cette page web pensent peut-être que le mot "ciel" est le mot souvent utilisé dans la Bible pour désigner le Royaume de Dieu. Ce n'est pas le cas. Ce diagramme peut aider à illustrer la construction de cet aspect des royaumes qui se trouvent au-delà de ce royaume matériel
+Les Chrétiens orthodoxes qui arrivent sur cette page web pensent peut-être que le mot "Ciel" est le mot souvent utilisé dans la Bible pour désigner le Royaume de Dieu. Ce n'est pas le cas. Ce diagramme peut aider à illustrer la construction de cet aspect des royaumes qui se trouvent au-delà de ce royaume matériel
 
 ![title](/7-fr-life-after-death/fr-the-heavens-2022-1.jpg)
 
-Ici, sur ce site, nous utilisons souvent le mot "Cieux Célestes" pour désigner ce que Jésus a appelé "Le Royaume de Dieu". Et c'est là que la confusion commence, car nous constatons qu'il existe toute une série de "cieux" inférieurs au "Royaume de Dieu". Ces cieux inférieurs, nous les avons appelés sur ce site « Sphères d'Esprit » ou « Cieux Spirituels » (mais qui ne sont pas étiquetés sur le diagramme autrement que comme une sphère), et ils sont montrés dans le diagramme numérotés de 1 à 7. C’est cette division qui est retenue par la plupart des auteurs de contenus spiritualistes.
+Ici, sur ce site, nous utilisons souvent le mot *« Cieux Célestes »* pour désigner ce que Jésus a appelé *« Le Royaume de Dieu »*. Et c'est là que la confusion commence, car nous constatons qu'il existe toute une série de "cieux" inférieurs au *« Royaume de Dieu »*. Ces cieux inférieurs, nous les avons appelés sur ce site *« Sphères d'Esprit »* ou *« Cieux Spirituels »* (mais qui ne sont pas étiquetés sur le diagramme autrement que comme une sphère), et ils sont numérotés dans le diagramme de 1 à 7. C’est cette division qui est retenue par la plupart des auteurs de contenus spiritualistes.
 
 **[La première sphère](/7-fr-life-after-death/7-1-2-fr-getting-the-hell-out-of-here/#first-sphere)**, dans sa constitution est tellement proche de la terre qu’un certain nombre de personnes décédées ne réalisent pas qu’elles ne sont plus dans leur corps de chair. Elles ne comprennent pas alors pourquoi tous leurs proches subitement de leur répondent plus. Et cette situation peut durer plusieurs années avant que l’esprit de la personne décédée accepte finalement de reconnaître les faits. C’est une sphère somme toute assez matérielle dont les niveaux les plus bas se confondent avec l’enfer. Une très large partie des hommes et des femmes transitent, au moment de leur mort, vers cette sphère.
 
@@ -49,15 +47,15 @@ Anne Rollins | [Anne Rollins corrobore l’expérience d’Hélène et raconte l
 John H Padgett | [Le père de M. Padgett a été choisi par les puissances supérieures pour être l’ange gardien de son fils aussi longtemps qu’il vivra sur terre comme mortel](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-3-17-3-jep-john-h-padgett/) | 17 Mars 1915
 Hélène Padgett | [Hélène écrit sur la loi de Compensation](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-3-23-2-jep-helen-padgett/) | 23 Mars 1915
 Anne Rollins | [La grand-mère de M. Padgett décrit sa maison dans la seconde sphère Céleste](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-4-27-1-jep-ann-rollins/) | 27 Avril 1915
-Jésus | [Jésus: Beaucoup d’anciens esprits ne sont pas dans les Cieux Célestes](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-2-2-jep-jesus/) | 2 Juin 1915
+Jésus | [Beaucoup d’anciens esprits ne sont pas dans les Cieux Célestes](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-2-2-jep-jesus/) | 2 Juin 1915
 Anne Rollins | [Anne Rollins décrit les différentes sphères et les différents genres d’esprit qui y habitent](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-5-2-jep-ann-rollins/) | 5 Juin 1915
 Abdullah ben Caliph | [Abdulla ben Caliph un imam musulman parle de la vie telle que vécue dans sa sphère](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-6-22-1-jep-abdullah-ben-caliph/) | 22 Juin 1915
 Anne Rollins | [Anne Rollins décrit sa maison dans la Deuxième Sphère Céleste](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-6-3-jep-ann-rollins/) | 6 Juillet 1915
 Anne Rollins | [Les expériences d’Anne Rollins dans la Seconde Sphère Céleste](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-7-8-3-jep-ann-rollins/) | 8 Juillet 1915
-Samuel | [Samuel partage son expérience dans la sixième sphère et son progrès vers le Royaume Céleste](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-5-1-jep-samuel/) | 5 Août 1915
-Selligman | [Seligman : Opposant les cieux musulmans et les cieux Chrétiens](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-8-7-jep-seligman/) | 8 Août 1915
+Samuel | [Partage son expérience dans la sixième sphère et son progrès vers le Royaume Céleste](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-5-1-jep-samuel/) | 5 Août 1915
+Selligman | [Les Cieux Musulmans et les Cieux Chrétiens](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-8-7-jep-seligman/) | 8 Août 1915
 Salaalida | [Salaalida, un musulman, qui a aidé à défendre Jérusalem des Chrétiens, est un esprit très heureux et un amoureux de Dieu](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-12-2-jep-salaalida/) | 12 Août 1915
-Samuel | [Samuel – Décrit les Cieux Célestes](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-17-1-jep-samuel/) | 17 Août 1915
+Samuel | [Décrit les Cieux Célestes](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-17-1-jep-samuel/) | 17 Août 1915
 Samuel B Southard | [Un esprit qui avait foi dans les crédos et à son éveil à la vérité après avoir rencontré Jésus](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-30-5-jep-samuel-b-southard/) | 30 Août 1915
 St Jacques | [Les conditions des esprits et leurs expériences et croyances pour ceux qui sont sous les Cieux Célestes ; comment ils se rassemblent ensemble](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-25-5-jep-st-james/) | 25 Septembre 1915
 St Jean | [Jean décrit la différence entre les esprits des Cieux Célestes et ceux des sphères spirituelles et leur bonheur](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-9-25-4-jep-st-john/) | 25 Septembre 1915
@@ -72,20 +70,20 @@ Anne Rollins | [Comment tous les hommes peuvent devenir des Anges Divins et comm
 Hélène Padgett | [Bouddha n’enseigne plus la réincarnation](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-8-1-1-jep-helen-padgett/) | 1 Août 1916
 St Jean | [Description de la 3ème sphère](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-8-1-jep-st-john/) | 8 Décembre 1916
 Edwin Forrest | [Edwin Forrest écrit qu’il progresse et est capable de voir la lumière](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-3-10-1-jep-edwin-forrest/) | 10 Mars 1917
-Jésus | [Le seul chemin vers le royaume de Dieu dans les Cieux Célestes](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-15-1-jep-jesus/) | 15 Mai 1917
-Rev Williams | [.Un prêtre Catholique qui a interdit à ses fidèles de parler avec M. Morgan](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-11-8-1-jep-priest-williams/) | 8 Novembre 1917
+Jésus | [Le seul chemin vers le Royaume de Dieu dans les Cieux Célestes](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-15-1-jep-jesus/) | 15 Mai 1917
+Rev Williams | [Un prêtre Catholique qui a interdit à ses fidèles de parler avec M. Morgan](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-11-8-1-jep-priest-williams/) | 8 Novembre 1917
 Mary Kennedy | [Mary dit qu’elle a progressé vers la Sphère Céleste qui n’est plus numérotée et qu’elle est parmi les esprits qui brillent équitablement du Grand Amour du Père](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-12-18-2-jep-mary-kennedy/) | 18 Décembre 1917
-Albert Riddle | [Le ciel est un endroit comme une condition d’âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-2-27-1-jep-ag-riddle/) | 27 Février 1920
+Albert Riddle | [Le Ciel est un endroit comme une condition d’âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-2-27-1-jep-ag-riddle/) | 27 Février 1920
 Judas | [La zone crépusculaire et Summerland](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-8-1-hr-judas/) | 8 Septembre 2001
-Judas | [La seconde sphere](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-16-1-hr-judas/) | 16 Septembre 2001
+Judas | [La seconde sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-16-1-hr-judas/) | 16 Septembre 2001
 Judas | [La troisième sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-19-1-hr-judas/) | 19 Septembre 2001
 Judas | [La Quatrième Sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-23-1-hr-judas/) | 23 Septembre 2001
-Judas | [La cinquième sphere](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-25-1-hr-judas/) | 25 Septembre 2001
-Judas | [La sixième sphere](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-27-1-hr-judas/) | 27 Septembre 2001
-Judas | [La septième sphere](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-28-1-hr-judas/) | 28 Septembre 2001
+Judas | [La cinquième sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-25-1-hr-judas/) | 25 Septembre 2001
+Judas | [La sixième sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-27-1-hr-judas/) | 27 Septembre 2001
+Judas | [La septième sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-28-1-hr-judas/) | 28 Septembre 2001
 Leytergus | [Les différences entre la Sixième Sphère et les Sphères Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-12-3-af-leytergus/) | 12 Septembre 2017
 Seretta Kem | [Une question sur la 7ème Sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-14-4-af-seretta-kem/) | 14 Novembre 2017
-Yogananda | [Yogananda décrit son voyage à travers les Sphères.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-22-1-af-yogananda/) | 22 Novembre 2018
+Yogananda | [Yogananda décrit son voyage à travers les Sphères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-22-1-af-yogananda/) | 22 Novembre 2018
 Copernic | [La mesure du temps sur Terre est très différente de celle des cieux célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-2-2-af-copernicus/) | 2 Décembre 2019
 Jésus | [Leçon 4 : Voyage à travers les sphères de l’esprit.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-22-1-af-jesus/) | 22 Octobre 2020
 Barbara Davies | [Ma nouvelle maison et la vie dans l’esprit.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-20-1-af-barbara-davies/) | 20 Janvier 2021

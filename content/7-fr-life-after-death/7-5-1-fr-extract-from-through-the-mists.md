@@ -15,13 +15,13 @@ Robert James Lees fut l’un des plus célèbres médiums britanniques de son te
 
 La phase la plus remarquable de sa médiumnité unique fut peut-être la production de la série de volumes dont Robert J. Lees ne prétendait être que le receveur. Il a publié une série d’ouvrages dont les plus connus sont « Through the Mists (à travers les brumes) » qui, en dépit d’être son premier livre, connut un immense succès. En 1952, il avait déjà été rédité une vingtaine de fois. So second ouvrage le plus connu fut « The life Elysean (la vie Elyséenne) ». Son dernier ouvrage fut « The Gate of Heaven (la Porte du Ciel).
 
-### Introduction du livre « Through the mists »
+### Introduction du livre « Through the mists (A travers les Brumes)»
 
 Le narrateur y explique au début que, vu du monde des esprits, les nouveaux arrivants en provenance de la terre, juste après leur mort, émergent d’un banc de brumes. Pour qu’un esprit puisse retourner sur terre voir ce qui s’y passe, il doit à nouveau traverser ce banc de brume, dans l’autre sens. En l’occurrence, ici le narrateur et Cushna sont passé à travers ces brumes à la suite de la femme qui sauta par-dessus la terrasse. La suite a pour objet de nous expliquer que le monde terrestre et le monde spirituel de la première sphère, ne sont pas deux mondes exclusifs l’un de l’autre, mais sont interconnectés. Les esprits des vivants et de ceux qui ne le sont plus, peuvent passer de l’un à l’autre, et même régulièrement.
 
-### L'état de sommeil - extrait de « Through the Mists »
+### L'état de sommeil - extrait de « Through the Mists (A travers les Brumes) »
 
-Cet extrait est tiré du livre « Through the Mists » de R.J. Lees et il a un chapitre sur l'état de sommeil.
+Cet extrait est tiré du livre « Through the Mists (A travers les Brumes) » de R.J. Lees et il a un chapitre sur l'état de sommeil.
 
 ## Chapitre XIV - La Relation du Sommeil á la Mort
 

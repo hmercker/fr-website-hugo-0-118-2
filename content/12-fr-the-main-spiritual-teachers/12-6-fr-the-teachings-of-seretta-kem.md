@@ -237,6 +237,10 @@ Seretta Kem | [Les anges sont prêts et attendent](/fr-contemporary-messages/fr-
 Seretta Kem | [lI y a un ange assigné à chacun de nous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-13-6-af-seretta-kem/) | 13 Octobre 2023
 Seretta Kem | [La vérité grandira de votre âme à votre esprit ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-13-7-af-seretta-kem/) | 13 Octobre 2023
 Seretta Kem | [Exprime sa gratitude pour tout ce qui a été accompli ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-15-3-af-seretta-kem/) | 15 Octobre 2023
+Seretta Kem | [Décrit les soins prodigués par les anges lorsque nous sommes dans des cercles de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-18-3-af-seretta-kem/) | 18 Janvier 2024
 Seretta Kem | [Les cadeaux surprenants de vos âmes s'ouvrent ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-10-1-af-seretta-kem/) | 10 Février 2024
 Seretta Kem | [Instructions pour développer la médiumnité ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-15-1-af-seretta-kem/) | 15 Février 2024
 Seretta Kem | [Les prières inébranlables sont essentielles au développement des médiums de l’Amour Divin ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-7-1-af-seretta-kem/) | 7 Avril 2024
+Seretta Kem | [Encouragement personnel pour Al  et Jeanne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-11-1-af-seretta-kem/) | 11 Avril 2024
+Seretta Kem | [Découverte des attributs de l'âme ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-13-1-mc-seretta-kem/) | 13 Avril 2024
+

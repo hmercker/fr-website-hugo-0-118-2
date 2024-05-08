@@ -11,11 +11,11 @@ weight:
 
 ![title](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/Saint Paul.jpg)
 
-Paul de Tarse, ou Saint Paul pour les Catholiques et les Orthodoxes, porte aussi le nom juif de Saul. Il est né au début du ier siècle probablement à Tarse en Cilicie et mort vers 67 à Rome. Juif et citoyen romain de naissance, il persécute les disciples de Jésus avant de se revendiquer apôtre de ce dernier, bien qu'il n'appartienne pas au cercle des Douze.
+Paul de Tarse, ou Saint Paul pour les Catholiques et les Orthodoxes, porte aussi le nom juif de Saul. Il est né au début du 1<sup>er</sup> siècle probablement à Tarse en Cilicie et il est mort vers l'an 67 à Rome. Juif et citoyen romain de naissance, il persécute les disciples de Jésus avant de se revendiquer apôtre de ce dernier, bien qu'il n'appartienne pas au cercle des Douze.
 
-Paul de Tarse devient dès lors l'une des figures majeures de la diffusion du Christianisme en dehors des cercles Juifs et Judéo-Chrétiens ainsi que dans plusieurs communautés chrétiennes primitives en Asie mineure, en Grèce et à Rome. La tradition Crétienne le surnomme l'« Apôtre des Gentils » c'est-à-dire des non-juifs, ou encore l'« Apôtre des nations ».
+Paul de Tarse devient dès lors l'une des figures majeures de la diffusion du Christianisme en dehors des cercles Juifs et Judéo-Chrétiens ainsi que dans plusieurs communautés chrétiennes primitives en Asie mineure, en Grèce et à Rome. La tradition Crétienne le surnomme *« l'Apôtre des Gentils »* c'est-à-dire des non-juifs, ou encore *« l'Apôtre des nations »*.
 
-Au cours de sa mission itinérante, qui s'étale des années 40 aux années 60, il adresse des lettres à ces premières communautés. Ces lettres, dites « épîtres pauliniennes », écrites avant les Évangiles, sont les documents les plus anciens du Christianisme. Elles représentent l'un des fondements de la théologie chrétienne, en particulier dans le domaine de la christologie, mais aussi, d'un point de vue historique, une source majeure sur les origines du Christianisme. [Source](https://fr.wikipedia.org/wiki/Paul_de_Tarse)
+Au cours de sa mission itinérante, qui s'étale des années 40 aux années 60, il adresse des lettres à ces premières communautés. Ces lettres, dites *« épîtres pauliniennes »*, écrites avant les Évangiles, sont les documents les plus anciens du Christianisme. Elles représentent l'un des fondements de la théologie Chrétienne, en particulier dans le domaine de la Christologie, mais aussi, d'un point de vue historique, une source majeure sur les origines du Christianisme. [Source](https://fr.wikipedia.org/wiki/Paul_de_Tarse)
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---

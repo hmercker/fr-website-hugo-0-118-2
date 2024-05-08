@@ -9,7 +9,7 @@ weight:
 ---
 ### Jacques
 
-![title](/3-fr-judas-of-kerioth-messages\fr-jakobus_small.jpg)
+![title](/3-fr-judas-of-kerioth-messages/fr-jakobus_small.jpg)
 
 Sous ce même prénom, sont regroupés les messages de Jacques, le frère de Jésus, souvent nommé "Jacques le mineur" et de Jacques, le frère de Jean, fils de Zébédée, souvent appelé "Jacques le Majeur". 
 

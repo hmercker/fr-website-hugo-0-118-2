@@ -9,11 +9,11 @@ weight:
 ---
 ### St Jean
 
-![title](/3-fr-judas-of-kerioth-messages\fr-johanneszebedaeus_small.jpg)
+![title](/3-fr-judas-of-kerioth-messages/fr-johanneszebedaeus_small.jpg)
 
-L'appellation Saint Jean semble se rapporter à Jean, le fils de Zébédée et il cov=nviendrait de le distinguer de celui que l'on surnomme Jean le Bien Aimé. Saint Jean était le frère de Jacques dit le majeur. Faute de commnication à ce sujet, il est seulement possible que certaines fois l'auteur de certains messages se présente parfois comme étant simplement "Saint Jean" et d'autres fois comme "Jean le Bien Aimé". C'est la  raison pour laquelle on peut supposer que ce sont deux personnes distinctes.
+L'appellation Saint Jean semble se rapporter à Jean, le fils de Zébédée et il conviendrait de le distinguer de celui que l'on surnomme Jean le Bien Aimé. Saint Jean était le frère de Jacques dit le majeur. Faute de commnication à ce sujet, il est seulement remarqué que certaines fois l'auteur de certains messages se présente parfois comme étant simplement "Saint Jean" et d'autres fois comme "Jean le Bien Aimé". C'est la  raison pour laquelle on peut supposer que ce sont deux personnes distinctes.
 
-Saint Jean fut avec André, Jacques et Pierre l'un des quatre premiers disciples de Jésus. Dans le message qu'il a communiqué le [15 Février 2002](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-15-1-hr-judas/.md), Judas explique que Jean et Jacques s'étaient rapprochés de l’idéologie des Zélotes dont le but était l’expulsion des Romains de Palestine et le rétablissement d’une théocratie parmi les Juifs. Cette position était conforme avec la pensée Juive de l'époque qui défendait l'idée selon laquelle la mission du messsie était d'établir un royaume physique. Bien entendu Jésus a apporté une toute autre vision et compréhension de la mission du messsie qui prône l'établissement premier d'un royaume spirituel par la transformation intérieure de chaque personne.
+Saint Jean fut avec André, Jacques et Pierre l'un des quatre premiers disciples de Jésus. Dans le message qu'il a communiqué le [15 Février 2002](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-15-1-hr-judas/), Judas explique que Jean et Jacques s'étaient rapprochés de l’idéologie des Zélotes dont le but était l’expulsion des Romains de Palestine et le rétablissement d’une théocratie parmi les Juifs. Cette position était conforme avec la pensée Juive de l'époque qui défendait l'idée selon laquelle la mission du messsie était d'établir un royaume physique. Bien entendu Jésus a apporté une toute autre vision et compréhension de la mission du messsie qui prône l'établissement premier d'un royaume spirituel par la transformation intérieure de chaque personne.
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---

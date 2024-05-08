@@ -1,13 +1,13 @@
 ---
-title: "Opposant les cieux musulmans et les cieux Chrétiens"
+title: "Les Cieux Musulmans et les Cieux Chrétiens"
 menu_title: ""
-description: "Opposant les cieux musulmans et les cieux Chrétiens"
+description: "Les Cieux Musulmans et les Cieux Chrétiens"
 date: 2022-06-01 06:00:01+00:184
 draft: False
 hidden: True
 weight:
 ---
-### Opposant les cieux musulmans et les cieux Chrétiens
+### Les Cieux Musulmans et les Cieux Chrétiens
 
 Selligman - reçu par James Padgett le 8 Août 1915, Washington, USA.
 
@@ -24,15 +24,16 @@ Nous n’avons pas beaucoup de relations avec les esprits Chrétiens, car nos ci
 Eh bien, ces Chrétiens semblent être plus brillants et plus beaux que les esprits dans nos cieux, et cela m’a aussi fait réfléchir. Je sais que dans nos cieux, plus nous progressons, plus nous devenons beaux et plus nous semblons brillants, et que la condition du progrès de l’individu détermine son apparence. Sachant cela, j’en suis venu à penser que ces Chrétiens vivent dans un ciel plus élevé ou plus progressif que le nôtre.
 
 Je suis maintenant insatisfait, et je vais enquêter. Pouvez-vous me dire quelle est la meilleure façon de procéder ?
+
 Oui, il y en a qui n’ont pas écrit. Je vais le faire.
 
 Il y en a un ici – une belle femme – qui dit être votre grand-mère. Je vais lui demander et peut-être qu’elle pourra m’aider à démarrer mon enquête.
 
 Eh bien, je vais vous souhaiter une bonne nuit.
 
-[Je reviendrai certainement.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-6-2-jep-seligman/)
+[Je reviendrai certainement](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-6-2-jep-seligman/)
 
 Votre ami, Seligman.
 <small>
 
-1. <large id="f1"> La première édition mentionnait le nom de Seleman, mais à l’occasion de son deuxième message, qui figure dans le volume III, 1ère édition française, page 252, et qui a [été communiqué 6 Mars 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-6-2-jep-seligman/), il a corrigé cela. L’édition précédente utilisait ici le terme « Mohamétan », désormais le terme utilisé est Musulman. (G.J.C.)[↩](#a1)
+1. <large id="f1"> La première édition mentionnait le nom de Seleman, mais à l’occasion de son deuxième message, qui figure dans le volume III, 1ère édition française, page 252, et qui a [été communiqué le 6 Mars 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-6-2-jep-seligman/), il a corrigé cela. L’édition précédente utilisait ici le terme « Mohamétan », désormais le terme utilisé est Musulman. (G.J.C.)[↩](#a1)

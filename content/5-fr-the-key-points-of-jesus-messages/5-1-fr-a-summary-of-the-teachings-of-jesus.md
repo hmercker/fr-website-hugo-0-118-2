@@ -39,7 +39,7 @@ La lumière de l’étoile semblait pointer vers l’ouest. Cela a déterminé l
 
 Il est intéressant de noter que l’étoile – l’étoile de Bethléem, comme on l’appelle aujourd’hui (aujourd’hui, une telle étoile serait appelée une supernova.) – qui avait d’abord attiré l’attention des mages avait disparu du ciel oriental plusieurs semaines après son apparition, et n’avait été vue du tout dans le ciel de la Judée ou Israël.
 
-#### La Fuite en Egypte et le Retour en Galilee
+#### La Fuite en Égypte et le Retour en Galilée
 
 Au moment de la naissance de Jésus, les conditions dans le pays étaient instables et dangereuses. Le roi Hérode était au pire de son règne et de nombreuses personnes innocentes, adultes et enfants, ont été tuées sans raison. Lorsqu’il entendit le contenu des prophéties des Écritures hébraïques sur la naissance d’un Messie, un « roi des Juifs », Hérode détermina la date de l’apparition de l’étoile brillante et en conclut que les enfants Hébreux de Bethléem qui devaient être tués devaient être âgés de deux années ou moins.
 
@@ -60,7 +60,7 @@ Contrairement à la croyance populaire, Marie et Joseph n’ont jamais soupçonn
 
 Tout au long de son enfance et adolescence, en raison de son désir constant d’être en communion avec Dieu, son âme a subi une transformation continue de sa nature en la Divinité du Père. Il s’est rendu compte que cette transformation opérait à mesure qu’il devenait adulte et qu’il jouissait de communions de plus en plus étroites avec le Père et d’une relation de plus en plus étroite avec Lui.
 
-#### Ses annees de Formation ont ete Consacrees a L'Etude des Ecritures et a L’Accueil de L’Amour Divin du Pere
+#### Ses années de Formation ont été Consacrées a L'Étude des Écritures et à L’Accueil de L’Amour Divin du Père
 
 Par l’intermédiaire de M. Padgett, la mère de Jésus écrivit que dans sa jeunesse, Jésus était considéré comme sérieux et studieux, un homme qui buvait avec avidité à la source des Écritures et du Talmud, montrant continuellement son amour pour sa famille en travaillant dur pour eux et en aidant Joseph dans son métier de menuisier. Il était bon et doux, mais possédait, alors qu’il devenait adulte, un certain mysticisme que ses parents avaient de la difficulté à comprendre.
 
@@ -120,7 +120,7 @@ Jésus a aussi prêché la repentance, car il a dit : *« Repentez-vous, car le 
 
 Lorsque Jésus a dit : *« Je ne suis pas venu appeler les justes mais les pécheurs à la repentance »*, il voulait dire que les pécheurs pouvaient recevoir le Don de l’Amour Divin aussi bien que les justes, car il était disponible pour tous. Mais, hélas, ce ne sont pas les justes, mais les pécheurs de son temps qui se sont repentis et ont cherché Dieu et Son Amour, tandis que les justes, ou ceux qui se considéraient justes, refusaient, dans leur satisfaction personnelle, le grand Don gratuit qui leur appartenait de demander.
 
-#### Il s’est Proclame lui-même Messie dans la Synagogue de Nazareth
+#### Il s’est Proclamé lui-même Messie dans la Synagogue de Nazareth
 
 Peu après avoir été baptisé par Jean et oint par Dieu comme le Christ, Jésus se présenta dans la synagogue de Nazareth comme étant celui que Dieu avait envoyé pour proclamer le ré octroi de l’immortalité par l’Amour Divin à tous ceux qui rechercheraient leur rédemption du péché et une renaissance dans ses qualités éternelles.
 
@@ -202,7 +202,7 @@ Par Jésus, Dieu avait donné Sa Loi spirituelle la plus élevée jamais connue 
 
 L’amour humain n’était pas à la hauteur de l’immense tâche qui consistait à faire face au plus grand mal humain qu’était la Rome antique, comme cela se manifesta ultérieurement, lorsque des Juifs rebelles ont vu la destruction de leur Temple.
 
-#### « Par la Puissance de Dieu, le Fils de Dieu Guérira et Sera Glorifie »
+#### « Par la Puissance de Dieu, le Fils de Dieu Guérira et Sera Glorifié »
 
 La brutalité des Romains était ressentie avec le plus d’acuité par les pauvres, laissés sans défense face à l’injustice romaine en raison des torts moraux qu’ils avaient également subis aux mains de la classe dirigeante Hébraïque. Ces aristocrates négligèrent de faire respecter les enseignements charitables de la religion Hébreu : ne pas opprimer l’étranger, l’orphelin et la veuve ; ne pas verser de sang innocent ; et ne pas se prosterner devant les autres dieux. Les enseignements moraux des Dix Commandements – la Loi – furent volontairement mis de côté par les prêtres Hébreux, dont l’ambition mondaine les aveuglait sur le sort de leurs frères moins fortunés.
 
@@ -310,7 +310,7 @@ Jean a dit clairement que lorsqu’il parlait d’amour, il voulait dire l’Amo
 
 Le Royaume de Dieu peut habiter en nous, mais seulement si nous suivons la Voie tracée par Jésus et le cherchons par un désir et une prière sincère au Père pour le Don de Son Amour Divin. Et avec Son Amour Divin viendra la vie éternelle et les choses nécessaires pour la soutenir, en ce monde et dans l’au-delà.
 
-#### L’amour de Dieu Sera a Nouveau Retire de L’humanite
+#### L’Amour de Dieu Sera a Nouveau Retiré de L’humanité
 
 Selon Jésus, l’Amour Divin est la seule grande chose dans l’Économie de l’Existence Réelle de Dieu. Sans lui, tout serait chaos et malheur ; mais là où il existe, l’harmonie et le bonheur existent aussi. Il a [écrit par James Padgett le 3 Mars 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-3-3-2-jep-jesus/) :
 

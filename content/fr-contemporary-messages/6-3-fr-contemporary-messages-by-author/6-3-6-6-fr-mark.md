@@ -9,7 +9,9 @@ weight:
 ---
 ### Marc
 
-Saint Marc est connu comme étant l'un des quatre évangélites.  Il serait né d’une famille Juive aisée, on sait seulement ce qu’en disent les Actes des Apôtres et certaines lettres des saints Pierre et Paul. Il ne fut pas un disciple de Jésus, même si quelque auteur l’identifie avec le jeune homme, fils de la veuve Marie, qui, vêtu tout simplement d’un drap, suivit Jésus après son arrestation dans le jardin de Gethsémani. Marc collabora au contraire avec l’apôtre Paul, connu à Jérusalem. Il fut avec lui à Chypre et puis à Rome. En l’an 66 saint Paul depuis sa prison romaine écrit à Timothée : « Prends Marc et emmène-le avec toi, car il me sera utile pour le ministère » (2Tm4,11). [Source](https://www.vaticannews.va/fr/saint-du-jour/04/25/saint-marc--evangeliste.html)
+![title](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/Saint Marc.jpeg)
+
+Saint Marc est connu comme étant l'un des quatre évangélites. Il serait né d’une famille Juive aisée. On sait seulement ce qu’en disent les Actes des Apôtres et certaines lettres de Pierre et de Paul. Il ne fut pas un disciple de Jésus, même si quelque auteur l’identifie avec le jeune homme, fils de la veuve Marie, qui, vêtu tout simplement d’un drap, suivit Jésus après son arrestation dans le jardin de Gethsémani. Marc collabora au contraire avec l’apôtre Paul, connu à Jérusalem. Il fut avec lui à Chypre et puis à Rome. En l’an 66 Saint Paul, depuis sa prison romaine, écrit à Timothée : *« Luc seul est avec moi. Prends Marc et emmène-le avec toi, car il me sera utile pour le ministère »* [2 Timotée 4:11](https://saintebible.com/2_timothy/4-11.htm). [Source](https://www.vaticannews.va/fr/saint-du-jour/04/25/saint-marc--evangeliste.html)
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---

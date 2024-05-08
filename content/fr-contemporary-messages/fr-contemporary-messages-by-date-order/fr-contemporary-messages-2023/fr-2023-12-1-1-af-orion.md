@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous sommes des âmes comme vous
 
-Orion - reçu par Albert Fike le 1<sup>er</sup> Décembre 2023, Sechelt, Colombie-Britannique, Canada.
+Orion - reçu par Albert Fike le 1<sup>er</sup> Décembre 2023, Running Springs, Californie, États-Unis.
 
 Que Dieu vous bénisse, mes amis. Je suis Orion et je viens vous rejoindre car vous avez demandé ma présence et mes conseils. Alors, je suis là. Je suis ici, profitant de la lumière qui a été créée en ce lieu. Je suis là parce que chacun de vous a une curiosité, une envie de me connaître, de me comprendre.
 

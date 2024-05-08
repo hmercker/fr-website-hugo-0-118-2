@@ -9,7 +9,7 @@ weight:
 ---
 ### Le temps presse 
 
-Samuel - reçu par Albert Fike le 30 Novembre 2023, Sechelt, Colombie-Britannique, Canada.
+Samuel - reçu par Albert Fike le 30 Novembre 2023, Running Springs, Californie, États-Unis.
 
 Lorsqu’il y a la paix, Dieu est là. Lorsqu’il y a harmonie, l’expression de la création de Dieu est en synchronisation avec le flux et le reflux de la vie. Lorsqu’il y a de la joie, les âmes sont éveillées et expriment facilement cette joie. Je suis Samuel. Je viens vous encourager à être dans la paix, la joie et l’harmonie.
 
@@ -19,13 +19,11 @@ Comment cela se réalise-t-il, mes amis bien-aimés ? Cela s’accomplit grâce 
 
 Je sais que beaucoup d’entre vous comprennent bien ces concepts. Vous avez étudié beaucoup de choses. Vous avez entendu de nombreux messages et les avez lus. Pourtant, se réunir dans la paix, la tranquillité, être ensemble dans la joie et l’harmonie est souvent difficile parce que vous faites partie du monde qui réclame et continue d’être dans cet état frénétique d’action et de réaction.
 
-Au lieu de cela, vous devez vous arrêter et être dans la paix de la Présence de Dieu. C’est la vraie prière. C’est la véritable condition requise. Pouvez-vous réaliser cela par vous-même ? Que vous soyez seul ou dans un groupe comme celui-ci, pour être vraiment dans cet état de grâce. Connaître véritablement votre propre âme et vous exprimer à travers votre âme.
+Au lieu de cela, vous devez vous arrêter et être dans la paix de la Présence de Dieu. C’est la vraie prière. C’est la véritable condition requise. Pouvez-vous réaliser cela par vous-même ? Que vous soyez seul ou dans un groupe comme celui-ci, vous pouvez vraiment être dans cet état de grâce, connaître véritablement votre propre âme et vous exprimer à travers votre âme.
 
 C’est notre enseignement, si simple et si profond. Pourtant, c’est souvent la chose la plus difficile pour vous. Avancer dans la lumière et libérer toutes les conditions de la matière. Être en harmonie ensemble, non seulement dans l’unité d’esprit mais dans l’unité d’âme. Une condition d’unité, chaque âme chantant son chant, sa belle expression à Dieu.
 
-Ensemble, vous formez une merveilleuse symphonie de désir et d’expression. Afin que Dieu puisse entendre cette belle musique de l’âme et que Dieu puisse répondre avec Sa merveilleuse musique de son âme. Ensemble, c’est le mélange de belles notes, de belles pensées et de belles expressions au plus profond de vous. Dieu répond par le mécanisme de l’Esprit Saint.
-
-Chacun de vous, et vous tous, afin que vous ressentiez l’élévation. Vous ressentez la paix qui dépasse toute compréhension. Vous connaissez la gloire de l’Amour de Dieu comme une chose puissante. Une entité en soi, offerte en cadeau à votre âme. Lorsque vous vous réunissez ainsi, n’est-ce pas l’élément le plus important et le plus profond de votre rassemblement ? N’est-ce pas ce que vous recherchez et désirez ? N’est-ce pas la plus grande bénédiction qui puisse être donnée ?
+Ensemble, vous formez une merveilleuse symphonie de désir et d’expression, afin que Dieu puisse entendre cette belle musique de l’âme et que Dieu puisse répondre avec Sa merveilleuse musique de Son âme. Ensemble, c’est le mélange de belles notes, de belles pensées et de belles expressions au plus profond de vous. Dieu répond par le mécanisme de l’Esprit Saint à chacun de vous, et à vous tous, afin que vous ressentiez l’élévation, que vous ressentiez la paix qui dépasse toute compréhension, que vous connaissiez la gloire de l’Amour de Dieu comme une chose puissante, une entité en soi, offerte en cadeau à votre âme. Lorsque vous vous réunissez ainsi, n’est-ce pas l’élément le plus important et le plus profond de votre rassemblement ? N’est-ce pas ce que vous recherchez et désirez ? N’est-ce pas la plus grande bénédiction qui puisse être donnée ?
 
 Nous pouvons vous transmettre des messages, des mots qui décrivent des sujets techniques, métaphysiques et des aspects de l’univers. Votre esprit s’en nourrira avec voracité et enthousiasme. Est-ce la voie de l’âme ? Non, mes frères, c’est ainsi que l’humanité s’exprime depuis le début.
 
@@ -53,6 +51,6 @@ Soyez les précurseurs, mes amis bien-aimés. Soyez les précurseurs de la véri
 
 Que Dieu vous bénisse mes amis. Je suis Samuel. Je viens, je le sais, avec un message sérieux. Celui dont il faut parler. Celui qui est important. Nous ne sommes pas là pour réaliser vos ambitions conscientes. Nous sommes ici pour vous enseigner les choses les plus profondes de l’âme et vous encourager sur ce chemin de vérité.
 
-Nous vous aimons. Je vous aime. Nous sommes là pour vous, nous tous. Le Royaume Céleste tout entier prie pour vous, bien-aimés. Vous, sur Terre, pour que la Terre soit guérie, changée et réconciliée avec Dieu.
+Nous vous aimons. Je vous aime. Nous sommes là pour vous, nous tous. Le Royaume Céleste tout entier prie pour vous, bien-aimés, pour vous, sur Terre, pour que la Terre soit guérie, changée et réconciliée avec Dieu.
 
 Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse dans Son Amour. Je vous aime. Vous êtes aimés. Que Dieu vous bénisse.

@@ -9,9 +9,9 @@ weight:
 ---
 ### Saint Luc
 
-![title](/3-fr-judas-of-kerioth-messages\fr-lukas_small.jpg)
+![title](/3-fr-judas-of-kerioth-messages/fr-lukas_small.jpg)
 
-Selon le témoignage de saint Paul, à la fin de sa Lettre aux Colossiens (4, 14), saint Luc était médecin. D’après l’historien Eusèbe (267–338), Saint Luc serait née à Atioche qui était la métropole de la Syrie et l’une des plus illustres cités de l’Orient. Deux livres du Nouveau Testament ont saint Luc pour auteur, le troisième Evangile et les Actes des Apôtres.
+Selon le témoignage de Ssaint Paul, à la fin de [sa Lettre aux Colossiens](https://saintebible.com/colossians/4-14.htm), Saint Luc se présente comme étant médecin. D’après l’historien Eusèbe (267–338), Saint Luc serait né à Atioche qui était la métropole de la Syrie et l’une des plus illustres cités de l’Orient. Deux livres du Nouveau Testament ont Saint Luc pour auteur, le troisième Evangile et les Actes des Apôtres.
 
 On pourrait même considérer ces deux livres comme un seul et même ouvrage, divisé en deux parties. Dans la première, Saint Luc expose la vie de Jésus jusqu’à son Ascension. Dans la seconde, il raconte l’histoire de l’Eglise naissante, et en particulier l’apostolat de Saint Paul jusqu’à sa première captivité à Rome, captivité qui dura deux années, de l’an 62 à l’an 64. Nous avons ainsi, grâce à Saint Luc, une histoire sommaire de nos origines Chrétiennes pendant les deux tiers du premier siècle. [Source](https://laportelatine.org/spiritualite/vies-de-saints/saint-luc-evangeliste).
 
