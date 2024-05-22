@@ -11,7 +11,7 @@ weight:
 
 Judas - reçu par Jimbeau Walsh le  1<sup>er</sup> Janvier 2024, Nashville, Tennesse, USA.
 
-Je suis là, Judas, ton frère et ami. Je viens dans l’Amour de Dieu, vous accueillant dans le nouveau.
+Je suis, Judas, votre frère et ami. Je viens dans l’Amour de Dieu, vous accueillant dans le nouveau.
 
 Il y a beaucoup à dire sur les bienfaits du silence. Car c’est en silence que nous parlons à vos âmes et le langage de l’âme est Divin. Ce n’est pas à l’oreille, l’oreille humaine, que viennent ces réponses plus profondes. Les paroles des âmes bénies inspireront sûrement, pousseront à la prière, à agir selon l’inspiration, à faire cet acte de foi et à abandonner tout ce qui n’est pas digne du voyage d’amour de votre âme ; plus particulièrement, dans l’Amour de Dieu.
 
@@ -19,7 +19,7 @@ Pendant ces moments de célébration <sup id="a1">[1](#f1)</sup>, ceux d’entre
 
 Je tiens à souligner l’importance d’aller en profondeur, de permettre la guérison, de permettre l’expiation, de se permettre de se vider de toute préoccupation, pour que Dieu remplisse votre coupe. Il y a la grande paix, une paix promise, qui vient lorsque l’on expose son cœur, ses soucis, ses échecs et la condition humaine à Dieu. Même votre chagrin doit être abandonné, non pas engourdi par les distractions, les dépendances ou les excès, mais par la transformation dans l’amour de Dieu.
 
-Beaucoup ressentent une certaine déception après une célébration et c’est parce que, avec de bonnes intentions et pourtant sans clarté, ils ont abusé du matériel, plutôt que de la prière, de la réception. Le bonheur et la joie à court terme ne sont pas une mauvaise chose et peuvent dans certains cas créer une réunification avec ceux qui se sont brouillés. Mais souvent, il s’agit d’une solution à court terme et, tout comme François1 a déclaré que toutes ses croyances erronées étaient remplacées par l’Amour de Dieu et la prière, de même tous ces remèdes à court terme sont remplacés par la grande célébration de l’âme, la véritable substance de l’Amour Divin qui est l’Essence du Créateur.
+Beaucoup ressentent une certaine déception après une célébration et c’est parce que, avec de bonnes intentions et pourtant sans clarté, ils ont abusé du matériel, plutôt que de la prière, de la réception. Le bonheur et la joie à court terme ne sont pas une mauvaise chose et peuvent dans certains cas créer une réunification avec ceux qui se sont brouillés. Mais souvent, il s’agit d’une solution à court terme et, tout comme François<sup id="a1">[1](#f1)</sup> a déclaré que toutes ses croyances erronées étaient remplacées par l’Amour de Dieu et la prière, de même tous ces remèdes à court terme sont remplacés par la grande célébration de l’âme, la véritable substance de l’Amour Divin qui est l’Essence du Créateur.
 
 Alors, trouvez ce lieu silencieux, lâchez prise, laissez Dieu remplir votre coupe. Portez cet élixir dans votre famille et vos amis car vous les aimez comme Dieu vous a aimé et vous aimera toujours. Réjouissez-vous de la nouvelle année, de la Nouvelle Naissance et des merveilleuses bénédictions que Dieu a accordées à vos âmes. Je vais prendre du recul et vous rejoindre maintenant dans le silence, dans la Présence, la Sainte Présence.
 

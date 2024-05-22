@@ -153,13 +153,14 @@ Mylora | [Soyez dans la grâce de Dieu ; cherchez son amour maintenant](/fr-cont
 Mylora | [Lorsque vous placez Dieu en premier, il y a du temps pour tout](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-16-1-af-mylora/) | 16 Octobre 2022
 Mylora | [Bénédiction de guérison profonde alors que nous voyageons à Laurelville ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-11-6-af-mylora/) | 11 Octobre 2023
 Mylora | [Commentaires sur les niveaux de guérison ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-7-1-af-mylora/) | 7 Novembre 2023
+Naari et Jésus | [Se présente comme l'un des anges Célestes anonymes qui viennent nous administrer à tous la guérison, la bénédiction de la guérison ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-7-2-af-naari-and-jesus/) | 7 Mai 2024
 Ophélius | [La couleur dans la mosaïque de la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-9-4-1-chris-ophelius/) | 4 Septembre 2011
 PSR | [L’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-10-1-pjr-psr/) | 10 Avril 2002
 PSR | [Difficultés à atteindre le Père](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-24-1-pjr-psr/) | 24 Avril 2002
-PSR | [Fatigué et distrait.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-8-28-1-pjr-psr/) | 28 Août 2003
-PSR | [Ces Limites sont tes limites.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-9-2-1-pjr-psr/) | 2 Septembre 2003
-PSR | [C’est vraiment un seul endroit.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-9-26-1-pjr-psr/) | 26 Septembre 2003
-PSR | [Tout n’est jamais perdu.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-10-2-1-pjr-psr/) | 2 Octobre 2003
+PSR | [Fatigué et distrait](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-8-28-1-pjr-psr/) | 28 Août 2003
+PSR | [Ces Limites sont tes limites](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-9-2-1-pjr-psr/) | 2 Septembre 2003
+PSR | [C’est vraiment un seul endroit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-9-26-1-pjr-psr/) | 26 Septembre 2003
+PSR | [Tout n’est jamais perdu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-10-2-1-pjr-psr/) | 2 Octobre 2003
 Riannon | [Restez connectés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-21-3-jr-riannon/) | 21 Mai 2014
 Richard | [Donner, recevoir, émotions et pensées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-15-1-jr-richard/) | 15 Mars 2013
 Richard | [Gratitude](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-18-1-jr-richard/) | 18 Mai 2014

@@ -24,3 +24,5 @@ Barbara Davies | [Amitié et voyage similaire avec Grace Jordan](/fr-contemporar
 Barbara Davies | [Votre famille bénéficie de vos efforts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-21-1-af-barbara-davies/) | 21 Février 2023
 Barbara Davies | [Faire la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-14-1-af-barbara-davies/) | 14 Juillet 2023
 Barbara Davies | [Allez plus profondément pour être dans vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-16-1-af-barbara-davies/) | 16 Janvier 2024
+Barbara Davies | [Apportez vos obstacles à Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-15-2-mc-barbara-davies/) | 15 Février 2024
+Barbara Davies | [Présente 8 anges chargés de travailler avec notre groupe ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-6-1-af-barbara-davies/) | 6 Mai 2024

@@ -72,6 +72,7 @@ Nuage Blanc | [Dites la vérité](/fr-contemporary-messages/fr-contemporary-mess
 Nuage Blanc | [Vous devez vous lever et dire la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-6-1-1-af-white-cloud/) | 1 Juin 2019
 Nuage Blanc | [Demander les bénédictions et les dons de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-11-2-af-white-cloud/) | 11 Septembre 2019
 Nuage Blanc | [Priez avec nous pour plus d'équilibre et d'harmonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-3-1-af-white-cloud/) | 3 Décembre 2021
+Nuage Blanc | [Guérison de la Terre Mère ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-3-2-af-white-cloud/) | 3 Mai 2024
 Plume Blanche | [Être un agent de changement pour la Terre ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-9-1-1-af-white-feather/) | 1 Septembre 2023
 Melchizédek | [Un travail important est nécessaire pour rectifier les conditions non harmonieuses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-8-2-af-melchizedek/) | 8 Novembre 2019
 Socrates | [Notre boussole intérieure supérieure.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-19-1-fab-socrates/) | 19 Juillet 2006

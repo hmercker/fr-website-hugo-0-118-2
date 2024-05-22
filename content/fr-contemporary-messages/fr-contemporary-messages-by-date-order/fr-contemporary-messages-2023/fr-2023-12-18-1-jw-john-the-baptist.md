@@ -1,13 +1,13 @@
 ---
-title: "Vous êtes l'accomplissement de la mission des Maîtres sur la Terre"
+title: "Vous êtes l'accomplissement de la mission du Maître sur la Terre"
 menu_title: ""
-description: "Vous êtes l'accomplissement de la mission des Maîtres sur la Terre"
+description: "Vous êtes l'accomplissement de la mission du Maître sur la Terre"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### Vous êtes l'accomplissement de la mission des Maîtres sur la Terre
+### Vous êtes l'accomplissement de la mission du Maître sur la Terre
 
 Jean Baptiste - reçu par Jimbeau Walsh le 18 Décembre 2023, Nashville, Tennesse, USA.
 

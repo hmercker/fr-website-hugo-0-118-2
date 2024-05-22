@@ -297,6 +297,7 @@ Samuel | [Le temps presse ](/fr-contemporary-messages/fr-contemporary-messages-b
 Orion | [Nous sommes des âmes comme vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-1-1-af-orion/) | 1 Décembre 2023
 St François d'Assise | [Foi et Persévérance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-1-2-jw-st-francis-of-assisi/) | 1 Décembre 2023
 Jésus | [Une vérité, de nombreuses expressions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-1-3-af-jésus/) | 1 Décembre 2023
+Orion | [Accueille la diversité dans l’Amour Divin Universel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-3-3-af-orion/) | 3 Décembre 2023
 Care Darby Walsh | [Santé du corps et de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-4-1-jw-care-darby-walsh/) | 4 Décembre 2023
 Claire d'Assise | [Les richesses de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-4-2-jw-clare-von-assisi/) | 4 Décembre 2023
 Judas | [Le chemin à parcourir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-5-1-jw-judas/) | 5 Décembre 2023

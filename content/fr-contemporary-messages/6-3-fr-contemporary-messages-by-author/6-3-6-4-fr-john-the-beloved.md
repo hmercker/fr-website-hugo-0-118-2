@@ -42,3 +42,4 @@ Jean le Bien Aimé | [Apprenez à connaître vos propres capacités](/fr-contemp
 Jean le Bien Aimé | [Avancez avec Volonté et Amour dans vos missions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-10-4-em-john-the-beloved/) | 10 Mars 2024
 Jean le Bien Aimé | [Plongez-vous dans la rivière de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-22-1-em-john-the-beloved/) | 22 Mars 2024
 Jean le Bien Aimé | [Prière continue](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-1-1-em-john-the-beloved/) | 1 Avril 2024
+Jean le Bien Aimé | [Vos prières sont exaucées sur les ailes de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-14-1-af-john-the-beloved/) | 14 Mai 2024

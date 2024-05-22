@@ -19,6 +19,7 @@ Ces êtres ne sont pas des êtres spirituels mais des êtres qui vivent actuelle
 ---|---|---
 Judas | [Autres êtres et le but de ces messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-7-1-hr-judas/) | 7 Janvier 2002
 Christine | [Se présente](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-16-1-af-christine/) | 16 Mars 2024
+Christine | [Conseils pour Matt partagés avec autorisation ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-18-3-af-christine/) | 18 Mars 2024
 George | [Se connecter avec Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-11-2-em-george/) | 11 Mars 2024
 George et Will | [Une offre d’assistance/de confiance ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-2-2-em-georges-and-will/) | 2 Janvier 2024
 Goldie & Visiteurs autres Galaxies | [Goldie et les visiteurs d’une autre galaxie.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-40-1969-12-3-anonymous-goldie-visitors-from-another-galaxy/) | 3 Décembre 1969
@@ -112,6 +113,8 @@ Orion | [Se présente et présente les intentions de ses amis stellaires pour no
 Orion | [Se présente à Pierre et Claire ainsi que son objectif sur Terre, questions et réponses ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-9-1-af-orion/) | 9 Mars 2024
 Orion | [Décrit son apparence et son âme ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-10-2-af-orion/) | 10 Mars 2024
 Orion | [Il y a beaucoup à préparer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-13-2-af-orion/) | 13 Mars 2024
+Orion | [La prière est l'outil essentiel de transformation ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-29-1-em-orion/) | 29 Mars 2024
+Orion | [Du temps et de l’absence de temps ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-7-1-af-orion/) | 7 Mai 2024
 Orion & Augustin | [Décrit plus en détail son travail avec ce projet VD](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-13-1-af-orion-augustine/) | 13 Septembre 2021
 Orion & Jésus | [Décrit la tendresse de leur approche pour travailler avec nous (2021 Gardiens de la Lumière)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-23-1-af-orion-jesus/) | 23 Octobre 2021
 Orion & Jésus & Orion | [Orion et Jésus encouragent les efforts pour de futures publications](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-27-1-af-jesus-orion/) | 27 Octobre 2021

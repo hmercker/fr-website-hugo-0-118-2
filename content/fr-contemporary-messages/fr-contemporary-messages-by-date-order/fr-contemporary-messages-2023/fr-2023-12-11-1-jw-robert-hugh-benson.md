@@ -19,6 +19,6 @@ Je sais que beaucoup ici ont souhaité atteindre les sphères de l’Amour Divin
 
 Je vous dis que tout ce à quoi vous vous êtes accroché et qui est moins que libre, moins que l’amour, sera dissous et abandonné. Peu importe à quel point on est loin du but, et vous savez que le péché signifie rater le but. Peu importe la façon dont vous avez péché, l’Amour de Dieu vous rachètera si vous continuez à être ouvert aux conseils de ceux qui ont progressé dans l’Amour Divin et de ceux du Royaume Céleste. Les vérités que nous partageons avec vous sont données pour vous donner l’espoir et l’assurance que l’Amour de Dieu fera de vous un être nouveau. Oh, mes frères et sœurs, qu’est-ce qui vous attend dans la splendeur et la gloire des royaumes de l’esprit, où l’Amour de Dieu est présent. Cela devrait vous donner de l’espoir. Cela devrait apaiser votre esprit et reposer votre cœur.
 
-Enfin, je vous dis « accrochez-vous à vos prières, tenez bon dans la foi, tenez bon en Dieu afin que vous puissiez abandonner tout ce qui n’est pas digne de votre marche vers l’avenir ». Et sachez que, quoi qu’il arrive, vous êtes digne de l’Amour de Dieu.
+Enfin, je vous dis *« accrochez-vous à vos prières, tenez bon dans la foi, tenez bon en Dieu afin que vous puissiez abandonner tout ce qui n’est pas digne de votre marche vers l’avenir »*. Et sachez que, quoi qu’il arrive, vous êtes digne de l’Amour de Dieu.
 
 Je vous remercie. Que Dieu vous bénisse. Je suis Robert Hugh Benson, une âme rachetée et votre frère en Christ.

@@ -37,3 +37,4 @@ St Paul | [Sur la prière](/fr-contemporary-messages/fr-contemporary-messages-by
 St Paul | [Touchez les autres avec amour et tout se mettra en place](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-24-1-jw-st-paul/) | 24 Août 2021
 St Paul | [Un message pour tous les Tisserands de Lumière qui se réunissent en prière en ce moment](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-5-2-af-st-paul/) | 5 Février 2023
 St Paul | [Nous encourage à travers les luttes du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-18-1-af-st-paul/) | 18 Février 2024
+St Paul | [Dieu nous a donné à chacun un guide Céleste pour nous aider dans nos luttes sur Terre ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-10-1-af-st-paul/) | 10 Mai 2024

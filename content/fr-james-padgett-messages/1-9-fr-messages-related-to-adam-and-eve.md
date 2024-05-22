@@ -50,6 +50,11 @@ Amon | [La nature maternelle d’Amon](/fr-contemporary-messages/fr-contemporary
 Aman | [La négativité dans l'humanité primitive](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-10-17-1-fab-aman/) | 17 Octobre 2010
 Aman | [Aucun être ne s’est jamais réincarné](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-10-26-1-af-aman/) | 26 Octobre 2015
 Aman | [Aman parle du paradis sur terre qu’il a expérimenté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-5-30-1-af-aman/) | 30 Mai 2016
+Amon | [Avoir de l’espoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-2-1-jw-amon/) | 2 Juillet 2021
+Amon | [Quand vous faites briller la lumière de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-8-4-jw-amon/) | 8 Mai 2022
+Amon | [Qualités de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-6-1-jw-amon/) | 6 Mars 2023
+Amon | [Nous nous réjouissons en vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-22-1-jw-amon/) | 22 Avril 2024
+Amon | [Quand vous brillez de la lumière de l'Amour de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-5-2-jw-amon/) | 5 Mai 2024
 <small>
 
 1. <large id="f1"> Adam et Ève étaient là il y a 37 000 ans, ils avaient un jardin, un arbre de la connaissance et ils ont également enfreint les règles. Mais les premiers parents sont arrivés il y a environ 1 million d'années, et j'ai laissé "Adam et Ève" dans ce texte parce que la plupart des gens pensent qu'ils étaient les premiers parents.[↩](#a1)

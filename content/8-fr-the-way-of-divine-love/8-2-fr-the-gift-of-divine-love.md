@@ -76,7 +76,7 @@ La relation entre le « péché impardonnable » et l'Amour Divin est également
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-Exposé de Dave Lampron | [Quelle est la substance la plus précieuse qui existe ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-undated/fr-1985-1-dl-presentation-by-dl/) |   1985
+Exposé de Dave Lampron | [Quelle est la substance la plus précieuse qui existe ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1985-1-dl-presentation-by-dl/) |   1985
 
 ### Le Cadeau de l’Amour Divin
 

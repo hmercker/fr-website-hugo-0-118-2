@@ -31,5 +31,9 @@ Care Darby Walsh | [Survivre à la mort avec les perceptions de l’éternité](
 Judas | [Les Trois Naissances](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-1-2-jw-judas/) | 1 Avril 2024
 Claire d'Assise | [Pour la Terre et toutes ses créatures](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-18-1-jw-clare-of-assisi/) | 18 Avril 2024
 Amon | [Nous nous réjouissons en vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-22-1-jw-amon/) | 22 Avril 2024
+Judas | [Venez au banquet de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-29-1-jw-judas/) | 29 Avril 2024
+Care Darby  Walsh | [La transformation de l’âme dans l’Amour de Dieu est réelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-3-1-jw-care-darby-walsh/) | 3 Mai 2024
+Amon | [Quand vous brillez de la lumière de l'Amour de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-5-2-jw-amon/) | 5 Mai 2024
+Khalil Gibran | [Le réveil d'un rêve](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-13-1-jw-khalil-gibran/) | 13 Mai 2024
 
 ## [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

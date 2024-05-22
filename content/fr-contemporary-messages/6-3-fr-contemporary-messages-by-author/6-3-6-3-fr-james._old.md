@@ -1,13 +1,13 @@
 ---
-title: "Jacques-2"
+title: "Jacques_2"
 menu_title: ""
-description: "Jacques-2"
+description: "Jacques_2"
 date: 2023-05-31 06:25:48+00:80
 draft: False
 hidden: True
 weight:
 ---
-### Jacques-2
+### Jacques_2
 
 ![title](/3-fr-judas-of-kerioth-messages/fr-jakobus_small.jpg)
 

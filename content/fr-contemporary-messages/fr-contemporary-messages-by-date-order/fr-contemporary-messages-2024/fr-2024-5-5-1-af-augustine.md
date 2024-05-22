@@ -9,7 +9,7 @@ weight:
 ---
 ### Dieu utilise ceux qui ont de l’amour et de la compassion 
 
-Augustin - reçu par Albert Fike le 23 Février 2024, Sechelt, Colombie-Britannique, Canada.
+Augustin - reçu par Albert Fike le 5 Mai 2024, Sechelt, Colombie-Britannique, Canada.
 
 …à vous, âmes bien-aimées. Je suis votre enseignant, Augustin. Oui, c'est bien que vous vous réunissiez ainsi. En effet, les inventions de l’homme peuvent être utilisées à bon escient. Les inventions qui ont apporté cette possibilité ont été une grande bénédiction pour vous et pour nous. Sachez que même si vous êtes chacun chez vous en train de prier ensemble de cette manière collective, vous avez un ange à vos côtés. En cela, vous êtes également connectés par le Treillis de Lumière et vous êtes un seul corps en prière, un seul corps recherchant les bénédictions de Dieu, vous ouvrant à l'afflux de l'Essence Divine pour aider à nourrir votre âme et à la transformer en ce qu'elle a toujours voulu être, une belle lumière remplie de dons resplendissants dans Sa beauté et Sa forme, une expression de la création de Dieu.
 
