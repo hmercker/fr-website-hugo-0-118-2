@@ -9,7 +9,7 @@ weight:
 ---
 ## Chapitre VI - L'Obligation du Péché - extrait de « The Life Elysian (la Vie Elyséenne)»
 
-### L'état de sommeil - extrait de « The Life Elysian »
+### L'état de sommeil - extrait de « The Life Elysian (la Vie Elyséenne)»
 
 Cet extrait est tiré du livre « The Life Elysian » de R. J. Lees et contient une partie d'un chapitre sur l'état de sommeil.
 

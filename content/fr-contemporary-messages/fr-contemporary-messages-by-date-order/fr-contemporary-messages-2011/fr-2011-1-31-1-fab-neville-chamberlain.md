@@ -1,13 +1,13 @@
 ---
-title: "Les remords d’un dirigeant britannique"
+title: "Les remords d’un dirigeant Britannique"
 menu_title: ""
-description: "Les remords d’un dirigeant britannique"
+description: "Les remords d’un dirigeant Britannique"
 date: 2022-06-01 06:00:01+00:186
 draft: False
 hidden: True
 weight:
 ---
-### Les remords d’un dirigeant britannique
+### Les remords d’un dirigeant Britannique
 
 Neville Chamberlain <sup id="a1">[1](#f1)</sup> - reçu par FAB le 31 Janvier 2011, Santa Cruz, Californie, USA.
 

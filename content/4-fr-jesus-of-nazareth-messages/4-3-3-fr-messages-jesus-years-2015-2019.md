@@ -24,7 +24,7 @@ Jésus | [Il y a une route plus élevée de service - une qui reconnaît un batt
 Jésus | [Marchez avec moi dans la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-5-11-3-af-jesus/) | 11 Mai 2016
 Jésus | [Aimer avec le cœur d'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-6-27-2-af-jesus/) | 27 Juin 2016
 Jésus | [Recevoir des conseils](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-7-4-2-af-jesus/) | 4 Juillet 2016
-Jésus | [Soyez ouverts à l’amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-1-2-af-jesus/) | 1 Septembre 2016
+Jésus | [Soyez ouverts à l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-1-2-af-jesus/) | 1 Septembre 2016
 Jésus | [Je suis votre frère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-2-3-af-jesus/) | 2 Septembre 2016
 Jésus | [Tu es mon disciple ici](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-8-1-af-jesus/) | 8 Septembre 2016
 Jésus | [A propos de la Vérité Absolue](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-14-2-bettina-jesus/) | 14 Septembre 2016
@@ -40,10 +40,10 @@ Jésus | [Culte](/fr-contemporary-messages/fr-contemporary-messages-by-date-orde
 Jésus | [La dévotion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-3-14-3-jg-jesus/) | 14 Mars 2017
 Jésus | [La dévotion (2ème partie)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-3-26-1-jg-jesus/) | 26 Mars 2017
 Jésus | [Jésus parle de la Pentecôte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-11-1-af-jesus/) | 11 Mai 2017
-Jésus | [S'abreuver aux eaux de l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-20-1-af-jesus/) | 20 Mai 2017
+Jésus | [S'abreuver aux eaux de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-20-1-af-jesus/) | 20 Mai 2017
 Jésus | [La bénédiction de Dieu par Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-6-4-1-af-jesus/) | 4 Juin 2017
-Jésus | [Vivre le chemin de l’amour.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-6-11-1-jg-jesus/) | 11 Juin 2017
-Jésus | [Que vos âmes brillent de l'amour du Père](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-7-30-1-af-jesus/) | 30 Juillet 2017
+Jésus | [Vivre le chemin de l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-6-11-1-jg-jesus/) | 11 Juin 2017
+Jésus | [Que vos âmes brillent de l'Amour du Père](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-7-30-1-af-jesus/) | 30 Juillet 2017
 Jésus | [L'avancée de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-8-5-1-hm-jesus/) | 5 Août 2017
 Jésus | [Prier pour recevoir la Sainte Essence de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-8-6-1-af-jesus/) | 6 Août 2017
 Jésus | [Jésus confirme son intention de se matérialiser](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-8-6-2-af-jesus/) | 6 Août 2017
@@ -51,7 +51,7 @@ Jésus | [C'est un chemin béni](/fr-contemporary-messages/fr-contemporary-messa
 Jésus | [Tout est fait dans l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-25-2-af-jesus/) | 25 Septembre 2017
 Jésus | [Dieu murmure en vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-14-4-af-jesus/) | 14 Octobre 2017
 Jésus | [Je suis avec vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-22-2-af-jesus/) | 22 Octobre 2017
-Jésus | [Je parlerai en voix directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-22-6-af-jesus/) | 22 Octobre 2017
+Jésus | [Je parlerai en Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-22-6-af-jesus/) | 22 Octobre 2017
 Jésus | [Jésus est avec nous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-2-2-af-jesus/) | 2 Novembre 2017
 Jésus | [Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-24-3-jg-jesus/) | 24 Novembre 2017
 Jésus | [Centres de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-25-1-af-jesus/) | 25 Novembre 2017
@@ -60,19 +60,19 @@ Jésus | [Nous sommes liés pour l'éternité dans cet amour](/fr-contemporary-m
 Jésus | [Bénédictions individuelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-7-1-af-jesus/) | 7 Décembre 2017
 Jésus | [Une bande de lumière dorée vous unifie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-10-2-af-jesus/) | 10 Décembre 2017
 Jésus | [Une bénédiction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-14-2-af-jesus/) | 14 Décembre 2017
-Jésus | [Message de clôture pour le groupe Voix Directes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-17-1-af-jesus/) | 17 Décembre 2017
+Jésus | [Message de clôture pour le groupe Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-17-1-af-jesus/) | 17 Décembre 2017
 Jésus | [La bénédiction de l'Épiphanie de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-6-1-af-jesus/) | 6 Janvier 2018
 Jésus | [Jésus est avec nous - Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-21-1-af-jesus/) | 21 Janvier 2018
 Jésus | [Vos efforts feront de cette église un centre de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-16-2-af-jesus/) | 16 Février 2018
 Jésus | [L'amour est la clé de l'épanouissement, de la joie et de la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-20-2-af-jesus/) | 20 Février 2018
 Jésus | [Le travail commence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-23-2-af-jesus/) | 23 Février 2018
 Jésus | [Vous vous rapprochez de l'éveil de votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-11-1-af-jesus/) | 11 Mars 2018
-Jésus | [Dans l'amour de Dieu, vous avez trouvé votre sanctuaire de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-13-3-af-jesus/) | 13 Mars 2018
+Jésus | [Dans l'Amour de Dieu, vous avez trouvé votre sanctuaire de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-13-3-af-jesus/) | 13 Mars 2018
 Jésus | [Une bénédiction de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-18-1-af-jesus/) | 18 Mars 2018
-Jésus | [Aidez les autres à trouver la vérité de l'amour du Père](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-30-1-af-jesus/) | 30 Mars 2018
+Jésus | [Aidez les autres à trouver la vérité de l'Amour du Père](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-30-1-af-jesus/) | 30 Mars 2018
 Jésus | [Jésus apporte une bénédiction à F.U.S.C.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-4-1-1-af-jesus/) | 1 Avril 2018
 Jésus | [Dieu crée des sanctuaires de lumière dans votre monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-4-6-1-af-jesus/) | 6 Avril 2018
-Jésus | [Jésus commente les expériences médiumniques.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-4-11-1-af-jesus/) | 11 Avril 2018
+Jésus | [Jésus commente les expériences médiumniques](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-4-11-1-af-jesus/) | 11 Avril 2018
 Jésus | [Rien ne peut briser ce lien](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-11-1-af-jesus/) | 11 Mai 2018
 Jésus | [Faites partie du plan pour le salut de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-28-2-af-jesus/) | 28 Mai 2018
 Jésus | [La bénédiction d’un bouclier de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-6-1-af-jesus/) | 6 Juin 2018
@@ -102,7 +102,7 @@ Jésus | [De grandes bénédictions attendent ceux qui suivent la voie de l'Amou
 Jésus | [Vous cherchez la paix qui dépasse toute compréhension](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-3-4-1-af-jesus/) | 4 Mars 2019
 Jésus | [L’Amour est mon message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-3-14-2-af-jesus/) | 14 Mars 2019
 Jésus | [Ouvrez-vous à ce don de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-5-6-1-af-jesus/) | 6 Mai 2019
-Jésus | [Connaître les subtilités de votre âme dans votre travail de canal d’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-6-27-2-af-jesus/) | 27 Juin 2019
+Jésus | [Connaître les subtilités de votre âme dans votre travail de canal d’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-6-27-1-af-jesus/) | 27 Juin 2019
 Jésus | [Votre vie aura un but si vous suivez la volonté et la vérité de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-12-3-af-jesus/) | 12 Juillet 2019
 Jésus | [Continuer à viser le plus haut](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-2-4-af-jesus/) | 2 Septembre 2019
 Jésus | [Cherchez la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-8-1-af-jesus/) | 8 Septembre 2019

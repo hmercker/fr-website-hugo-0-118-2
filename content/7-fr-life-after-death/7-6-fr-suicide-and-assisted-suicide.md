@@ -11,7 +11,7 @@ weight: 400
 
 ### 1. Suicide / (Suicide : Selbstmord)
 
-Définition :
+<u>Définition</u> :
 
 Le suicide a été évalué différemment selon les sociétés et les époques, ce qui s'exprime également dans le langage. En allemand, quatre mots sont courants : « Selbstmord », suicide, suicide spontané et suicide. Dans les milieux spécialisés, le suicide est bien établi. Dans le langage courant, on utilise le terme de suicide, qui n'est pas utilisé par de nombreux médias et qui est rejeté par de nombreux spécialistes. La raison en est que ce terme implique un jugement de valeur et ne répond pas à la définition juridique du meurtre. En outre, le suicide est un phénomène complexe qui peut concerner non seulement le suicidant, mais aussi des tiers.
 
@@ -72,7 +72,7 @@ Jésus | [Sur le suicide.](/fr-contemporary-messages/fr-contemporary-messages-by
 
 ### 2. Le suicide assisté
 
-Définition :
+<u>Définition</u> :
 
 Lorsque le suicide est accompli avec l'assistance d'une autre personne, on parle, selon le responsable de l'acte, soit de « suicide assisté », soit, dans le langage juridique, de « meurtre sur demande » ou « d'assistance au suicide ». De telles formes d'euthanasie font l'objet de discussions controversées au niveau international et sont réglementées différemment sur le plan juridique. En gériatrie et en soins aux personnes âgées, l'euthanasie passive est régulièrement évoquée en lien avec les notions « d'alimentation artificielle » ou de « refus d'alimentation ».
 

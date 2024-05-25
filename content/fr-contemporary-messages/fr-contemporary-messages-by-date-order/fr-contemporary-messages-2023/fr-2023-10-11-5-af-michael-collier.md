@@ -1,0 +1,29 @@
+---
+title: "Vos désirs et attentes pour une bénédiction spéciale"
+menu_title: ""
+description: "Vos désirs et attentes pour une bénédiction spéciale"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Vos désirs et attentes pour une bénédiction spéciale
+
+Michaël Collier - reçu par Albert Fike le 11 Octobre 2023, Laurelville, Pennsylvanie, États-Unis.
+
+Mes amis, je m’appelle Michaël Collier. Notre cher instrument s’est quelque peu trompé en pensant que j'étais le guide de ce cher fils. J’étais simplement près de vous pendant que vous faisiez vos libations<sup id="a1">[1](#f1)</sup>. Son guide est certainement Matthieu et continuera de l’être. Mais c’est une erreur honnête car il a perçu ma présence, alors mettez-lui à l’esprit un lien entre ce cher fils et moi. Je tiens à dire que j’ai été avec vous tous à un moment ou à un autre, tout comme de nombreux anges qui font ce circuit, pour ainsi dire, entre chacun d’eux qui aspire et travaille à une plus grande lumière et au développement de son âme. Nous travaillons ensemble, une grande équipe d’anges, qui se réunissent pour aider à élever ceux de l’humanité qui désirent la lumière, la vérité, l’amour. Nous avons donc déployé nos efforts.
+
+Il y a parmi vous l’attente que quelque chose d’unique et de spécial se produise pendant que vous êtes ensemble, non seulement dans ce petit cercle, mais dans le cercle plus large à venir. Je vous le dis, c’est une bonne perspective et une bonne attitude. Parce que lorsque vous avez de grandes attentes, lorsque vous avez dans votre âme le désir d’une grande bénédiction de Dieu, alors vous ouvrez les possibilités pour qu’il en soit ainsi. Un circuit est créé entre vos désirs, la réponse de Dieu à vos désirs, circulant ainsi d’avant en arrière, d’avant en arrière, entre vous et Dieu. Cela ouvre la voie. Le désir et l’attente, ce sont des éléments positifs, des expressions de soi. Ce n’est pas que vous exigez de Dieu. C’est plutôt le sentiment que quelque chose est sur le point de se produire. Vous êtes enthousiaste et cela génère l’attente d’une bénédiction.
+
+Je vous encourage donc, ainsi que ceux qui viennent, à continuer de nourrir cette attente, ce désir d’une grande bénédiction de la part de votre Père céleste. Cette dynamique est positive. Quand on entre dans cet état et cette situation sans aucune attente, dans un état plutôt médiocre d’attente et de vision de ce qui peut arriver, alors la possibilité d’expression d’excitation, de nostalgie et de désir est perdue. Je vous encourage, je vous encourage tous, à désirer intensément. Si cela signifie que vous attendez une bénédiction, qu’il en soit ainsi. Ne pensez pas que vous faites un faux pas ou qu’il s’agit d’une erreur. Au contraire, dans vos désirs intenses et concentrés, vous ouvrez la porte à ce que Dieu vous bénisse et bénisse tout autour de vous. N’est-ce pas ce qu’il faut, mes amis ?
+
+Or, ce qui peut découler de ces attentes et désirs peut être différent de ce que votre esprit met en place pour ajouter à ces attentes. Mais je sais que vous accepterez tout ce que Dieu vous donnera. Ce n’est pas comme si vous aviez une liste et que cette liste devait être remplie. Au contraire, vous avez un désir et une attente que ce désir soit exaucé par les bénédictions de Dieu. Le désir sort de l’âme, se connecte à Dieu, déclenchant les lois de réponse de Dieu. Ainsi, les bénédictions se déversent sur vous, mes amis bien-aimés.
+
+Être de bonne humeur. Être enthousiaste. Ayez un désir et des attentes profonds pour le temps à venir et le temps présent. Car comment Dieu pourrait-il vous atteindre autrement qu’à travers ces sentiments et émotions, en tendant la main à Dieu ? Vous établissez la connexion. C’est comme un pont où vous êtes à un bout et Dieu à l’autre. De chaque côté, un pont se forme entre vos désirs et vos prières, à travers les réponses de Dieu et Son désir de vous répondre, de vous donner, de vous aimer. L’amour vient toujours à ceux qui s’ouvrent à cette bénédiction. Son Amour, le grand Amour Divin, est ce qui est donné, la plus haute bénédiction de toutes. Avec cela, de nombreuses autres bénédictions affluent, la lumière, l’amour, la guérison, la paix, tout cela vient avec Son contact, alors que vous forgez le lien entre votre âme et Sa grande Âme, ainsi cela vient. Un grand canal est ouvert, clair et puissant, pour chacun de vous et pour vous tous.
+
+Mon désir est que quelle que soit la manière dont vous ouvrez ce canal, faites-le avec les intentions les plus élevées, avec le plus grand désir, afin que Dieu vous touche profondément et magnifiquement. Soyez transformés par Son Toucher, par l’expérience de votre rassemblement. Il se construira et montera chaque jour jusqu’à un crescendo de bénédictions, un grand afflux de vos amis anges pour être avec vous, reliant le Ciel et la Terre d’une manière magnifique, d’une manière qui apportera en effet de grandes et puissantes bénédictions à vos âmes, pour votre moi conscient. Vous connaîtrez Dieu d’une manière plus profonde et vous vous connaîtrez d’une manière plus profonde. Pour que les nombreuses questions que vous vous posez trouvent ainsi réponse, à travers votre relation avec votre Créateur, Celui qui sait tout, Celui qui est le Tout, Celui qui vous aime tant.
+
+Que Dieu vous bénisse, âmes bien-aimées. Je m’appelle Michael Collier et je vous aime tendrement. Vous êtes bénis, bénis de vous connaître, bénis de vivre ces choses ensemble, bénis parce que Dieu vous a réunis. Je vous aime et je serai avec vous pendant votre voyage ensemble. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> Une libation est un rituel religieux consistant en la présentation d'une boisson en offrande à un dieu, ou toute personne que l'on veut honorer, en renversant quelques gouttes sur le sol ou sur un autel.[↩](#f1)

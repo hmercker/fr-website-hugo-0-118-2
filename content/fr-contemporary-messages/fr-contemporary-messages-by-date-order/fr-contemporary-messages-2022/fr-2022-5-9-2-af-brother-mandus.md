@@ -44,7 +44,7 @@ Mon travail n’est pas terminé, ni le vôtre, il y a encore tant à faire, et 
 
 1. <large id="f1"> [WHC =  World Healing Center](https://www.whc.uk.net/). Ce centre a  été fondé par l'auteur de ce messsage, Frère Mandus Nyquist, dans les années 50, à Blackpool, en Angleterre.[↩](#a1)
 
-2. <large id="f21"> Brother Mandus s'est également exprimé dans les messages suivants : [↩](#a2)
+2. <large id="f2"> Brother Mandus s'est également exprimé dans les messages suivants : [↩](#a2)
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---

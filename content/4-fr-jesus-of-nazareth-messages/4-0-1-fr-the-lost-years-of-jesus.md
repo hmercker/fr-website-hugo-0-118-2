@@ -11,7 +11,7 @@ weight:
 
 ..... comme l'a décrit Judas de Kerioth.
 
-Ces messages couvrent ce que l'on pourrait appeler les "années d'adolescence" et l'"enfance" ou les « années de pré-adolescence » de Jésus. Ces messages, ainsi que la section suivante sur [le ministère public de Jésus](/4-fr-jesus-of-nazareth-messages/4-0-2-fr-the-public-years-of-jesus/), répondent à la question suivante : Qui était Jésus de Nazareth ? Qui était Jésus de Nazareth ?
+Ces messages couvrent ce que l'on pourrait appeler les "années d'adolescence" et l'"enfance" ou les « années de pré-adolescence » de Jésus. Ces messages, ainsi que la section suivante sur [le ministère public de Jésus](/4-fr-jesus-of-nazareth-messages/4-0-2-fr-the-public-years-of-jesus/), répondent à la question suivante : Qui était Jésus de Nazareth ? 
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---

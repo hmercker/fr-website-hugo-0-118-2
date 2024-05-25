@@ -1,13 +1,13 @@
 ---
-title: "Comment l’Amour Divin entre dans l’âme de l’homme"
+title: "Comment l’Amour Divin entre dans l’âme de l’homme (Suite)"
 menu_title: ""
-description: "Comment l’Amour Divin entre dans l’âme de l’homme"
+description: "Comment l’Amour Divin entre dans l’âme de l’homme (Suite)"
 date: 2022-06-01 06:00:01+00:222
 draft: False
 hidden: True
 weight:
 ---
-### Comment l’Amour Divin entre dans l’âme de l’homme
+### Comment l’Amour Divin entre dans l’âme de l’homme (Suite)
 
 Jésus - reçu par James Padgett le 8 Mai 1916, Washington, USA.
 

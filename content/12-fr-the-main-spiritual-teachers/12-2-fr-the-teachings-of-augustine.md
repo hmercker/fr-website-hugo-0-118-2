@@ -75,12 +75,12 @@ Augustin | [La Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messa
 Augustin | [Pour quoi priez-vous ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-1-30-1-af-augustine/) | 30 Janvier 2017
 Augustin | [Le pouvoir de la prière simultanée crée un treillis de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-2-12-1-af-augustine/) | 12 Février 2017
 Augustin | [Changements dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-2-17-1-af-augustine/) | 17 Février 2017
-Augustin | [Choisissez d’embrasser la volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-4-20-1-af-augustine/) | 20 Avril 2017
+Augustin | [Choisissez d’embrasser la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-4-20-1-af-augustine/) | 20 Avril 2017
 Augustin | [Le désir de l’âme est une prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-21-1-af-augustine/) | 21 Mai 2017
 Augustin | [La libération des blessures de l’âme est un choix librement consenti.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-6-8-1-af-augustine/) | 8 Juin 2017
 Augustin | [Cherchez toujours l’amour le plus élevé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-6-14-1-af-augustine/) | 14 Juin 2017
 Augustin | [Leçon sur le jugement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-6-15-1-af-augustine/) | 15 Juin 2017
-Augustin | [Préparation à la voix directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-6-17-1-af-augustine/) | 17 Juin 2017
+Augustin | [Préparation à la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-6-17-1-af-augustine/) | 17 Juin 2017
 Augustin | [Le voyage de l’éveil de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-6-28-1-af-augustine/) | 28 Juin 2017
 Augustin | [Voyage vers l'expiation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-7-10-1-af-augustine/) | 10 Juillet 2017
 Augustin | [La vérité passe par l'âme et elle commence par un simple désir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-7-30-3-af-augustine/) | 30 Juillet 2017
@@ -95,7 +95,7 @@ Augustin | [Libérez vos limites](/fr-contemporary-messages/fr-contemporary-mess
 Augustin | [Étancher la soif de votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-18-1-af-augustine/) | 18 Septembre 2017
 Augustin | [La loi du désir (populairement confondue avec la loi de l'attraction)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-20-2-af-augustine/) | 20 Septembre 2017
 Augustin | [L'expression de l'amour par le service est importante](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-22-1-af-augustine/) | 22 Septembre 2017
-Augustin | [Les dons de la connaissance de la vérité de l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-25-1-af-augustine/) | 25 Septembre 2017
+Augustin | [Les dons de la connaissance de la vérité de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-25-1-af-augustine/) | 25 Septembre 2017
 Augustin | [Le pouvoir du libre arbitre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-26-2-af-augustine/) | 26 Septembre 2017
 Augustin | [Quelques discussions sur la médiumnité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-30-1-af-augustine/) | 30 Septembre 2017
 Augustin | [Vos âmes ont certainement été accordées et bénies](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-14-1-af-augustine/) | 14 Octobre 2017
@@ -113,17 +113,17 @@ Augustin | [Le voyage de l'éveil](/fr-contemporary-messages/fr-contemporary-mes
 Augustin | [Liés pour l'éternité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-13-1-af-augustine/) | 13 Décembre 2017
 Augustin | [Bénédictions à tous ceux qui ont apporté leur aide à cette entreprise](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-15-6-af-augustine/) | 15 Décembre 2017
 Augustin | [Vous entrez dans une nouvelle phase de service](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-1-2-af-augustine/) | 1 Janvier 2018
-Augustin | [Mettez en pratique la vérité de l'amour de Dieu dans tout ce que vous faites](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-24-2-af-augustine/) | 24 Janvier 2018
+Augustin | [Mettez en pratique la vérité de l'Amour de Dieu dans tout ce que vous faites](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-24-2-af-augustine/) | 24 Janvier 2018
 Augustin | [La voix de l'âme vous guidera pour mettre en œuvre la volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-16-1-af-augustine/) | 16 Février 2018
 Augustin | [Cherchez l'amour de Dieu pour réveiller vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-20-1-af-augustine/) | 20 Février 2018
 Augustin | [Un parcours de service](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-22-1-af-augustine/) | 22 Février 2018
-Augustin | [Choisirez-vous de devenir une âme éveillée par l'amour de Dieu ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-24-1-af-augustine/) | 24 Février 2018
+Augustin | [Choisirez-vous de devenir une âme éveillée par l'Amour de Dieu ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-24-1-af-augustine/) | 24 Février 2018
 Augustin | [Permettez-vous de recevoir l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-25-1-af-augustine/) | 25 Février 2018
 Augustin | [Servir avec humilité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-25-2-af-augustine/) | 25 Février 2018
 Augustin | [Préparez-vous aux changements à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-4-28-1-af-augustine/) | 28 Avril 2018
 Augustin | [Dieu a besoin de ceux qui sont dans la lumière pour aider l’humanité à travers les changements à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-13-1-af-augustine/) | 13 Mars 2018
 Augustin | [Le don d'amour et de lumière de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-16-2-af-augustine/) | 16 Mars 2018
-Augustin | [Accepterez-vous le don de l'amour de Dieu ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-17-1-af-augustine/) | 17 Mars 2018
+Augustin | [Accepterez-vous le don de l'Amour de Dieu ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-17-1-af-augustine/) | 17 Mars 2018
 Augustin | [Le chemin de la guérison et de la compassion par l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-21-1-af-augustine/) | 21 Mars 2018
 Augustin | [Mettez l'accent sur la prière pour l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-4-1-2-af-augustine/) | 1 Avril 2018
 Augustin | [Le pouvoir de la prière pour provoquer le changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-4-16-1-af-augustine/) | 16 Avril 2018
@@ -148,7 +148,7 @@ Augustin | [Il est temps de dire la vérité](/fr-contemporary-messages/fr-conte
 Augustin | [Ayez foi dans le timing et la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-4-3-af-augustine/) | 4 Octobre 2018
 Augustin | [Un appel à une plus grande responsabilité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-10-1-af-augustine/) | 10 Octobre 2018
 Augustin | [Écoutez votre âme et non les illusions de votre esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-25-1-af-augustine/) | 25 Octobre 2018
-Augustin | [Dieu vous invite à vous réveiller dans Son amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-4-1-af-augustine/) | 4 Novembre 2018
+Augustin | [Dieu vous invite à vous réveiller dans Son Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-4-1-af-augustine/) | 4 Novembre 2018
 Augustin | [La lutte du mental matériel pour être en harmonie avec l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-6-1-af-augustine/) | 6 Novembre 2018
 Augustin | [Remettez à Dieu les blessures et les fardeaux de votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-11-1-mc-augustine/) | 11 Novembre 2018
 Augustin | [Toute vérité vient de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-28-1-af-augustine/) | 28 Novembre 2018
@@ -160,8 +160,8 @@ Augustin | [Prenez la résolution de faire grandir votre âme](/fr-contemporary-
 Augustin | [Vous faites tous partie du plan de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-13-2-af-augustine/) | 13 Janvier 2019
 Augustin | [Marcher dans le monde comme un canal de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-15-3-af-augustine/) | 15 Janvier 2019
 Augustin | [Conseils sur notre but et nos besoins](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-19-1-af-augustine/) | 19 Janvier 2019
-Augustin | [Que chacun de vous puisse donner à chacun de vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-21-1-af-augustine/) | 21 Janvier 2019
 Augustin | [Dire les vérités de Dieu en termes simples et aimants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-20-2-af-augustine/) | 20 Janvier 2019
+Augustin | [Chemin de l’Amour Divin et Chemin de l’Amour Naturel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-21-1-af-augustine/) | 21 Janvier 2019
 Augustin | [Comment unifier des croyances diverses ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-26-1-af-augustine/) | 26 Janvier 2019
 Augustin | [Questions concernant les directives sur les changements terrestres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-26-4-af-augustine/) | 26 Janvier 2019
 Augustin | [Les défis de la prédiction des changements terrestres à venir (Retraite de questions-réponses)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-28-1-af-augustine/) | 28 Janvier 2019
@@ -169,7 +169,7 @@ Augustin | [Chaque âme a-t-elle un but ?](/fr-contemporary-messages/fr-contempo
 Augustin | [Comment une personne peut-elle recevoir l'Amour Divin sans le savoir ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-31-1-af-augustine/) | 31 Janvier 2019
 Augustin | [Choisir la lumière plutôt que l’obscurité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-10-1-af-augustine/) | 10 Février 2019
 Augustin | [Soyez réceptifs à Dieu et aux anges Célestes (Tour 2019 d'éveil de l'âme - Côte Est des USA)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-18-2-af-augustine/) | 18 Février 2019
-Augustin | [Le mental crée l'agitation mais l'amour divin est la clé de l'harmonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-19-1-mc-augustine/) | 19 Février 2019
+Augustin | [Le mental crée l'agitation mais l'Amour Divin est la clé de l'harmonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-19-1-mc-augustine/) | 19 Février 2019
 Augustin | [Vous devez parvenir à une prise de conscience de la réalité de votre propre condition](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-22-1-af-augustine/) | 22 Février 2019
 Augustin | [L'éveil de l'âme est un processus progressif](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-26-2-af-augustine/) | 26 Février 2019
 Augustin | [L'Amour Divin est le chemin le plus direct vers Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-28-1-mc-augustine/) | 28 Février 2019
@@ -222,9 +222,9 @@ Augustin | [Le monde est enveloppé de brume et de nuances de gris](/fr-contempo
 Augustin | [Être en harmonie est de la plus haute importance pour être un instrument de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-13-1-af-augustine/) | 13 Janvier 2020
 Augustin | [Un lien puissant vous unit lorsque vous priez ensemble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-31-1-af-augustine/) | 31 Janvier 2020
 Augustin | [Dieu a un grand plan en vue pour le salut de l’humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-2-2-1-af-augustine/) | 2 Février 2020
-Augustin | [Il est important de mener une vie spirituelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-2-29-1-af-augustine/) | 29 Février 2020
-Augustin | [Avec le temps, le filet d'amour de Dieu dans votre âme deviendra un fleuve puissant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-2-16-1-af-augustine/) | 16 Février 2020
+Augustin | [Avec le temps, le filet d'Amour de Dieu dans votre âme deviendra un fleuve puissant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-2-16-1-af-augustine/) | 16 Février 2020
 Augustin | [Dieu vous tricote tous ensemble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-2-18-1-af-augustine/) | 18 Février 2020
+Augustin | [Il est important de mener une vie spirituelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-2-29-1-af-augustine/) | 29 Février 2020
 Augustin | [L’Âme a été crée pour recevoir l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-7-1-af-augustine/) | 7 Mars 2020
 Augustin | [Il est temps de répondre à l'invitation à rechercher l'harmonie par la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-26-1-af-augustine/) | 26 Mars 2020
 Augustin | [L'isolement social est une bénédiction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-19-1-af-augustine/) | 19 Avril 2020
@@ -241,11 +241,11 @@ Augustin | [L'intensité de votre désir apportera l'éveil de votre âme](/fr-c
 Augustin | [L'expérience de la croissance de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-8-1-af-augustine/) | 8 Juin 2020
 Augustin | [Ayez confiance que Dieu entend vos prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-19-1-af-augustine/) | 19 Juin 2020
 Augustin | [Avertissement de nouveaux changements à venir qui feront des ravages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-22-1-af-augustine/) | 22 Juin 2020
-Augustin | [L'amour de Dieu se répand à travers vous pour le bénéfice des autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-29-2-af-augustine/) | 29 Juin 2020
+Augustin | [L'Amour de Dieu se répand à travers vous pour le bénéfice des autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-29-2-af-augustine/) | 29 Juin 2020
 Augustin | [Vous êtes un don les uns pour les autres et pour Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-30-3-af-augustine/) | 30 Juin 2020
 Augustin | [Connaissez vos propres âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-7-1-af-augustine/) | 7 Août 2020
 Augustin | [Discernement de votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-8-1-af-augustine/) | 8 Septembre 2020
-Augustin | [La tension entre la volonté de Dieu et la résistance de l’humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-15-1-af-augustine/) | 15 Septembre 2020
+Augustin | [La tension entre la Volonté de Dieu et la résistance de l’humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-15-1-af-augustine/) | 15 Septembre 2020
 Augustin | [Allumer le feu de l'amour dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-9-1-af-augustine/) | 9 Octobre 2020
 Augustin | [L'Esprit Saint](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-18-1-af-augustine/) | 18 Octobre 2020
 Augustin | [Libre Arbitre et Perfectionnisme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-27-1-af-augustine/) | 27 Octobre 2020
@@ -271,7 +271,7 @@ Augustin | [En fait, vous êtes sur la bonne voie](/fr-contemporary-messages/fr-
 Augustin | [Pentecôte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-23-1-af-augustine/) | 23 Mai 2021
 Augustin | [Le pouvoir de la prière pour invoquer la lumière dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-11-1-af-augustine/) | 11 Juin 2021
 Augustin | [S'aligner sur l'âme de Dieu (2021 Cercle de prière en ligne de Vancouver)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-23-1-af-augustine/) | 23 Juin 2021
-Augustin | [Encouragement à parler de l'amour de Dieu à ses amis et à sa famille](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-3-1-af-augustine/) | 3 Août 2021
+Augustin | [Encouragement à parler de l'Amour de Dieu à ses amis et à sa famille](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-3-1-af-augustine/) | 3 Août 2021
 Augustin | [Avoir la foi plutôt que la peur alors que les conditions changent dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-17-1-af-augustine/) | 17 Août 2021
 Augustin | [Nous sommes nécessaires pour répandre la lumière dans le monde.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-29-1-af-augustine/) | 29 Août 2021
 Augustin | [Félicitations pour la création d'un Phare de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-24-1-af-augustine/) | 24 Septembre 2021
@@ -279,19 +279,19 @@ Augustin | [Notre collaboration pour apporter la lumière au monde est important
 Augustin | [Dieu frappe à la porte de votre âme (2022 Cercles de prière en ligne)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-1-16-1-af-augustine/) | 16 Janvier 2022
 Augustin | [Réponse à la demande de conseil](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-1-19-1-af-augustine/) | 19 Janvier 2022
 Augustin | [Démystifie la réincarnation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-10-1-af-augustine/) | 10 Avril 2022
-Augustin | [Comment savez-vous que vous recevez l'Amour Divin ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-25-1-af-augustine/) | 25 Avril 2022
+Augustin | [Comment savez-vous que vous recevez l'Amour Divin ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-25-2-af-augustine/) | 25 Avril 2022
 Augustin | [Rejoignez la tapisserie des belles âmes de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-15-1-af-augustine/) | 15 Mai 2022
 Augustin | [Excellent message d’enseignement sur la volonté de Dieu et la volonté de l’homme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-9-1-af-augustine/) | 9 Août 2022
 Augustin | [La pression de la résistance au changement s'accentue](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-12-2-af-augustine/) | 12 Août 2022
-Augustin | [Voyage au puits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-26-1-af-augustine/) | 26 Août 2022
+Augustin | [Voyage au puits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-26-2-af-augustine/) | 26 Août 2022
 Augustin | [Les portails de lumière ont un but](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-9-1-af-augustine/) | 9 Septembre 2022
 Augustin | [Abstenez-vous de toute discussion politique ou relative aux changements terrestres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-7-2-al-augustine/) | 7 Octobre 2022
 Augustin | [Des conseils vous seront donnés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-9-2-al-augustine/) | 9 Octobre 2022
-Augustin | [Les cercles de lumière sont très importants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-16-2-af-augustine/) | 16 Octobre 2022
+Augustin | [Les cercles de lumière sont très importants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-16-4-af-augustine/) | 16 Octobre 2022
 Augustin | [De nombreux esprits ont été bénis grâce à vos efforts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-18-2-af-augustine/) | 18 Octobre 2022
 Augustin | [Vous venez nous connaître dans l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-22-2-af-augustine/) | 22 Novembre 2022
 Augustin | [Vulnérabilités de l'interprétation et de l'enseignement des vérités de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-29-2-af-augustine/) | 29 Novembre 2022
-Augustin | [Leçon sur le chagrin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-10-1-af-augustine/) | 10 Décembre 2022
+Augustin | [Leçon sur le désespoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-10-1-af-augustine/) | 10 Décembre 2022
 Augustin | [Le vrai sens de Noël](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-18-1-af-augustine/) | 18 Décembre 2022
 Augustin | [Décrit le stress et la douleur que le monde subit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-7-1-af-augustine/) | 7 Janvier 2023
 Augustin | [Le dilemme d'attirer de nouveaux venus vers les vérités](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-23-2-af-augustine/) | 23 Janvier 2023
@@ -303,8 +303,8 @@ Augustin | [Ayez de la compassion pour vous mêmes et pour lemonde](/fr-contempo
 Augustin | [Affirme notre collaboration avec les autres porteurs de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-6-2-af-augustine/) | 6 Mars 2023
 Augustin | [Vous avez choisi la bataille pour la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-9-1-af-augustine/) | 9 Avril 2023
 Augustin | [Parle clairement de ce qui est requis pour les manifestations vocales directes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-18-1-af-augustine/) | 18 Avril 2023
-Augustin | [Une leçon sur l'alignement de la vie sur la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-29-2-af-augustine/) | 29 Avril 2023
-Augustin | [Le moment est venu de faire un pas en avant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-5-2-2-af-augustine/) | 2 Mai 2023
+Augustin | [Une leçon sur l'alignement de la vie sur la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-29-1-af-augustine/) | 29 Avril 2023
+Augustin | [Le moment est venu de faire un pas en avant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-5-2-1-af-augustine/) | 2 Mai 2023
 Augustin | [Transcender l'esprit égoïste : Un avertissement Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-5-1-af-augustine/) | 5 Juillet 2023
 Augustin | [L’univers de Dieu est multidimensionnel ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-23-1-af-augustine/) | 23 Juillet 2023
 Augustin | [Marchez dans la vraie réalité de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-11-1-af-augustine/) | 11 Août 2023
@@ -316,3 +316,11 @@ Augustin | [L'orientation continue](/fr-contemporary-messages/fr-contemporary-me
 Augustin | [Message puissant pour vivre la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-10-2-af-augustine/) | 10 Janvier 2024
 Augustín | [Se préparer aux changements terrestres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-18-1-af-augustin/) | 18 Janvier 2024
 Augustin | [Faites toujours face à la lumière de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-9-2-af-augustine/) | 9 Février 2024
+Augustin | [Conseils pour chaque participant à la retraite de la médiumnité d’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-14-2-af-augustine/) | 14 Février 2024
+Augustin | [Importance de partager la vérité de l’Amour de Dieu avec le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-2-1-af-augustine/) | 2 Mars 2024
+Augustin | [Nous accueille et ouvre le cercle de développement en ligne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-9-2-mc-augustine/) | 9 Mars 2024
+Augustin | [Atteindre la conscience de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-12-1-af-augustine/) | 12 Mars 2024
+Augustin | [Répond à notre conversation en se demandant pourquoi les humains ne répondent pas aux opportunités d'Amour Divin ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-14-2-af-augustine/) | 14 Mars 2024
+Augustin | [Vous grandissez dans la lumière en tant qu’émissaires de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-18-2-af-augustin/) | 18 Mars 2024
+Augustin | [Dieu utilise ceux qui ont de l’amour et de la compassion ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-5-1-af-augustine/) | 5 Mai 2024
+

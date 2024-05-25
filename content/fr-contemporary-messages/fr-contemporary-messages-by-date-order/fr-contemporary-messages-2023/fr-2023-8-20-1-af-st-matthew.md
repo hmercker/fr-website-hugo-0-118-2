@@ -9,7 +9,7 @@ weight:
 ---
 ### Le pouvoir de l'Amour Divin élève toutes les situations
 
-St Matthieu - reçu par Al Fike le 20 Août 2023, Sechelt, Colombie-Britannique, Canada.
+St Matthieu - reçu par Albert Fike le 20 Août 2023, Sechelt, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, âmes bien-aimées, je suis Matthieu. Les marées du changement sont sur vous, n’est-ce pas ? Pour certains, cela est tout à fait évident. Pour d’autres, ce n’est pas le cas. Mais chacun d’entre vous fait l’expérience de conditions changeantes venant de l’extérieur et de conditions changeantes venant de l’intérieur. Ceux qui ne voient aucune différence dans leur monde et leur vie, c’est parce que les changements sont subtils et que le gradient de ces changements continue d’avancer lentement et donc, vous n’en êtes pas si conscient. Et pourtant, il y a des endroits dans le monde où ces changements éclatent et entraînent des calamités et ont leur influence sur vos vies.
 

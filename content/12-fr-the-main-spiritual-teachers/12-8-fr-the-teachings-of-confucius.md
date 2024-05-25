@@ -39,11 +39,11 @@ Confucius | [Bienvenue dans ce cercle d’Amour](/fr-contemporary-messages/fr-co
 Confucius | [Bénédictions de guérison et d’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-4-1-af-confucius/) | 4 Décembre 2016
 Confucius | [N’ayez pas peur d’exprimer ce qui est dans votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-8-2-af-confucius/) | 8 Décembre 2016
 Confucius | [Notre âme et la loi de l’attraction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-2-15-1-af-confucius/) | 15 Février 2017
-Confucius | [S’abreuver de l’amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-3-8-1-af-confucius/) | 8 Mars 2017
+Confucius | [S’abreuver de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-3-8-1-af-confucius/) | 8 Mars 2017
 Confucius | [Les conseils du vieux sage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-6-24-1-af-confucius/) | 24 Juin 2017
 Confucius | [Cherchez la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-7-2-1-af-confucius/) | 2 Juillet 2017
 Confucius | [La vérité passe par l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-7-29-1-af-confucius/) | 29 Juillet 2017
-Confucius | [Dans l'amour de Dieu se trouvent toutes les réponses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-8-9-1-af-confucius/) | 9 Août 2017
+Confucius | [Dans l'Amour de Dieu se trouvent toutes les réponses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-8-9-1-af-confucius/) | 9 Août 2017
 Confucius | [Confucius nous conseille de reposer notre esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-8-12-1-hm-confucius/) | 12 Août 2017
 Confucius | [L'amour dissout toutes les barrières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-8-17-1-af-confucius/) | 17 Août 2017
 Confucius | [L'heure approche](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-12-4-af-confucius/) | 12 Septembre 2017
@@ -91,8 +91,11 @@ Confucius | [Bénédictions](/fr-contemporary-messages/fr-contemporary-messages-
 Confucius | [Partager nos dons de guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-1-22-1-af-confucius/) | 22 Janvier 2022
 Confucius | [S'envoler vers votre Père Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-7-1-al-confucius/) | 7 Octobre 2022
 Confucius | [Ne gaspillez pas ces opportunités](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-13-1-af-confucius/) | 13 Janvier 2023
-Confucius | [Dieu vous guidera dans votre service](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-2-3-af-confucius/) | 2 Février 2023
+Confucius | [Dieu vous guidera dans votre service](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-2-2-af-confucius/) | 2 Février 2023
 Confucius | [Vous volerez sur le souffle de Dieu pour éveiller de nombreuses âmes ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-11-1-af-confucius/) | 11 Octobre 2023
 Confucius | [Nous avons le plein soutien de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-3-1-af-confucius/) | 3 Janvier 2024
 Confucius | [Ne gaspillez pas les bénédictions que vous recevez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-5-2-af-confucius/) | 5 Janvier 2024
 Confucius | [Bénédictions des portails pour tous ceux qui résident ici](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-9-1-af-confucius/) | 9 Janvier 2024
+Confucius | [Les anges apportent des bénédictions de guérison ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2024-3-1-2-af-confucius/) | 1 Mars 2024
+Confucius | [Trois oiseaux sur un fil ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-20-1-af-confucius/) | 20 Mars 2024
+

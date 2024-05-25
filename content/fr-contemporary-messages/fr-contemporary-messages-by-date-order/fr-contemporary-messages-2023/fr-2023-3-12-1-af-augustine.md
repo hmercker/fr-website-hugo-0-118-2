@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Invitation à l'Amour Divin(FUSC <sup id=”a1”>[1](#f1)</sup>)
+### Invitation à l'Amour Divin(FUSC <sup id="a1">[1](#f1)</sup>)
 
 Augustin - reçu par Al Fike le 12 Mars 2023, Sechelt, Colombie-Britannique, Canada.
 
@@ -24,7 +24,7 @@ Propos de Jésus
 Nous honorons chacun de vous, âmes précieuses de la création de Dieu, et ceux qui souhaitent notre présence parmi eux l’auront. Recherchez le chemin le plus élevé, la vérité la plus profonde et la plus profonde, et elle sera à vous pour toute l’éternité. Que Dieu vous bénisse. Que Dieu vous bénisse, bien-aimés. Je suis avec vous. Je suis Jésus et je suis avec vous. Que Dieu vous bénisse.
 <small>
 
-1. <large id=”f1”> FUSC : First United Spiritualist Church (Première Eglise Spiritualiste Unifiée).[↩](#a1)
+1. <large id="f1"> FUSC : First United Spiritualist Church (Première Eglise Spiritualiste Unifiée).[↩](#a1)
 
 ### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
 

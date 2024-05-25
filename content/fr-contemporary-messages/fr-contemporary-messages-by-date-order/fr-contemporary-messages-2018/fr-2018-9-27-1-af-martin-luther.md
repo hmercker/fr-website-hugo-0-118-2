@@ -1,13 +1,13 @@
 ---
-title: "Bienvenue à H et encouragements pour le groupe"
+title: "Bienvenue à H et encouragements pour le groupe des 7"
 menu_title: ""
-description: "Bienvenue à H et encouragements pour le groupe"
+description: "Bienvenue à H et encouragements pour le groupe des 7"
 date: 2022-06-01 06:00:01+00:486
 draft: False
 hidden: True
 weight:
 ---
-### Bienvenue à H et encouragements pour le groupe
+### Bienvenue à H et encouragements pour le groupe des 7
 
 Martin Luther - reçu par Al Fike le 27 Septembre 2018, Gibsons, Colombie-Britannique, Canada.
 

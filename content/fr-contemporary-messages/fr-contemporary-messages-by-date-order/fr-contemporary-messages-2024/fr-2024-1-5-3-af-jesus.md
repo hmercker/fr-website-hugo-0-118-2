@@ -9,7 +9,7 @@ weight:
 ---
 ### Le voile est levé pour la retraite de Trinidade 
 
-Jésus - reçu par Al Fike le 5 Janvier  2024, Trinidate.
+Jésus - reçu par Al Fike le 5 Janvier 2024, Trinidate.
 
 Je viens. Je suis Jésus, votre frère, votre ami. Le voile de la condition humaine est en train de se lever sur vous en ce moment même. En exprimant vos prières, vos désirs et vos préoccupations pour vos bien-aimés et pour beaucoup, vous avez ainsi élevé les conditions de votre cercle à celles de lumière, d’amour, de guérison et de paix. Puissiez-vous ressentir et connaître le grand cadeau qui vous est offert. Puissiez-vous bénéficier du Toucher de Dieu, la grande Source de toute guérison et de tout amour. Puissiez-vous être en alignement avec toute vérité et en vous, la vérité de votre âme.
 

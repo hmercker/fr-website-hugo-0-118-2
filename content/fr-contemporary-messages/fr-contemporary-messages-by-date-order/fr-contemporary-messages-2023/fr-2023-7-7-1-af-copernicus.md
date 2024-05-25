@@ -9,7 +9,7 @@ weight:
 ---
 ### L'humanité a été un virus sur la Terre Mère
 
-Copernic - reçu par Al Fike le 7 Juillet 2023, Sechelt, Colombie-Britannique, Canada.
+Copernic - reçu par Albert Fike le 7 Juillet 2023, Sechelt, Colombie-Britannique, Canada.
 
 ![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-copernic1.jpg)
 

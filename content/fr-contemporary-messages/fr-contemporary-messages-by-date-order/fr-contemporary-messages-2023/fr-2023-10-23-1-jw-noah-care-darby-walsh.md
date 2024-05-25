@@ -1,0 +1,24 @@
+---
+title: "L’acte de foi et la création de sanctuaires"
+menu_title: ""
+description: "L’acte de foi et la création de sanctuaires"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### L’acte de foi et la création de sanctuaires
+
+Noé et Care Darby Walsh - reçu par Jimbeau Walsh le 23 Octobre 2023, Nashville, Tennesse, USA.
+
+**Je suis là. Je viens dans l’Amour de Dieu. Je suis Noé.** De nombreux siècles se sont écoulés depuis mon passage sur terre et je ne viens pas souvent sur le plan terrestre. Mais nous, dans les Royaumes Célestes, sommes très conscients des changements terrestres, du climat politique, de tout ce qui concerne l'humanité et nous en avons beaucoup parlé, je dirais même prophétisé et certainement discuté de ces événements qui se produisent actuellement et qui se produiront et continueront de se produire. 
+
+Dans ma vie, j'ai reçu une préfiguration des événements qui se produiraient dans ma région du monde. Les événements du déluge, de l'arche, de ma famille et des animaux ont été grandement exagérés, mais ils sont essentiellement vrais. Je n’ai pas été pris très au sérieux même si j’étais un visionnaire et ceux qui le savaient pouvaient prendre les choses que j’avais prédites avec un certain sérieux. Cependant, la plupart n’étaient pas disposés à se préparer. Il en est ainsi. Vous avez reçu ces informations et ce que vous en ferez reste à voir. Je dirai ceci : avant tout, vos prières pour recevoir l’Amour de Dieu et créer un sanctuaire physique, un sanctuaire spirituel, apporteront de grandes bénédictions sur cette terre. Ces bénédictions donneront à beaucoup un aperçu de leur destinée, une destinée divine.
+
+Sur le plan physique, il y a eu beaucoup d'inquiétude, et cela continuera avec raison, car il a été suggéré et encouragé que vous créiez des sanctuaires, des lieux de refuge et ainsi, de ce point de vue, ce que nous voyons, vous pourriez appeler de nombreuses arches, de nombreux endroits à travers le monde où la durabilité, la simplicité, le caractère sacré et le respect en communauté ont lieu et continueront. Le plus important dans CETTE communauté est le fondement de l’Amour de Dieu qui donne de la clarté et un aperçu de l’avenir de l’âme transformée de ce monde mortel en ange Divin. Les graines de cette vérité, de cet enseignement, vous les emporterez partout où vous déciderez d'être, et ces graines porteront des fruits et oui, un monde nouveau, en temps voulu, s'établira sur la terre. Donc, que ceux qui vous entourent vous prennent au sérieux ou non, rappelez-vous que vous avez le libre arbitre, rappelez-vous que vous êtes une communauté, rappelez-vous que vous pouvez vous rassembler comme vous le souhaitez et créer un sanctuaire autant que vous le pouvez et comme vous le jugez nécessaire non seulement pour votre sécurité physique mais aussi pour la préservation de la vérité divine, afin que l'Amour de Dieu ait un fondement solide, qu'il s'enracine dans vos âmes, qu'il puisse s'épanouir dans un nouveau jour, une nouvelle aube.
+
+Vous savez donc maintenant ce qui vous a été donné et comment l'utiliser, et c'est à vous de décider de la manière dont vous l'apporterez à la terre. Sachez également que vous êtes co-créateurs et que chaque fois que vous demandez, vous recevrez. Alors, lorsque vous recevez cette vision, priez pour l’Amour de Dieu, demandez la direction angélique, afin que ceux d’entre nous qui servent le Créateur viennent à votre aide. Enfin, je vous le dis, soyez en paix. Ne soyez pas dérangé. Car tout est guéri, tout va bien, tout est béni, dans l’Amour de Dieu. Soyons dans cet amour en ce moment alors que nous laissons tomber tout ce qui nous sépare.
+
+Nous sommes avec vous, et nous étions autrefois sur terre comme vous l'êtes maintenant, et nous vous aimons tellement et le Père Céleste vous aime au-delà de votre imagination. Soyons dans l'amour. Que Dieu vous bénisse et je vous remercie. Je suis votre frère en Christ dans l'Amour de Dieu. Je suis venu. Je suis Noé.
+
+**C’est moi, Care.** Mes très chers, je souhaite seulement ajouter à ce que frère Noé a gracieusement dit : ce qui est requis pour le changement est un acte de foi. Car Noé a agi selon sa direction et vous savez tous, peu importe à quel point vous avez pu être réticent, peu importe combien de doutes vous aviez, lorsque vous avez agi selon votre direction, des miracles se sont produits. Et vous étiez là avec votre cœur reconnaissant et votre âme aimante en gratitude, en remerciement, si heureux d’avoir franchi ce pas, qu’il soit grand ou petit. Je dois dire que c’est ce qui est requis, et cela nécessitera une prière profonde et des conseils profonds et cela vous sera donné, afin que vous puissiez agir en conséquence, afin que le monde soit béni et guéri au temps de Dieu. Je vous aime et je vous remercie. Allez dans la grâce de Dieu. Je suis Care.

@@ -9,7 +9,7 @@ weight:
 ---
 ### Le pouvoir des bénédictions de Dieu est plus fort que toute autre force dans l'univers
 
-St Matthieu - reçu par Al Fike le 25 Août 2023, Sechelt, Colombie-Britannique, Canada.
+St Matthieu - reçu par Albert Fike le 25 Août 2023, Sechelt, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, mes âmes bien-aimées, je m'appelle Matthieu. Oui, il y a de grands problèmes dans votre monde. Un monde soumis aux caprices de l'homme, un monde soumis aux forces de la nature, un monde soumis aux bénédictions de Dieu. Toutes ces forces dynamiques font partie de votre quotidien, que vous en soyez conscient ou non. Et c'est à nous qui souhaitons vous enseigner et vous soutenir, de vous informer de ces bénédictions qui peuvent vous parvenir par les forces de l’Expression de Dieu dans l'univers, de l’Expression de Dieu sur ce monde. La puissance des bénédictions de Dieu est bien plus grande que toute autre force, que toute autre chose dans la création. Et en allant à la source, vous constaterez que ces bénédictions se déverseront sur vous à votre demande, sur la base de vos prières sincères, de vos désirs, de vos efforts pour vous rapprocher. Alors que vous recherchez la plus grande de toutes les bénédictions, l’Amour Divin de Dieu, l’essence de Son âme transmise sur vous par l’Esprit Saint.
 

@@ -1,4 +1,4 @@
-É---
+---
 title: "La couleur dans la mosaïque de la vie"
 menu_title: ""
 description: "La couleur dans la mosaïque de la vie"

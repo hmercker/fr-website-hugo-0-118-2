@@ -13,15 +13,15 @@ weight:
 ---|---|---
 Jésus | [Jésus _Sur la prière.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1984-1-ks-jesus/) |   1984
 Jésus | [Une mise au point concernant Swedenborg.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1984-2-1-1-vs-jesus/) | 1 Février 1984
-Jésus | [Garder la foi...](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1984-7-18-1-ks-jesus/) | 18 Juillet 1984
-Jésus | [Désir de vérité…](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1984-12-10-1-ks-jesus/) | 10 Décembre 1984
+Jésus | [Garder la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1984-7-18-1-ks-jesus/) | 18 Juillet 1984
+Jésus | [Désir de vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1984-12-10-1-ks-jesus/) | 10 Décembre 1984
 Jésus | [Les vérités du Père](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1985-1-ks-jesus/) |   1985
 Jésus | [L’avortement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1985-6-30-1-ar-jesus/) | 30 Juin 1985
 Jésus | [Premier message à Dave Lampron](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1986-4-9-1-dl-jesus/) | 9 Avril 1986
 Jésus | [Jésus : La loi de la prière.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1986-7-8-1-dl-jesus/) | 8 Juillet 1986
 Jésus | [Né sans péché](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1986-8-28-1-dl-jesus/) | 28 Août 1986
 Jésus | [L’Esprit Saint et la Naissance sans péché.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1986-12-26-1-ks-jesus/) | 26 Décembre 1986
-Jésus | [Sur la médiumnité de D.L.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-2-17-1-dl-jesus/) | 17 Février 1987
+Jésus | [Sur la médiumnité de Dave Lamprom](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-2-17-1-dl-jesus/) | 17 Février 1987
 Jésus | [Les vérités que vous avez reçues de M. Padgett et du Dr Samuels ne sont que le début de nos efforts.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-4-17-1-dl-jesus/) | 17 Avril 1987
 Jésus | [Nourriture pour l’âme.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-4-23-1-dl-jesus/) | 23 Avril 1987
 Jésus | [Le progrès de l’humanité.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-5-7-1-dl-jesus/) | 7 Mai 1987
@@ -63,7 +63,7 @@ Jésus | [Les ondulations deviennent des vagues](/fr-contemporary-messages/fr-co
 Jésus | [Au sujet des divers médiums](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1992-6-10-1-ks-jesus/) | 10 Juin 1992
 Jésus | [Sur la sélection de M. Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1996-5-15-1-ks-jesus/) | 15 Mai 1996
 Jésus | [Pourquoi Jésus n’apparaît-il pas aux gens aujourd’hui, comme il l’a fait à ses disciples il y a 2 000 ans ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1996-7-20-1-ks-jesus/) | 20 Juillet 1996
-Jésus | [Le problème avec les Eglises](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1996-10-20-1-ks-jesus/) | 20 Octobre 1996
+Jésus | [Le problème avec les Églises](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1996-10-20-1-ks-jesus/) | 20 Octobre 1996
 Jésus | [Jésus répond à des questions sur Rembrant et Marc Chagall, donnant un aperçu de la vie dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1997-1-12-1-ks-jesus/) | 12 Janvier 1997
 Jésus | [Conseils sur la guérison... Commentaires sur les livres censés être écrits par Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1997-2-1-1-ks-jesus/) | 1 Février 1997
 Jésus | [Quelques réponses à des questions personnelles, ainsi que quelques perles de sagesse...](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1997-4-1-1-ks-jesus/) | 1 Avril 1997
@@ -88,6 +88,6 @@ Jésus | [Faire confiance aux autres](/fr-contemporary-messages/fr-contemporary-
 Jésus | [La vérité qui est écrite dans votre âme doit être parlée dans toutes les langues](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-6-4-1-ar-jesus/) | 4 Juin 2000
 Jésus | [Message annuel de transe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-6-25-1-ar-jesus/) | 25 Juin 2000
 Jésus | [Encouragement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-7-30-1-ar-jesus/) | 30 Juillet 2000
-Jésus | [Alfredo et swift bear](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-8-28-2-ar-jesus/) | 28 Août 2000
+Jésus | [Alfredo et Ourson Véloce](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-8-28-2-ar-jesus/) | 28 Août 2000
 Jésus | [La violence est-elle jamais justifiée en cas de légitime défense ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-9-8-1-ks-jesus/) | 8 Septembre 2000
 Jésus | [Un message de Noël.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-12-25-1-ar-jesus/) | 25 Décembre 2000

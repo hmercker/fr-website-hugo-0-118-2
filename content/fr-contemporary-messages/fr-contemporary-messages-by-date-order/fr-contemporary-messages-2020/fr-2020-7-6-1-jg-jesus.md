@@ -1,13 +1,13 @@
 ---
-title: "La paix"
+title: "La Paix"
 menu_title: ""
-description: "La paix"
+description: "La Paix"
 date: 2022-06-01 06:00:01+00:1176
 draft: False
 hidden: True
 weight:
 ---
-### La paix
+### La Paix
 
 Jésus (Yeshua ben Yosef) - reçu par Jane Gartshore le 6 Juillet 2020.
 

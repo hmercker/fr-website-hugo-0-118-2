@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### L'Aamour de Dieu apporte l'unité
+### L'Amour de Dieu apporte l'unité
 
 André - reçu par Al Fike le 7 Mai 2019, Gibsons, Colombie-Britannique, Canada.
 

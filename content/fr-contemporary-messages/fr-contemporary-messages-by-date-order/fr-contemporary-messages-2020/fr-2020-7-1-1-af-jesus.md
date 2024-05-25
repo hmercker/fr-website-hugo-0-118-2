@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Al Fike le 1<sup>er</sup> Juillet 2020, Gibsons, Colombie-Britannique, Canada.
 
-![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-previsions2ndhal2020.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-previsions2ndhalf2020.jpg)
 
 **Prologue :** Ce n’est pas souvent que je reçois un message aussi important de la part de ces anges qui parlent à travers moi le médium. Ce message en deux parties est venu après avoir entendu un discours d’un pasteur du Kentucky <sup id="a1">[1](#f1)</sup> qui a reçu une série de rêves prophétiques concernant l’avenir. Moi aussi, j’ai eu plusieurs visions et avertissements sur les temps à venir, sans parler d’un certain nombre de messages concernant les changements climatiques. Jeanne et moi avons été intrigués par son message, mais sommes demeurés incrédules quant à son avertissement de s’armer d’armes à feu afin de se protéger contre la violence et le chaos futurs. Il s’agit d’une conception très caricaturale du monde dans certaines régions des États-Unis et ce n’est certainement pas quelque chose que nous approuvons personnellement (ou en tant que Canadiens).
 

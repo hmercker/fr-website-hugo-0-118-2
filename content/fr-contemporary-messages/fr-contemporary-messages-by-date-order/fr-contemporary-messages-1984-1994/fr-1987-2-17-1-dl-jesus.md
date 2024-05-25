@@ -1,13 +1,13 @@
 ---
-title: "Sur la médiumnité de D.L"
+title: "Sur la médiumnité de Dave Lamprom"
 menu_title: ""
-description: "Sur la médiumnité de D.L"
+description: "Sur la médiumnité de Dave Lamprom"
 date: 2022-06-01 06:00:01+00:12
 draft: False
 hidden: True
 weight:
 ---
-### Sur la médiumnité de D.L
+### Sur la médiumnité de Dave Lamprom
 
 Jésus - reçu par Révérend Dave Lampron le 17 Février 1987.
 

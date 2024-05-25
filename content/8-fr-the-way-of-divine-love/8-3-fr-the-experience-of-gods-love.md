@@ -33,9 +33,7 @@ Un résumé de l'Amour Divin et de ses effets est disponible sous la forme d'une
 
 [Vidéo YouTube](https://youtu.be/2l2CBrN3zVg)
 
-Vous pouvez également imprimer une copie de cette présentation, si vous souhaitez la partager ou l'avoir à portée de main. Elle se présente sous la forme d'un pdf conçu pour être plié en livret : [Livret (en anglais) D.L. à imprimer](https://new-birth.net/media/cms_page_media/3066/DLBookletforprinting.PDF).
-
-Et voici un message récent qui explique très bien la variation dans la façon dont les individus peuvent percevoir cette Essence Divine.
+Vous pouvez également imprimer une copie de cette présentation, si vous souhaitez la partager ou l'avoir à portée de main. Elle se présente sous la forme d'un fichier pdf conçu pour être plié en livret : [Livret (en anglais) sur l'Amour Divin à imprimer](https://new-birth.net/media/cms_page_media/3066/DLBookletforprinting.PDF).
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---

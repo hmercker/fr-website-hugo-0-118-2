@@ -1,13 +1,13 @@
 ---
-title: "Paix, partie II"
+title: "Paix, deuxième partie"
 menu_title: ""
-description: "Paix, partie II"
+description: "Paix, deuxième partie"
 date: 2022-06-01 06:00:01+00:56
 draft: False
 hidden: True
 weight:
 ---
-### Paix, partie II
+### Paix, deuxième parti
 
 Jésus - reçu par Jane Gartshore le 7 Mai 2013.
 

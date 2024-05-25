@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Pas un grand message.
+### Pas un grand message
 
 Jésus - reçu par PJR le 6 Octobre 2003, New York, USA.
 

@@ -39,6 +39,7 @@ Amon | [La nature maternelle d’Amon](/fr-contemporary-messages/fr-contemporary
 Amon | [Avoir de l’espoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-2-1-jw-amon/) | 2 Juillet 2021
 Amon | [Quand vous faites briller la lumière de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-8-4-jw-amon/) | 8 Mai 2022
 Amon | [Qualités de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-6-1-jw-amon/) | 6 Mars 2023
+Amon | [Nous nous réjouissons en vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-22-1-jw-amon/) | 22 Avril 2024
 Aramée | [L’Amour Divin ne contourne pas vos leçons (Retraite Voix Directe 2021)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-5-1-af-aramaeus/) | 5 Septembre 2021
 Aristote | [Sur la réincarnation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-19-2-Alfredo-aristotle/) | 19 Novembre 1999
 Aristote | [La progression d'Aristote, et l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-7-1-fab-aristotle/) | 7 Mai 2009
@@ -71,6 +72,7 @@ Nuage Blanc | [Dites la vérité](/fr-contemporary-messages/fr-contemporary-mess
 Nuage Blanc | [Vous devez vous lever et dire la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-6-1-1-af-white-cloud/) | 1 Juin 2019
 Nuage Blanc | [Demander les bénédictions et les dons de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-11-2-af-white-cloud/) | 11 Septembre 2019
 Nuage Blanc | [Priez avec nous pour plus d'équilibre et d'harmonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-3-1-af-white-cloud/) | 3 Décembre 2021
+Nuage Blanc | [Guérison de la Terre Mère ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-3-2-af-white-cloud/) | 3 Mai 2024
 Plume Blanche | [Être un agent de changement pour la Terre ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-9-1-1-af-white-feather/) | 1 Septembre 2023
 Melchizédek | [Un travail important est nécessaire pour rectifier les conditions non harmonieuses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-8-2-af-melchizedek/) | 8 Novembre 2019
 Socrates | [Notre boussole intérieure supérieure.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-19-1-fab-socrates/) | 19 Juillet 2006

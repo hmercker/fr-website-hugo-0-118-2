@@ -29,7 +29,7 @@ St Luc | [Inscrustations de l’Âme](/fr-contemporary-messages/fr-contemporary-
 Seretta Kem | [Expiation et purification de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-7-13-1-af-seretta-kem/) | 13 Juillet 2016
 Icarius | [Apprenez à connaître votre propre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-21-3-af-icarius/) | 21 Mai 2017
 Seretta Kem | [Sur l'expiation de l'âme et le sentiment d'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-12-2-af-seretta-kem/) | 12 Décembre 2017
-Seretta Kem | [Permettez à l'amour de Dieu de s'exprimer de manière unique à travers votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-13-1-mc-seretta-kem/) | 13 Juin 2018
+Seretta Kem | [Permettez à l'Amour de Dieu de s'exprimer de manière unique à travers votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-13-1-mc-seretta-kem/) | 13 Juin 2018
 Seretta Kem | [Expiation de l'âme par la recherche de la vérité et la libération de l'erreur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-7-14-1-af-seretta-kem/) | 14 Juillet 2018
 André | [Le pardon](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-7-16-1-af-andrew/) | 16 Juillet 2018
 Augustin | [Remettez à Dieu les blessures et les fardeaux de votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-11-1-mc-augustine/) | 11 Novembre 2018

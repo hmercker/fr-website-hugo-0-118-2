@@ -266,7 +266,7 @@ St Matthieu | [Parle sérieusement de ce qui est nécessaire pour s’engager](/
 John Wesley | [Il est temps d’apporter la Vérité à l’humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-22-1-af-john-wesley/) | 22 Août 2021
 Jean le Bien Aimé | [Servir de tout son cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-23-1-jw-john-the-beloved/) | 23 Août 2021
 St Paul | [Touchez les autres avec Amour et tout se mettra en place](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-24-1-jw-st-paul/) | 24 Août 2021
-Michael Colliers | [Vous ferez la connaissance de nombreux frères et sœurs d'autres mondes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-24-2-af-michael-colliers/) | 24 Août 2021
+Michael Colliers | [Vous ferez la connaissance de nombreux frères et sœurs d'autres mondes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-24-2-af-michael-collier/) | 24 Août 2021
 Charlie Chaplin | [Vous méritez l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-26-1-jw-charlie-chaplin/) | 26 Août 2021
 Claire d'Assise | [La méditation n’est pas ce que vous pensez !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-26-2-jw-clare-of-assisi/) | 26 Août 2021
 Jésus | [Nous sommes tous élevés ensemble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-27-1-af-jesus/) | 27 Août 2021

@@ -9,6 +9,8 @@ weight:
 ---
 ### Jean le Bien Aimé
 
+Selon les messages reçus, il semble qu'il soit nécessaire de différencier Jean l'évangéliste, surnommé Jean le Bien Aimé de Jean, fils de Zébédée. Cependant il n'y a jamais eu de communication à ce sujet. La seule piste d'information est seulemet dit au fait que pour certains messages, l'auteur se présente comme étant "Jean le Bien Aimé". Il aurait été présent lors de la crucifxion et serait accouru au tombeau, lors de l'annonce de la résurection de Jésus. Il  serait toutefois entré au tombeau après Pierre. Il serait également l'auteur de l'évangile de Jean.
+
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Jean le Bien Aimé | [Marchez dans la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-21-2-af-john-the-beloved/) | 21 Mai 2014
@@ -28,8 +30,16 @@ Jean le Bien Aimé | [Prier pour l’Amour Divin](/fr-contemporary-messages/fr-c
 Jean le Bien Aimé | [Nous sommes tous aimés par Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-1-1-jw-john-the-beloved/) | 1 Août 2022
 Jean le Bien Aimé | [Nos chemins seront marqués par le nombre d'âmes que nous toucherons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-5-1-af-john-the-beloved/) | 5 Octobre 2022
 Jean le Bien Aimé | [L'accomplissement de votre âme dans la famille d'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-28-2-af-john-the-beloved/) | 28 Janvier 2023
-Jean le Bien Aimé | [Prièes de l'ÂmE](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-20-2-af-john-the-beloved/) | 20 Avril 2023
+Jean le Bien Aimé | [Prières de l'Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-20-2-af-john-the-beloved/) | 20 Avril 2023
 Jean le Bien Aimé | [Même si vous êtes peu nombreux, votre lumière est brillante et puissante](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-9-9-1-af-john-the-beloved/) | 9 Septembre 2023
 Jean le Bien Aimé | [La route que vous vous apprêtez à emprunter englobera le monde ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-11-3-af-john-the-beloved/) | 11 Octobre 2023
 Jean le Bien Aimé | [Gardez votre cœur ouvert](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-20-1-jw-john-the-beloved/) | 20 Novembre 2023
 Jean le Bien Aimé | [Le message de Noël reconnaît la mission de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-24-1-af-john-the-beloved/) | 24 Décembre 2023
+Jean le Bien Aimé | [Leçon sur la compréhension de la vérité ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-14-2-em-john-the-beloved/) | 14 Janvier 2024
+Jean le Bien Aimé | [Bienvenue aux nouvelles âmes de ce cercle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-28-2-em-john-the-beloved/) | 28 Janvier 2024
+Jean le Bien Aimé | [Décrit l'Amour Divin et accueille deux nouveaux venus dans le cercle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-29-2-ad-john-the-beloved/) | 29 Février 2024
+Jean le Bien Aimé | [Apprenez à connaître vos propres capacités](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-8-2-em-john-the-beloved/) | 8 Mars 2024
+Jean le Bien Aimé | [Avancez avec Volonté et Amour dans vos missions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-10-4-em-john-the-beloved/) | 10 Mars 2024
+Jean le Bien Aimé | [Plongez-vous dans la rivière de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-22-1-em-john-the-beloved/) | 22 Mars 2024
+Jean le Bien Aimé | [Prière continue](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-1-1-em-john-the-beloved/) | 1 Avril 2024
+Jean le Bien Aimé | [Vos prières sont exaucées sur les ailes de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-14-1-af-john-the-beloved/) | 14 Mai 2024

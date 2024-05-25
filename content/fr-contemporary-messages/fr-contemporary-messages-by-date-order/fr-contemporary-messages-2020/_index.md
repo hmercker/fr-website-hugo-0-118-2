@@ -22,7 +22,7 @@ Yogananda | [Vous pouvez effectivement dissiper l'obscurité](/fr-contemporary-m
 Seretta Kem | [Il vous sera donné de dont vous aurez besoin pour servir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-7-3-af-seretta-kem/) | 7 Janvier 2020
 Jésus | [L’amour doit devenir la monnaie de l’humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-12-1-af-jesus/) | 12 Janvier 2020
 Seretta Kem | [Vous devez vous concentrer sur la Prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-12-2-af-seretta-kem/) | 12 Janvier 2020
-Kea Atta Kem | [Soyez attentifs à la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-12-3-af-kea-atta-kem/) | 12 Janvier 2020
+Keea Atta Kem | [Soyez attentifs à la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-12-3-af-keea-atta-kem/) | 12 Janvier 2020
 Augustin | [Être en harmonie est de la plus haute importance pour être un instrument de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-13-1-af-augustine/) | 13 Janvier 2020
 Yogananda | [Différences et similitudes entre la méditation et la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-14-1-jw-yogananda/) | 14 Janvier 2020
 St Matthieu | [Le pouvoir de la prière et du libre arbitre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-16-1-af-st-matthew/) | 16 Janvier 2020
@@ -219,15 +219,15 @@ Jésus | [L’amour et la peur](/fr-contemporary-messages/fr-contemporary-messag
 St Luc | [Soyez conscient de ce qui se trouve dans votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-3-1-jw-st-luke/) | 3 Juillet 2020
 Jésus | [Les décisions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-3-2-jg-jesus/) | 3 Juillet 2020
 Jésus | [Le Pardon](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-5-1-jg-jesus/) | 5 Juillet 2020
-Jésus | [La paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-6-1-jg-jesus/) | 6 Juillet 2020
+Jésus | [La Paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-6-1-jg-jesus/) | 6 Juillet 2020
 Eileen Caddy | [Vous êtes la bénédiction dont ce monde a besoin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-7-1-jw-eileen-caddy/) | 7 Juillet 2020
 Yogananda | [La Communauté de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-7-2-jw-yogananda/) | 7 Juillet 2020
 Claire d'Assise | [Confiance et Foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-8-1-jw-clare-of-assisi/) | 8 Juillet 2020
 Jésus | [Les Cieux Célestes et l’Amour Divin sont encore disponibles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-9-1-af-jesus/) | 9 Juillet 2020
 Jésus | [La Confiance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-9-2-jg-jesus/) | 9 Juillet 2020
 St Luc | [Laissez l'amour vous guider](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-10-1-jw-st-luke/) | 10 Juillet 2020
-Care Darby Walsh | [Pour l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-12-1-jw-care-derby-walsh/) | 12 Juillet 2020
-Claire d'Assise | [Dans l'amour de Dieu, vous n'êtes jamais seuls](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-14-1-jw-clare-of-assisi/) | 14 Juillet 2020
+Care Darby Walsh | [Pour l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-12-1-jw-care-derby-walsh/) | 12 Juillet 2020
+Claire d'Assise | [Dans l'Amour de Dieu, vous n'êtes jamais seuls](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-14-1-jw-clare-of-assisi/) | 14 Juillet 2020
 Moïse | [Le temps est venu pour Dieu de transformer ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-16-1-af-moses/) | 16 Juillet 2020
 Bernadette de Lourdes | [Les eaux de guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-17-1-jw-bernadette-of-lourdes/) | 17 Juillet 2020
 St François d'Assise | [Embrasser tout le monde dans l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-17-2-jw-st-francis-of-assisi/) | 17 Juillet 2020
@@ -253,7 +253,7 @@ St François d'Assise | [Embrassez tout dans l'amour](/fr-contemporary-messages/
 Care Derby Walsh | [Dans l’amour de Dieu, il n’y a pas de mauvais choix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-2-1-jw-care-derby-walsh/) | 2 Août 2020
 Care Derby Walsh | [Je l'adore !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-2-2-jw-care-derby-walsh/) | 2 Août 2020
 Judas | [Exploration des messages de Judas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-3-1-jw-judas/) | 3 Août 2020
-Jésus | [Le pardon(2eme partie)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-6-1-jg-jesus/) | 6 Août 2020
+Jésus | [Le Pardon(2eme partie)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-6-1-jg-jesus/) | 6 Août 2020
 Augustin | [Connaissez vos propres âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-7-1-af-augustine/) | 7 Août 2020
 Yogananda | [Les pensées que vous absorbez et émettez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-7-2-jw-yogananda/) | 7 Août 2020
 Jésus | [Perte et Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-7-3-jg-jesus/) | 7 Août 2020

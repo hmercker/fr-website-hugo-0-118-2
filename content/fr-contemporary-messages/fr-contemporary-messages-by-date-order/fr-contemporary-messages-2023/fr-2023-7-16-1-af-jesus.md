@@ -9,7 +9,7 @@ weight:
 ---
 ### La puissance de l'Amour de Dieu fait des miracles dans nos vies
 
-Jésus - reçu par Al Fike le 16 Juillet 2023, Sechelt, Colombie-Britannique, Canada.
+Jésus - reçu par Albert Fike le 16 Juillet 2023, Sechelt, Colombie-Britannique, Canada.
 
 En effet, que la Grâce de Dieu soit avec vous, bien-aimés. Je viens, je suis Jésus, votre ami et frère dans la Vérité de l’Amour de Dieu. Je viens prier avec vous et être avec vous. Tant de gens ne comprennent pas les possibilités qui viennent avec la puissance de l’Amour de Dieu, comment il peut être possible pour moi et d’autres du Royaume Céleste de vous accompagner dans la prière. Ils ne comprennent pas que la vie continue à partir du plan terrestre, au-delà de nombreux royaumes dans ce lieu d’harmonie complète avec Dieu, où Son Amour règne en maître dans le cœur de ceux qui font partie du Royaume Céleste.
 

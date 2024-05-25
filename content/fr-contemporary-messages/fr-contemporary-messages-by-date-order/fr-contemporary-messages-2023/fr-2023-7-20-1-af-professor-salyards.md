@@ -9,7 +9,7 @@ weight:
 ---
 ### L'harmonie prévaudra à la retraite de Laurelville
 
-Professeur Salyards - reçu par Al Fike le 20 Juillet 2023, Sechelt, Colombie-Britannique, Canada.
+Professeur Salyards - reçu par Albert Fike le 20 Juillet 2023, Sechelt, Colombie-Britannique, Canada.
 
 C’est moi, votre frère François. Vous appelez et je viens. C’est un honneur pour moi de vous servir, ce cercle de belles âmes. Et bien que je puisse vous dire que des millions sur la terre et des millions en esprit sont croyants et ont la foi, des rassemblements comme celui-ci, où l’accent est mis sur la prière et la réception de l’Amour du Père, sont rares. Au milieu de ces temps turbulents et de certains événements qui ne peuvent être décrits que comme des changements catastrophiques sur la terre, nous vous demandons de rester calme. Et comme ma bien-aimée, Claire, et notre chère sœur bien-aimée, Care, l’ont suggéré, marchez doucement sur la terre. Soyez conscient de ses créatures, profitez de chaque journée lumineuse et ensoleillée ainsi que de celles où la pluie tombe sur la terre pour la nourrir. Soyez calme au milieu de la tempête et dans la grande cathédrale de la création de Dieu, souvenez-vous de demander son don d’amour.
 

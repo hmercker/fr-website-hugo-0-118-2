@@ -33,7 +33,7 @@ Très bien. Tu sais cela déjà. Mais ça vaut la peine de le répéter. Et puis
 
 *« Quelle surprise ! »*, tu as pensé. *« Et maintenant, n’est-il plus certain que les Cieux Célestes fermeront ? »*
 
-Je vais répondre à cela très directement : **Les cieux Célestes se fermeront.** C’est un fait qui a été répété maintes et maintes fois par le biais de différents messages reçus par différents médiums. Je vais t’expliquer pourquoi la solution à ce problème n’est pas si simple que cela puisse paraître à première vue.
+Je vais répondre à cela très directement : **Les Cieux Célestes se fermeront.** C’est un fait qui a été répété maintes et maintes fois par le biais de différents messages reçus par différents médiums. Je vais t’expliquer pourquoi la solution à ce problème n’est pas si simple que cela puisse paraître à première vue.
 
 Tu te souviens qu’il y a un délai de grâce pour ceux dont les âmes sœurs vivent dans les Cieux Célestes. Elles sont gratifiées d’un temps supplémentaire pour obtenir l’Amour Divin. Tu te souviens aussi que ces âmes qui ont déjà obtenu une petite partie de l’Amour de Dieu auront toujours la possibilité d’en obtenir plus à travers toute l’éternité.
 

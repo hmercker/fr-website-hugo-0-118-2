@@ -35,14 +35,14 @@ Yogananda | [Encourager la communion avec les autres](/fr-contemporary-messages/
 Yogananda | [Une douce pluie de lumière tombe sur la terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-6-30-1-jw-yogananda/) | 30 Juin 2019
 Yogananda | [Le mental et l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-29-1-jw-yogananda/) | 29 Juillet 2019
 Yogananda | [Faites du monde votre ashram, votre monastère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-30-1-jw-yogananda/) | 30 Juillet 2019
-Yogananda | [Le yoga le plus important est d'être ouvert à l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-8-6-1-jw-yogananda/) | 6 Août 2019
+Yogananda | [Le yoga le plus important est d'être ouvert à l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-8-6-1-jw-yogananda/) | 6 Août 2019
 Yogananda | [Élevez vos pensées vers le plus haut](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-8-7-1-jw-yogananda/) | 7 Août 2019
 Yogananda | [Il n'y a pas de yoga plus élevé que le yoga de l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-8-20-1-jw-yogananda/) | 20 Août 2019
 Yogananda | [Ne tournez pas en rond](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-8-30-3-af-yogananda/) | 30 Août 2019
 Yogananda | [Branchez-vous sur le canal Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-8-31-1-jw-yogananda/) | 31 Août 2019
 Yogananda | [La pauvreté de l'Occident](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-2-3-jw-yogananda/) | 2 Septembre 2019
 Yogananda | [Élevez vos pensées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-4-1-jw-yogananda/) | 4 Septembre 2019
-Yogananda | [Ouvrez votre cœur à l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-7-1-jw-yogananda/) | 7 Septembre 2019
+Yogananda | [Ouvrez votre cœur à l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-7-1-jw-yogananda/) | 7 Septembre 2019
 Yogananda | [Créer un nouveau rituel : la pratique consistant à être attentif à Dieu à chaque instant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-9-1-jw-yogananda/) | 9 Septembre 2019
 Yogananda | [Le yoga de l'Amour de Dieu est le yoga le plus élevé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-15-1-jw-yogananda/) | 15 Septembre 2019
 Yogananda | [Entrez dans votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-24-1-jw-yogananda/) | 24 Septembre 2019
@@ -99,7 +99,7 @@ Yogananda | [Cet amour vous transportera à la fontaine de la grâce](/fr-contem
 Yogananda | [Le Chant de l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-10-1-jw-yogananda/) | 10 Mai 2021
 Yogananda | [De nombreux saints ont prié de tout leur cœur pour l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-27-1-jw-yogananda/) | 27 Mai 2021
 Yogananda | [Les 3 niveaux du mental](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-20-1-af-yogananda/) | 20 Juin 2021
-Yogananda | [Transcender tout est le don de l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-5-2-jw-yogananda/) | 5 Juillet 2021
+Yogananda | [Transcender tout est le don de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-5-2-jw-yogananda/) | 5 Juillet 2021
 Yogananda | [Votre cœur vous conduira à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-2-1-jw-yogananda/) | 2 Août 2021
 Yogananda | [Soyez courageux si vous souhaitez créer des sanctuaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-9-1-jw-yogananda/) | 9 Août 2021
 Yogananda | [Créer un sanctuaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-18-2-jw-yogananda/) | 18 Octobre 2021
@@ -108,14 +108,14 @@ Yogananda | [Le voyage du cœur est véritablement le voyage de l’âme](/fr-co
 Yogananda | [Laissez vos pensées s’élever vers Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-1-17-1-jw-yogananda/) | 17 Janvier 2022
 Yogananda | [Progression spirituelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-6-2-jw-yogananda/) | 6 Mars 2022
 Yogananda | [Conscience de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-15-6-jw-yogananda/) | 15 Mai 2022
-Yogananda | [Le don de donner dans l’amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-31-1-jw-yogananda/) | 31 Mai 2022
+Yogananda | [Le don de donner dans l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-31-1-jw-yogananda/) | 31 Mai 2022
 Yogananda | [Avec Dieu, tout est possible](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-19-1-jw-yogananda/) | 19 Juillet 2022
 Yogananda | [Permettez à vos âmes d'informer vos esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-18-1-jw-yogananda/) | 18 Septembre 2022
 Yogananda | [Prière, méditation et guérison dans l'amour humain et Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-5-1-jw-yogananda/) | 5 Décembre 2022
 Yogananda | [Guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-23-1-jw-yogananda/) | 23 Janvier 2023
 Yogananda | [Soyez Calme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-13-2-jw-yogananda/) | 13 Mars 2023
 Yogananda | [Enseignement sur la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-14-3-af-yogananda/) | 14 Mars 2023
-Yogananda | [Marcher dans la grace](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-5-29-1-jw-yogananda/) | 29 Mai 2023
+Yogananda | [Marcher dans la grâce](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-5-29-1-jw-yogananda/) | 29 Mai 2023
 Yogananda | [Comment vous sentez-vous ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-6-25-1-jw-yogananda/) | 25 Juin 2023
 Yogananda | [Vivez dans la grâce en dehors de vos cases](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-31-1-jw-yogananda/) | 31 Juillet 2023
 Yogananda | [L'âme dans l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-9-4-1-jw-yogananda/) | 4 Septembre 2023

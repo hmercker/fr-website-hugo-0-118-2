@@ -26,7 +26,7 @@ Jésus | [Session de questions et réponses n°3 : Prière](/fr-contemporary-mes
 Jésus | [Session de questions et réponses n° 4 : Changements de la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-11-1-af-jesus/) | 11 Mars 2021
 Jésus | [Sentez la sûreté de vos pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-13-1-af-jesus/) | 13 Mars 2021
 Jésus | [Dernier message de Jésus au monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-18-1-af-jesus/) | 18 Mars 2021
-Jésus | [Bénédiction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2021-3-21-1-af-jesus/) | 21 Mars 2021
+Jésus | [Bénédiction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-21-1-af-jesus/) | 21 Mars 2021
 Jésus | [Jésus visitera le plan terrestre à Pâques](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-30-1-af-jesus/) | 30 Mars 2021
 Jésus | [Cette flamme d’amour nettoiera tous les mondes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-4-1-af-jesus/) | 4 Avril 2021
 Jésus | [Changements Terrestres – Suivi des 20 Leçons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-9-1-af-jesus/) | 9 Avril 2021
@@ -74,7 +74,7 @@ Jésus | [Leçon 18 : La loi de l’attraction et la progression de l’âme](/f
 Jésus | [Les anges sont à vos côtés (2021 Cercle de prière en ligne)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-24-1-af-jesus/) | 24 Octobre 2021
 Jésus | [Éveillez-vous aux bénédictions de l’Amour de Dieu (2021 Cercle de prière en ligne)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-29-3-af-jesus/) | 29 Octobre 2021
 Jésus | [Leçon 19 : Appelle tous les éclaireurs à servir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-2-1-af-jesus/) | 2 Novembre 2021
-Jésus | [Leçon 20 : L’amour de Dieu est le seul moyen de sauver l’humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-4-1-af-jesus/) | 4 Novembre 2021
+Jésus | [Leçon 20 : L’Amour de Dieu est le seul moyen de sauver l’humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-4-1-af-jesus/) | 4 Novembre 2021
 Jésus | [Leçon 21 : Les lois qui régissent la progression de l’âme (2021 Projet Jésus 2)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-25-1-af-jesus/) | 25 Novembre 2021
 Jésus | [Vient pour nous soutenir en harmonie dans nos efforts individuels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-7-1-af-jesus/) | 7 Décembre 2021
 Jésus | [Chaque âme a un choix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-14-2-jw-jesus/) | 14 Décembre 2021

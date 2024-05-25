@@ -20,10 +20,10 @@ J'ai eu un échange d'énergie pendant l'état de sommeil, qui rappelait un orga
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Jésus | [Le sommeil et la responsabilité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-11-22-1-fab-jesus/) | 22 Novembre 2011
-Aphraar | [Chapitre XIV - La Relation du Sommeil á la Mort - extrait de « Through the Mists »](/7-fr-life-after-death/7-5-1-fr-extract-from-through-the-mists/) | 1898
-Aphraar | [Chapitre V - L'Ange de la Mort - extrait de « The Life Elysian »](/7-fr-life-after-death/7-5-2-fr-extract-from-the-life-elysian/) | 1905
-Aphraar | [Chapitre VI - L'Obligation du Péché - extrait de « The Life Elysian »](/7-fr-life-after-death/7-5-3-fr-extract-from-the-life-elysian/) | 1905
-Aphraar | [L'état de sommeil - extrait de « La Porte du Ciel »](/7-fr-life-after-death/7-5-4-fr-extract-from-the-gate-of-heaven/) | 1931
+Aphraar | [Chapitre XIV - La Relation du Sommeil á la Mort - extrait de « Through the Mists (A travers les Brumes) »](/7-fr-life-after-death/7-5-1-fr-extract-from-through-the-mists/) | 1898
+Aphraar | [Chapitre V - L'Ange de la Mort - extrait de « The Life Elysian (La Vie Elyséenne) »](/7-fr-life-after-death/7-5-2-fr-extract-from-the-life-elysian/) | 1905
+Aphraar | [Chapitre VI - L'Obligation du Péché - extrait de « The Life Elysian (La Vie Elyséenne) »](/7-fr-life-after-death/7-5-3-fr-extract-from-the-life-elysian/) | 1905
+Aphraar | [L'état de sommeil - extrait de « The Gate of Heaven (La Porte du Ciel) »](/7-fr-life-after-death/7-5-4-fr-extract-from-the-gate-of-heaven/) | 1931
 Hélène Padgett | [Les merveilles, les bénéfices et les bénédictions apportées par l’Amour Divin de Dieu](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-8-1-jep-helen-padgett/) | 8 Juin 1916
 Mary Kennedy | [Mary Kennedy a l’intention de permettre à l’esprit du Dr Stone de sortir de son corps pour lui montrer où elle vit, comme l’a fait Hélène avec M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-7-3-1-jep-mary-kennedy/) | 3 Juillet 1916
 Mary Kennedy | [Réussit à faire entrer son âme sœur, Leslie, dans la troisième sphère, bien qu’à son retour il ne se souvienne pas du voyage qu’il a fait dans le monde des esprits](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-13-4-jep-mary-kennedy/) | 13 Décembre 1916

@@ -11,7 +11,7 @@ weight:
 
 Barbara Davies - reçu par Al Fike le 20 Janvier 2021, Gibsons, Colombie-Britannique, Canada
 
-![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-barbara-davis.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-barbara-davies.jpg)
 
 Que le Père vous bénisse de Son Amour. Je suis Barbara.<sup id="a1">[1](#f1)</sup> Je viens pour être avec vous et vous dire, mes amis bien-aimés, que je suis souvent près de vous, qu’en réalité, je n’ai jamais quitté votre côté, mais dans mes prières et mes pensées et tout ce que je suis, sachez que mon amour est avec vous, qu’à chaque instant de chaque jour, le lien d’amour entre nous n’est jamais rompu, mais est plein et riche et que nous portons tous ensemble ce beau lien.
 

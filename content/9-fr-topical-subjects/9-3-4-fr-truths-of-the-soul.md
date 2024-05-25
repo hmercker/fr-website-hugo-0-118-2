@@ -25,6 +25,10 @@ Ci-dessous sont listés une série de messages relatifs à l’âme.
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
+Jésus | [La loi de l’activation (Troisième partie).](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-6-4-1-dl-jesus/) | 4 Juin 1987
+Jacques | [Comment l’âme perçoit la vérité et la fonction de l’Esprit de Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-1-4-1-af-james/) | 4 Janvier 2017
+Confucius | [La vérité passe par l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-7-29-1-af-confucius/) | 29 Juillet 2017
+Keea Atta Kem | [Comment la vérité émerge dans l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-14-3-af-keea-atta-kem/) | 14 Octobre 2017
 Augustin | [Les graines de votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-23-1-af-augustine/) | 23 Novembre 2017
 Keea Atta Kem | [Un esprit qui suit la grâce de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-4-1-af-keea-atta-kem/) | 4 Décembre 2017
 Alec Gaunt | [Au fil des découvertes de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-24-1-af-alec-gaunt/) | 24 Janvier 2018
@@ -37,31 +41,27 @@ St Matthieu | [La différence entre l'âme et l'esprit](/fr-contemporary-message
 Augustin | [L'âme à la tête de l'esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-4-1-af-augustine/) | 4 Juin 2018
 John Wesley | [Toute vérité commence avec l’âme éveillée dans l’amour – Retraite F.U.S.C.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-9-2-af-john-wesley/) | 9 Juin 2018
 Marie | [L'éveil de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-7-9-1-af-mary/) | 9 Juillet 2018
+St Luc | [La vérité passe par l'âme éveillée par l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-22-3-af-st-luke/) | 22 Septembre 2018
+Augustin | [Toute vérité vient de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-28-1-af-augustine/) | 28 Novembre 2018
+St Matthieu | [Quel est le désir de votre âme en termes de vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-25-2-af-st-matthew/) | 25 Janvier 2019
 Flavius Josèphe | [Facultés de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-1-1-af-josephus/) | 1 Février 2019
 Keea Atta Kem | [Sentir l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-5-2-af-keea-atta-kem/) | 5 Février 2019
 Solomon | [Salomon parle de la sagesse de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-14-1-af-solomon/) | 14 Février 2019
 Seretta Kem | [Reconnaissez la création unique de votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-17-1-mc-seretta-kem/) | 17 Février 2019
+Lotus Blossom | [C'est l'âme qui connaît vraiment la vérité, pas l'esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-3-4-2-af-lotus-blossom/) | 4 Mars 2019
 Augustin | [Qu’est-ce que l’âme ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-3-9-1-af-augustine/) | 9 Mars 2019
 Seretta Kem | [Dons de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-4-8-2-af-seretta-kem/) | 8 Avril 2019
+Augustin | [Choisir de boire la subsistance de la vie de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-5-27-1-af-augustine/) | 27 Mai 2019
+James Padgett | [Qu'est-ce que la vérité ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-15-1-af-james-padgett/) | 15 Juillet 2019
 Flavius Josèphe | [La vérité arrive quand l'âme commence à se réveiller de ses profonds sommeils](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-16-1-af-josephus/) | 16 Novembre 2019
+Flavius Josèphe | [La vérité s'étendra à mesure que votre âme s'éveillera](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-13-4-af-josephus/) | 13 Mars 2020
 Seretta Kem | [La conscience de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-18-1-af-seretta-kem/) | 18 Avril 2020
-St Jean | [Prenez un engagement profond pour aspirer à l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-21-1-af-st-john/) | 21 Avril 2020
+St Jean | [Prenez un engagement profond pour aspirer à l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-21-1-af-st-john/) | 21 Avril 2020
+Augustin | [La vérité doit être expérimentée par l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-24-1-hm-augustine/) | 24 Avril 2020
 Flavius Josèphe | [La créativité est la source de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-29-1-af-josephus/) | 29 Avril 2020
 Augustin | [Connaissez vos propres âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-7-1-af-augustine/) | 7 Août 2020
 Flavius Josèphe | [Les merveilles de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-18-2-af-josephus/) | 18 Août 2020
-Jésus | [L’âme, le mental et la libre volonté (Enseignements spéciaux 2020)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-13-1-af-jesus/) | 13 Octobre 2020
-Jésus | [La volonté de Dieu (Enseignements spéciaux 2020)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-13-2-af-jesus/) | 13 Octobre 2020
-James Padgett | [Qu'est-ce que la vérité ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-15-1-af-james-padgett/) | 15 Juillet 2019
-Jacques | [Comment l’âme perçoit la vérité et la fonction de l’Esprit de Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-1-4-1-af-james/) | 4 Janvier 2017
-Augustin | [Toute vérité vient de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-28-1-af-augustine/) | 28 Novembre 2018
-Flavius Josèphe | [La vérité s'étendra à mesure que votre âme s'éveillera](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-13-4-af-josephus/) | 13 Mars 2020
-Jésus | [Jésus : La loi de l’activation (Troisième partie).](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-6-4-1-dl-jesus/) | 4 Juin 1987
-Keea Atta Kem | [Comment la vérité émerge dans l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-14-3-af-keea-atta-kem/) | 14 Octobre 2017
-Confucius | [La vérité passe par l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-7-29-1-af-confucius/) | 29 Juillet 2017
-St Luc | [La vérité passe par l'âme éveillée par l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-22-3-af-st-luke/) | 22 Septembre 2018
-St Matthieu | [Quel est le désir de votre âme en termes de vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-25-2-af-st-matthew/) | 25 Janvier 2019
-Lotus Blossom | [C'est l'âme qui connaît vraiment la vérité, pas l'esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-3-4-2-af-lotus-blossom/) | 4 Mars 2019
-Augustin | [Choisir de boire la subsistance de la vie de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-5-27-1-af-augustine/) | 27 Mai 2019
-Augustin | [La vérité doit être expérimentée par l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-24-1-hm-augustine/) | 24 Avril 2020
 Jésus | [Les vérités de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-25-1-af-jesus/) | 25 Septembre 2020
+Jésus | [L’âme, le mental et le libre arbitre (Enseignements spéciaux 2020)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-13-1-af-jesus/) | 13 Octobre 2020
+Jésus | [La Volonté de Dieu (Enseignements spéciaux 2020)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-13-2-af-jesus/) | 13 Octobre 2020
 James Padgett | [Explorez la vérité avec vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-13-2-jw-james-padgett/) | 13 Mai 2021

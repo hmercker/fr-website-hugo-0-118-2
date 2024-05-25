@@ -1,15 +1,15 @@
 ---
-title: "Bénédictions de Flavius Josèphe"
+title: "Dieu nous utilise pour renforcer le réseau de lumière"
 menu_title: ""
-description: "Bénédictions de Flavius Josèphe"
+description: "Dieu nous utilise pour renforcer le réseau de lumière"
 date: 2023-09-01 06:00:01+00:68
 draft: False
 hidden: True
 weight:
 ---
-### Bénédictions de Flavius Josèphe
+### Dieu nous utilise pour renforcer le réseau de lumière
 
-Flavius Josèphe - reçu par Al Fike le 27 Août 2023, Sechelt, Colombie-Britannique, Canada.
+Flavius Josèphe - reçu par Albert Fike le 27 Août 2023, Sechelt, Colombie-Britannique, Canada.
 
 Bénédictions à vous, âmes bien-aimées. Oui, je viens de loin, du Royaume Céleste qui est très éloigné du plan Terrestre. Je m’appelle Flavius Josèphe et je viens vous parler du travail et des efforts qui sont déployés pour renforcer la lumière, la lumière de la vérité dans le monde. En effet, à mesure que chacun de vous avance dans le dévouement et la prière, désireux de servir Dieu, désireux de servir l’humanité, Dieu utilise votre connexion harmonieuse avec le Divin afin de renforcer et de développer les lignes de communication, les grands portails de bénédiction, ce grand réseau qui se crée parmi vous.
 

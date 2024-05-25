@@ -9,7 +9,7 @@ weight:
 ---
 ### Conseils pour le travail de Jeanne et Al en République dominicaine
 
-Augustin - reçu par Al Fike le <sup>er</sup> Janvier 2024, République Dominicaine.
+Augustin - reçu par Albert Fike le <sup>er</sup> Janvier 2024, République Dominicaine.
 
 Que Dieu vous bénisse, âmes bien-aimées, voyageurs intrépides sur le Chemin de l’Amour, aventuriers de votre monde. Oui, vous recevez une éducation très précieuse concernant les différentes cultures, attitudes et perspectives. Je sais que vous avez du mal à aligner vos perspectives et vos attentes culturelles sur celles des autres. En effet, nous ne vous avons pas quitté, ni abandonnés, ni égarés, âmes bien-aimées. Nous venons simplement saisir l’opportunité que vous puissiez être une lumière, que nous puissions travailler à travers vous dans cette partie du monde, venir voir quelles sont les perspectives et les possibilités qui existent.
 
