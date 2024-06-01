@@ -160,7 +160,7 @@ La deuxième catégorie de conseils que vous pourriez recevoir introduit un conc
 
 Cette technique fonctionne également sur terre. C'est-à-dire que vous pouvez ressentir l'Amour, et vous remarquerez que vous changez au cours de l'année suivante. Et nous avons eu la confirmation que les humains qui suivent cette méthode sont en général beaucoup plus brillants dans leur corps spirituel que la population mortelle générale. Cette méthode agit à un niveau très fondamental.
 
-<a name="first-sphere"></a>0
+<a name="first-sphere"></a>
 
 ### La Première Sphère
 
