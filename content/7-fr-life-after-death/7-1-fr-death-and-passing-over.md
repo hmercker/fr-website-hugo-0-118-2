@@ -13,7 +13,7 @@ weight: 350
 
 Cette section traite de la mort et de la période initiale d'orientation qui s'ensuit. 
 
-Un résumé des principaux thèmes d'un vaste sujet est également présenté dans un article intitulé [Sortir d'ici - Que se passe-t-il après la mort ?](/7-fr-life-after-death/7-1-2-fr-getting-the-]-out-of-here/).
+Un résumé des principaux thèmes d'un vaste sujet est également présenté dans un article intitulé [Sortir d'ici - Que se passe-t-il après la mort ?](/7-fr-life-after-death/7-1-2-fr-getting-the-hell-out-of-here/).
 
 [Jean l'a décrit lors d'un message communiqué le 29 Mai 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-29-2-jep-st-john/) comme suit dans un message :
 
