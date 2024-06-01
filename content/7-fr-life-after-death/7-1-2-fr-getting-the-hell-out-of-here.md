@@ -160,7 +160,7 @@ La deuxième catégorie de conseils que vous pourriez recevoir introduit un conc
 
 Cette technique fonctionne également sur terre. C'est-à-dire que vous pouvez ressentir l'Amour, et vous remarquerez que vous changez au cours de l'année suivante. Et nous avons eu la confirmation que les humains qui suivent cette méthode sont en général beaucoup plus brillants dans leur corps spirituel que la population mortelle générale. Cette méthode agit à un niveau très fondamental.
 
-<a name="first-sphere"></a>
+<a name="first-sphere"></a>0
 
 ### La Première Sphère
 
@@ -272,7 +272,7 @@ La durée du processus de la dernière étape de transformation varie. Elle peut
 
 Ils acquièrent d'énormes connaissances dans cette sphère, dans ce processus, et sans étude. La connaissance vient simplement à eux. Finalement, ils sont prêts pour la transition. Les esprits qui ont passé ce stade nous disent qu'ils savent qu'ils sont immortels. Il n'y a pas de débat, comme cela existe dans la sixième sphère. Ils deviennent alors des êtres spirituels, par opposition aux êtres semi-matériels. Cette différence doit être subtile, car les autres esprits moins développés ne semblent pas capables de discerner la différence. Ou peut-être est-ce simplement le fait que lorsqu'un esprit avancé visite des sphères inférieures, il constate qu'il adopte davantage les « teintes » de ces niveaux, et donc que la différence n'est pas grande à ce niveau.
 
-Il y a d nombreuses sphères « non numérotées » dans les Cieux Célestes au-dessus, chacune plus magnifique que les autres. Les esprits qui y résident expliquent que les mots ne peuvent tout simplement pas décrire ces sphères, et généralement ils n'essaient pas. Il semblerait qu'il s'agisse du Royaume de Dieu classique dont parle la Bible Chrétienne. Ceci conclut notre résumé. Ironiquement, car ce n'est probablement que le début de notre prochaine aventure, la renaissance par l'esprit que la Bible Chrétienne promet à ceux qui ont la foi que le Père nous aime. Et une éternité de croissance et d'aventure spirituelle nous attend. Peut-être y aura-t-il un autre chemin étroit que nous devrons parcourir au-delà du Royaume de Dieu ? 
+Il y a de nombreuses sphères « non numérotées » dans les Cieux Célestes au-dessus, chacune plus magnifique que les autres. Les esprits qui y résident expliquent que les mots ne peuvent tout simplement pas décrire ces sphères, et généralement ils n'essaient pas. Il semblerait qu'il s'agisse du Royaume de Dieu classique dont parle la Bible Chrétienne. Ceci conclut notre résumé. Ironiquement, car ce n'est probablement que le début de notre prochaine aventure, la renaissance par l'esprit que la Bible Chrétienne promet à ceux qui ont la foi que le Père nous aime. Et une éternité de croissance et d'aventure spirituelle nous attend. Peut-être y aura-t-il un autre chemin étroit que nous devrons parcourir au-delà du Royaume de Dieu ? 
 
 ### Résumé
 
@@ -286,7 +286,7 @@ Le graphique ci-dessous résume le parcours « standard » décrit dans ce livre
 
 Il convient de conclure avec le voyage personnel à travers ces Sphères d'un Yogi très aimé - Yogananda. l'auteur de « L'autobiographie d'un Yogi ». Ce voyage brise toutes les « règles » utilisées pour créer le chemin standard. Il est fascinant sous au moins deux aspects. L'un d'eux est que l'âme finit par obtenir ce qu'elle veut. Il est également surprenant en ce qu'il montre la ténacité de l'esprit et de ses croyances. Mais si un individu n'a pas développé son âme dans sa vie terrestre, ces croyances mentales se maintiennent souvent et cet individu n'atteint pas le Royaume Céleste. Heureusement, Yogananda a suivi une tradition hindoue de profonde dévotion à Dieu, appelée "bakhti", et c'est exactement ce qui déclenche la croissance de l'âme nécessaire.
 
-Voici la communication très récente de Yogananda : Yogananda décrit son voyage à travers les sphères reçue [le 22 Novembre 2018](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-22-2-af-yogananda/) à Bayview, NSW Australie, par l'intermédiaire de Al Fike :
+Voici la communication très récente de Yogananda (Yogananda décrit son voyage à travers les sphères) reçue [le 22 Novembre 2018](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-22-2-af-yogananda/) à Bayview, NSW Australie, par l'intermédiaire de Albert Fike :
 
 > Je suis Yogananda et je souhaite vous faire part de mon expérience de transition dans le monde de l'esprit et de mon voyage vers les Cieux Célestes. Lorsque je suis passé dans le monde des esprits, j'ai emporté avec moi de nombreuses idées et pensées qui provenaient des religions orientales. J'ai nourri et vénéré ces pensées dans mon esprit, mais aussi dans mon cœur. J'aimais tendrement Dieu et je ressentais Son amour pour moi, mais il m'était difficile de me libérer de ces pensées et conditions qui étaient ancrées en moi depuis l'enfance. Ainsi, à mon décès, je suis arrivé à la 4ème sphère et j'ai trouvé de nombreuses merveilles, des expériences dans cette sphère qui satisfaisaient les édits de mon esprit et mes idées religieuses. Pourtant, je savais qu'il y avait en moi un autre désir, le désir de mon cœur, d'aller au-delà de ces concepts mentaux vers quelque chose que je savais être plus profond et plus proche de Dieu. Je devais donc moi aussi lutter entre les idées de mon esprit et les désirs de mon âme.
 <br>
@@ -312,7 +312,7 @@ Ce qui est fascinant, c'est qu'il a effectué sa transition vers la Quatrième S
 
 ### Sources
 
-Toutes ces sources sont répertoriées, sans ordre particulier, sur ce site ou sur [le site](https://new-birth.net) sous la forme de livres électroniques gratuits, ou sont disponibles gratuitement sur Internet sous forme de texte. Le [site web](https://www.new-birth.net) héberge un grand nombre de ces références, ainsi que d'autres livres spirituels fascinants.
+Toutes ces sources sont répertoriées, sans ordre particulier, sur ce site ou sur [le site new-birth.net](https://new-birth.net) sous la forme de livres électroniques gratuits, ou sont disponibles gratuitement sur Internet sous forme de texte. Le [site web](https://www.new-birth.net) héberge un grand nombre de ces références, ainsi que d'autres livres spirituels fascinants.
 
 Certaines de ces publications sont disponibles en français. Ce sont :
 
@@ -349,11 +349,11 @@ Les autres ouvrages listés ci-dessous ne sont pas encore, à ma connaissance, t
 
 5. <large id="f5"> [Le Livre d'Urantia.]( https://www.urantia.org/fr/le-livre-durantia/lire)[↩](#a5)
 
-6. <large id="f6"> [« La vie au paradis »](https://www.fnac.com/a5527754/Robert-Hugh-Benson-Ma-vie-au-Paradis-Comment-la-mort-n-est-que-le-debut-d-une-vie-superieure-et-eternelle), par Anthony Borgia.[↩](#a6)
+6. <large id="f6"> [« Ma vie au paradis »](https://www.fnac.com/a5527754/Robert-Hugh-Benson-Ma-vie-au-Paradis-Comment-la-mort-n-est-que-le-debut-d-une-vie-superieure-et-eternelle), par Anthony Borgia.[↩](#a6)
 
 7. <large id="f7"> James Padgett a reçu un très grand nombre de communications de personnes se trouvant dans les enfers, mais je n'appellerais pas cela des descriptions particulièrement détaillées, bien que certaines le soient. Beaucoup d'entre elles peuvent être lues ici [Les enfers, le jugement, le pardon et la résurrection](/7-fr-life-after-death/7-4-fr-the-underworld-judgement-and-forgiveness-and-the-resurrection/). Je n'ai trouvé que deux livres traitant de manière approfondie des plans sombres. Il s'agit de « A Wanderer in the Spirit Lands (Mes Aventures dans le Monde des Esprits) » de Franchezzo et de [« Gone West : Three Narratives of After-Death Experiences(3 récits sur les expériences dans le monde de-vie) » de J.S.M Ward.](https://books.google.fr/books/about/Gone_West.html?id=JtN-jfx7bHAC&redir_esc=y)[↩](#a7)
 
-8. <large id="f8"> [Un esprit décrit son expérience dans l'un des enfers.]( /fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-5-3-jep-george-butler/)[↩](#a8)
+8. <large id="f8"> [Un esprit décrit son expérience dans l'un des enfers.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-5-3-jep-george-butler/)[↩](#a8)
 
 9. <large id="f9"> [César raconte ses expériences après avoir reçu l'aide d'un esprit divin.]( /fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-1-1-jep-julius-caesar/)[↩](#a9)
 
@@ -363,10 +363,10 @@ Les autres ouvrages listés ci-dessous ne sont pas encore, à ma connaissance, t
 
 12.	<large id="f12"> « Ma vie au Paradis » par Anthony Borgia.[↩](#a12)
 
-13.	<large id="f13"> Reçu par James Padgett [le 30 Novembre 1914.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-11-30-1-jep-helen-padgett/)[↩](#a13)
+13.	<large id="f13"> Reçu par James Padgett [le 30 Novembre 1914](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-11-30-1-jep-helen-padgett/)[↩](#a13)
 
 14.	<large id="f14"> Les messages de James Padgett publiés ici. [Dr Stone](/fr-james-padgett-messages/1-14-fr-the-testimony-of-dr-leslie-stone/)[↩](#a14)
 
-15.	<large id="f15"> [Hélène écrit sur sa progression de la troisième sphère de l'esprit à la cinquième sphère de l'esprit.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-7-1-jep-helen-padgett/)[↩](#a15)
+15.	<large id="f15"> [Hélène écrit sur sa progression de la troisième sphère de l'esprit à la cinquième sphère de l'esprit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-7-1-jep-helen-padgett/)[↩](#a15)
 
-16. <large id="f16"> [Le Livre d'Urantia.](https://www.urantia.org/fr/le-livre-durantia/lire)[↩](#a16)
+16. <large id="f16"> [Le Livre d'Urantia](https://www.urantia.org/fr/le-livre-durantia/lire)[↩](#a16)

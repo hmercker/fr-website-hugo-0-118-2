@@ -13,7 +13,7 @@ Un autre domaine dans le processus de transformation de l'âme par la réception
 
 Voici maintenant une explication plus détaillée et une représentation imagée donnée par [Judas le 19 Août 2001](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-19-1-hr-anonyme/) :
 
->...représente-toi l'âme comme une boule de verre, totalement transparente, "ouverte" au passage de la lumière. Sa surface transparente laisse entrer la "lumière" de l'Amour Divin. Plus encore, elle permet une communication totale avec ce monde merveilleux de la divinité. Elle permet également à la lumière qui brûle à l'intérieur, cette flamme stimulée par l'Amour Divin, de briller aux yeux de tous pour manifester sa présence.
+>...représente-toi l'âme comme une boule de verre, totalement transparente, "ouverte" au passage de la lumière. Sa surface transparente laisse entrer la "lumière" de l'Amour Divin. Plus encore, elle permet une communication totale avec ce monde merveilleux de la divinité. Elle permet également à la lumière qui brûle à l'intérieur, cette flamme stimulée par l'Amour Divin, de briller aux yeux de tous pour manifester Sa présence.
 <br>
 <br>
 > C'est l'état vierge de l'âme, cette transparence totale, toute sa surface comme une surface de connexion avec le Divin. Après l'incarnation de l'âme, elle reçoit le grand cadeau de ne pas seulement percevoir la divinité qui l'entoure, mais de l'incorporer, de la posséder et d'émettre ensuite la lumière qui se forme par la réaction de "fermentation" provoquée par l'incorporation de la divinité.

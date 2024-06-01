@@ -17,7 +17,7 @@ Voici maintenant une tentative de diviser ce voyage de la transformation de l'â
 
 Il l'explique comme suit :
 
-> Une autre loi du monde spirituel est qu'une fois qu'un esprit commence à progresser, le progrès s'intensifie en progression géométrique, c'est ainsi que nous l'appelions lorsque nous enseignions encore sur terre.
+> Une autre loi du monde spirituel est qu'une fois qu'un esprit commence à progresser, **le progrès s'intensifie en progression géométrique**, c'est ainsi que nous l'appelions lorsque nous enseignions encore sur terre.
 <br>
 <br>
 > Dès que la lumière pénètre dans l'âme d'un homme ou dans son esprit et qu'il commence à réaliser qu'il existe un moyen d'atteindre les choses supérieures et d'obtenir une expansion de son esprit ou de son âme, il constatera que son désir de progresser devient de plus en plus fort au fur et à mesure qu'il progresse et, avec ce désir, l'aide viendra avec une telle abondance qu'elle ne sera limitée que par le désir de l'esprit. Sa volonté deviendra alors un grand pouvoir qui l'aidera à obtenir des succès dans sa progression et à coopérer avec l'aide que cette progression engendrera. Il deviendra un merveilleux objet de pouvoir et d'attraction irrésistible.
@@ -25,7 +25,7 @@ Il l'explique comme suit :
 <br>
 > Cette progression peut être illustrée par l'histoire d'une boule de neige qui a commencé à descendre du sommet d'une colline. Alors qu'elle continue sa descente, elle ne devient pas seulement plus rapide, mais aussi plus grosse, car la neige extérieure commence à adhérer à la boule. Il en va de même pour le mental ou l'âme d'un esprit : à mesure qu'il s'élève, non seulement il devient de plus en plus rapide dans son vol, mais il rencontre aussi cette aide extérieure dont j'ai parlé, qui s'accroche à l'esprit et semble faire partie de lui.
 
-Ici, nous aimerions expliquer plus en détail ce voyage de transformation - à l'aide des merveilleux messages que nous avons reçus, en particulier du médium Al Fike. L'organisation thématique a pour seul but de diviser quelque peu les nombreux messages que nous avons reçus au fil des années pour nous soutenir et nous aider. Une fois que nous commençons à suivre ce chemin de transformation de l'âme, certaines lois spirituelles entrent en vigueur et, grâce à l'éveil de nos perceptions de l'âme, nous en sommes plus conscients.
+Ici, nous aimerions expliquer plus en détail ce voyage de transformation - à l'aide des merveilleux messages que nous avons reçus, par l'intermdiaire du médium Al Fike. L'organisation thématique a pour seul but de diviser quelque peu les nombreux messages que nous avons reçus au fil des années pour nous soutenir et nous aider. Une fois que nous commençons à suivre ce chemin de transformation de l'âme, certaines lois spirituelles entrent en vigueur et, grâce à l'éveil de nos perceptions de l'âme, nous en sommes plus conscients.
 
 1. [L'éveil de l'âme et la purification de l'âme](/9-fr-topical-subjects/9-3-1-fr-awakening-of-the-soul-and-the-purification-of-the-soul/)
 2. [L'esprit matériel, l'esprit spirituel et l'esprit de l'âme](/9-fr-topical-subjects/9-3-2-fr-material-mind-spiritual-mind-soul-mind/)

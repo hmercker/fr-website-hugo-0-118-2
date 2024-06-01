@@ -1,13 +1,13 @@
 ---
-title: "L’Âme a été crée pour recevoir l’Amour de Dieu"
+title: "L’Âme a été créée pour recevoir l’Amour de Dieu"
 menu_title: ""
-description: "L’Âme a été crée pour recevoir l’Amour de Dieu"
+description: "L’Âme a été créée pour recevoir l’Amour de Dieu"
 date: 2022-06-01 06:00:01+00:1017
 draft: False
 hidden: True
 weight:
 ---
-### L’Âme a été crée pour recevoir l’Amour de Dieu
+### L’Âme a été créée pour recevoir l’Amour de Dieu
 
 Augustin - reçu par Al Fike le 7 Mars 2020, Monroeville, PA, USA.
 

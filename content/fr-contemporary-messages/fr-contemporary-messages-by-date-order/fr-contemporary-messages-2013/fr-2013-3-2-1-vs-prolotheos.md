@@ -11,7 +11,7 @@ weight:
 
 **Prolotheos** - reçu par Valdir Soares <sup id="a1">[1](#f1)</sup> le 2 Mars 2013
 
-**Prolotheos :**  « L’évolution<sup id="a2">[2](#f2)</sup> est un moyen par lequel les Dieux  *« impriment leur dessin  »* sur la création spatio-temporelle. En effet, ce n’est pas le seul moyen par lequel la création apparaît dans les Univers. Il y a la création par fiat, par génération et par évolution. L’évolution de la vie sur Urantia a commencé avec la formulation de la vie par les Porteurs de Vie, et elle se poursuivra dans les ères de Lumière et de Vie par la *« synthèse »* progressive de la Déité Suprême Planétaire résidente. L’évolution est un processus complexe qui ne peut être entièrement compris, même par les êtres humains qu’il produit. Malheureusement, la religion évolutionniste ne se laisse pas comprendre, tandis que l’ignorance la déforme grossièrement.
+**Prolotheos :**  « L’évolution<sup id="a2">[2](#f2)</sup> est un moyen par lequel les Dieux  *« impriment leur dessin  »* sur la création spatio-temporelle. En effet, ce n’est pas le seul moyen par lequel la création apparaît dans les Univers. Il y a la création par fiat<sup id="a3">[3](#f3)</sup>, par génération et par évolution. L’évolution de la vie sur Urantia a commencé avec la formulation de la vie par les Porteurs de Vie, et elle se poursuivra dans les ères de Lumière et de Vie par la *« synthèse »* progressive de la Déité Suprême Planétaire résidente. L’évolution est un processus complexe qui ne peut être entièrement compris, même par les êtres humains qu’il produit. Malheureusement, la religion évolutionniste ne se laisse pas comprendre, tandis que l’ignorance la déforme grossièrement.
 
 « Le premier concept erroné concernant l’évolution sur Urantia est l’affirmation que l’évolution de la vie est purement le résultat du hasard. Rien dans les Univers n’est purement aléatoire. Dieu existe et ne laisse rien au hasard. Même lorsqu’il donne le libre choix aux êtres personnels, la finitude et les limites mêmes de ces êtres, ainsi que l’ordre divin établi, font que leurs choix s’inscrivent finalement dans les plans ultimes des Dieux. L’évolution n’a pas de commencement, ni de conduite aléatoire. Elle provient des énergies de l’espace, est manipulée par des Êtres Célestes hautement dotés, et se développe sous l’étroite surveillance d’Administrateurs Célestes jusqu’à ce que la personnalité se manifeste dans une espèce particulière.
 
@@ -21,14 +21,16 @@ weight:
 
 « Par conséquent, mon élève, l’évolution reflète le dessein de Dieu de faire naître des êtres aptes à recevoir leur personnalité du Père, et même à accueillir les merveilleux Fragments de Dieu, les Ajusteurs de Pensée. Certains religieux ne peuvent accepter la réalité de l’évolution car son explication provient principalement de la Science qui ne peut rendre compte de l’existence et de l’action de Dieu dans les Univers. Néanmoins, l’évolution a son propre témoignage dans l’histoire géologique d’Urantia, même si elle est interprétée de façon erronée par de nombreux scientifiques partiaux. Seule une religiosité aveugle peut nier l’évolution, tout comme une science arrogante nie Dieu. Je suis Prolotheos. Paix à tous ».
 
-*© The 11:11 Progress Group. *« Le don de soi, l’illumination de la vérité et le soulagement de la souffrance sont les voies les plus nobles vers la conscience supérieure. »* – Enseignant Ophelius, 2009.*<sup id="a3">[3](#f3)</sup>
+*© The 11:11 Progress Group. *« Le don de soi, l’illumination de la vérité et le soulagement de la souffrance sont les voies les plus nobles vers la conscience supérieure. »* – Enseignant Ophelius, 2009.*<sup id="a4">[4](#f4)</sup>
 <small>
 
 1. <large id="f1"> Ce médium n’est pas un médium de l’Amour Divin, et son cadre de référence est donc différent.[↩](#a1)
 
-2. <large id="f2">  Ce sujet concernant l'évolution a également été traité dans [cette section](/9-fr-topical-subjects/9-6-fr-evolution-or-creation/).
+2. <large id="f2">  Ce sujet concernant l'évolution a également été traité dans [cette section](/9-fr-topical-subjects/9-6-fr-evolution-or-creation/).4
 
-3. <large id="f3"> Les différents messages émis par le "Progress group (Groupe de progrès)" sont listés ci-dessous  : [↩](#a3)
+3. <large id="f3"> **Du latin « qu'il soit fait »**, le mot « fiat » désigne un décret contraignant émis par une personne en position de commandement. Il peut acquérir une aura d'autorité quasi biblique, à l'instar d'un pharaon de cinéma qui dirait : « Qu'il en soit ainsi écrit, qu'il en soit ainsi fait ». Qu'il s'agisse donc d'un fiat. -[Source](https://www.vocabulary.com/dictionary/fiat)[↩](#a3)
+
+4. <large id="f4"> Les différents messages émis par le "Progress group (Groupe de progrès)" sont listés ci-dessous  : [↩](#a4)
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---

@@ -9,7 +9,7 @@ weight:
 ---
 ### L'éveil de l'âme et la purification de l'âme
 
-Comme la transformation est un processus qui demande du temps et de l'application, les informations de nos guides célestes sont d'une importance significative. Comme pour la plupart des enseignements de l'Amour Divin, la compréhension est assez simple, mais l'application pratique et l'engagement réel sont un grand défi. L'éveil de l'âme est un exercice énorme et exigeant de réalisation de soi par l'âme (et non par le mental), qui exige l'honnêteté et la pratique des lois de l'amour.
+Comme la transformation est un processus qui demande du temps et de l'application, les informations de nos guides Célestes sont d'une importance significative. Comme pour la plupart des enseignements de l'Amour Divin, la compréhension est assez simple, mais l'application pratique et l'engagement réel sont un grand défi. L'éveil de l'âme est un exercice énorme et exigeant de réalisation de soi par l'âme (et non par le mental), qui exige l'honnêteté et la pratique des lois de l'amour.
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
@@ -38,7 +38,7 @@ Augustin | [Vous devez parvenir à une prise de conscience de la réalité de vo
 Augustin | [Q&R : L'éveil de l'âme et l'ego](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-10-1-af-augustine/) | 10 Juillet 2019
 St Luc | [L'Amour de Dieu et l'éveil de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-26-1-mc-st-luke/) | 26 Septembre 2019
 André | [La vraie guidance apporte un signal expansif et joyeux dans l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-23-1-af-andrew/) | 23 Janvier 2020
-Augustin | [L’Âme a été crée pour recevoir l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-7-1-af-augustine/) | 7 Mars 2020
+Augustin | [L’Âme a été créée pour recevoir l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-7-1-af-augustine/) | 7 Mars 2020
 Seretta Kem | [Comment le mental interprète les événements par rapport à l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-8-2-af-seretta-kem/) | 8 Mai 2020
 Augustin | [L'intensité de votre désir apportera l'éveil de votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-23-2-af-augustine/) | 23 Mai 2020
 Jésus | [Leçon 20 : Il est temps pour l’âme de s’éveiller à l’humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-2-11-1-af-jesus/) | 11 Février 2021

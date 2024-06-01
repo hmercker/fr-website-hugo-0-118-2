@@ -35,6 +35,7 @@ Charlie Chaplin | [Rappelez-vous la lumière au bout du tunnel](/fr-contemporary
 Charlie Chaplin | [Même Atlas ne pouvait pas faire ce que Dieu peut faire !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-7-1-jw-charlie-chaplin/) | 7 Novembre 2022
 Charlie Chaplin | [Agir avec Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-21-1-jw-charlie-chaplin/) | 21 Novembre 2022
 Charlie Chaplin | [Un cœur ouvert est le chemin de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-22-1-jw-charlie-chaplin/) | 22 Février 2023
+Charlie Chaplin | [L'humour restauré dans l'Amour ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-20-1-jw-charlie-chaplin/) | 20 Mai 2024
 Dame Nellie Melba | [Le monde a besoin de vous maintenant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-21-6-af-dame-nellie-melba/) | 21 Novembre 2017
 Elizabeth Taylor | [Nous souhaitons partager ces vérités de belles manières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-21-8-af-elizabeth-taylor/) | 21 Novembre 2017
 Franz Joseph Haydn | [Le compositeur Haydn connaît, comme esprit, la joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-4-1-fab-franz-joseph-haydn/) | 4 Janvier 2003

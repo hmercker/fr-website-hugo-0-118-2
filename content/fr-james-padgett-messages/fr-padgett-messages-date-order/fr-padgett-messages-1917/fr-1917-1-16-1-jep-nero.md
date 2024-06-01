@@ -1,13 +1,13 @@
 ---
-title: "Néron raconte son expérience dans les enfers et l’aide de son âme soeur"
+title: "Néron raconte son expérience dans les enfers et l’aide de son âme-soeur"
 menu_title: ""
-description: "Néron raconte son expérience dans les enfers et l’aide de son âme soeur"
+description: "Néron raconte son expérience dans les enfers et l’aide de son âme-soeur"
 date: 2022-06-01 06:00:01+00:23
 draft: False
 hidden: True
 weight:
 ---
-### Néron raconte son expérience dans les enfers et l’aide de son âme soeur
+### Néron raconte son expérience dans les enfers et l’aide de son âme-soeur
 
 Néron <sup id="a1">[1](#f1)</sup> - reçu par James Padgett le 16 Janvier 1917, Washington, USA.
 

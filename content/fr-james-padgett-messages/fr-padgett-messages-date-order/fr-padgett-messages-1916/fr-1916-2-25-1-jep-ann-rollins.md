@@ -1,13 +1,13 @@
 ---
-title: "Ann Rollins. Qui et qu’est ce que Dieu ? "
+title: "Ann Rollins. Qui et qu’est ce que Dieu (Suite) ? "
 menu_title: ""
-description: "Ann Rollins. Qui et qu’est ce que Dieu ? "
+description: "Ann Rollins. Qui et qu’est ce que Dieu (Suite) ? "
 date: 2022-06-01 06:00:01+00:152
 draft: False
 hidden: True
 weight:
 ---
-### Anne Rollins. Qui et qu’est ce que Dieu ?
+### Anne Rollins. Qui et qu’est ce que Dieu (Suite) ?
 
 Anne Rollins - reçu par James Padgett le 25 Février 1916, Washington, USA.
 

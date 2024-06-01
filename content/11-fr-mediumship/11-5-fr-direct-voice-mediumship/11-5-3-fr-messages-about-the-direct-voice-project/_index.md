@@ -22,10 +22,10 @@ Voici les messages reçus dans le cadre de la médiumnité physique du projet Vo
 
 ### Messages du deuxième projet de Voix directe
 
-Un groupe de trois personnes vivant en Australie a demandé aux anges au milieu des années 2020 s'ils pouvaient créer un groupe DS. L'un des membres faisait également partie du premier groupe DS. Cela a été accepté avec enthousiasme par les anges et est en cours jusqu'à aujourd'hui. Un quatrième membre du groupe a été accepté, qui ne vit pas physiquement en Australie, mais qui est très connu des trois autres. Cet aspect permet de maintenir une excellente harmonie, car ils sont tous proches les uns des autres. Le groupe a décidé de ne pas publier de messages jusqu'à cette date.
+Un groupe de trois personnes vivant en Australie a demandé aux anges au milieu des années 2020 s'ils pouvaient créer un groupe de la Voix Directe. L'un des membres faisait également partie du premier groupe de la Voix Directe. Cela a été accepté avec enthousiasme par les anges et est, aujourd'hui, toujours en cours. Un quatrième membre du groupe a été accepté, qui ne vit pas physiquement en Australie, mais qui est très connu des trois autres. Cet aspect permet de maintenir une excellente harmonie, car ils sont tous proches les uns des autres. Le groupe a décidé de ne pas publier de messages jusqu'à cette date.
 
 ### Messages du troisième projet de Voix Directe
 
-Au milieu de l'année 2021, un troisième groupe d'individus, principalement au Canada et en Amérique du Nord, a formé un groupe DS et est dirigé par Al et Jeanne Fike. Voici les messages reçus :
+Au milieu de l'année 2021, un troisième groupe d'individus, principalement au Canada et en Amérique du Nord, a formé un groupe de la Voix Directe est dirigé par Albert et Jeanne Fike. Voici les messages reçus :
 
 1. [Volume I](/11-fr-mediumship/11-5-fr-direct-voice-mediumship/11-5-3-fr-messages-about-the-direct-voice-project/11-5-3-7-fr-d-v-3-1/)

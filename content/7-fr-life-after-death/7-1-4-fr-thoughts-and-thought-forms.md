@@ -13,13 +13,13 @@ weight:
 
 L'idée que les pensées sont des choses qui ont une existence réelle n'est pas nouvelle de nos jours, mais Judas [dans son message du 24 Mai 2003](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-5-24-1-hr-judas/) a introduit de nouvelles idées lorsqu'il a utilisé l'analogie d'un « objet » telle qu'elle est connue en programmation informatique :
 
-> Sais-tu ce que sont des « contenants de pensées » ?
+> Savez-vous ce que sont des « contenants de pensées » ?
 <br>
 <br>
 > Eh bien, c’est un terme que je viens d’inventer.
 <br>
 <br>
-> Dans certains messages de James Padgett1, il est mentionné que les pensées sont des choses. C’est une déclaration qui surprend beaucoup. En fait, beaucoup ne savent pas ce qu’il faut penser de cela : Est-ce que les pensées se cristallisent ? Est-ce qu’elles flottent dans l’air comme des gouttelettes de brouillard ?
+> Dans certains [messages de James Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-4-1-jep-st-luke/), il est mentionné que les pensées sont des choses. C’est une déclaration qui surprend beaucoup. En fait, beaucoup ne savent pas ce qu’il faut penser de cela : Est-ce que les pensées se cristallisent ? Est-ce qu’elles flottent dans l’air comme des gouttelettes de brouillard ?
 <br>
 <br>
 > Aujourd’hui, j’ai l’intention de partager un message afin de te donner une idée de ce que signifie cette expression. Ce ne peut pas être un message très précis, car une fois de plus je vais avoir recours à des analogies pour décrire l’inconnu. Mais cela va peut-être t’aider à comprendre un peu ce qui a été, jusqu’à présent, pour toi, un mystère.

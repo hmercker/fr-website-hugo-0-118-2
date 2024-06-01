@@ -11,7 +11,9 @@ weight: 350
 
 ### Où va l’âme après la mort
 
-Cette section traite de la mort et de la période initiale d'orientation qui s'ensuit. Voici un résumé des principaux thèmes d'un vaste sujet dans un article intitulé [Sortir d'ici - Que se passe-t-il après la mort ?](/7-fr-life-after-death/7-1-2-fr-getting-the-hell-out-of-here/).
+Cette section traite de la mort et de la période initiale d'orientation qui s'ensuit. 
+
+Un résumé des principaux thèmes d'un vaste sujet est également présenté dans un article intitulé [Sortir d'ici - Que se passe-t-il après la mort ?](/7-fr-life-after-death/7-1-2-fr-getting-the-]-out-of-here/).
 
 [Jean l'a décrit lors d'un message communiqué le 29 Mai 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-5-29-2-jep-st-john/) comme suit dans un message :
 
@@ -37,6 +39,10 @@ Cette section traite de la mort et de la période initiale d'orientation qui s'e
 <br>
 <br>
 > Vient alors un moment où chaque âme doit rester seule et, dans sa faiblesse ou sa force, réaliser qu’aucune autre âme ne peut porter son chagrin, prendre ses fardeaux ou entrer dans ses souffrances, Et ainsi se réalise l’énonciation que chaque âme est son propre gardien et seule responsable de sa propre condition.
+
+### Pensées et formes de pensées
+
+Nous avons tous tendance à négliger nos pensées et à ne pas y accorder d'importance. Cependant ces dernières ont une existence réelle et une importannce considérable comme il est expliqué dans [ce sujet](/7-fr-life-after-death/7-1-4-fr-thoughts-and-thought-forms/).
 
 ### Que se passe-t-il après la mort ?
 

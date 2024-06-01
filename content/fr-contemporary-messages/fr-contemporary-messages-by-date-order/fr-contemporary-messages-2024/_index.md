@@ -167,7 +167,6 @@ Judas | [Venez au banquet de la vérité](/fr-contemporary-messages/fr-contempor
 Care Darby  Walsh | [La transformation de l’âme dans l’Amour de Dieu est réelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-3-1-jw-care-darby-walsh/) | 3 Mai 2024
 Nuage Blanc | [Guérison de la Terre Mère ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-3-2-af-white-cloud/) | 3 Mai 2024
 Augustin | [Dieu utilise ceux qui ont de l’amour et de la compassion ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-5-1-af-augustine/) | 5 Mai 2024
-Charlie Chaplin | [L'humour restauré dans l'Amour ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-5-2-jw-charlie-chaplin/) | 5 Mai 2024
 Barbara Davies | [Présente 8 anges chargés de travailler avec notre groupe ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-6-1-af-barbara-davies/) | 6 Mai 2024
 Orion | [Du temps et de l’absence de temps ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-7-1-af-orion/) | 7 Mai 2024
 Naari et Jésus | [Se présente comme l'un des anges Célestes anonymes qui viennent nous administrer à tous la guérison, la bénédiction de la guérison ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-7-2-af-naari-and-jesus/) | 7 Mai 2024
@@ -175,5 +174,7 @@ St Paul | [Dieu nous a donné à chacun un guide Céleste pour nous aider dans n
 Khalil Gibran | [Le réveil d'un rêve](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-13-1-jw-khalil-gibran/) | 13 Mai 2024
 Jean le Bien Aimé | [Vos prières sont exaucées sur les ailes de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-14-1-af-john-the-beloved/) | 14 Mai 2024
 Confucius | [Dieu et les anges nous donneront l’énergie et les ressources nécessaires pour partager les vérités de l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-14-2-af-confucius/) | 14 Mai 2024
+Charlie Chaplin | [L'humour restauré dans l'Amour ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-20-1-jw-charlie-chaplin/) | 20 Mai 2024
+
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

@@ -60,7 +60,7 @@ Jésus | [Je vous bénis comme mes disciples](/fr-contemporary-messages/fr-conte
 Charlie Chaplin | [Le sujet du service](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-6-1-jw-charlie-chaplin/) | 6 Mars 2020
 Eileen Caddy | [Gardez le cap avec amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-6-2-jw-eileen-caddy/) | 6 Mars 2020
 St François d'Assise | [Honorer les soignants – S’occuper des autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-6-3-jw-st-francis-of-assisi/) | 6 Mars 2020
-Augustin | [L’Âme a été crée pour recevoir l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-7-1-af-augustine/) | 7 Mars 2020
+Augustin | [L’Âme a été créée pour recevoir l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-7-1-af-augustine/) | 7 Mars 2020
 Flavius Josèphe | [Communion de l'âme avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-7-2-af-josephus/) | 7 Mars 2020
 Moïse & Joseph | [Dieu appelle les leaders à prendre responsabilité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-8-1-af-moses-joseph/) | 8 Mars 2020
 Eileen Caddy | [Le courage d’aller de l’avant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-8-2-jw-eileen-caddy/) | 8 Mars 2020

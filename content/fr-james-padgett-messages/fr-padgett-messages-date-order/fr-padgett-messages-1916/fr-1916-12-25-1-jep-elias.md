@@ -7,8 +7,9 @@ draft: False
 hidden: True
 weight:
 ---
-### Élie parle sur la loi de Compensation<
+### Élie parle sur la loi de Compensation
 
+Élie - reçu par James Padgett le 25 Décembre 1916, Washington, USA.
 
 C’est moi, Élie, l’ancien prophète. L’heure est tardive, vous êtes fatigué, je n’écrirai donc qu’un court message. Bien, je désire dire que [le message que vous avez reçu du Maître](/fr-james-padgett-messages/fr-padgett-messages-date-order/\fr-padgett-messages-1916/fr-1916-12-24-1-jep-jesus/) contient certaines des vérités les plus importantes affectant la relation de Dieu à l’homme dans sa vie mondaine ou matérielle.
 
