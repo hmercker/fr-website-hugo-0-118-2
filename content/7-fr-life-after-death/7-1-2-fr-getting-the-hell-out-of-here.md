@@ -188,7 +188,7 @@ C'est ici, dans la Première Sphère, que les esprits ont tendance à découvrir
 
 <a name="second-sphere"></a>
 
-### La deuxième sphère
+### La Deuxième sphère
 
 La condition essentielle pour qu'un esprit atteigne la deuxième sphère est la reconnaissance que les poursuites matérielles sont limitées, et ne mènent pas au vrai bonheur. Dans la deuxième sphère, les esprits choisissent leur voie spirituelle. Ceux-ci ne sont en aucun cas uniformes, et en général, si un esprit décide plus tard de changer de voie spirituelle, il retournera dans cette sphère.
 
@@ -233,7 +233,7 @@ Les âmes sœurs commencent maintenant à être un sujet de grand intérêt. Il 
 
 La Quatrième Sphère, avec ses grandes facilités, est souvent une sphère où les esprits restent très longtemps. Lorsque ces esprits ont atteint les plans supérieurs de cette sphère, ils ont pratiquement perdu tout intérêt pour les affaires des mortels. Leur seul intérêt est d'aider l'homme à progresser, mais ils ne s'intéressent pas personnellement à ses affaires.
 
-### La cinquième sphère
+### La Cinquième sphère
 
 C'est ce qu'on appelle la sphère de l'âme, et les esprits qui suivent la voie de l'amour naturel n'y passent pas beaucoup de temps. Mais c'est une sphère importante pour les esprits de l'Amour Divin. La seule chose qui manque aux esprits de l'Amour Naturel est la pureté absolue. Ils doivent éradiquer les dernières traces de péché. Ils peuvent encore s'accrocher à de fausses croyances, mais aucune d'entre elles ne sera nuisible. Cette dernière étape de purification ne prend pas beaucoup de temps, et les esprits de l'Amour Naturel passent alors à la sixième, le but ultime de leur chemin spirituel.
 
@@ -250,7 +250,7 @@ Voici la description d'une maison dans la Cinquième Sphère :
 <br>
 > Qui, nous avons des rivières et des lacs, des champs et des montagnes et tous les beaux paysages que tu peux imaginer, non seulement j'apprécie ces choses, mais elles sont plus réelles que celles de la terre. Je m'occupe parfois de peindre ces fleurs et ces paysages, et j'ai beaucoup de tableaux que d'autres ont peints. Je trouve que je peux peindre avec une touche plus artistique que sur terre. Je n'ai aucune difficulté à dessiner, comme tu le sais, j'en avais dans mes tableaux terrestres. J'étudie également la musique, et sje suis des cours de chant. Tu seras très surpris quand tu m'entendras chanter, car tu ne peux pas imaginer à quel point ma voix est différente. Parfois, j'essaie de chanter certaines des chansons que j'avais l'habitude de vous chanter, mais elles ne sont pas jolies en comparaison avec les chansons que nous avons ici, que ce soit au niveau de la musique ou des sentiments <sup id="a15">[15](#f15)</sup>.
 
-### La sixième sphère
+### La Sixième sphère
 
 C'est l'apogée du développement spirituel pour les esprits de l'Amour Naturel. Elle représente un retour à l'état adamique. Cependant, il est fort possible qu'ils contestent l'existence de sphères supérieures. Les esprits de l'Amour Divin trouvent certainement que ces esprits ne sont pas intéressés à écouter ce concept. Ils s'amusent avec de nombreuses discussions intellectuelles et morales très avancées. Il faut comprendre que la capacité mentale s'est énormément développée en même temps que le développement spirituel. C'est un ciel parfait, et les esprits ne manquent de rien, et ne peuvent pas imaginer que quelque chose de mieux puisse exister.
 

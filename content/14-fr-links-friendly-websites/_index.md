@@ -11,3 +11,6 @@ weight: 150
 
 1. [En Anglais](/14-fr-links-friendly-websites/14-1-fr-english-links/)
 2. [En Allemand](/14-fr-links-friendly-websites/14-2-fr-german-links/)
+3. [En Espagnol](/14-fr-links-friendly-websites/14-3-fr-spanish-links/)
+2. [En Hollandais](/14-fr-links-friendly-websites/14-4-fr-dutch-links/)
+
