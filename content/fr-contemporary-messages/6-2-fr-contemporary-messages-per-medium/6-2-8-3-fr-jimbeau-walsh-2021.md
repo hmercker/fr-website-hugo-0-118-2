@@ -88,6 +88,7 @@ Judas | [La présence de l’Amour dans nos âmes](/fr-contemporary-messages/fr-
 St Luc | [Cherchez d’abord le Royaume, et tout le reste vous sera donné](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-27-1-jw-st-luke/) | 27 Juillet 2021
 Yogananda | [Votre cœur vous conduira à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-2-1-jw-yogananda/) | 2 Août 2021
 Robert James Lees | [Mes livres sont vraiment approuvés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-5-1-jw-robert-james-lees/) | 5 Août 2021
+Jean le Bien Aimé | [Demeurer dans la grâce](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-7-2-jw-john-the-beloved/) | 7 Août 2021
 Yogananda | [Soyez courageux si vous souhaitez créer des sanctuaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-9-1-jw-yogananda/) | 9 Août 2021
 Care Darby Walsh | [Ayez la foi que vos prières seront exaucées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-12-1-jw-care-derby-walsh/) | 12 Août 2021
 Martin Luther King jr | [Gardez les yeux sur le prix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-17-2-jw-martin-luther-king-jr/) | 17 Août 2021
@@ -114,6 +115,7 @@ Care Darby Walsh | [Encouragements à terminer les projets](/fr-contemporary-mes
 Hafiz | [Soyez la vraie vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-25-1-jw-hafiz/) | 25 Octobre 2021
 Claire d'Assise | [L’Amour de Dieu mène à une vie de service](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-29-1-jw-clare-of-assisi/) | 29 Octobre 2021
 St Luc | [Avancer dans la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-1-1-jw-st-luke/) | 1 Novembre 2021
+Jean le Bien Aimé | [L'Amour de Dieu est la réponse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-4-2-jw-john-the-beloved/) | 4 Novembre 2021
 St François d'Assise | [Le plan des amis et de la famille de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-6-1-jw-st-francis-of-assisi/) | 6 Novembre 2021
 Hazrat Inayat Khan | [Gardez un chant dans votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-9-1-jw-hazrat-inayat-khan/) | 9 Novembre 2021
 Robert James Lees | [Une chose à la fois](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-10-1-jw-robert-james-lees/) | 10 Novembre 2021

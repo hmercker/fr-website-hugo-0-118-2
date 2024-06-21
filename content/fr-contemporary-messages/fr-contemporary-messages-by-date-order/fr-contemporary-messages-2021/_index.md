@@ -250,6 +250,7 @@ Robert James Lees | [Mes livres sont vraiment approuvés](/fr-contemporary-messa
 Jésus | [Leçon 15 : Affecter le changement dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-6-1-af-jesus/) | 6 Août 2021
 Keea Atta Kem | [Le treillis de lumière apporte la lumière au monde entier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-6-2-af-keea-atta-kem/) | 6 Août 2021
 Elie | [Vous devez vraiment connaître votre propre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-7-1-af-elijah/) | 7 Août 2021
+Jean le Bien Aimé | [Demeurer dans la grâce](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-7-2-jw-john-the-beloved/) | 7 Août 2021
 Jésus | [Soyez une lumière dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-8-1-af-jesus/) | 8 Août 2021
 Yogananda | [Soyez courageux si vous souhaitez créer des sanctuaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-9-1-jw-yogananda/) | 9 Août 2021
 Faith | [Priez pour le monde, en particulier pour le Centre mondial de guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-10-1-af-faith/) | 10 Août 2021
@@ -363,6 +364,7 @@ St Luc | [Avancer dans la foi](/fr-contemporary-messages/fr-contemporary-message
 Jésus | [Leçon 19 : Appelle tous les éclaireurs à servir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-2-1-af-jesus/) | 2 Novembre 2021
 Orion | [Des réponses à d'autres questions (Projet Orion 2021)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-3-1-af-orion/) | 3 Novembre 2021
 Jésus | [Leçon 20 : L’Amour de Dieu est le seul moyen de sauver l’humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-4-1-af-jesus/) | 4 Novembre 2021
+Jean le Bien Aimé | [L'Amour de Dieu est la réponse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-4-2-jw-john-the-beloved/) | 4 Novembre 2021
 Orion | [Orion répond aux questions posées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-5-1-af-orion/) | 5 Novembre 2021
 Seretta Kem | [Continuer à bâtir sur les fondations de l'Amour de Dieu (2021 Groupe des douze)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-5-2-af-seretta-kem/) | 5 Novembre 2021
 Mylora | [Bénédiction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-5-3-af-mylora/) | 5 Novembre 2021

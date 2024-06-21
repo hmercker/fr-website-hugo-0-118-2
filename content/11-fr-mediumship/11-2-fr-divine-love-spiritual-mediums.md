@@ -1,13 +1,13 @@
 ---
-title: "Les mediums spirituels de l’Amour Divin"
-menu_title: "Les mediums spirituels de l’Amour Divin"
-description: "Les mediums spirituels de l’Amour Divin"
+title: "Les médiums spirituels de l’Amour Divin"
+menu_title: "Les médiums spirituels de l’Amour Divin"
+description: "Les médiums spirituels de l’Amour Divin"
 date: 2023-05-19 02:18:11+11:00
 draft: False
 hidden: False
 weight: 637
 ---
-### Les mediums spirituels de l’Amour Divin
+### Les médiums spirituels de l’Amour Divin
 
 *Source : Geoff Cutler new-birth.net*
 

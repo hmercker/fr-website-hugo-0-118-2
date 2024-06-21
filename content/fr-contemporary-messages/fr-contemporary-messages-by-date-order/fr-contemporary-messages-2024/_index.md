@@ -26,6 +26,7 @@ St François d'Assise | [Puissions-nous être transformés par le don de l’Amo
 Marie | [Mon amour pour chacun de vous est grand](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-6-2-af-mary/) | 6 Janvier 2024
 Bartholomée | [Je suis le protecteur des îles des Caraïbes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-6-3-af-st-bartholomew/) | 6 Janvier 2024
 Faith | [Vous avez fait quelque chose de magnifique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-7-1-af-faith/) | 7 Janvier 2024
+Bartholomée | [Ouvrez vos âmes pour être guéris](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-7-2-af-bartholomew/) | 7 Janvier 2024
 St François d'Assise | [Restez en grâce](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-8-1-jw-st-francis-of-assisi/) | 8 Janvier 2024
 Samiel et Joie | [Vous êtes nécessaires à la transformation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-8-2-em-samuel-and-joy/) | 8 Janvier 2024
 Confucius | [Bénédictions des portails pour tous ceux qui résident ici](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-9-1-af-confucius/) | 9 Janvier 2024
@@ -40,9 +41,12 @@ Bartholomée | [J'ai rencontré Jésus sur Terre et continue de répandre la vé
 George Stokes | [Veut nous soutenir tous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-13-2-em-george-stokes/) | 13 Janvier 2024
 Orion | [Goutte à goutte, l’Amour de Dieu touche les âmes de l’humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-14-1-af-orion/) | 14 Janvier 2024
 Jean le Bien Aimé | [Leçon sur la compréhension de la vérité ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-14-2-em-john-the-beloved/) | 14 Janvier 2024
+Mylora | [Guérison administrée au Cercle de La Barbade](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-14-3-af-mylora/) | 14 janvier 2024
 Care Darby Walsh | [Embrassez-les comme Dieu vous a embrassé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-15-1-jw-care-darby-walsh/) | 15 Janvier 2024
 Jeanne d'Arc | [C’est seulement l’Amour de Dieu qui nourrit les personnes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-15-2-em-joan-of-arc/) | 15 Janvier 2024
 George | [Vous êtes une force redoutable sur cette île](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-15-3-em-george/) | 15 Janvier 2024
+Bartholomée | [L’Esprit Saint touche profondément vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-15-4-af-bartholomew/) | 15 Janvier 2024
+Samuel | [Vous ferez grandir l’ombre pour ceux à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-15-5-af-samuel/) | 15 Janvier 2024
 Barbara Davies | [Allez plus profondément pour être dans vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-16-1-af-barbara-davies/) | 16 Janvier 2024
 Martha | [Comme vos âmes sont exquises ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-16-2-em-martha/) | 16 Janvier 2024
 St Matthieu | [La bienveillance de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-17-1-af-st-matthew/) | 17 Janvier 2024
@@ -53,7 +57,9 @@ Marie | [Une expérience de communion avec Dieu](/fr-contemporary-messages/fr-co
 Seretta Kem | [Décrit les soins prodigués par les anges lorsque nous sommes dans des cercles de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-18-3-af-seretta-kem/) | 18 Janvier 2024
 Kathryn Stokes | [L’expérimentation a son prix ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-19-1-af-kathryn-strokes/) | 19 Janvier 2024
 Jean Hugues | [Remerciez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-19-2-em-john-hugues/) | 19 Janvier 2024
+Orion | [Alignement avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-19-3-af-orion/) | 19 Janvier 2024
 James Tudor Sr. | [Je suis avec vous et je suis là pour vous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-20-1-em-james-tudor-sr/) | 20 Janvier 2024
+Jésus  | [Écoutez la Volonté de Dieu et entretenez ce cercle de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-20-2-af-jesus/) | 20 Janvier 2024
 Bartholomée | [Parle sérieusement de l’avenir de l’Amour Divin à la Barbade ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-21-1-af-st-bartholomew/) | 21 Janvier 2024
 James Tudor Sr. | [Laissez les morts enterrer les morts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-21-2-af-james-tudor-sr/) | 21 Janvier 2024
 Jésus  | [Bénit et prophétise le travail de James, David, Michael et Patricia à la Barbade ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-21-3-af-jesus/) | 21 Janvier 2024
@@ -61,15 +67,18 @@ St Luc | [Celui qui vous a créé ne vous abandonnera pas](/fr-contemporary-mess
 Georges Gurdjieff | [Un cœur transformé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-24-1-jw-georges-gurdjieff/) | 24 Janvier 2024
 Matthieu | [La nature de l'Angélisme Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-25-1-em-st-matthew/) | 25 Janvier 2024
 Jésus et Marie | [Jésus et Marie réconfortent ceux qui sont en deuil](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-26-1-af-jesus-and-mary/) | 26 Janvier 2024
+Orion | [Loi de la progression ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-27-1-af-orion/) | 27 Janvier 2024
 Philippe | [Faire émerger les lois de l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-28-1-af-philippe/) | 28 Janvier 2024
 Jean le Bien Aimé | [Bienvenue aux nouvelles âmes de ce cercle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-28-2-em-john-the-beloved/) | 28 Janvier 2024
 Yogananda | [Héritage spirituel et ADN](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-29-1-jw-yogananda/) | 29 Janvier 2024
+Orion | [Nous aimerons, un seul amour pour toujours et à jamais ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-30-1-af-orion/) | 30 Janvier 2024
 Eileen Caddy | [Recherchez vos talents pour servir Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-3-1-af-eileen-caddy/) | 3 Février 2024
 Jésus | [Continuez à vous aventurer dans le monde en tant qu’instruments de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-3-2-af-jesus/) | 3 Février 2024
 Jeanne d'Arc | [Nous sommes prêts et disposés à vous aider à exprimer vos dons ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-4-1-em-joan-of-arc/) | 4 Février 2024
 Moïse | [Votre responsabilité d’indiquer le chemin vers Dieu pour les autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-4-2-af-moses/) | 4 Février 2024
 Judas | [Intention et volonté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-5-1-jw-judas/) | 5 Février 2024
 Orion | [Renforcez la lumière et l'amour en vous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-6-1-af-orion/) | 6 Février 2024
+jean le Bien Amé | [Chérissez le cadeau que Dieu vous a fait ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-6-2-af-john-the-beloved/) | 6 Février 2024
 Daniel | [Compliments sur la réunion ensemble pour la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-8-1-af-daniel/) | 8 Février 2024
 Jeanne d'Arc | [L’Amour de Dieu est votre droit de naissance ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-9-1-em-joan-of-arc/) | 9 Février 2024
 Augustin | [Faites toujours face à la lumière de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-9-2-af-augustine/) | 9 Février 2024
@@ -117,6 +126,7 @@ Marie | [Un don de guérison](/fr-contemporary-messages/fr-contemporary-messages
 St Matthieu | [Se présente comme un autre guide de Pierre ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-8-1-af-st-matthew/) | 8 Mars 2024
 Jean le Bien Aimé | [Apprenez à connaître vos propres capacités](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-8-2-em-john-the-beloved/) | 8 Mars 2024
 Emmanuel | [Parle de la beauté du jardin de nos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-8-3-af-immanuel/) | 8 Mars 2024
+Augustin | [lI existe un plan flexible pour notre temps ensemble ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-8-4-af-augustine/) | 8 Mars 2024
 Orion | [Se présente à Pierre et Claire ainsi que son objectif sur Terre, questions et réponses ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-9-1-af-orion/) | 9 Mars 2024
 Augustin | [Nous accueille et ouvre le cercle de développement en ligne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-9-2-mc-augustine/) | 9 Mars 2024
 Élie | [Apprendre à connaître l’amour de votre Créateur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-10-1-af-elijah/) | 10 Mars 2024
@@ -126,6 +136,7 @@ Jean le Bien Aimé | [Avancez avec Volonté et Amour dans vos missions](/fr-cont
 Jésus | [Le Sacré-Cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-11-1-jw-jesus/) | 11 Mars 2024
 George | [Se connecter avec Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-11-2-em-george/) | 11 Mars 2024
 Augustin | [Atteindre la conscience de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-12-1-af-augustine/) | 12 Mars 2024
+James Reid | [Décrit son voyage à travers les sphères ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-12-2-af-james-reid/) | 12 Mars 2024
 Jésus | [Que chaque âme individuelle parvienne à connaître l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-13-1-af-jesus/) | 13 Mars 2024
 Orion | [Il y a beaucoup à préparer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-13-2-af-orion/) | 13 Mars 2024
 Marie Madeleine | [Décrit sa relation avec Jesus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-14-1-af-mary-magdalene/) | 14 Mars 2024
@@ -140,6 +151,7 @@ Jeanne d'Arc | [Dites une petite prière pour chaque personne que vous rencontre
 Jean le Baptiste | [Faire chaque pas prudemment, complètement, pleinement dans la grâce de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-18-1-em-john-the-baptist/) | 18 Mars 2024
 Augustin | [Vous grandissez dans la lumière en tant qu’émissaires de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-18-2-af-augustin/) | 18 Mars 2024
 Christine | [Conseils pour Matt partagés avec autorisation ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-18-3-af-christine/) | 18 Mars 2024
+Judas | [Amour de soi et Amour Divin ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-18-4-af-judas/) | 18 Mars 2024
 Flavius Josèphe | [Sera honoré de venir demain pour répondre à la question de Geoff ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-19-1-af-josephus/) | 19 Mars 2024
 Flavius Josèphe | [Répond à la question de Geoff Cutler](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-19-2-af-josephus/) | 19 Mars 2024
 Confucius | [Trois oiseaux sur un fil ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-20-1-af-confucius/) | 20 Mars 2024
@@ -149,6 +161,7 @@ Thomas et Jeanne d'Arc | [Foi](/fr-contemporary-messages/fr-contemporary-message
 James Tudor, Sr. | [Félicitations de James Tudor, Sr ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-24-2-em-james-tudor-sr/) | 24 Mars 2024
 Luc | [La liberté de changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-25-1-jw-luke/) | 25 Mars 2024
 Alec | [Soyez encouragés à ce que le travail continue](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-25-2-em-alec/) | 25 Mars 2024
+Claire d'Assise | [C''est le bonheur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-26-1-jw-clare-of-assisi/) | 26 Mars 2024
 Luc | [Prier pour la guérison de l'humanité ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-28-1-em-luke/) | 28 Mars 2024
 Care Darby Walsh | [Survivre à la mort avec les perceptions de l’éternité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-28-1-jw-care-darby-walsh/) | 28 Mars 2024
 Orion | [La prière est l'outil essentiel de transformation ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-29-1-em-orion/) | 29 Mars 2024
@@ -160,6 +173,7 @@ Bouleau Argenté, Elizabeth, Confucius | [Parle au Cercle de Lumière, est heure
 Seretta Kem | [Les prières inébranlables sont essentielles au développement des médiums de l’Amour Divin ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-7-1-af-seretta-kem/) | 7 Avril 2024
 Seretta Kem | [Encouragement personnel pour Al  et Jeanne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-11-1-af-seretta-kem/) | 11 Avril 2024
 Seretta Kem | [Découverte des attributs de l'âme ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-13-1-mc-seretta-kem/) | 13 Avril 2024
+Judas | [Influence spirituelle et boussole morale](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-15-1-jw-judas/) | 15 Avril 2024
 Claire d'Assise | [Pour la Terre et toutes ses créatures](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-18-1-jw-clare-of-assisi/) | 18 Avril 2024
 Ezéchiel | [Répandez la vérité de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-21-1-af-ezekiel/) | 21 Avril 2024
 Amon | [Nous nous réjouissons en vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-22-1-jw-amon/) | 22 Avril 2024
@@ -171,10 +185,22 @@ Barbara Davies | [Présente 8 anges chargés de travailler avec notre groupe ](/
 Orion | [Du temps et de l’absence de temps ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-7-1-af-orion/) | 7 Mai 2024
 Naari et Jésus | [Se présente comme l'un des anges Célestes anonymes qui viennent nous administrer à tous la guérison, la bénédiction de la guérison ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-7-2-af-naari-and-jesus/) | 7 Mai 2024
 St Paul | [Dieu nous a donné à chacun un guide Céleste pour nous aider dans nos luttes sur Terre ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-10-1-af-st-paul/) | 10 Mai 2024
+Lao Tseu | [Les changements qui accompagnent l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-11-1-af-lao-tszu/) | 11 Mai 2024
+Orion | [Les changements terrestres à venir auront leurs effets](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-11-2-af-orion/) | 11 Mai 2024
 Khalil Gibran | [Le réveil d'un rêve](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-13-1-jw-khalil-gibran/) | 13 Mai 2024
 Jean le Bien Aimé | [Vos prières sont exaucées sur les ailes de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-14-1-af-john-the-beloved/) | 14 Mai 2024
 Confucius | [Dieu et les anges nous donneront l’énergie et les ressources nécessaires pour partager les vérités de l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-14-2-af-confucius/) | 14 Mai 2024
+Orion | [Développer et partager vos dons ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-14-3-af-orion/) | 14 Mai 2024
 Charlie Chaplin | [L'humour restauré dans l'Amour ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-20-1-jw-charlie-chaplin/) | 20 Mai 2024
+jésus | [Les anges parcourent un long chemin pour être avec vous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-21-1-af-jesus/) | 21 Mai 2024
+Yogananda | [Une leçon sur la vérité ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-22-1-af-yogananda/) | 22 Mai 2024
+Seretta kem | [Les interventions de guérison sont accessibles à tous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-24-1-af-seretta-kem/) | 24 Mai 2024
+Marie | [Vous n’êtes jamais seul ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-26-1-af-mary/) | 26 Mai 2024
+Care Darby Walsh | [Dites une simple prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-27-1-jw-care-darby-walsh/) | 27 Mai 202
+Augustin | [Leçon profonde sur la conscience de l'âme ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-1-1-af-augustine/) | 1 Juin 2024
+Luc | [L’Essence de Dieu (Amour Divin) dans l’âme de chacun est le fondement du Royaume de Dieu sur terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-2-1-jw-luke/) | 2 Juin 2024
+Eileen  Caddy | [Création d'un sanctuaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-7-1-jw-eileen-caddy/) | 7 Juin 2024
+Joseph | [Fête dds Pères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-10-1-jw-joseph/) | 10 Juin 2024
 
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

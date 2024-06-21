@@ -9,9 +9,9 @@ weight:
 ---
 ### Bénédictions des portails pour tous ceux qui résident ici
 
-Confucius - reçu par Albert Fike le 6 Janvier 2024, Trinidate.
+Confucius - reçu par Albert Fike le 9 Janvier 2024, Trinidate.
 
-Chers précieux enfants de Dieu, que Son Amour trouve refuge dans vos âmes. Une grande abondance de ce don sans fin qui sera le vôtre pour l’éternité. Qu’il vous transforme et vous guériss de toutes les manières. Que vous deveniez l’âme que Dieu a créée et pour laquelle vous êtes créé.
+Chers précieux enfants de Dieu, que Son Amour trouve refuge dans vos âmes. Une grande abondance de ce don sans fin qui sera le vôtre pour l’éternité. Qu’il vous transforme et vous guérisse de toutes les manières. Que vous deveniez l’âme que Dieu a créée et pour laquelle vous êtes créé.
 
 Tout ce que vous êtes sera touché par la grande Essence de l’âme de Dieu et provoquera l’alignement, la guérison et la manifestation de vos magnifiques dons et capacités de l’âme. Ces facultés doivent briller dans la lumière, s’éveiller dans la vérité, s’exprimer dans l’amour. Alignez-vous avec Dieu.
 
@@ -27,6 +27,6 @@ De toutes ces manières, Dieu vous donne de nombreuses bénédictions et opportu
 
 Vous êtes censé être dans la joie, la paix et la grâce de Dieu. Vous devez lutter mes petits oiseaux. Vous devez voler vers le summum de la lumière à travers cette avenue de lumière donnée et être en communion avec votre Père Céleste dans toute la gloire, l’amour, la paix et la joie qui vous attendent dans ce lieu de grande lumière et de présence de Dieu.
 
-Que Dieu vous bénisse, âmes bien-aimées. Je suis Confucius et je vous donne mes bénédictions. Oui, chère fille, à travers votre calligraphie, je communiquerai. Je vais communiquer. Nous aurons des conversations. Tu réaliseras ma présence. Car je me consacrerai à toi, ma fille bien-aimée, et à tes efforts. Ceci est mon cadeau pour toi, mon amour pour toi, âme bien-aimée, précieuse, belle et désireuse d’être une lumière. Nous ferons ce voyage vers la lumière, chère fille. Un voyage puissant, un voyage de transformation et d’amour te sera offert. Car c’est ce que tu désires. Au plus profond de ton e âme se trouve un puissant désir de cela. Vous trouverez la réalisation et l’expression de ces choses de l’âme. Ils viendront voleter vers vous. Oiseaux précieux, votre plumage changera de couleur et vous serez plus beaux que vous n’auriez jamais cru pouvoir l’être.
+Que Dieu vous bénisse, âmes bien-aimées. Je suis Confucius et je vous donne mes bénédictions. Oui, chère fille, à travers votre calligraphie, je communiquerai. Je vais communiquer. Nous aurons des conversations. Tu réaliseras ma présence. Car je me consacrerai à toi, ma fille bien-aimée, et à tes efforts. Ceci est mon cadeau pour toi, mon amour pour toi, âme bien-aimée, précieuse, belle et désireuse d’être une lumière. Nous ferons ce voyage vers la lumière, chère fille. Un voyage puissant, un voyage de transformation et d’amour te sera offert. Car c’est ce que tu désires. Au plus profond de ton âme se trouve un puissant désir de cela. Tu trouveras la réalisation et l’expression de ces choses de l’âme. EIles viendront voleter vers vous. Oiseaux précieux, votre plumage changera de couleur et vous serez plus beaux que vous n’auriez jamais cru pouvoir l’être.
 
 Que Dieu vous bénisse, âmes bien-aimées. Chacun de vous a des anges à ses côtés et des efforts déployés pour votre transformation, votre éducation et la joie qui sont placées et construites en vous à travers Son Amour. Que Dieu vous bénisse. Je vous aime chacun, âmes précieuses. Beaux oiseaux de Dieu, allons-nous voler vers le sein de notre Créateur et connaître la chaleur et l’affection de son âme ? Que Dieu vous bénisse. Que Dieu vous bénisse, bien-aimés. Je vous aime.

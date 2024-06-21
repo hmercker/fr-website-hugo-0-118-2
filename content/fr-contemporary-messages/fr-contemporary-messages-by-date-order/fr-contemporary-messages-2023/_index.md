@@ -236,6 +236,7 @@ Keea Atta Kem | [La chaîne  de l'Amour](/fr-contemporary-messages/fr-contempora
 Kevin O’Neill | [Je suis libre !!](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-9-15-1-af-kevin-oneill/) | 15 Septembre 2023
 Jésus | [Reconnaît Kevin comme un véritable enfant de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-9-15-2-af-jesus/) | 15 Septembre 2023
 Jésus | [Le véritable but de votre âme dans le monde (Cercle de Lumière en ligne 2023)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-9-17-1-af-jesus/) | 17 Septembre 2023
+Jean le Bien Aimé | [Une affaire de cœur ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-9-18-1-jw-john-the-beloved/) | 18 Septembre 2023
 Care Darby Walsh | [Qu'est-ce qui vous attend dans le monde des esprits !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-9-26-1-jw-care-darby-walsh/) | 26 Septembre 2023
 Flavius Josèphe | [Promesses de bénédictions à Laurelville](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-9-29-1-af-josephus/) | 29 Septembre 2023
 Orion | [Conseils pour le groupe des douze à Laurelville](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-6-1-af-orion/) | 6 Octobre 2023

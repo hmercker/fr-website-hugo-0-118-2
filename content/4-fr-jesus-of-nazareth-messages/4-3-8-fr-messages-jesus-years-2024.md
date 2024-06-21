@@ -12,6 +12,7 @@ weight:
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Jésus | [Le voile est levé pour la retraite de Trinidade ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-5-3-af-jesus/) | 5 Janvier 2024
+Jésus  | [Écoutez la Volonté de Dieu et entretenez ce cercle de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-20-2-af-jesus/) | 20 Janvier 2024
 Jésus  | [Bénit et prophétise le travail de James, David, Michael et Patricia à la Barbade ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-21-3-af-jesus/) | 21 Janvier 2024
 Jésus et Marie | [Jésus et Marie réconfortent ceux qui sont en deuil](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-26-1-af-jesus-and-mary/) | 26 Janvier 2024
 Jésus | [Continuez à vous aventurer dans le monde en tant qu’instruments de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-3-2-af-jesus/) | 3 Février 2024
@@ -20,3 +21,4 @@ Jésus | [Nous encourage vers nos destinées ](/fr-contemporary-messages/fr-cont
 Jésus | [Honorer la vieille tradition de prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2027/fr-2024-3-1-3-af-jesus/) | 1 Mars 2024
 Jésus | [Le Sacré-Cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-11-1-jw-jesus/) | 11 Mars 2024
 Jésus | [Que chaque âme individuelle parvienne à connaître l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-13-1-af-jesus/) | 13 Mars 2024
+jésus | [Les anges parcourent un long chemin pour être avec vous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-21-1-af-jesus/) | 21 Mai 2024

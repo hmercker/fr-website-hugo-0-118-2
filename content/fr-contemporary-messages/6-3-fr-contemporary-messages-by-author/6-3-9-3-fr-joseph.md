@@ -48,3 +48,4 @@ Joseph | [Connaître les dons et les bénédictions des anges](/fr-contemporary-
 Joseph | [L’Aube d’une ère nouvelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-11-24-1-af-joseph/) | 24 Novembre 2020
 Joseph | [Importance du phare de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-23-1-em-joseph/) | 23 Mai 2022
 Joseph | [Réflexion sur les sensibilités liées au fait d'avoir un fils différent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-1-1-af-joseph/) | 1 Août 2023
+Joseph | [Fête dds Pères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-10-1-jw-joseph/) | 10 Juin 2024

@@ -148,6 +148,7 @@ Samuel | [Les changements à venir et nos familles](/fr-contemporary-messages/fr
 Samuel | [Deux parcours spirituels distincts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-18-2-af-samuel/) | 18 Avril 2023
 Samuel | [Que Dieu vous enlève les écailles des yeux ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-15-3-af-samuel/) | 15 Août 2023
 Samuel | [Le temps presse ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-30-2-af-samuel/) | 30 Novembre 2023
+Samuel | [Vous ferez grandir l’ombre pour ceux à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-15-5-af-samuel/) | 15 Janvier 2024
 Samiel et Joie | [Vous êtes nécessaires à la transformation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-8-2-em-samuel-and-joy/) | 8 Janvier 2024
 Sarah | [La naissance d'Isaac](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-10-12-1-fab-sarah/) | 12 Octobre 2008
 Saul | [Sur l'élévation des vibrations](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-39-1969-12-3-anonymous-saul/) | 3 Décembre 1969

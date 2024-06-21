@@ -9,7 +9,7 @@ weight:
 ---
 ### L'humour restauré dans l'Amour
 
-Charlie Chaplin - reçu par Jimbeau Walsh le 05 Mai 2024, Nashville, Tennesse, USA.
+Charlie Chaplin - reçu par Jimbeau Walsh le 20 Mai 2024, Nashville, Tennesse, USA.
 
 C'est moi, Charles, votre frère et ami, Charlie Chaplin. Je viens dans l'Aamour de Dieu, et je viens comme promis hier à mon frère que je souhaitais revenir pour parler. J'ai maintenant progressé dans le monde spirituel jusqu'à ce que vous définiriez comme la septième sphère, et je suis submergé de gratitude et de joie. 
 

@@ -1,0 +1,24 @@
+---
+title: "Les interventions de guérison sont accessibles à tous"
+menu_title: ""
+description: "Les interventions de guérison sont accessibles à tous"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Les interventions de guérison sont accessibles à tous 
+
+Seretta Kem - reçu par Albert Fike le 24 Mai 2024, Sechelt, Colombie-Britannique, Canada.
+
+Je m’appelle Seretta Kem. Une grande aide est offerte à chacun d’entre vous au quotidien. Non seulement envers vous, mais aussi envers vos proches, envers tous ceux qui sont liés à vous. Car nous ne restons pas les bras croisés et regardons le déroulement des traumatismes et des difficultés de votre vie sans tenter d’intervenir, pour vous élever et vous soutenir, âmes bien-aimées. À mesure que vous continuez à grandir dans l’Amour du Père, la possibilité de notre rapprochement grandit et rend disponible la voie où nous pouvons être utilisés comme guérisseurs et intervenants dans votre vie.
+
+En effet, vos médecins et autres s’occupent du monde matériel et des aspects techniques de l’intervention et de la guérison pour vous tous. Pourtant, au-delà de cette couche physique, se trouvent de nombreuses autres couches spirituelles, psychiques et métaphysiques. Ces choses peuvent toutes être en jeu pendant une période de guérison et d’intervention. Il est important que vous ayez autour de vous une bonne humeur et des anges Célestes pour vous aider à coordonner et à canaliser diverses bénédictions qui peuvent vous élever et vous aider dans n’importe quelle situation dans laquelle vous vous trouvez.
+
+Je suis proche de beaucoup d’entre vous et avec moi il y a un groupe de guérisseurs, d’anges, qui sont tout à fait disposés et capables de vous aider dans les conditions physiques que vous portez, dans les conditions émotionnelles que vous portez, dans les conditions spirituelles que vous portez. qui ne sont pas en harmonie avec les lois de Dieu et les lois de bonne santé et d’harmonie. Je souhaite donc vous rappeler, comme cette chère et belle enfant de Dieu l’a fait avec son histoire, qu’il y en a beaucoup qui sont disponibles à votre écoute et qui peuvent venir vous aider pendant que vous priez et demandez cette aide et cette assistance.
+
+Dieu nous bénit tous. Le flux de ces bénédictions et énergies vient de Dieu. Nous sommes simplement les canaux et les portails de ces énergies en accord avec nos dons et nos capacités. Dieu a rendu chaque belle âme unique dans ces capacités et dans la combinaison de dons qui peuvent être utilisés au profit de l’humanité. Nous sommes ravis de vous aider lorsque vous êtes confronté à des procédures difficiles et à des situations difficiles qui peuvent vous causer de la détresse et de la douleur et que vous vous sentez vulnérable dans ces situations. Sachez que nous viendrons vous soutenir et vous élever. Nous viendrons soutenir et élever ceux qui sont autour de vous qui font partie de l’équipe, les équipes médicales et autres qui sont là pour intervenir en votre faveur.
+
+Mes amis bien-aimés, sachez que Dieu a toujours une solution, un plan, une voie, une approche pour faire face à ces choses qui ne sont pas en harmonie avec la vie, avec facilité et joie. Dieu cherche à éliminer votre douleur, à vous aider dans votre cheminement vers la libération de la douleur, pour améliorer la joie, le bien-être et la santé, à condition que vous fassiez votre part, âmes bien-aimées, en entretenant votre propre corps magnifique, en entretenant votre propre bien-être, en entretenant votre âme. Vient ensuite des interventions puissantes, un soutien puissant pour amplifier vos propres efforts et de ceux qui vous entourent pour vous soutenir. Beaucoup peut être donné, âmes bien-aimées, sur les ailes de la prière, dans la foulée du désir, sur tout ce que vous faites pour ouvrir les Portails et les bénédictions, les Treillis de Lumière, les conditions et le rayonnement de la grande Âme de Dieu dans votre vie. Ces choses arrivent si vous êtes réceptif, si vous avez une grande foi et si vous priez et désirez ces bénédictions. Ils viennent en abondance et ils interviendront et vous soutiendront.
+
+Que Dieu vous bénisse dans votre voyage. Priez pour le grand don de l’Amour de Dieu, le Guérisseur ultime, le Consolateur ultime. En cela, tout arrive et tout vous bénira, vous soutiendra et vous sera bénéfique. Que Dieu vous bénisse. Je m’appelle Seretta Kem. Mon amour pour vous est grand, mes amis, vraiment grand. De belles âmes recherchent la vérité, recherchent les bénédictions de Dieu, et elles viennent donc à vous de plusieurs manières. Ces choses arrivent à travers de nombreux instruments et intermédiaires. Que Dieu vous bénisse. Que Dieu vous bénisse tous.

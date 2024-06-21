@@ -9,7 +9,7 @@ weight:
 ---
 ### L’Amour de Dieu mène à une vie de service
 
-Claire d'Assise - reçu par Jimbeau Walsh le 29 Octobre 2021, Vncouver, Colombie-Britannique, Canada.
+Claire d'Assise - reçu par Jimbeau Walsh le 29 Octobre 2021, Vancouver, Colombie-Britannique, Canada.
 
 Mes chères souris, c’est moi, votre sœur Claire.
 

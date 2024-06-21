@@ -244,4 +244,5 @@ Seretta Kem | [Un message pour les membres des cercles de développement ](/fr-c
 Seretta Kem | [Les prières inébranlables sont essentielles au développement des médiums de l’Amour Divin ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-7-1-af-seretta-kem/) | 7 Avril 2024
 Seretta Kem | [Encouragement personnel pour Al  et Jeanne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-11-1-af-seretta-kem/) | 11 Avril 2024
 Seretta Kem | [Découverte des attributs de l'âme ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-13-1-mc-seretta-kem/) | 13 Avril 2024
+Seretta kem | [Les interventions de guérison sont accessibles à tous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-24-1-af-seretta-kem/) | 24 Mai 2024
 

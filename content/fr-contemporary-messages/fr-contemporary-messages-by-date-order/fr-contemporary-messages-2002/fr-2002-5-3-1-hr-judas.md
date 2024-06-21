@@ -91,7 +91,7 @@ Je veux analyser avec toi et montrer comment cette parabole est relatée et inte
 
 **Judas** :
 
-Certainement. Dans l’Ancien Testament, tu peux lire, dans de nombreux cas, comment la loi définit un traitement différent des Juifs et des non-Juifs. Ce qui n’était pas légal de faire à un Juif pouvait être légal de le faire à un païen.
+Certainement. **Dans l’Ancien Testament, tu peux lire, dans de nombreux cas, comment la loi définit un traitement différent des Juifs et des non-Juifs. Ce qui n’était pas légal de faire à un Juif pouvait être légal de le faire à un païen.**
 
 > <u>Le livre d’Urantia</u> :
 <br>
@@ -99,7 +99,7 @@ Certainement. Dans l’Ancien Testament, tu peux lire, dans de nombreux cas, com
 > Mais Jésus discerna le motif du docteur de la loi et, au lieu de tomber dans le piège, il se mit à raconter à ses auditeurs une histoire, une histoire qui pourrait être pleinement appréciée par n’importe quel auditoire de Jéricho.
 <br>
 <br>
-> Jésus dit alors : « Un homme descendait de Jérusalem à Jéricho, Il est tombé entre les mains de bandits qui l’ont dépouillé de ses vêtements, battu et laissé pour mort. Très vite, par hasard, un certain prêtre descendait ce même chemin lorsqu’il est tombé sur l’homme blessé, voyant sa situation tragique, il passa de l’autre côté de la route. De la même manière un lévite passa, quand il se rapprocha et vit l’homme, il passa de  l’autre côté. C’est alors qu’un certain Samaritain, qui se rendait à Jéricho, est tombé sur cet homme blessé ; quand il a vu comment il avait été volé et battu, il fut pris de compassion, et,  allant vers lui, il pansa ses blessures, versant de l’huile et du vin et il plaça l’homme sur sa propre monture, l’amena à cette auberge et prit soin de lui. Le lendemain, il sortit un peu d’argent, le donna à l’aubergiste et lui dit : *« Prenez bien soin de mon ami, et si  vous dépensez plus, je vous rembourserai à mon retour. »* Maintenant, permettez-moi de vous demander : *« Lequel de ces trois s’est avéré être le prochain de celui qui est tombé parmi les voleurs ? »*
+> Jésus dit alors : *« Un homme descendait de Jérusalem à Jéricho, Il est tombé entre les mains de bandits qui l’ont dépouillé de ses vêtements, battu et laissé pour mort. Très vite, par hasard, un certain prêtre descendait ce même chemin lorsqu’il est tombé sur l’homme blessé, voyant sa situation tragique, il passa de l’autre côté de la route. De la même manière un lévite passa, quand il se rapprocha et vit l’homme, il passa de  l’autre côté. C’est alors qu’un certain Samaritain, qui se rendait à Jéricho, est tombé sur cet homme blessé ; quand il a vu comment il avait été volé et battu, il fut pris de compassion, et,  allant vers lui, il pansa ses blessures, versant de l’huile et du vin et il plaça l’homme sur sa propre monture, l’amena à cette auberge et prit soin de lui.* Le lendemain, il sortit un peu d’argent, le donna à l’aubergiste et lui dit : *« Prenez bien soin de mon ami, et si  vous dépensez plus, je vous rembourserai à mon retour. »* Maintenant, permettez-moi de vous demander : *« Lequel de ces trois s’est avéré être le prochain de celui qui est tombé parmi les voleurs ? »*
 <br>
 <br>
 > Et comme le docteur de la loi voyait qu’il était tombé dans son propre piège, il répondit : *« Celui qui a fait preuve de plus de miséricorde à son égard. »* Et Jésus lui dit : *« Va et fais de même. »*
@@ -109,13 +109,13 @@ Certainement. Dans l’Ancien Testament, tu peux lire, dans de nombreux cas, com
 
 **Judas** :
 
-Ce n’était pas une hérésie de désigner un Samaritain comme « son prochain ». Mais logiquement, compte tenu de l’opinion des Juifs envers les Samaritains, cette déclaration était très provocatrice, même scandaleuse. Et ce fut le Pharisien qui eut à la prononcer, en raison de l’ingénieuse stratégie de Jésus.
+Ce n’était pas une hérésie de désigner un Samaritain comme *« son prochain »*. Mais logiquement, compte tenu de l’opinion des Juifs envers les Samaritains, cette déclaration était très provocatrice, même scandaleuse. Et ce fut le Pharisien qui eut à la prononcer, en raison de l’ingénieuse stratégie de Jésus.
 
-Donc, mon cher frère, le livre d’Urantia nous donne exactement la même interprétation que l’on peut lire dans de nombreux commentaires. La base de cette interprétation est la question initiale du docteur de la loi : Qui est notre prochain ? Et la réponse, bien entendu, est : Tout le monde est notre prochain Juif, Gentil et même Samaritain.
+Donc, mon cher frère, le livre d’Urantia nous donne exactement la même interprétation que l’on peut lire dans de nombreux commentaires. La base de cette interprétation est la question initiale du docteur de la loi : Qui est notre prochain ? Et la réponse, bien entendu, est : *Tout le monde est notre prochain Juif, Gentil et même Samaritain.*
 
-Dans l’exemple de la parabole de la graine de moutarde, j’ai déjà expliqué comment Jésus a formulé ses paraboles de façon très provocante, afin d’obtenir l’attention de ses auditeurs et à les amener à réfléchir et à méditer. La même chose se passe ici, parce que, pour les Juifs, il n’y avait aucun « bon Samaritain ». Tout le monde s’attendait, après la scène du prêtre et du Lévite, qu’un Juif ordinaire entre bientôt en scène. Mais non, ce fut un Samaritain, la provocation des provocations.
+Dans l’exemple de la parabole de la graine de moutarde, j’ai déjà expliqué comment Jésus a formulé ses paraboles de façon très provocante, afin d’obtenir l’attention de ses auditeurs et à les amener à réfléchir et à méditer. La même chose se passe ici, parce que, pour les Juifs, il n’y avait aucun *« bon Samaritain »*. Tout le monde s’attendait, après la scène du prêtre et du Lévite, qu’un Juif ordinaire entre bientôt en scène. Mais non, ce fut un Samaritain, la provocation des provocations.
 
-Je dis que l’explication qui nous est donnée dans le livre d’Urantia, et par tant de prédicateurs, est une explication de premier niveau. C’est la chose la plus évidente, la surface. Mais maintenant, mon cher ami, nous allons approfondir un peu plus. Nous allons aller au-delà des observations courantes, et nous allons jeter une lumière nouvelle sur des aspects plus cachés de cette histoire.
+**Je dis que l’explication qui nous est donnée dans le livre d’Urantia, et par tant de prédicateurs, est une explication <span style="color:red">de premier niveau**</span>. C’est la chose la plus évidente, la surface. Mais maintenant, mon cher ami, nous allons approfondir un peu plus. Nous allons aller au-delà des observations courantes, et nous allons jeter une lumière nouvelle sur des aspects plus cachés de cette histoire.
 
 Cette histoire est en fait beaucoup plus provocatrice. Pourquoi Jésus rapporte-t-il qu’un prêtre et un lévite passèrent par le lieu de l’agression sans prêter assistance ? Pourquoi cette apathie spirituelle et l’inactivité des deux supposés hommes de Dieu, n’a t-elle pas causé le rejet des auditeurs ? Le prêtre et le Lévite avaient agi ainsi, parce qu’ils avaient interprété la Loi de Moïse à leur manière. Le prêtre et le Lévite devaient tous deux faire des offrandes dans le Temple, et ils le pouvaient seulement lorsqu’ils étaient dans leur « état pur », rituellement nettoyés. Cependant, en s’engageant avec un homme grièvement blessé, en danger de mort, ils mettaient en danger leur pureté rituelle. Ils ne pourraient plus assurer leurs fonctions dans le Temple, parce que la loi l’interdisait. Ils ont donc agi avec prudence et laissé le pauvre dans sa misère. En outre, le pauvre Juif moribond avait subi ce malheur à  de ce que [le livre de Deutéronome, chapitre 28, affirme](https://www.aelf.org/bible/Dt/28) : pour ses péchés, il souffrait.
 
@@ -125,17 +125,17 @@ Le docteur de la loi l’a parfaitement compris. Jésus avait attaqué frontalem
 
 En enfreignant la loi suprême de l’amour, ils exposent leur fausse sainteté ; ils démontrent que le fondement de leur droiture est du sable et non pas de la roche solide. Et bien que cela déchirait la poitrine du docteur de la loi, il devait l’admettre.
 
-La volonté de Dieu est écrite dans l’Amour et pas dans les lettres de la Loi.
+**La volonté de Dieu est écrite dans l’Amour et pas dans les lettres de la Loi.**
 
 Ne trouves-tu pas cela vraiment clair ? Te rappelles-tu une histoire que tu as lue il y a quelques temps ? Je vais te rafraîchir la mémoire.
 
-Un jour, un professeur de théologie a demandé à ses élèves de préparer un exposé concis sur la parabole du « Bon Samaritain ». Il les a alors envoyé prononcer ce discours dans les différentes classes de l’école. Il a accordé plus de temps à certains et très peu de temps à d’autres, ils devaient donc donner leur exposé à toute vitesse et passer immédiatement à la classe suivante.
+Un jour, un professeur de théologie a demandé à ses élèves de préparer un exposé concis sur la parabole du *« Bon Samaritain »*. Il les a alors envoyé prononcer ce discours dans les différentes classes de l’école. Il a accordé plus de temps à certains et très peu de temps à d’autres, ils devaient donc donner leur exposé à toute vitesse et passer immédiatement à la classe suivante.
 
 Sur leur chemin, ils ont croisé un misérable mendiant. Peu ont porté attention à lui, et ceux qui étaient dans la plus grande hâte ne lui ont jamais prêté aucune attention. Cependant, le mendiant était la pierre angulaire que le professeur avait mise sur leur chemin. Bien que tous les élèves aient eu la parabole à l’esprit, fraîche et vivante, ils ont oublié l’application pratique de son interprétation, d’aider son prochain, parce qu’une loi, l’ordre du professeur de terminer leur travail pour une certaine heure, était plus importante pour eux qu’une démonstration pratique de leur amour. Ils se sont comportés exactement comme le prêtre et le Lévite ont fait dans l’histoire.
 
 Ne penses-tu pas que cette mentalité continue ? Et malheureusement, les gens ne le réalisent pas. Oui, la conscience des personnes se déplace sur différents niveaux, et à moins que leur niveau de compréhension s’élève, ils ne réaliseront jamais leurs fautes.
 
-Je vais appeler cette interprétation de la parabole, l’explication de deuxième niveau. C’est la chose la moins évidente, dans laquelle tu peux percevoir une certaine profondeur.
+**Je vais appeler cette interprétation de la parabole, l’explication <span style="color:red">de deuxième niveau</span>. C’est la chose la moins évidente, dans laquelle tu peux percevoir une certaine profondeur.**
 
 Il y a pourtant encore une autre explication de la parabole, une explication peu évidente, même cachée, qu’aucun des auditeurs n’a découverte à ce moment-là. Cependant, Jésus comprenait très bien ce niveau d’interprétation.
 
@@ -149,19 +149,19 @@ Ceci est bien entendu rigoureusement exact. Parce qu’au fond, c’est le probl
 
 Oui, je sais, tu te demandes comment Jésus, en revanche, a pu subir tous les abus auxquels il fut soumis, alors qu’il ne projetait que son amour sur autrui. Pourquoi cet amour ne s’est-il pas matérialisé ?
 
-En réalité, la concrétisation de tes attentes n’est possible dans « l’autre » que dans la mesure où il a déjà l’équivalent de celle-ci dans son âme. Si son amour dort profondément, enfoui sous des couches épaisses du péché et du mal, ton amour pour lui peut difficilement se matérialiser sous la forme d’une attitude réciproque.
+*En réalité, la concrétisation de tes attentes n’est possible dans « l’autre » que dans la mesure où il a déjà l’équivalent de celle-ci dans son âme. Si son amour dort profondément, enfoui sous des couches épaisses du péché et du mal, ton amour pour lui peut difficilement se matérialiser sous la forme d’une attitude réciproque.*
 
-Toutefois, dans la plupart des cas, tu vas réussir, parce que la plupart des gens ont seulement besoin de ce stimulus, de cette ouverture et de cette chaleur, afin d’être en mesure de mobiliser la gentillesse qui existe en eux et de réagir en conséquence.
+*Toutefois, dans la plupart des cas, tu vas réussir, parce que la plupart des gens ont seulement besoin de ce stimulus, de cette ouverture et de cette chaleur, afin d’être en mesure de mobiliser la gentillesse qui existe en eux et de réagir en conséquence.*
 
 T’es-tu déjà demandé pourquoi le Samaritain pouvait voyager en territoire Juif, sans faire de mauvaises rencontres ? T’es-tu déjà demandé pourquoi l’aubergiste, un Juif, bien sûr, l’a reçu à bras ouverts ? T’es-tu déjà demandé pourquoi « la pensée positive » est si efficace ?
 
-C’est une loi universelle. Comme toute loi naturelle, elle est neutre dans son fonctionnement. Nous appliquons sa charge positive ou négative, selon notre façon d’agir. Les actes négatifs sont le cancer de la société humaine, provoquant la réponse négative chez les autres.
+C’est une loi universelle. Comme toute loi naturelle, elle est neutre dans son fonctionnement. Nous appliquons sa charge positive ou négative, selon notre façon d’agir. **Les actes négatifs sont le cancer de la société humaine, provoquant la réponse négative chez les autres.**
 
 Tu pourrais aussi dire que si « l’autre » n’existe pas dans une telle forme indépendante, mais est plutôt, dans une large mesure, le fantôme de nos attentes, alors il est faux de dire « nous et eux » comme si le seul mot correct est « nous ». La distinction entre nous et eux, les Juifs et les Samaritains, Catholiques et Protestants, etc, n’est rien d’autre que l’expression ou la matérialisation du manque de compréhension humaine sur ce sujet extrêmement important. Personne n’est une île en soi. Chacun vit dans un système entrelacé, où il agit, et où d’autres provoquent aussi des réactions en eux.
 
 Le seul moyen de briser ce cycle potentiel du mal, car il existe maintenant et a, en effet, toujours existé, est de donner une base solide à nos actions, et la seule base possible est celle de l’AMOUR. J’écris ce mot en majuscule, parce que même l’amour naturel est souple et malléable, et cela peut facilement changer sa polarité.
 
-C’est la leçon que nous pouvons apprendre du bon Samaritain. Il s’agit de la leçon spirituelle, le troisième niveau. Tu risques de perdre ton pari, tu pourras subir des déceptions, mais dans la plupart des cas, ton attitude aimante sera récompensée, même dans cette vie terrestre. C’est ce qui signifie être la « lumière du monde », la mettre en hauteur, de sorte qu’elle puisse briller dans l’obscurité de la négativité, afin qu’elle puisse servir de point de cristallisation pour un monde nouveau et meilleur.
+C’est la leçon que nous pouvons apprendre du bon Samaritain. **Il s’agit de la leçon spirituelle, <span style="color:red">le troisième niveau.</span>** Tu risques de perdre ton pari, tu pourras subir des déceptions, mais dans la plupart des cas, ton attitude aimante sera récompensée, même dans cette vie terrestre. C’est ce qui signifie être la « lumière du monde », la mettre en hauteur, de sorte qu’elle puisse briller dans l’obscurité de la négativité, afin qu’elle puisse servir de point de cristallisation pour un monde nouveau et meilleur.
 
 L’homme n’est pas indépendant. Il est le prisonnier d’un tourbillon d’émotions, et sa mentalité est teintée par la polarisation de l’atmosphère dans laquelle il vit. Si vous ne voulez pas être freiné par ce tourbillon, mais servir comme un point fixe, comme un pilier stable dans ce monde, il faut intégrer ce qui est stable et ne jamais changer : L’Amour que notre Père Céleste a pour nous.
 

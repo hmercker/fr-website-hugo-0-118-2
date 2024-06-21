@@ -67,6 +67,7 @@ Judas | [Avoir la Foi](/fr-contemporary-messages/fr-contemporary-messages-by-dat
 Care Darby Walsh | [Tomber en Grace](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-20-1-jw-care-derby-walsh/) | 20 Juillet 2022
 Thomas l’Apôtre | [L'âme touchée par Dieu est la vraie preuve](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-25-1-jw-thomas-the-apostle/) | 25 Juillet 2022
 Jean le Bien-Aimé | [Nous sommes tous aimés par Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-1-1-jw-john-the-beloved/) | 1 Août 2022
+Jean le Bien Aimé | [Nous sommes tous aimés de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-10-1-jw-john-the-beloved/) | 10 Août 2022
 Care Darby Walsh | [De nombreuses façons de donner de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-22-2-jw-care-derby-walsh/) | 22 Août 2022
 Judas | [Chaque crise est une opportunité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-23-1-jw-judas/) | 23 Août 2022
 Judas | [Les deux frères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-23-2-jw-judas/) | 23 Août 2022

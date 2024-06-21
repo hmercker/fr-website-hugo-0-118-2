@@ -48,3 +48,4 @@ Eileen Caddy | [Orientation, vision et actualisation](/fr-contemporary-messages/
 Eileen Caddy | [Comment être dans le monde et non pas du monde ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-19-1-jw-eileen-caddy/) | 19 Septembre 2022
 Eileen Caddy | [Orientation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-24-1-jw-eileen-caddy/) | 24 Avril 2023
 Eileen Caddy | [Recherchez vos talents pour servir Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-3-1-af-eileen-caddy/) | 3 Février 2024
+Eileen  Caddy | [Création d'un sanctuaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-7-1-jw-eileen-caddy/) | 7 Juin 2024
