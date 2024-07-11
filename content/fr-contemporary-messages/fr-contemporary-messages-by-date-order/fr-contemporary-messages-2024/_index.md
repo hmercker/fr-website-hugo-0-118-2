@@ -199,8 +199,28 @@ Marie | [Vous n’êtes jamais seul ](/fr-contemporary-messages/fr-contemporary-
 Care Darby Walsh | [Dites une simple prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-27-1-jw-care-darby-walsh/) | 27 Mai 202
 Augustin | [Leçon profonde sur la conscience de l'âme ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-1-1-af-augustine/) | 1 Juin 2024
 Luc | [L’Essence de Dieu (Amour Divin) dans l’âme de chacun est le fondement du Royaume de Dieu sur terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-2-1-jw-luke/) | 2 Juin 2024
+Faith | [Marcher dans la foi et partager la vérité de l'Amour Divin ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-4-1-af-faith/) | 4 Juin 2024
 Eileen  Caddy | [Création d'un sanctuaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-7-1-jw-eileen-caddy/) | 7 Juin 2024
-Joseph | [Fête dds Pères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-10-1-jw-joseph/) | 10 Juin 2024
+Joseph | [Fête des Pères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-10-1-jw-joseph/) | 10 Juin 2024
+Aaron | [Conseils en matière de communication interpersonnelle ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-11-1-af-aaron/) | 11 Juin 2024
+Élie | [ Priez Dieu de racheter votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-14-1-af-elijah/) | 14 Juin 2024
+Jean le Baptiste | [Confirme le message de Jésus pour le fête des pères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-16-1-em-john-the-baptist/) | 16 Juin 2024
+Judas | [L'Amour de Dieu a déjà conquis le Monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-17-1-jw-judas/) | 17 Juin 2024
+Eaux vives | [Un nouvel ange qui nous apporte une grande lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-18-1-af-bright-waters/) | 18 Juin 2024
+Jeanna d'Arc | [Permettez à Dieu d'être connecté à vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-23-1-em-joan-of-arc/) | 23 Juin 2024
+Care Darby Walsh | [La Nouvelle  Naissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-24-1-jw-care-darby-walsh/) | 24 Juin 2024
+Barbara Davies | [Permettez à ce don de faire son œuvre, cette bénédiction de transformation pour chacun d'entre vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-24-2-af-barbara-davies/) | 24 Juin 2024
+Kahlil Gibran | [Amour Infini](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-25-1-jw-kahlil-gibran/) | 25 Juin 2024
+Luc | [Prières magnétiques](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-25-2-jw-luke/) | 25 Juin 2024
+André | [Pour l'instant, apprenez grâce à vos capacités mentales, aimez grâce à vos capacités d'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-26-1-em-andrew/) | 26 Juin 2024
+Confucius | [Soyez fidèle à vous-même et à votre Créateur ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-28-1-af-confucius/) | 28 Juin 2024
+Grace Jordan | [ Grace dit la vérité à son fils ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-29-1-af-grace-jordan/) | 29 Juin 2024
+Luc | [Communion spirituelle et communauté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-30-1-jw-luke/) | 30 Juin 2024
+Jésus | [Jésus encourage Cliff](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-30-2-af-jesus/) | 30 Juin 2024
+Marie | [Vous servez le Ciel et la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-30-3-mc-mary/) | 30 Juin 2024
+Moïse | [Un chercheur reçoit une invitation ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-30-4-em-moses/) | 30 Juin 2024
+Confucius | [Poursuivre le voyage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-1-1-af-confucius/) | 1 Juillet 2024
+Augustin | [Suivre la volonté de Dieu et la loi de progression ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-5-1-af-augustine/) | 5 Juillet 2024
 
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

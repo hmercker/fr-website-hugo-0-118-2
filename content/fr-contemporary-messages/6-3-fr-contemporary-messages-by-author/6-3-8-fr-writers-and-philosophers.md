@@ -69,6 +69,7 @@ Kahlil Gibran | [Continuer à avancer](/fr-contemporary-messages/fr-contemporary
 Kahlil Gibran | [Que votre amour soit un baume de guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-29-1-jw-kahlil-gibran/) | 29 Janvier 2021
 Kahlil Gibran | [Le désir de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-21-3-jw-kahlil-gibran/) | 21 Mai 2022
 Khalil Gibran | [Le réveil d'un rêve](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-13-1-jw-khalil-gibran/) | 13 Mai 2024
+Kahlil Gibran | [Amour Infini](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-25-1-jw-kahlil-gibran/) | 25 Juin 2024
 Karl Marx | [Le célèbre révolutionnaire connaît la confusion.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-9-24-1-fab-karl-marx/) | 24 Septembre 2007
 Karl Marx | [Les difficultés de Karl Marx](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-27-1-fab-karl-marx/) | 27 Mai 2009
 Lady Murasaki | [Une ancienne et célèbre Romancière Japonaise a fait l'expérience de la Nouvelle Naissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-10-20-1-fab-lady-murasaki/) | 20 Octobre 2006

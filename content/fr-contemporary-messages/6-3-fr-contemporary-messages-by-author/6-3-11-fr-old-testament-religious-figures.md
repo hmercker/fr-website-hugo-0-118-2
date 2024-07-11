@@ -19,6 +19,7 @@ Aaron | [Soyez l'agent actif de Dieu pour le changement](/fr-contemporary-messag
 Aaron | [Nous supplie de faire notre part pour être intégrés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-2-3-af-aaron/) | 2 Juin 2021
 Aaron | [Le plus grand obstacle à la lumière dans votre monde est l’ignorance et l’apathie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-11-1-af-aaron/) | 11 Juillet 2021
 Aaron | [Nous rappelle nos engagements et ce qu'il faut faire pour surmonter nos difficultés (2021 Groupe des douze)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-9-1-af-aaron/) | 9 Octobre 2021
+Aaron | [Conseils en matière de communication interpersonnelle ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-11-1-af-aaron/) | 11 Juin 2024
 Abraham   | [Abraham a toujours été proche de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-4-24-2-fab-abraham/) | 24 Avril 2003
 Abraham   | [La profession d’Abraham](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-6-11-1-fab-abraham/) | 11 Juin 2010
 Abraham   | [Abraham et la Chaldée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-2-19-1-fab-abraham/) | 19 Février 2011
@@ -33,6 +34,7 @@ Daniel | [Expérience de Daniel avec l’Amour Divin](/fr-contemporary-messages/
 Élie | [Affirme la prophétie de ces temps](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-2-2-af-elijah/) | 2 Juillet 2021
 Élie | [Vous devez vraiment connaître votre propre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-7-1-af-elijah/) | 7 Août 2021
 Élie | [Les vents du changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-30-1-af-elijah/) | 30 Novembre 2023
+Élie | [ Priez Dieu de racheter votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-14-1-af-elijah/) | 14 Juin 2024
 Élie & Isaïe | [Les âmes que vous attirerez pour travailler ensemble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-16-1-af-elijah-isaiah/) | 16 Décembre 2017
 Ezéchiel | [Heureux ceux qui sont prêts à aimer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-20-1-af-ezekiel/) | 20 Mai 2014
 Ézéchiel | [Dieu rassemble des lumières du monde entier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-16-1-af-ezekiel/) | 16 Mars 2021

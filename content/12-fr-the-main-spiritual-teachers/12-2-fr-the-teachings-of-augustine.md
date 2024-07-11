@@ -323,4 +323,5 @@ Augustin | [Atteindre la conscience de l'âme](/fr-contemporary-messages/fr-cont
 Augustin | [Répond à notre conversation en se demandant pourquoi les humains ne répondent pas aux opportunités d'Amour Divin ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-14-2-af-augustine/) | 14 Mars 2024
 Augustin | [Vous grandissez dans la lumière en tant qu’émissaires de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-18-2-af-augustin/) | 18 Mars 2024
 Augustin | [Dieu utilise ceux qui ont de l’amour et de la compassion ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-5-1-af-augustine/) | 5 Mai 2024
+Augustin | [Suivre la volonté de Dieu et la loi de progression ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-5-1-af-augustine/) | 5 Juillet 2024
 

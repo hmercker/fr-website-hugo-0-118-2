@@ -26,3 +26,4 @@ Barbara Davies | [Faire la Volonté de Dieu](/fr-contemporary-messages/fr-contem
 Barbara Davies | [Allez plus profondément pour être dans vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-16-1-af-barbara-davies/) | 16 Janvier 2024
 Barbara Davies | [Apportez vos obstacles à Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-15-2-mc-barbara-davies/) | 15 Février 2024
 Barbara Davies | [Présente 8 anges chargés de travailler avec notre groupe ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-6-1-af-barbara-davies/) | 6 Mai 2024
+Barbara Davies | [Permettez à ce don de faire son œuvre, cette bénédiction de transformation pour chacun d'entre vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-24-2-af-barbara-davies/) | 24 Juin 2024

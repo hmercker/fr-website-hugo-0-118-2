@@ -137,3 +137,4 @@ André | [Votre service envers Dieu grandira avec votre âme](/fr-contemporary-m
 André | [Bénédictions pour l'anniversaire de Dorothée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-14-1-af-andrew/) | 14 Novembre 2023
 André | [Nous sommes tous appelés à servir Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-24-1-af-andrew/) | 24 Novembre 2023
 André | [Les anges viennent sur Terre pour enseigner les vérités de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-13-1-af-andrew/) | 13 Février 2024
+André | [Pour l'instant, apprenez grâce à vos capacités mentales, aimez grâce à vos capacités d'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-26-1-em-andrew/) | 26 Juin 2024

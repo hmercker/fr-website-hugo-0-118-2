@@ -84,3 +84,4 @@ Care Darby Walsh | [Embrassez-les comme Dieu vous a embrassé](/fr-contemporary-
 Care Darby Walsh | [Toutes choses conspirent pour votre bonheur dans l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-12-1-jw-care-darby-walsh/) | 12 Février 2024
 Care Darby Walsh | [Survivre à la mort avec les perceptions de l’éternité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-28-1-jw-care-darby-walsh/) | 28 Mars 2024
 Care Darby  Walsh | [La transformation de l’âme dans l’Amour de Dieu est réelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-3-1-jw-care-darby-walsh/) | 3 Mai 2024
+Care Darby Walsh | [La Nouveelle  Naissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-24-1-jw-care-darby-walsh/) | 24 Juin 2024

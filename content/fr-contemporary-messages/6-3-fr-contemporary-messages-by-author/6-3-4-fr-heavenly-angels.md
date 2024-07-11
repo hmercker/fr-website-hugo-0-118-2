@@ -19,6 +19,7 @@ Archange Gabriel | [La mort et la résurrection de Jésus](/fr-contemporary-mess
 Archange Michael | [Déclaration du début de la transformation de notre monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-17-3-af-archangel-michael/) | 17 Décembre 2021
 Archange Michael et Luc | [Guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-26-2-em-archangel-michael-and-luke/) | 26 Février 2024
 Bouleau Argenté, Elizabeth, Confucius | [Parle au Cercle de Lumière, est heureux et honoré de travailler avec le Cercle de Lumière de Manly, apporte des dons de guérison au Cercle de Manly ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-6-1-af-silver-birch-elizabeth-confucius/) | 6 Avril 2024
+Eaux vives | [Un nouvel ange qui nous apporte une grande lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-18-1-af-bright-waters/) | 18 Juin 2024
 Elyon | [Un message d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-1-6-1-na-elyon/) | 6 Janvier 2006
 Emi et Martin Luther | [Courage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-7-13-1-hm-emi-martin-luther/) | 13 Juillet 2017
 Emmanuel | [Parle de la beauté du jardin de nos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-8-3-af-immanuel/) | 8 Mars 2024
@@ -96,6 +97,7 @@ Goldie | [Nous demande de déposer des fleurs à l’autel de WHC](/fr-contempor
 Goldie | [Mangez de la crème glacée pour célébrer l'Amour de Dieu !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-17-1-af-goldie/) | 17 Novembre 2022
 Grace | [Un message de réconfort](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-24-3-af-grace/) | 24 Novembre 2022
 Grace Jordan | [Confirmation du message de Barbara_2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-21-3-af-grace-jordan/) | 21 Février 2023
+Grace Jordan | [ Grace dit la vérité à son fils ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-29-1-af-grace-jordan/) | 29 Juin 2024
 James Tudor Sr. | [Laissez les morts enterrer les morts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-21-2-af-james-tudor-sr/) | 21 Janvier 2024
 Jane | [La route magique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-11-17-1-ks-jane/) | 17 Novembre 2002
 Laila | [Marchez chaque jour dans Sa lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-19-3-af-laila/) | 19 Mai 2017

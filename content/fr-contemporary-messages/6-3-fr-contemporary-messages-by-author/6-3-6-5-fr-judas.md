@@ -252,3 +252,4 @@ Judas | [Orchestrer l’Amour](/fr-contemporary-messages/fr-contemporary-message
 Judas | [Les Trois Naissances](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-1-2-jw-judas/) | 1 Avril 2024
 Judas | [Venez au banquet de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-29-1-jw-judas/) | 29 Avril 2024
 Judas | [Amour de soi et Amour Divin ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-18-4-af-judas/) | 18 Mars 2024
+Judas | [L'Amour deDieu adéjà conquis l Monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-17-1-jw-judas/) | 17 Juin 2024

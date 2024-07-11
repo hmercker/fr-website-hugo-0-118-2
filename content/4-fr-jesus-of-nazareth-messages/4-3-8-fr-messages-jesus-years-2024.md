@@ -22,3 +22,5 @@ Jésus | [Honorer la vieille tradition de prière](/fr-contemporary-messages/fr-
 Jésus | [Le Sacré-Cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-11-1-jw-jesus/) | 11 Mars 2024
 Jésus | [Que chaque âme individuelle parvienne à connaître l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-13-1-af-jesus/) | 13 Mars 2024
 jésus | [Les anges parcourent un long chemin pour être avec vous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-21-1-af-jesus/) | 21 Mai 2024
+Jésus | [La grâce de l'essence de Dieu s'accompagne de responsabilité ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-13-1-af-jesus/) | 13 Juin 2024
+Jésus | [Jésus encourage Cliff](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-30-2-af-jesus/) | 30 Juin 2024
