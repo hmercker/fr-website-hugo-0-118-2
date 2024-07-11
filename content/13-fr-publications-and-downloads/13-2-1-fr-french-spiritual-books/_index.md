@@ -66,3 +66,20 @@ Les  extraits ci-dessous sont tous relatifs aux quatre principaux livres publié
 ![Title](/13-fr-publications-and-downloads/13-2-1-fr-french-spiritual-books/fr-heaven-and-earth-cover.jpg) [Le Ciel et la Terre](/13-fr-publications-and-downloads/13-2-1-fr-french-spiritual-books/fr-le-ciel-et-la-terre.pdf) | Dans ces huit chapitres, Robert Hugh Benson donne un aperçu de la vie dans le monde des esprits, de la construction d'une extension de sa maison et d'autres conditions, et commente des sujets importants tels que la beauté, le service, l'unité religieuse et la manière de parvenir à la paix dans le monde. Bien que transmis à l'origine à la fin de la Seconde Guerre mondiale, ses propos s'appliquent toujours à notre vie actuelle, en particulier en ce qui concerne l'unité et la paix dans le monde. |[Amazon](https://www.amazon.com/Heaven-Earth-spirit-communications-Monsignor/dp/1908421436)
 ![Title](/13-fr-publications-and-downloads/13-2-1-fr-french-spiritual-books/fr-here-and-hereafter.png) [Ici et Après](/13-fr-publications-and-downloads/13-2-1-fr-french-spiritual-books/fr-ici-et-après.pdf)| Ce livre explore divers sujets, notamment la nature de l'âme, le processus de réincarnation et les expériences des esprits dans l'au-delà. Il aborde également les questions de l'existence du ciel et de l'enfer et du but de la vie sur Terre. Dans l'ensemble, "Here and Hereafter" est une exploration intrigante et stimulante de la nature de l'au-delà et des possibilités de communication entre les vivants et les morts. | [Amazon](https://www.amazon.com/Here-Hereafter-Anthony-Borgia/dp/0853840652)
 
+<span style="color:red">
+**PUBLICATIONS de DAVID ET TAKEKO HOSE**
+</span>
+
+**Titre et page de couverture** | **Résumé** | **Disponible sur**
+---|---|---
+![Title](/13-fr-publications-and-downloads/13-2-1-fr-french-spiritual-books/fr-every-day-god.jpg) [Chaque Jour Dieu](/13-fr-publications-and-downloads/13-2-1-fr-french-spiritual-books/fr-chaque-jour-dieu.pdf)| Lorsque Takeko Hose fut accidentellement blessée par balle et est restée paralysée à partir des genoux, elle et son mari, David, ont cherché désespérément l'aide divine à travers une succession de ce que David appelle des "prières nues". Every Day God (Chaque jour Dieu) est le récit d'une communication remarquable entre d’une part les auteurs David et Takeko et d’autre part Dieu. Sans s'attacher aux rituels, sans être une voix hautaine venue de l'au-delà ou une énigme, leur Dieu est un parent chaleureux et attentif, désireux de nourrir et d'aimer inconditionnellement tous Ses enfants. | [Amazon](https://www.amazon.com/Every-Day-God-Heart-Divine/dp/8186685421)
+
+
+<span style="color:red">
+**PUBLICATIONS de RON PAPPALARDO**
+</span>
+
+**Titre et page de couverture** | **Résumé** | **Disponible sur**
+---|---|---
+![Title](/13-fr-publications-and-downloads/13-2-1-fr-french-spiritual-books/fr-messages-de-dieu.jpg) [Messages de Dieu](/13-fr-publications-and-downloads/13-2-1-fr-french-spiritual-books/fr-messages-de-dieu.pdf)| Trois médiums du XXIe siècle - Ron Pappalardo, Rosalie Corame et David Hose - partagent les messages qu'ils ont reçus et qui ont transformé non seulement leur vie, mais aussi celle d'innombrables autres personnes. Les messages sont donnés d'une manière intimement personnelle, facile à lire, et sont appréciés par les personnes de toutes confessions, ou sans confession. Ils révèlent surtout un Dieu qui est avant tout un parent aimant qui souhaite nous encourager et nous aider à atteindre notre potentiel le plus élevé.
+Dans ces pages, des questions difficiles sont traitées - Quel est l'origine du mal ? Quelle est l'origine de la souffrance ?  Comment résoudre les conflits, qu'ils soient personnels, religieux ou politiques ? Que nous réserve l'avenir ? | [Amazon](https://www.amazon.com/Messages-God-Century-Prophets-Speak-ebook/dp/B00CZGIBS0/ref=sr_1_1?crid=X8ARIV95ITQ1&keywords=messages+from+god+Ron+Pappalardo&qid=1677623543&sprefix=messages+from+god+ron+pappalardo%2Caps%2C178&sr=8-1)
