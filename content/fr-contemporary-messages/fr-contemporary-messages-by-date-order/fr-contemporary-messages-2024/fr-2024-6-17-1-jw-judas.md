@@ -7,9 +7,9 @@ draft: False
 hidden: True
 weight:
 ---
-### L'Amour deDieu a déjà conquis l Monde
+### L'Amour de  Dieu a déjà conquis l Monde
 
-Care Darby Walsh - reçu par Jimbeau Walsh le 17 Juin 2024, Nashville, Tennesse, USA.
+Judas - reçu par Jimbeau Walsh le 17 Juin 2024, Nashville, Tennesse, USA.
 
 Mes chers amis, je vous remercie de vous réunir comme vous le faites pour recevoir le grand don de l’Amour de Dieu, en réservant ce temps dans un lieu calme, dans la confiance, dans la foi. Laisser aller le monde pendant ces moments afin que vos âmes puissent s’élever au-dessus de vos préoccupations et demander au Créateur, notre Dieu le plus aimant, de remplir nos âmes à travers son Esprit Saint qui apporte l’amour et nous remplit.
 
