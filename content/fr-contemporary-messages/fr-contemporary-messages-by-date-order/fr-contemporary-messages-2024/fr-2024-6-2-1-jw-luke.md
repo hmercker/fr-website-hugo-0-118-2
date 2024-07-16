@@ -1,13 +1,13 @@
 ---
-title: "Dites une simple prière"
+title: "L’Essence de Dieu (Amour Divin) dans l’âme de chacun est le fondement du Royaume de Dieu sur terre"
 menu_title: ""
-description: "Dites une simple prière"
+description: "L’Essence de Dieu (Amour Divin) dans l’âme de chacun est le fondement du Royaume de Dieu sur terre"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### Dites une simple prière - Vous ne pouvez pas trouver Dieu par le mental
+### L’Essence de Dieu (Amour Divin) dans l’âme de chacun est le fondement du Royaume de Dieu sur terre
 
 Luc - reçu par Jimbeau Walsh le 2 Juin 2024, Nashville, Tennesse, USA.
 

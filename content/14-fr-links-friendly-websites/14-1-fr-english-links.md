@@ -13,7 +13,7 @@ weight: 740
 ---|---|---
 Geoff Cutler | A Spiritual Journey | https://new-birth.net
 Albert Fike  | Soul  Truth | https://soultruth.ca/
-Albert and Jeanna Fike | Divine Love Sanctuary Foundation | https://divinelovesanctuary.com
+Albert and Jeanne Fike | Divine Love Sanctuary Foundation | https://divinelovesanctuary.com
 Eva Peck | Universal Spirituality | http://www.universal-spirituality.net
 Zara Borthwick and Nicholas Arnold |  The Padgett Messages | http://www.thepadgettmessages.net
 Ian Nicol | Truth For All People | https://www.truthforallpeople.com/

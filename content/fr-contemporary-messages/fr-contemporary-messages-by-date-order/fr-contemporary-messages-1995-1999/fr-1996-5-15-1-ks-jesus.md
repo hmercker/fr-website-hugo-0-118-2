@@ -37,6 +37,9 @@ Ainsi, un temps de progression fut de nouveau nécessaire et un retard dans le t
 
 Aujourd'hui, il est l'un des Anges Célestes qui travaillent parmi les hommes et les femmes sur terre, en particulier ceux qui cherchent à connaître la vérité, qui aiment Dieu et veulent que Sa volonté soit faite dans leur vie. Nous avons tous de nombreuses personnes avec lesquelles nous travaillons de temps en temps ; et notre travail est gratifiant lorsque nous voyons les résultats de nos influences se réaliser de jour en jour.
 
+
+
+
 Nous ne nous attendons pas à un grand retournement de situation en un clin d'œil, mais lorsque nous réussissons à influencer un million de personnes à prier, à aimer davantage leur prochain, à cesser de se battre mais plutôt à négocier, nous considérons ces petits pas comme un grand progrès.
 
 Les tendances et les attitudes négatives sont profondément ancrées et doivent subir des séries de changements, petit à petit, avant que la nature de ces individus ne subisse un renversement significatif. Si des millions d'Anges Célestes exercent leur influence sur les cœurs endurcis de l'humanité, il ne fait aucun doute que des progrès seront réalisés.

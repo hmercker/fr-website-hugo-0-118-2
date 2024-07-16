@@ -1,13 +1,13 @@
 ---
-title: "Fête dds Pères"
+title: "Fête des Pères"
 menu_title: ""
-description: "Fête dds Pères"
+description: "Fête des Pères"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### Fête dds Pères
+### Fête des Pères
 
 Joseph - reçu par Jimbeau Walsh le 10 Juin 2024, Nashville, Tennesse, USA.
 
