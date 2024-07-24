@@ -115,7 +115,7 @@ Augustin | [60/40 Défi de l’esprit d’âme_2ème partie](/fr-contemporary-me
 Seretta Kem | [Réponse aux messages vocaux directs historiques](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-18-1-af-seretta-kem/) | 18 Mai 2018
 John Wesley | [Le rôle de la Voix Directe dans l'éveil de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-20-1-af-john-wesley/) | 20 Mai 2018
 Keea Atta Kem | [Prenez des dispositions pour vous réunir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-20-2-af-keea-atta-kem/) | 20 Mai 2018
-St Matthieu | [S'éveiller au plus grand amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-21-1-af-st-matthew/) | 21 Mai 2018
+St Matthieu | [S'éveiller au plus grand Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-21-1-af-st-matthew/) | 21 Mai 2018
 Marie | [Nous sommes tous connectés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-27-1-ar-mary/) | 27 Mai 2018
 André | [Vivez chaque jour dans le flux de la Volonté et de l'Amour de Dieu à votre égard](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-28-1-af-andrew/) | 28 Mai 2018
 Jésus | [Faites partie du plan pour le salut de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-28-2-af-jesus/) | 28 Mai 2018
@@ -205,7 +205,7 @@ Keea Atta Kem | [Demandez l'aide des anges](/fr-contemporary-messages/fr-contemp
 St Luc | [La vérité passe par l'âme éveillée par l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-22-3-af-st-luke/) | 22 Septembre 2018
 Kea - Vicky Forest | [Premier message de l'esprit de Vicky Forest](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-24-1-af-vicky-forest/) | 24 Septembre 2018
 Seretta Kem | [Instructions pour la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-25-1-af-seretta-kem/) | 25 Septembre 2018
-Martin Luther | [Bienvenue à H et encouragements pour le groupe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-27-1-af-martin-luther/) | 27 Septembre 2018
+Martin Luther | [Bienvenue à H et encouragements pour le groupe des 7](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-27-1-af-martin-luther/) | 27 Septembre 2018
 Seretta Kem | [Ouvrez-vous au plus haut niveau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-27-2-af-seretta-kem/) | 27 Septembre 2018
 Jésus | [Écoutez avec les oreilles de vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-28-1-af-jesus/) | 28 Septembre 2018
 Marie | [Au service de la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-28-2-af-mary/) | 28 Septembre 2018
@@ -254,7 +254,7 @@ St Matthieu | [Il est temps de faire de plus grands efforts pour grandir dans la
 Marie | [Les anges prient pour nous dans notre éveil](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-22-5-mc-mary/) | 22 Octobre 2018
 André | [Recherchez l'harmonie grâce à l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-23-1-af-andrew/) | 23 Octobre 2018
 Seretta Kem | [L'éveil de l'âme, la puissance de vos dons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-23-2-af-seretta-kem/) | 23 Octobre 2018
-Marc | [La foi chevauche les ailes de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-23-3-mc-mark/) | 23 Octobre 2018
+Marc | [La foi chevauche les ailes de l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-23-3-mc-mark/) | 23 Octobre 2018
 Seretta Kem | [Seretta Kem parle de ce qui peut venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-24-1-af-seretta-kem/) | 24 Octobre 2018
 Keea Atta Kem | [Intégrer les éveils de l'âme au corps et à l'esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-24-2-mc-keea-atta-kem/) | 24 Octobre 2018
 Augustin | [Écoutez votre âme et non les illusions de votre esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-25-1-af-augustine/) | 25 Octobre 2018
@@ -286,8 +286,8 @@ Confucius | [Ayez la foi que votre âme s'éveille](/fr-contemporary-messages/fr
 James Reid | [Nous travaillons ensemble au service de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-15-2-af-james-reid/) | 15 Novembre 2018
 Michael Collier | [Comment apporter la vérité aux nouvelles âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-18-1-af-michael-collier/) | 18 Novembre 2018
 André | [L'univers a besoin de variété](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-19-1-af-andrew/) | 19 Novembre 2018
-Confucius | [Al Fike et Jimbeau Walsh rendent visite à une guérisseusee](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-20-1-af-confucius/) | 20 Novembre 2018
-St Matthieu | [L'univers a besoin de variété](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-20-2-af-st-matthew/) | 20 Novembre 2018
+Confucius | [Al Fike et Jimbeau Walsh rendent visite à une guérisseuse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-20-1-af-confucius/) | 20 Novembre 2018
+St Matthieu | [Se reposer et prier pour se ressourcer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-20-2-af-st-matthew/) | 20 Novembre 2018
 Professeur Salyards | [L’amour naturel contre l’Amour Divin Développement de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-20-3-af-professor-salyards/) | 20 Novembre 2018
 James Padgett | [D'autres vérités seront révélées au fil du temps](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-20-4-af-james-padgett/) | 20 Novembre 2018
 Mahatma Gandhi | [Encouragement à poursuivre les projets](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-21-1-af-mahatma-gandhi/) | 21 Novembre 2018

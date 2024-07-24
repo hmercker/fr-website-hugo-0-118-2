@@ -1,13 +1,13 @@
 ---
-title: "La vérité arrive quand l'âme commence à se réveiller de ses profonds sommeils"
+title: "La vérité arrive quand l'âme commence à se réveiller de son profond sommeil"
 menu_title: ""
-description: "La vérité arrive quand l'âme commence à se réveiller de ses profonds sommeils"
+description: "La vérité arrive quand l'âme commence à se réveiller de son profond sommeil"
 date: 2022-06-01 06:00:01+00:910
 draft: False
 hidden: True
 weight:
 ---
-### La vérité arrive quand l'âme commence à se réveiller de ses profonds sommeils
+### La vérité arrive quand l'âme commence à se réveiller de son profond sommeil
 
 Flavius Josèphe - reçu par Al Fike le 16 Novembre 2019, Ancient Gardens, Eudlo, QLD, Australie.
 

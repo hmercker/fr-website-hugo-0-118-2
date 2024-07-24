@@ -1,13 +1,13 @@
 ---
-title: "Suite de l’orientation par la voix directe"
+title: "Suite de l’orientation par la Voix Directe"
 menu_title: ""
-description: "Suite de l’orientation par la voix directe"
+description: "Suite de l’orientation par la Voix Directe"
 date: 2022-06-01 06:00:01+00:40
 draft: False
 hidden: True
 weight:
 ---
-### Suite de l’orientation par la voix directe
+### Suite de l’orientation par la voix Directe
 
 Seretta Kem - reçu par Al Fike le 26 Mai 2017, Gibsons, Colombie-Britannique, Canada
 

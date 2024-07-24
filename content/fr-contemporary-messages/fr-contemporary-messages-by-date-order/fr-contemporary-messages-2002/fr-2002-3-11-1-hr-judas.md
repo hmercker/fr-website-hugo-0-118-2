@@ -11,6 +11,8 @@ weight:
 
 Judas - reçu par H____ le 11 Mars 2002, Cuenca, Équateur.
 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-marie-madeleine-au-tombeau.jpg)
+
 Mon cher frère,
 
 Je pense que tu es conscient que notre histoire a déjà atteint l’année 26. Quelques années plus tôt Hérode Antipas avait ordonné la construction d’une nouvelle capitale pour sa tétrarchie, l’appelant Tibériade, en l’honneur de l’empereur romain Tibère. Cette ville était – et est toujours – située sur la rive ouest du lac Génésareth (Lac de Tibériade).
@@ -35,15 +37,19 @@ Oui, il les a guéries. Ce fut une autre grande réussite dans ces premiers mome
 
 Si tu fais référence à la femme adultère que Jésus a sauvée de la lapidation, tu te trompes. Si tu te réfères à la femme qui a oint la tête du Maître et a séché ses pieds avec ses cheveux, tu te trompes encore une fois. Cependant, qu’elle était une femme pécheresse, oui, elle l’était. Qui ne l’est pas ?
 
-La prostituée vend son corps pour de l’argent. Cela démontre sa faible estime de soi. D’autres vendent leur conscience pour des gains politiques, pour le pouvoir, pour quoi que ce soit. D’autres sacrifient leurs familles pour leur carrière professionnelle. En bref, le monde entier se prostitue. Quand tu vois le journal télévisé, il me semble qu’il y a une grande parade de prostitution. Tout est fait pour l’argent, contre sa propre conscience. M. Argent règne sur le monde et il est plus considéré que son propre corps ou sa propre conscience, sur n’importe quel niveau, dans l’environnement personnel ainsi qu’en politique internationale.
+**La prostituée vend son corps pour de l’argent. Cela démontre sa faible estime de soi. D’autres vendent leur conscience pour des gains politiques, pour le pouvoir, pour quoi que ce soit. D’autres sacrifient leurs familles pour leur carrière professionnelle. En bref, le monde entier se prostitue. Quand tu vois le journal télévisé, il me semble qu’il y a une grande parade de prostitution. Tout est fait pour l’argent, contre sa propre conscience. M. Argent règne sur le monde et il est plus considéré que son propre corps ou sa propre conscience, sur n’importe quel niveau, dans l’environnement personnel ainsi qu’en politique internationale.**
 
-Mais je ne développerai pas ce sujet maintenant. Je voudrais seulement ajouter que certaines des femmes présentes, telles que Marie Madeleine et Susha, accompagnèrent le Maître lors de futurs voyages d’enseignement. C’est le machisme de cette époque qui a effacé le grand rôle des femmes des Saintes Écritures. Si tu lis l’Évangile de Thomas, tu pourras remarquer que Marie Madeleine est une femme intelligente qui saisit rapidement ce que le Maître veut exprimer, alors que les disciples masculins sont lents et obtus. Eh bien, c’est un autre extrême, mais ce n’est pas très loin de la vérité *[rires de Judas]*.
+Mais je ne développerai pas ce sujet maintenant. Je voudrais seulement ajouter que certaines des femmes présentes, telles que Marie Madeleine et Susha, accompagnèrent le Maître lors de futurs voyages d’enseignement. **C’est le machisme de cette époque qui a effacé le grand rôle des femmes des Saintes Écritures.** Si tu lis l’Évangile de Thomas, tu pourras remarquer que Marie Madeleine est une femme intelligente qui saisit rapidement ce que le Maître veut exprimer, alors que les disciples masculins sont lents et obtus. Eh bien, c’est un autre extrême, mais ce n’est pas très loin de la vérité *[rires de Judas]*.
 
 Aujourd’hui, j’ai dû lutter pour transmettre mon message. Ta réceptivité n’était pas très bonne. Par conséquent, je pense qu’il est préférable de terminer maintenant. Tu es tendu. N’oublie pas la fraîcheur de ton enfance, quand tu pouvais simplement te coucher dans l’herbe et profiter du soleil, regardant comment les abeilles volaient de fleur en fleur et voyant, dans les nuages, les animaux les plus fantastiques. Tu peux toujours le faire. Tu peux toujours rêver. Les rêves forgent la réalité.
 
 Que Dieu te bénisse.
 
 Judas.
+<small>
+
+Le lendemain Judas a publié  un second message au sujet de Marie Madeleine. Vous pouvez le lire par l'intermédiaire de [ce lien](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-12-1-hr-judas/)[↩](#a1)
+
 
 © Geoff Cutler 2013
 

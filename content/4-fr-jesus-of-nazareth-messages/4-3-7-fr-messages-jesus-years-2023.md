@@ -32,7 +32,7 @@ Jésus | [Le but et le pouvoir du rassemblement de Laurelville](/fr-contemporary
 Jésus | [La puissance de l'Amour de Dieu fait des miracles dans nos vies](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-16-1-af-jesus/) | 16 Juillet 2023
 Jésus | [Invitation à se rassembler dans l'unité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-30-1-af-jesus/) | 30 Juillet 2023
 Jésus | [Une profonde bénédiction pour nous tous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-22-1-af-jésus/) | 22 Août 2023
-Jésus | [Bénédiction suite au message de Flavius Josèphe ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-27-3-af-jésus/) | 27 Août 2023
+Jésus | [Bénédiction suite au message de Flavius Josèphe ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-27-2-af-jesus/) | 27 Août 2023
 Jésus | [Reconnaît Kevin comme un véritable enfant de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-9-15-2-af-jesus/) | 15 Septembre 2023
 Jésus | [Le véritable but de votre âme dans le monde (Cercle de Lumière en ligne 2023)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-9-17-1-af-jesus/) | 17 Septembre 2023
 Jésus | [Nous accueille et nous prépare pour Laurelville ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-10-1-af-jesus/) | 10 Octobre 2023

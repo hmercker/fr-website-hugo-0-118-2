@@ -9,7 +9,7 @@ weight:
 ---
 ### Et si je [Jeanne d’Arc] n’avait pas été exécutée ?
 
-Joan d'Arc <sup id="a1">[1](#f1)</sup> - reçu par George Barnard le 26 Décembre 2006, Illawarra, Australia.
+Jeanne d'Arc <sup id="a1">[1](#f1)</sup> - reçu par George Barnard le 26 Décembre 2006, Illawarra, Australia.
 
 **Bzutu**: *« Je vous salue frère. C’est le chef Midwayer Bzutu. La connexion est établie. Continuez et ne soyez pas timide. »*
 

@@ -13,6 +13,7 @@ weight: 702
 ---|---|---
 St Augustin | [St Augustin explique que l’on ne peut pas faire confiance aux enseignements de la Bible](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-7-2-jep-augustine/) | 7 Août 1915
 Augustin | [Nous devons faire un plus grand effort pour recevoir de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1963/fr-1963-4-15-3-anonymous-augustine/) | 15 Avril 1963
+
 Augustin | [Vous connaissez les vôtres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-62-1969-anonymous-augustine/) |   1969
 Augustin | [Élevez votre vision vers le haut, vers le plus élevé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-63-1969-anonymous-augustine/) |   1969
 Augustin | [Nous sommes unis](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-65-1969-anonymous-augustine/) |   1969
@@ -26,7 +27,7 @@ Augustin | [Soyez un véritable canal pour Dieu](/fr-contemporary-messages/fr-co
 Augustin | [Voici votre chance d'avancement - Voici la clé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-6-1969-2-24-anonymous-augustine/) | 24 Février 1969
 Augustin | [Recherchez ce don d'Amour Divin pour vous-mêmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-18-1969-8-11-anonymous-augustine/) | 11 Août 1969
 Augustin | [Nous devons avoir un but unique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-20-1969-8-21-anonymous-augustine/) | 21 Août 1969
-Augustin | [Nous devons avoir un but unique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-24-1969-10-1-anonymous-augustine/) | 1 Octobre 1969
+Augustin | [Nous devons avoir un but unique_2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-24-1969-10-1-anonymous-augustine/) | 1 Octobre 1969
 Augustin | [Parler à deux étrangers pour la première fois](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-47-1969-12-anonymous-augustine/) | 22 Décembre 1969
 Augustin | [Atteindre le plus haut](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-93-1970-anonymous-augustine/) |   1970
 Augustin | [Enseigner de manière simple](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-106-1970-anonymous-augustine/) |   1970

@@ -24,7 +24,7 @@ St Matthieu | [Le message de Mathieu au réseau de lumière](/fr-contemporary-me
 André | [Le destin de ce monde repose sur le choix de chaque âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-13-1-af-andrew/) | 13 Janvier 2019
 Augustin | [Vous faites tous partie du plan de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-13-2-af-augustine/) | 13 Janvier 2019
 André | [Que ce treillis de lumière se renforce et grandisse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-15-1-af-andrew/) | 15 Janvier 2019
-Marie | [Que l'amour de Dieu vous submerge](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-15-2-mc-mary/) | 15 Janvier 2019
+Marie | [Que l'Amour de Dieu vous submerge](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-15-2-mc-mary/) | 15 Janvier 2019
 Augustin | [Marcher dans le monde comme un canal de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-15-3-af-augustine/) | 15 Janvier 2019
 James Padgett | [L’expérience de recevoir l’Amour Divin se fait par la perception](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-17-1-mc-james-padgett/) | 17 Janvier 2019
 Augustin | [Conseils sur notre but et nos besoins](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-19-1-af-augustine/) | 19 Janvier 2019
@@ -115,7 +115,7 @@ Marc | [L’Amour Divin apporte à votre âme la nourriture dont elle a besoin p
 André | [Dieu prépare de nombreuses âmes à ce qui va arriver](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-4-1-1-af-andrew/) | 1<sup>er</sup> Avril 2019
 Yogananda | [Nous ne sommes pas si différents](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-4-1-2-jw-yogananda/) | 1<sup>er</sup> Avril 2019
 Keea Atta Kem | [Donner sans compter](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-4-2-1-mc-keea-atta-kem/) | 2 Avril 2019
-Joseph | [Le don de l'amour divin est la plus grande vérité que vous puissiez connaître](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-4-3-1-af-joseph/) | 3 Avril 2019
+Joseph | [Le don de l'Amour Divin est la plus grande vérité que vous puissiez connaître](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-4-3-1-af-joseph/) | 3 Avril 2019
 Yogananda | [Chaque jour est le cadeau d'un nouveau départ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-4-4-2-af-yogananda/) | 4 Avril 2019
 Yogananda | [Lâcher prise sur les illusions de la condition humaine (Collection générale 2019)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-4-4-3-af-yogananda/) | 4 Avril 2019
 St Matthieu | [Votre défi est de libérer tout ce qui n'est pas de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-4-5-1-af-st-matthew/) | 5 Avril 2019
@@ -334,7 +334,7 @@ Augustin | [Établir des portails, des centres et des cercles de lumières](/fr-
 Confucius | [Dieu se sert de vous de bien des manières différentes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-12-2-af-confucius/) | 12 Novembre 2019
 Marie | [L'humanité a une grande faim dans son âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-13-1-af-mary/) | 13 Novembre 2019
 Augustin | [Le plus grand pouvoir de transformation est en vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-14-1-af-augustine/) | 14 Novembre 2019
-Flavius Josèphe | [La vérité arrive quand l'âme commence à se réveiller de ses profonds sommeils](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-16-1-af-josephus/) | 16 Novembre 2019
+Flavius Josèphe | [La vérité arrive quand l'âme commence à se réveiller de son profond sommeil](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-16-1-af-josephus/) | 16 Novembre 2019
 Yogananda | [Vous êtes digne de Son amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-16-2-jw-yogananda/) | 16 Novembre 2019
 Augustin | [Venez à Dieu avec humilité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-16-3-af-augustine/) | 16 Novembre 2019
 St Luc | [Les conditions énergétiques de la Terre vous affectent tous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-17-1-af-st-luke/) | 17 Novembre 2019
@@ -350,7 +350,7 @@ Flavius Josèphe | [Questions et réponses](/fr-contemporary-messages/fr-contemp
 André | [Dieu a entendu vos prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-26-1-af-andrew/) | 26 Novembre 2019
 Confucius | [Buvez profondément ces eaux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-27-1-af-confucius/) | 27 Novembre 2019
 Michael Collier | [Permettre aux âmes de venir sans se soucier de leurs croyances](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-27-2-af-michael-collier/) | 27 Novembre 2019
-Augustin | [Les anges du ciel sont à vos côtés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-29-1-af-augustine/) | 29 Novembre 2019
+Augustin | [Les anges du Ciel sont à vos côtés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-29-1-af-augustine/) | 29 Novembre 2019
 André | [Ce cercle est comme un collier de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-30-1-af-andrew/) | 30 Novembre 2019
 Jésus | [Éveillez-vous à votre mission](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-30-2-af-jesus/) | 30 Novembre 2019
 Jésus | [L'intention de Dieu est que chaque âme connaisse Son amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-30-3-af-jesus/) | 30 Novembre 2019

@@ -32,7 +32,7 @@ C’est votre but, votre destinée et l’accomplissement de votre âme de le fa
 Que Dieu vous bénisse, mes frères et sœurs bien-aimés. Je suis Élie. Je suis votre frère dans ce grand voyage vers l’union avec Dieu. Je marcherai avec vous. Mon fils, je continue à te guider. Tu dis qu’il est important de connaître ton guide et je te dis, connais-moi car je suis avec toi et je marcherai avec toi, frère bien-aimé. Mais le plus important de tout, connais ton Père céleste. Connaissez votre Père Céleste, âmes bien-aimées. Je suis avec vous et je vous aime. Que Dieu vous bénisse.
 <small>
 
-1. <large id="f1"> Les différents messages communiqués  par Élie sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-fr-religious-figures/)[↩](#a1)
+1. <large id="f1"> Les différents messages communiqués  par Élie sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-fr-old-testament-religious-figures/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
 

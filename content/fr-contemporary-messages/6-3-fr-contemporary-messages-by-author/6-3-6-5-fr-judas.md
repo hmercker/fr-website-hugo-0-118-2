@@ -17,6 +17,8 @@ Ce n'est pas non plus en raison des reproches que Jésus a adressé à ses disci
 
 En dépit ou peut-être parce qu'il a eu un chemin tellement difficile, Judas est une personne merveilleuse et ses messages sont  toujours extrêmement précieux. La série de 180 messages qu'il a communiqué entre le 19 Août 2001 et le 30 Juin 2003 est particulièrement remarquable.
 
+La liste des messages communiqués par Judas est accessible par [ce lien](/3-fr-judas-of-kerioth-messages/3-2-fr-judas-messages-by-date/)
+
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Judas | [L'amour vous donne un Socle et un Fondement tellement Puissants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-50-1970-1-15-anonymous-judas/) | 15 Janvier 1970

@@ -1,13 +1,13 @@
 ---
-title: "Les fêtes de Pâques et leur célébration commune le 2e samedi soir et dimanche d’Avril"
+title: "Les fêtes de Pâques et leur célébration commune le 2<sup>ème</sup> samedi soir et dimanche d’Avril"
 menu_title: ""
-description: "Les fêtes de Pâques et leur célébration commune le 2e samedi soir et dimanche d’Avril"
+description: "Les fêtes de Pâques et leur célébration commune le 2<sup>ème</sup> samedi soir et dimanche d’Avril"
 date: 2022-06-01 06:00:01+00:18
 draft: False
 hidden: True
 weight:
 ---
-### Les fêtes de Pâques et leur célébration commune le 2eme samedi soir et dimanche d’Avril
+### Les fêtes de Pâques et leur célébration commune le 2<sup>ème</sup> samedi soir et dimanche d’Avril
 
 Jésus - reçu par Dr Samuels en Septembre et Octobre 1955, Août et Octobre 1962, Mai et Juin 1965, Washington, DC, USA.
 
@@ -68,8 +68,11 @@ La Pesah, c’est-à-dire l’agneau pascal, a été célébrée il y a plus de 
 
 Hormis une certaine pause qui a eu lieu plusieurs centaines d’années avant ma naissance, les Hébreux se sont rassemblés au fil des années pour raconter cette grande marche vers la liberté et la protection du Seigneur contre l’armée de Pharaon, dont les chars et les soldats ont péri dans les marées montantes du Nil (mer des roseaux). Cet exode sécurisé fut d’une nature si extraordinaire que les Hébreux de tous âges et de tous temps doivent avoir le sentiment qu’ils ont vécu personnellement cette délivrance. L’enseignement annuel est donné aux jeunes, illustré par l’histoire et embelli par la tradition.
 
-C’est la fête de la Liberté que j’ai aimée et observée fidèlement durant ma vie, et j’ai choisi cette fête pour revenir à Jérusalem et pour y rencontrer la mort dans l’accomplissement de ma mission comme le Messie de Dieu.
+C’est la fête de la Liberté que j’ai aimée et observée fidèlement durant ma vie, et j’ai choisi cette fête pour revenir à Jérusalem et pour y rencontrer la mort dans l’accomplissement de ma mission comme le Messie de Dieu.<sup id="a1">[1](#f1)</sup>
 
-Jésus de la Bible et Maître des Cieux Célestes.
+Jésus de la Bible et Maître des Cieux Célestes.<sup id="a2">[2](#f2)</sup>
+<small>
 
-**Note :** L’influence du médium est évidente sur ces messages, et cela a été confirmé dans [ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-17-1-hr-judas/).
+1. <large id="f1"> L’influence du médium est évidente sur ces messages, et cela a été confirmé dans [ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-17-1-hr-judas/).
+
+2. <large id="f2"> Le message originel en anglais est accessible par l'intermédiaire de [ce lien](https://new-birth.net/samuels-messages/miscellaneous-messages/passover-easter/).

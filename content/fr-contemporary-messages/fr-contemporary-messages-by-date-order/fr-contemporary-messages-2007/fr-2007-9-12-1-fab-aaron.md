@@ -9,7 +9,7 @@ weight:
 ---
 ### Les pouvoirs d'Aaron
 
-Aron - reçu par FAB le 12 Septembre 2007, Santa Cruz, Californie, USA.
+Aaron - reçu par FAB le 12 Septembre 2007, Santa Cruz, Californie, USA.
 
 Je suis ici, Aaron.
 

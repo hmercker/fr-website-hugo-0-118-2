@@ -1,13 +1,13 @@
 ---
-title: "Premier message de l'Esprit de Vicky Forest"
+title: "Premier message de l'esprit de Vicky Forest"
 menu_title: ""
-description: "Premier message de l'Esprit de Vicky Forest"
+description: "Premier message de l'esprit de Vicky Forest"
 date: 2022-06-01 06:00:01+00:485
 draft: False
 hidden: True
 weight:
 ---
-### Premier message de l'Esprit de Vicky Forest
+### Premier message de l'esprit de Vicky Forest
 
 Vicky Forest - reçu par Al Fike le 24 Septembre 2018, Gibsons, Colombie-Britannique, Canada.
 

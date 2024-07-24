@@ -13,7 +13,7 @@ Andrew Carnegie - reçu par FAB le 14 Septembre 2009, Santa Cruz, Californie, US
 
 C'est moi, Andrew Carnegie. <sup id="a1">[1](#f1)</sup>
 
-Vous venez de lire mes commentaires sur mon Évangile de la richesse. Vous craignez de m'avoir mal interprété dans [ma canalisation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-3-1-fab-andrew-carnegie/). J'avais dit que j'étais dans les ténèbres, avec d'horribles compagnons. Vous n'avez pas mal interprété mes propos.
+Vous venez de lire mes commentaires sur mon Évangile de la richesse. Vous craignez de m'avoir mal interprété dans [ma canalisation du 3 Mars 2008](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-3-1-fab-andrew-carnegie/). J'avais dit que j'étais dans les ténèbres, avec d'horribles compagnons. Vous n'avez pas mal interprété mes propos.
 
 J'étais en effet un matérialiste. Le fait que j'ai fait don de ma fortune ne change rien à ce penchant matérialiste. Vous vous demandez si la philanthropie dont j'ai fait preuve ne va pas à l'encontre de la pensée matérialiste. Eh bien, c'est une question juste.
 

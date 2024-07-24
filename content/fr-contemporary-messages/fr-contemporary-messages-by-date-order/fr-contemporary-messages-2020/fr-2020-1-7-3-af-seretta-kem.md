@@ -1,13 +1,13 @@
 ---
-title: "Il vous sera donné de dont vous aurez besoin pour servir"
+title: "Il vous sera donné ce dont vous aurez besoin pour servir"
 menu_title: ""
-description: "Il vous sera donné de dont vous aurez besoin pour servir"
+description: "Il vous sera donné ce dont vous aurez besoin pour servir"
 date: 2023-09-01 06:00:01+00:02
 draft: False
 hidden: True
 weight:
 ---
-### Il vous sera donné de dont vous aurez besoin pour servir
+### Il vous sera donné ce dont vous aurez besoin pour servir
 
 Seretta Kem - reçu par Al Fike le 7 Janvier 2020, Gibsons, Colombie-Britannique, Canada.
 

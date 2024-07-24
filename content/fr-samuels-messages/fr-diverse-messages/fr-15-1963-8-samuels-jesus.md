@@ -40,7 +40,9 @@ L’Amour Divin a donc été mal compris au moment de son effusion à l’humani
 
 Bref, la Pentecôte est la fête la plus importante de l’Église de la Nouvelle Naissance, et nous l’observerons avec respect.<sup id="a1">[1](#f1)</sup>
 
-Jésus de la Bible et Maître des Cieux Célestes.
+Jésus de la Bible et Maître des Cieux Célestes.<sup id="a2">[2](#f2
 <small>
 
 1. <large id="f1"> L’influence du médium est évidente sur ces messages, et cela se confirme [dans ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-17-1-hr-judas/).[↩](#a1)
+
+2. <large id="f2"> Le message originel  en anglais est accessible par l'intermédiaire de [ce lien](https://new-birth.net/samuels-messages/miscellaneous-messages/shavuoth-pentecost/).

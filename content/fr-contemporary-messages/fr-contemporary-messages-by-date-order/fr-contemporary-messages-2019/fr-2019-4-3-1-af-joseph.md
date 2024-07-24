@@ -1,7 +1,7 @@
 ---
-title: "Le don de l'amour divin est la plus grande vérité que vous puissiez connaître"
+title: "Le don de l'Amour Divin est la plus grande vérité que vous puissiez connaître"
 menu_title: ""
-description: "Le don de l'amour divin est la plus grande vérité que vous puissiez connaître"
+description: "Le don de l'Amour Divin est la plus grande vérité que vous puissiez connaître"
 date: 2022-06-01 06:00:01+00:692
 draft: False
 hidden: True

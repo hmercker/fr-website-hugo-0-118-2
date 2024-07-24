@@ -19,10 +19,10 @@ Judas | [Avertissement de danger et les choix auxquels nous faisons face](/fr-co
 Judas | [Perception et conscience spirituelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-24-1-hr-judas/) | 24 Août 2001
 Judas | [L’esprit de vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-27-1-hr-judas/) | 27 Août 2001
 Judas | [Interférence de l’homme avec l’Esprit de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-28-1-hr-judas/) | 28 Août 2001
-Judas | [Communications avec des esprits célestes ou non](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-29-1-hr-judas/) | 29 Août 2001
+Judas | [Communications avec des esprits Célestes ou non](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-29-1-hr-judas/) | 29 Août 2001
 Judas | [La Loi de l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-29-2-hr-judas/) | 29 Août 2001
 Judas | [Homosexualité et âmes sœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-30-1-hr-judas/) | 30 Août 2001
-Judas | [Les créatures célestes perdent-elles leur individualité ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-2-1-hr-judas/) | 2 Septembre 2001
+Judas | [Les créatures Célestes perdent-elles leur individualité ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-2-1-hr-judas/) | 2 Septembre 2001
 Judas | [Lumière spirituelle ou Vibrations spirituelles ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-7-1-hr-judas/) | 7 Septembre 2001
 Judas | [Que pouvons-nous faire pour compenser les effets du mal ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-15-1-hr-judas/) | 15 Septembre 2001
 Judas | [Islam et Mohammed](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-18-1-hr-judas/) | 18 Septembre 2001

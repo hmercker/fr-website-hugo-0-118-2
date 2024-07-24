@@ -17,6 +17,6 @@ Quand on dit que je serai là, je prierai avec vous, ou même prierez-vous avec 
 
 Il est donc important de se rappeler ces deux choses avant de prier et je vous dirai que lorsque cela se produit, il y aura toujours une réponse de Dieu. Car ces deux choses, l’intention et la volonté, créent une ouverture pour que Dieu, pour que Son Esprit Saint vienne et apporte cet amour à l’âme comme en ce moment, dans ce cercle et dans chaque cercle, où cela devient une réalité.
 
-Je remercie mon frère. Je vous remercie tous. Je vais maintenant prendre du recul et permettre à l’amour de Dieu d’être avec nous tous ce soir. Je suis votre frère en Christ, autrefois une âme égarée, et maintenant un racheté et un habitant des Cieux célestes.
+Je remercie mon frère. Je vous remercie tous. Je vais maintenant prendre du recul et permettre à l’Amour de Dieu d’être avec nous tous ce soir. Je suis votre frère en Christ, autrefois une âme égarée, et maintenant un racheté et un habitant des Cieux célestes.
 
 Que Dieu vous bénisse et que sa paix soit sur vous. Je suis Judas.

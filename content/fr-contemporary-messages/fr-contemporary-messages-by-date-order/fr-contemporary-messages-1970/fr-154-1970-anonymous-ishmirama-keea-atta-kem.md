@@ -23,8 +23,7 @@ Mon enfant, je n'ai jamais acheté un diamant moi-même, mais j'ai été là qua
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Ishmirama | [Exposé sur la Relaxation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-164-1970-anonymous-ishmirama/) |   1970
-Ishmirama & Keea Atta Kem | [Allez vers Dieu dans la méditation silencieuse et désirez un afflux de son Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-cont
-
+Ishmirama & Keea Atta Kem | [Allez vers Dieu dans la méditation silencieuse et désirez un afflux de son Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-154-1970-anonymous-ishmirama-keea-atta-kem/)
 
 
 ### [**Lien vers les messages de l’année 1970**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/)

@@ -19,7 +19,7 @@ Après la transition de James Padgett vers le monde spirituel, d'autres messages
 
 ### Le vrai sens de la seconde venue de Jésus
 
-[Le 02 Décembre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/[fr-padgett-essages-1915-2/fr-1915-12-2-1-jep-jesus/), Jésus a adressé un message à James Padgett afin d’expliquer  que sa mission d’écriture de ces messages est sa seconde venue sur terre. Nous vous proposons de découvrir un extrait de ce message :
+[Le 02 Décembre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-essages-1915-2/fr-1915-12-2-1-jep-jesus/), Jésus a adressé un message à James Padgett afin d’expliquer  que sa mission d’écriture de ces messages est sa seconde venue sur terre. Nous vous proposons de découvrir un extrait de ce message :
 
 > Ma venue à vous, c’est vraiment ma seconde venue sur la terre, et le résultat de ma venue, de cette manière, avec, pour résultat, de satisfaire et accomplir toutes les promesses des Écritures quant à ma seconde venue.
 <br><br>
@@ -57,8 +57,12 @@ Il y a certaines qualités dans votre constitution, à la fois spirituelle et ma
 <br><br>
 > Aujourd'hui, il est l'un des Anges Célestes qui travaillent parmi les hommes et les femmes sur terre, en particulier ceux qui cherchent à connaître la vérité, qui aiment Dieu et veulent que Sa volonté soit faite dans leur vie. Nous avons tous de nombreuses personnes avec lesquelles nous travaillons de temps en temps ; et notre travail est gratifiant lorsque nous voyons les résultats de nos influences se réaliser de jour en jour.
 
-Pour en savoir plus sur James Padgett [ici](https://lanouvelleverite.fr/fr-james-padgett-messages/1-1-fr-brief-presentation-of-james-padgett/)
+Pour en savoir plus sur James Padgett vous pouvez cliquer sur [ce lien](https://lanouvelleverite.fr/fr-james-padgett-messages/1-1-fr-brief-presentation-of-james-padgett/)
 
 Le résumé des enseignements de Jésus sont accessibles par [ce lien](https://lanouvelleverite.fr/5-fr-the-key-points-of-jesus-messages/5-1-fr-a-summary-of-the-teachings-of-jesus/)
 
 Vous pouvez également en savoir plus sur lee Chemin de l’Amour Divin par l’intermédiaire de [ce lien](https://lanouvelleverite.fr/8-fr-the-way-of-divine-love/8-6-fr-the-divine-love-path/)
+
+Veuillez également prendre note que la quasi totalité des textes que vous pourrez lire sur ce site ont été originellement publées sur [ce premier site](https://lanouvellenaissance.com/) jusqu'en 2014. Au-delà de cette date les textes ont été originellement  publiés sur [ce second site](https://soultruth.ca/). Ces des deux sites sont administrés par Geoff Cutler à qui il convient d'adresser nos profonds remerciements. Je tiens égalemenet à adresser mes profonds remerciements à Henning Mercker administrateur du site [en langue allemande](https://wahrheitfuerdiewelt.de/) pour ses précieux conseils et son aide chaleureuse sans laquelle ce site n'aurait pas vu le jour.
+
+Bonne navigation sur le site. Nous espérons que vous appécierez ce site. N'hésitez pas à nous faire part de vos réflexions, remarques et même de nous signaler tout message qui serait iaccessible, par l'intermédiaire du formulaire de contact.

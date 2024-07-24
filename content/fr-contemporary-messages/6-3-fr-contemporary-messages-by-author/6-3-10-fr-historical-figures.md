@@ -36,7 +36,7 @@ Ida Tarbell | [Quelque chose de merveilleux à attendre avec impatience](/fr-con
 Jacques Ier | [Un roi anglais est humble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-21-3-fab-james-i/) | 21 Février 2008
 James Albert Okawsaw Gronniosaw | [Un voyage spirituel au dix-huitième siècle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-27-1-fab-james-albert-okawsaw-gronniosaw/) | 27 Juillet 2009
 Jeanne d'Arc | [La plus grande force vient de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-128-1969-anonymous-joan-darc/) |   1969
-Jeanne d'Arc | [Et si je [Jeanne d’Arc] n’avait pas été exécutée ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-26-3-gmb-joan-darc/) | 26 Décembre 2006
+Jeanne d'Arc | [Et si je [Jeanne d’Arc] n’avais pas été exécutée ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-26-3-gmb-joan-darc/) | 26 Décembre 2006
 Jeanne d'Arc | [S'avancer pour Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-15-1-af-joan-darc/) | 15 Novembre 2017
 Jeanne d'Arc | [La prière avec les Liens de l'Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-30-3-af-joan-of-arc/) | 30 Mars 2023
 Jeanne d'Arc | [L'Amour Divin favorise l'unité et l'harmonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-20-3-em-joan-of-arc/) | 20 Avril 2023
@@ -76,7 +76,7 @@ Louis XIV | [Le malheur de Louis XIV](/fr-contemporary-messages/fr-contemporary-
 Louis XIV | [Il y a tant de choses à dire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-19-5-af-louis-xiv/) | 19 Novembre 2017
 Mahatma Gandhi | [Ayez foi en nous, amis bien-aimés de la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1963/fr-1-1958-anonymous-mahatma-gandhi/) | 11 Mai 1958
 Mahatma Gandhi | [Priez pour mon peuple](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-29-1969-10-13-anonymous-mahatma-gandhi/) | 13 Octobre 1969
-Mahatma Gandhi | [Instructions sur la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-31-1969-10-27-anonymous-mahatma-gandhi/) | 27 Octobre 1969
+Mahatma Gandhi | [Instructions sur la Voix Directe_2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-31-1969-10-27-anonymous-mahatma-gandhi/) | 27 Octobre 1969
 Mahatma Gandhi | [Que l'Amour de Dieu vous enveloppe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-32-1969-11-3-anonymous-mahatma-gandhi/) | 3 Novembre 1969
 Mahatma Gandhi | [Nous devons devenir de véritables serviteurs pour Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-74-1969-anonymous-mahatma-gandhi/) |   1969
 Mahatma Gandhi | [Préparez-vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-104-1970-anonymous-mahatma-gandhi/) |   1970

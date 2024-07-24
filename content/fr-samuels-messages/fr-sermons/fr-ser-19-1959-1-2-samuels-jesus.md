@@ -81,4 +81,4 @@ En ce qui concerne les analogies faites entre Ahitophel, Mephibosheth et Judas, 
 Jésus de la Bible et Maître des Cieux Célestes.
 <small>
 
-1. <large id="f1"> [Ce verset](https://saintebible.com/psalms/19-2.htm) est similaire, mais pas du tout identique au texte biblique (Version de la Sainte Bible). N’ayant pas accès au message d’origine, on ne peut pas être certain que Jésus cite une autre Bible, ou si une annotation a été faite pour expliquer le verset.[↩](#a1)
+1. <large id="f1"> [Ce verset](https://saintebible.com/psalms/19-2.htm) est similaire, mais pas du tout identique au texte biblique (Version de la Sainte Bible). N’ayant pas accès au message d’origine, on ne peut pas être certain que Jésus ne cite pas une autre Bible, ou si une annotation a été faite pour expliquer le verset.[↩](#a1)

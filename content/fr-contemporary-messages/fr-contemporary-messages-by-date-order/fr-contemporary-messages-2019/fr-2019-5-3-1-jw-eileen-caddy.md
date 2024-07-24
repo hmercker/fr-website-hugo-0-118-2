@@ -1,15 +1,13 @@
 ---
-title: "
-L'amour de Dieu est la plus grande chose de l'univers"
+title: "Maintenir la puissance spirituelle des lieux bénis"
 menu_title: ""
-description: "
-L'amour de Dieu est la plus grande chose de l'univers"
+description: "Maintenir la puissance spirituelle des lieux bénis"
 date: 2022-06-01 06:00:01+00:721
 draft: False
 hidden: True
 weight:
 ---
-### L'Amour de Dieu est la plus grande chose de l'univers
+### Maintenir la puissance spirituelle des lieux bénis
 
 Eileen Caddy - reçu par Jimbeau Walsh le 3 Mai 2019, Nashville, Tennessee, USA.
 
