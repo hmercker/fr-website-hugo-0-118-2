@@ -34,7 +34,7 @@ Vous êtes destinés à être dans la lumière, âmes bien-aimées. Vous êtes d
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Élie et je viens à vous avec amour et avec le désir de vous assurer que le grand plan de Dieu pour l’humanité est en train d’être mis en œuvre en ce moment même et qu’il continuera à être exprimé de nombreuses, belles et merveilleuses manières. A travers vous et à travers beaucoup d’autres, le plan de Dieu sera accompli. Tout sera en harmonie. Que Dieu vous bénisse. Que Dieu vous bénisse tous.
 <small>
 
-1. <large id="f1"> Les différents messages communiqués  par Élie sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-fr-religious-figures/)[↩](#a1)
+1. <large id="f1"> Les différents messages communiqués  par Élie sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-fr-old-testament-religious-figures/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
 

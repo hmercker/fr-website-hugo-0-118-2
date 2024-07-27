@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Paix, deuxième parti
+### Paix, deuxième partie
 
 Jésus - reçu par Jane Gartshore le 7 Mai 2013.
 

@@ -41,6 +41,9 @@ Mes amis bien-aimés, nous vous implorons de continuer à vous ouvrir aux voies 
 
 C’est la grande quête de l’harmonie qui continue d’être ce vent de changement sur vous. Il en sera ainsi. Avec le temps, l’harmonie prévaudra, et vous aussi dans la lumière, l’amour et la vérité. 
 
-Je suis Élie et je vous aime. Je vous aime. Que Dieu vous bénisse. Âmes bien-aimées, chercheurs de vérités. Les âmes bénies font partie du plan de Dieu. Des âmes merveilleuses dans le grand flux de la Volonté de Dieu. Que Dieu vous bénisse. Je suis avec vous dans ce voyage. Je continuerai à circuler et à faire partie de tout ce qui est censé être et de tout ce qui est.
+Je suis Élie<sup id="a1">[1](#f1)</sup> et je vous aime. Je vous aime. Que Dieu vous bénisse. Âmes bien-aimées, chercheurs de vérités. Les âmes bénies font partie du plan de Dieu. Des âmes merveilleuses dans le grand flux de la Volonté de Dieu. Que Dieu vous bénisse. Je suis avec vous dans ce voyage. Je continuerai à circuler et à faire partie de tout ce qui est censé être et de tout ce qui est.
 
 Nous sommes un. Un ensemble. Un en lumière. Un en vérité. Un dans l'amour. Que Dieu vous bénisse. Que Dieu vous bénisse, âmes bien-aimées. Mon amour est avec vous. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués  par Élie sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-fr-old-testament-religious-figures/)[↩](#a1)

@@ -1,13 +1,13 @@
 ---
 title: "L'Amour de Dieu a déjà conquis le Monde"
 menu_title: ""
-description: "L'Amour de Dieu a déjà conquis l Monde"
+description: "L'Amour de Dieu a déjà conquis le Monde"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### L'Amour de  Dieu a déjà conquis l Monde
+### L'Amour de  Dieu a déjà conquis le Monde
 
 Judas - reçu par Jimbeau Walsh le 17 Juin 2024, Nashville, Tennesse, USA.
 

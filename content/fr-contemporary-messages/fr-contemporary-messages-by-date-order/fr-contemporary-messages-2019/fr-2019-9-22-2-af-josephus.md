@@ -1,13 +1,13 @@
 ---
-title: "Le progrès de l'âme en recevant l'amour de Dieu"
+title: "Le progrès de l'âme en recevant l'Amour de Dieu"
 menu_title: ""
-description: "Le progrès de l'âme en recevant l'amour de Dieu"
+description: "Le progrès de l'âme en recevant l'Amour de Dieu"
 date: 2022-06-01 06:00:01+00:861
 draft: False
 hidden: True
 weight:
 ---
-### Le progrès de l'âme en recevant l'amour de Dieu
+### Le progrès de l'âme en recevant l'Amour de Dieu
 
 Flavius Josèphe - reçu par Al Fike le 22 Septembre 2019, Gibsons, Colombie-Britannique, Canada.
 

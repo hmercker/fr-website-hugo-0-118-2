@@ -108,7 +108,7 @@ Jésus | [63ème Sermon – Le Second Isaïe, le prophète de l’exil](/fr-samu
 Jésus | [64ème Sermon – Le Second Isaïe a écrit les chants du Serviteur Souffrant](/fr-samuels-messages/fr-sermons/fr-ser-64-1963-7-21-samuels-jesus/) | 21 Juillet 1963
 Jésus | [65ème Sermon – Le double concept du Père selon le Second Isaïe](/fr-samuels-messages/fr-sermons/fr-ser-65-1963-7-21-samuels-jesus/) | 21 Juillet 1963
 Jésus | [66ème Sermon – Jésus explique encore les chants d’Isaïe](/fr-samuels-messages/fr-sermons/fr-ser-66-1963-7-21-samuels-jesus/) | 21 Juillet 1963
-Jésus | [67ème Sermon – Beaucoup de chrétiens considèrent ces sermons comme prophétiques](/fr-samuels-messages/fr-sermons/fr-ser-67-1963-7-21-samuels-jesus/) | 21 Juillet 1963
+Jésus | [67ème Sermon – Beaucoup de Chrétiens considèrent ces sermons comme prophétiques](/fr-samuels-messages/fr-sermons/fr-ser-67-1963-7-21-samuels-jesus/) | 21 Juillet 1963
 Jésus | [68ème Sermon – Le Second Isaïe prêchait la consécration de son peuple](/fr-samuels-messages/fr-sermons/fr-ser-68-1963-7-21-samuels-jesus/) | 21 Juillet 1963
 Jésus | [69ème Sermon – Le Troisième Isaïe définit son style d’après celui du Second Isaïe](/fr-samuels-messages/fr-sermons/fr-ser-69-1964-4-1-samuels-jesus/) | 1 Avril 1964
 Jésus | [70ème Sermon – Jésus a utilisé les premières lignes du troisième Isaïe lorsqu’il a parlé à Nazareth](/fr-samuels-messages/fr-sermons/fr-ser-70-1964-9-1-samuels-jesus/) | 1 Septembre 1964

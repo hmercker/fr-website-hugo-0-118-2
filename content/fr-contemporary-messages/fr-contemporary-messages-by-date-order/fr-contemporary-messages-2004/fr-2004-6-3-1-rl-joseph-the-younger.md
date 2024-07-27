@@ -1,13 +1,13 @@
 ---
-title: "Qu’arrive-t-il aux personnes qui ne prient pas pour l’amour de Dieu ?"
+title: "Qu’arrive-t-il aux personnes qui ne prient pas pour l’Amour de Dieu ?"
 menu_title: ""
-description: "Qu’arrive-t-il aux personnes qui ne prient pas pour l’amour de Dieu ?"
+description: "Qu’arrive-t-il aux personnes qui ne prient pas pour l’Amour de Dieu ?"
 date: 2022-06-01 06:00:01+00:18
 draft: False
 hidden: True
 weight:
 ---
-### Qu’arrive-t-il aux personnes qui ne prient pas pour l’amour de Dieu ?
+### Qu’arrive-t-il aux personnes qui ne prient pas pour l’Amour de Dieu ?
 
 Joseph le jeune - reçu par RL le 3 Juin 2004, Atlanta, Georgia, USA.
 

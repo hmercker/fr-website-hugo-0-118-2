@@ -114,7 +114,7 @@ Keea Atta Kem | [Faites de l'amour votre vérité directrice à travers les chan
 Icarius | [Le mental de l’âme doit compléter le mental matériel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-15-1-af-icarius/) | 15 Septembre 2017
 Martin Luther | [Ce qui apporte l'harmonie dans ce monde continue](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-16-1-af-martin-luther/) | 16 Septembre 2017
 Seretta Kem | [Beaucoup de choses vous attendent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-17-1-af-seretta-kem/) | 17 Septembre 2017
-Helen Padgett | [Ceux qui servent dans l'amour feront des percées dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-17-2-af-helen-padgett/) | 17 Septembre 2017
+Hélène Padgett | [Ceux qui servent dans l'amour feront des percées dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-17-2-af-helen-padgett/) | 17 Septembre 2017
 James Padgett | [Écoutez vos âmes et tout vous sera donné](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-17-3-af-james-padgett/) | 17 Septembre 2017
 Augustin | [Étancher la soif de votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-18-1-af-augustine/) | 18 Septembre 2017
 Seretta Kem | [La guérison et la loi de l'harmonie Partie 1](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-18-2-af-seretta-kem/) | 18 Septembre 2017
@@ -219,7 +219,7 @@ Mahatma Gandhi | [Soyez forts dans l'amour, car les autres ont besoin de vous da
 La princesse Diana Windsor | [Vous connaissez cet amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-16-2-af-princess-diana-windsor/) | 16 Novembre 2017
 Yogananda | [Vous construisez votre lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-16-3-af-yogananda/) | 16 Novembre 2017
 Maharishi Mahesh Yogi | [Utilisez vos dons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-16-4-af-maharishi-mahesh-yogi/) | 16 Novembre 2017
-Joseph Smith | [Il est important d'apporter la vérité à l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-16-5-af-joseph-smith/) | 16 Novembre 2017
+Joseph Smith | [Il est important d'apporter la Vérité à l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-16-5-af-joseph-smith/) | 16 Novembre 2017
 John Lennon | [Tout ce dont vous avez besoin est l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-16-6-af-john-lennon/) | 16 Novembre 2017
 Guru Nanak | [Marcher dans la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-16-7-af-guru-nanak/) | 16 Novembre 2017
 Albert Schweitzer | [Je suis avec vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-16-8-af-albert-schweitzer/) | 16 Novembre 2017
@@ -267,7 +267,7 @@ Keea Atta Kem | [Un esprit qui suit la grâce de l'âme](/fr-contemporary-messag
 Seretta Kem | [La porte est ouverte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-6-1-af-seretta-kem/) | 6 Décembre 2017
 Jésus | [Bénédictions individuelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-7-1-af-jesus/) | 7 Décembre 2017
 Confucius | [Guérisons par la couleur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-7-2-af-confucius/) | 7 Décembre 2017
-Seretta Kem | [Dieu vous offre l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-7-3-af-seretta-kem/) | 7 Décembre 2017
+Seretta Kem | [Dieu vous offre l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-7-3-af-seretta-kem/) | 7 Décembre 2017
 André | [S'unir dans l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-8-1-af-andrew/) | 8 Décembre 2017
 Alec Gaunt | [Accepter les différences](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-8-2-af-alec-gaunt/) | 8 Décembre 2017
 Samuel | [Les choix de l'âme - Le bien contre le mal](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-8-3-af-samuel/) | 8 Décembre 2017

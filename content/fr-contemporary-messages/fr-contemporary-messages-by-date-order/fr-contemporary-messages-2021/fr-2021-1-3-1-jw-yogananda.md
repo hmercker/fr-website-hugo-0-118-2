@@ -1,13 +1,13 @@
 ---
-title: "Bienvenue à toutes les âmes avec amour"
+title: "Bienvenue à toutes les âmes avec Amour"
 menu_title: ""
-description: "Bienvenue à toutes les âmes avec amour"
+description: "Bienvenue à toutes les âmes avec Amour"
 date: 2022-06-01 06:00:01+00:1364
 draft: False
 hidden: True
 weight:
 ---
-### Bienvenue à toutes les âmes avec amour
+### Bienvenue à toutes les âmes avec Amour
 
 Yogananda - reçu par Jimbeau Walsh le 3 Janvier 2021, Punalu’u, Oahu, Hawaii, USA
 

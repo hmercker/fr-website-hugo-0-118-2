@@ -23,7 +23,7 @@ Alors, partez de cet endroit ce soir, résolus que dans les jours à venir vous 
 1. <large id="f1"> Abdulla s'est également exprimé dans les messages suivants : [↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**  
----|---|--
+---|---|---
 Abdulla | [L'Amour Divin à l'intérieur de l'homme est la seule chose qui peut rendre l'homme libre de la peur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-87-1970-anonymous-abdulla/) |   1970
 Abdulla | [L'importance de la vie terrestre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-156-1970-anonymous-abdulla/) |   1970
 Abdulla | [Comment se préparer à recevoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-167-1970-anonymous-abdulla/) |   1970

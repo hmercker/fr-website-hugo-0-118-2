@@ -46,7 +46,7 @@ Je ne peux pas te le dire, comme je l’ai dit. Fais confiance au Père. Attends
 Oui, le bonheur viendra. Plus tôt que tu ne le penses. Bien plus que tu ne peux l’imaginer par toi-même. Accroche-toi. Nous allons suivre le déroulement des événements pour toi, car nous attendons aussi ton bonheur. Nous voulons te voir sourire à nouveau. Tu aimeras à nouveau beaucoup. Ta faiblesse te quittera. Attends et vois. Il ne reste plus beaucoup de temps pour s’accrocher. Le moment est venu. Nous t’aimons.
 <small>
 
-1. <large id="f1"> Il est possible de lire les divers messages commuiqués par Salomon par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-10-fr-historical-figures/) :[↩](#a1)
+1. <large id="f1"> Il est possible de lire les divers messages commuiqués par Salomon par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-fr-old-testament-religious-figures/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
 

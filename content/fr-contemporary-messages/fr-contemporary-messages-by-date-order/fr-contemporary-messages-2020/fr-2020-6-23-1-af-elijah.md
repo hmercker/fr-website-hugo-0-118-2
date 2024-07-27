@@ -26,7 +26,7 @@ Puissiez-vous venir danser dans la vie, en connaissant la merveilleuse musique d
 Bénédictions à vous âmes bien-aimées, je suis Élie<sup id="a1">[1](#f1)</sup> et je suis avec vous alors que vous continuez à lutter dans un monde si troublé et qui se débat dans les ténèbres et l’erreur. Vous êtes arrivés à la Fontaine de tout ce qui est Amour. Vous devez boire profondément et connaître cette Vérité. Mon amour est avec vous. J’apporte une bénédiction pour vous tous, car Dieu souhaite que vous soyez tous élevés, chers enfants, que vous soyez éveillés, que vous connaissiez votre vrai moi dans le grand amour. Que Dieu vous bénisse.
 <small>
 
-1. <large id="f1"> Les différents messages communiqués  par Élie sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-fr-religious-figures/)[↩](#a1)
+1. <large id="f1"> Les différents messages communiqués  par Élie sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-fr-old-testament-religious-figures/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
 

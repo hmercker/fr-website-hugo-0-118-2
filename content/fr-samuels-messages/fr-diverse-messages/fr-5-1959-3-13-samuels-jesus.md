@@ -13,7 +13,7 @@ Jésus - reçu par Dr Samuels le 13 Mars 1959, Washington, DC, USA.
 
 C’est moi, Jésus.
 
-Je suis très heureux d’être avec vous, mes chers administrateurs (de la F.C.N.B : Fondation de l’Église de la Nouvelle Naissance), et leurs collaborateurs pour le Royaume, et d’être en mesure d’écouter vos discussions et d’avoir la possibilité de faire quelques remarques.
+Je suis très heureux d’être avec vous, mes chers administrateurs [de la F.C.N.B : Fondation de l’Église de la Nouvelle Naissance](http://www.divinelove.org/), et leurs collaborateurs pour le Royaume, et d’être en mesure d’écouter vos discussions et d’avoir la possibilité de faire quelques remarques.
 
 Je ne veux pas écrire longuement ce soir parce que vous n’êtes évidemment pas en état de soutenir une écriture longue ou majeure, mais je tiens à partager quelques mots d’observation.
 

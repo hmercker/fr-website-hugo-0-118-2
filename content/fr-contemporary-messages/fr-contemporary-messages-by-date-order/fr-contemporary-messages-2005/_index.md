@@ -28,7 +28,7 @@ Jésus | [La magie des Lois](/fr-contemporary-messages/fr-contemporary-messages-
 Marie | [L'Amour est la Vérité que nous recherchons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-7-24-1-ar-mary/) | 24 Juillet 2005
 Marie | [Un don à Dieu.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-9-3-1-ar-mary/) | 3 Septembre 2005
 Mala | [La spiritualité des premiers Amérindiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-9-11-1-fab-mala/) | 11 Septembre 2005
-Jésus | [Gardez le message sur l'Aamour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-10-7-1-ks-jesus/) | 7 Octobre 2005
+Jésus | [Gardez le message sur l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-10-7-1-ks-jesus/) | 7 Octobre 2005
 St Jean | [L'intelligence naturelle de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-10-9-1-ar-st-john/) | 9 Octobre 2005
 Jésus | [Planter la graine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-10-12-1-db-jesus/) | 12 Octobre 2005
 Buddha | [Le Bouddha est très heureux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-11-7-1-fab-buddha/) | 7 Novembre 2005

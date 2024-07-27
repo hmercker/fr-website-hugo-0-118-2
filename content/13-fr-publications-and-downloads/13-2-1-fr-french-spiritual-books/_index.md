@@ -33,7 +33,7 @@ Pour approfondir votre compréhension des messages de James Padgett et de la vie
 
 **Titre et page de couverture** | **Résumé** | **Disponible sur**
 ---|---|---
-![title](/13-fr-publications-and-downloads/13-2-1-fr-french-spiritual-books/fr-vivre-avec-l-amour-divin-cover.jpg/) [Vivre Avec l'Amour Divin](/13-fr-publications-and-downloads/fr-vivre-avec-l-amour-divin.pdf/) | Je vous invite à lire ce que je partage ici de mes expériences en suivant un chemin d'amour, d'Amour Divin. C'est une découverte de l'âme et la reconnaissance de l'action subtile de transformation que l'Amour Divin apporte. Une découverte de la relation à notre Créateur, une découverte de l'Amour si profonde que je n'ai jamais osé en rêver. | [Lulu](https://www.lulu.com/fr/shop/helge-mercker/vivre-avec-lamour-divin/paperback/product-1y5gd2p9.html?page=1&pageSize=4)
+![title](/13-fr-publications-and-downloads/13-2-1-fr-french-spiritual-books/fr-vivre-avec-l-amour-divin-cover.jpg/) [Vivre Avec l'Amour Divin](/13-fr-publications-and-downloads/13-2-1-fr-french-spiritual-books/fr-vivre-avec-l-amour-divin.pdf/) | Je vous invite à lire ce que je partage ici de mes expériences en suivant un chemin d'amour, d'Amour Divin. C'est une découverte de l'âme et la reconnaissance de l'action subtile de transformation que l'Amour Divin apporte. Une découverte de la relation à notre Créateur, une découverte de l'Amour si profonde que je n'ai jamais osé en rêver. | [Lulu](https://www.lulu.com/fr/shop/helge-mercker/vivre-avec-lamour-divin/paperback/product-1y5gd2p9.html?page=1&pageSize=4)
 
 **PUBLICATION DE JANE GARTSHORE**
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### L'harmonisation de vos prières crée une grande lumière
 
-Kea Atta Kem - reçu par Albert Fike le 9 Février 2024, Sechelt, Colombie-Britannique, Canada.
+Keea Atta Kem - reçu par Albert Fike le 9 Février 2024, Sechelt, Colombie-Britannique, Canada.
 
 L’harmonisation de vos prières ensemble crée une grande lumière dans le monde. À mesure que vous vous rapprochez par l’esprit et l’intention, à mesure que la lumière de votre âme se joint au grand don de l’Amour de Dieu, vous formez ensemble une force formidable et les lumières que vous portez brillent à travers le monde. Cela est amplifié par vos frères et sœurs, par le contact de Dieu, par les anges qui vous entourent, par cette lumière qui grandit et qui s’éclaire par l’influence et le contact de Dieu. Une grande partie du monde est couverte par cette lumière grâce à vos efforts. Une grande quantité de lumière s’étend et touche beaucoup de personnes, non pas parce que vous avez créé cette lumière, même si vous en faites partie, mais parce que Dieu vous a utilisé pour être Ses canaux de lumière et d’amour dans le monde. Alors que Dieu initie et exprime ce don de lumière, nous, les anges, répondons, sur la Terre, vous répondez, les esprits brillants répondent et nous animons ensemble le réseau de lumière dans le monde et chacun de vous maintient ce réseau par sa présence physique dans le monde.
 

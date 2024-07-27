@@ -19,7 +19,11 @@ Mes amis bien-aimés, réalisez qu’à votre portée se trouve la plus haute V�
 
 Vous vivez dans l’étreinte de Dieu. Vous ressentez la puissance et la beauté de cette étreinte. Vos âmes commencent à s’éveiller à cette réalité, la réalité de Dieu. Rapprochez-vous toujours plus, âmes bien-aimées, de cette réalité, de cette claire et glorieuse connaissance et reconnaissance de Dieu. En cela vous trouverez votre salut, âmes bien-aimées. En cela vous trouverez les réponses à ce que vous cherchez. En cela, vous trouverez les moyens par lesquels vous pouvez servir et exprimer vos dons dans le monde. En cela, vos désirs de dons, puissants et inhabituels, se manifesteront et seront connus des autres. Tant de choses viennent de Dieu, tant de choses viennent de vos efforts pour être en harmonie et en alignement avec Dieu. Cherchez ce qui est le plus élevé, mes bien-aimés. Soyez forts, soyez clairs et que la sagesse de vos âmes informe vos actions, vos pensées et vos actes, bien-aimés, bien-aimées, belles âmes. Je suis avec vous dans vos efforts. Beaucoup, beaucoup d’anges continuent à servir vos efforts sur terre et à apporter une plus grande lumière à votre monde.
 
-Que Dieu vous bénisse, je suis Salomon. Mes prières, mon amour, mon désir de votre succès sont avec vous, âmes bien-aimées. Que Dieu vous bénisse.
+Que Dieu vous bénisse, je suis Salomon<sup id="a1">[1](#f1)</sup>. Mes prières, mon amour, mon désir de votre succès sont avec vous, âmes bien-aimées. Que Dieu vous bénisse.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués  par Salomon sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-fr-old-testament-religious-figures/)[↩](#a1)
+
 
 ### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
 

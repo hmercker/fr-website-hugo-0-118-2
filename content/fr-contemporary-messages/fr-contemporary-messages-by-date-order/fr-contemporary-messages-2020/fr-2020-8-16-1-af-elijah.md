@@ -28,7 +28,7 @@ Le moment décisif est arrivé. Le choix de l'amour est on ne peut plus clair. C
 Que Dieu vous bénisse, âmes bien-aimées. Je suis Élie.<sup id="a1">[1](#f1)</sup> Je suis avec vous dans vos efforts. Beaucoup sont avec vous et cherchent à vous élever vers une plus grande Vérité et un plus grand Amour. Que Dieu vous bénisse. Chaque âme précieuse, je vous apporte une bénédiction. Ouvrez vos cœurs et sachez que vous êtes aimés. Que Dieu vous bénisse. Dieu vous bénit, mes bien-aimés.
 <small>
 
-1. <large id="f1"> Les différents messages communiqués  par Élie sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-fr-religious-figures/)[↩](#a1)
+1. <large id="f1"> Les différents messages communiqués  par Élie sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-fr-old-testament-religious-figures/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
 

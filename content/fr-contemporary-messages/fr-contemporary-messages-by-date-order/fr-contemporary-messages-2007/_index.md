@@ -31,7 +31,7 @@ Le père du médium | [Aide aux pays en difficulté](/fr-contemporary-messages/f
 Aman | [Les premiers parents - une description physique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-24-1-fab-aman/) | 24 Janvier 2007
 Aman | [Les premiers parents - leur famille et leur langue](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-24-2-fab-aman/) | 24 Janvier 2007
 Aman | [Les besoins nutritionnels des Premiers Parents et du Maître](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-24-3-fab-aman/) | 24 Janvier 2007
-Aman | [Changements dans le programme "The First Parents"](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-24-4-fab-aman/) | 24 Janvier 2007
+Aman | [Changements dans le programme "Les Premiers Parents"](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-24-4-fab-aman/) | 24 Janvier 2007
 Jésus | [Le retrait de l'Amour Divin et sa réaffectation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-24-5-fab-jesus/) | 24 Janvier 2007
 Abel | [Abel partage ses expériences](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-25-1-fab-abel/) | 25 Janvier 2007
 Aman | [Souvenirs et Espoir du Paradis](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-25-2-fab-aman/) | 25 Janvier 2007

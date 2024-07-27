@@ -38,7 +38,7 @@ Vous en serez témoins, mes chers amis, et vous participerez activement à élev
 Nous sommes avec vous tous, nous continuerons à travailler avec vous tous. Que Dieu vous bénisse, âmes bien-aimées. Je suis Élie. Mon amour est toujours avec vous, tout comme mes prières. Que Dieu vous bénisse.
 <small>
 
-1. <large id="f1"> Les différents messages communiqués  par Élie sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-fr-religious-figures/)[↩](#a1)
+1. <large id="f1"> Les différents messages communiqués  par Élie sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-fr-old-testament-religious-figures/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2020**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/)
 

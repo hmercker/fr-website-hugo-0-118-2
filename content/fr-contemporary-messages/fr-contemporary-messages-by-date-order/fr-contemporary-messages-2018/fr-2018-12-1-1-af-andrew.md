@@ -1,13 +1,13 @@
 ---
-title: "Il est encore temps de réveiller vos âmes par l’amour de Dieu"
+title: "Il est encore temps de réveiller vos âmes par l’Amour de Dieu"
 menu_title: ""
-description: "Il est encore temps de réveiller vos âmes par l’amour de Dieu"
+description: "Il est encore temps de réveiller vos âmes par l’Amour de Dieu"
 date: 2022-06-01 06:00:01+00:585
 draft: False
 hidden: True
 weight:
 ---
-### Il est encore temps de réveiller vos âmes par l’amour de Dieu
+### Il est encore temps de réveiller vos âmes par l’Amour de Dieu
 
 André - reçu par Al Fike le 1<sup>er</sup> Décembre 2018, Bayview, NSW, Australie.
 

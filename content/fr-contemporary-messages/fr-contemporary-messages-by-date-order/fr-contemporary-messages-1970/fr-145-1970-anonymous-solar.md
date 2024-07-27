@@ -23,7 +23,7 @@ Toute notre vie a été consacrée au développement de l'âme et, bien que nous
 1. <large id="f1"> Solar s'est également exprimé dans les messages suivants : [↩](#a1)
 
 **Auteur** | **Titre du message** | **Date du message**  
----|---|--
+---|---|---
 Solar | [Préparez-vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-51-1970-1-20-anonymous-solar/) | 20 Janvier 1970
 Solar | [L'Amour de Dieu est la seule chose qui puisse apporter le vrai bonheur et la paix sur terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-145-1970-anonymous-solar/) |   1970
 

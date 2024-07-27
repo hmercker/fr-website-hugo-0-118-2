@@ -39,7 +39,11 @@ La vie est un test. Elle teste les forts et elle teste les faibles. Chacun doit 
 
 Tel est ton défi, mon fils. Tu continues à passer d’un camp à l’autre, à faire des allers-retours entre ces deux idées et consciences. Puisses-tu toujours chercher la vérité, mon fils, et choisir d’être avec Dieu. La paix viendra. La compréhension viendra à mesure que ton âme grandira et s’éveillera dans l’amour de Dieu.
 
-Que Dieu te bénisse. Je suis Salomon et je suis avec toi. Je suis souvent avec toi pour t’aider à apporter la sagesse à ton âme. Que Dieu te bénisse.
+Que Dieu te bénisse. Je suis Salomon<sup id="a1">[1](#f1)</sup> et je suis avec toi. Je suis souvent avec toi pour t’aider à apporter la sagesse à ton âme. Que Dieu te bénisse.
+<small>
+
+1. <large id="f1"> Les différents messages communiqués  par Salomon sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-fr-old-testament-religious-figures/)[↩](#a1)
+
 
 ### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)
 

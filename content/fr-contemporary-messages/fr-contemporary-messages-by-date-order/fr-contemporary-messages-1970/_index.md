@@ -36,7 +36,7 @@ Nickolas | [La plus grande force vient de l'Amour de Dieu](/fr-contemporary-mess
 Cannon Hinchliff | [Soyez un exemple vivant de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-100-1970-anonymous-cannon-hincliff/) |   1970
 St Paul | [Recherchez le bonheur dans tout ce que vous faites](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-101-1970-anonymous-st-paul/) |   1970
 St Jean | [Je dois faire plus pour Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-102-1970-anonymous-st-john/) |   1970
-St Paul | [Dieu aime tous ses enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-103-1970-anonymous-st-paul/) |   1970
+St Paul | [Dieu aime tous Ses enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-103-1970-anonymous-st-paul/) |   1970
 Mahatma Gandhi | [Préparez-vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-104-1970-anonymous-mahatma-gandhi/) |   1970
 St Paul | [La prière est si importante pour vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-105-1970-anonymous-st-paul/) |   1970
 Augustin | [Enseigner de manière simple](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-106-1970-anonymous-augustine/) |   1970

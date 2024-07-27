@@ -22,7 +22,7 @@ Il a été mentionné précédemment dans ce travail de prise de conscience de l
 Merci pour cette opportunité de transmettre ce message d'Amour, Votre ami et enseignant Céleste, Élie.
 <small>
 
-1. <large id="f1"> Les différents messages communiqués  par Élie sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-fr-religious-figures/)[↩](#a1)
+1. <large id="f1"> Les différents messages communiqués  par Élie sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-fr-old-testament-religious-figures/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2008**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/)
 

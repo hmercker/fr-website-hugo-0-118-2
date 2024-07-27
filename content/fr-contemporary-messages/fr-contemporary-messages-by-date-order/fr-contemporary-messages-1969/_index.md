@@ -26,7 +26,7 @@ Keea Atta Kem | [Les lois de Dieu sont universelles](/fr-contemporary-messages/f
 Samuel | [La vérité ne peut jamais échouer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-17-1969-8-1-anonymous-samuel/) | 1<sup>er</sup> Août 1969
 Augustin | [Recherchez ce don d'Amour Divin pour vous-mêmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-18-1969-8-11-anonymous-augustine/) | 11 Août 1969
 Confucius | [Allez de l'avant en tant qu'enseignants et guérisseurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-19-1969-8-11-anonymous-confucius/) | 11 Août 1969
-Augustin | [Nous devons avoir un but unique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-20-1969-8-21-anonymous-augustine/) | 21 Août 1969
+Augustin | [Nous devons avoir un but unique_2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-20-1969-8-21-anonymous-augustine/) | 21 Août 1969
 Samuel | [Guidez vos enfants, enseignez-leur le droit chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-21-1969-8-28-anonymous-samuel/) | 28 Août 1969
 Layota | [Un message à ceux qui sont en esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-22-1969-9-11-anonymous-layota/) | 11 Septembre 1969
 Samuel | [Préparation à la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-23-1969-9-22-anonymous-samuel/) | 22 Septembre 1969
@@ -36,8 +36,8 @@ Albert Einstein | [Sa maison dans le monde des esprits](/fr-contemporary-message
 Jacques | [Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-27-1969-10-2-anonymous-james/) | 2 Octobre 1969
 Daniel | [Le don de discernement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-28-1969-10-3-anonymous-daniel/) | 3 Octobre 1969
 Mahatma Gandhi | [Priez pour mon peuple](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-29-1969-10-13-anonymous-mahatma-gandhi/) | 13 Octobre 1969
-Jacques | [Instructions sur la Voix Ddirecte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-30-1969-10-23-anonymous-james/) | 23 Octobre 1969
-Mahatma Gandhi | [Instructions sur la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-31-1969-10-27-anonymous-mahatma-gandhi/) | 27 Octobre 1969
+Jacques | [Instructions sur la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-30-1969-10-23-anonymous-james/) | 23 Octobre 1969
+Mahatma Gandhi | [Instructions sur la Voix Directe_2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-31-1969-10-27-anonymous-mahatma-gandhi/) | 27 Octobre 1969
 Goldie | [Vous ne pouvez grandir que pas à pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-34-1969-11-1-anonymous-goldie/) | 1<sup>er</sup> Novembre 1969
 Mahatma Gandhi | [Que l'Amour de Dieu vous enveloppe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-32-1969-11-3-anonymous-mahatma-gandhi/) | 3 Novembre 1969
 Moïse | [Aucun d'entre nous n'est une île](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-33-1969-11-3-anonymous-moses/) | 3 Novembre 1969

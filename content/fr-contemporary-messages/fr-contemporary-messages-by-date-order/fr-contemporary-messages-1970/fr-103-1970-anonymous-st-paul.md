@@ -1,13 +1,13 @@
 ---
-title: "Dieu aime tous ses enfants"
+title: "Dieu aime tous Ses enfants"
 menu_title: ""
-description: "Dieu aime tous ses enfants"
+description: "Dieu aime tous Ses enfants"
 date: 2022-06-01 06:00:01+00:133
 draft: False
 hidden: True
 weight:
 ---
-### Dieu aime tous ses enfants
+### Dieu aime tous Sses enfants
 
 St Paul - reçu en 1970, Vancouver, Colombie-Britannique, Canada.
 

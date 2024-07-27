@@ -97,7 +97,7 @@ Yogananda | [Joie et guérison](/fr-contemporary-messages/fr-contemporary-messag
 Yogananda | [C’est simple](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-12-1-jw-yogananda/) | 12 Avril 2021
 Yogananda | [Cet amour vous transportera à la fontaine de la grâce](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-3-1-jw-yogananda/) | 3 Mai 2021
 Yogananda | [Le Chant de l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-10-1-jw-yogananda/) | 10 Mai 2021
-Yogananda | [De nombreux saints ont prié de tout leur cœur pour l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-27-1-jw-yogananda/) | 27 Mai 2021
+Yogananda | [De nombreux saints ont prié de tout leur cœur pour l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-27-1-jw-yogananda/) | 27 Mai 2021
 Yogananda | [Les 3 niveaux du mental](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-20-1-af-yogananda/) | 20 Juin 2021
 Yogananda | [Transcender tout est le don de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-5-2-jw-yogananda/) | 5 Juillet 2021
 Yogananda | [Votre cœur vous conduira à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-2-1-jw-yogananda/) | 2 Août 2021
@@ -122,5 +122,6 @@ Yogananda | [L'âme dans l'Amour de Dieu](/fr-contemporary-messages/fr-contempor
 Yogananda | [La progression de l'âme vers la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-16-2-jw-yogananda/) | 16 Octobre 2023
 Yogananda | [Héritage spirituel et ADN](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-29-1-jw-yogananda/) | 29 Janvier 2024
 Yogananda | [Suivez vos rêves](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-4-1-jw-yogananda/) | 4 Mars 2024
+Yogananda | [Une leçon sur la vérité ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-22-1-af-yogananda/) | 22 Mai 2024
 
 

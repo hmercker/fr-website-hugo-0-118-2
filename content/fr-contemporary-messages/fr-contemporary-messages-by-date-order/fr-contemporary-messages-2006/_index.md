@@ -90,7 +90,7 @@ Franklin D Roosevelt | [Le président Roosevelt complète son message précéden
 Jésus | [Le peuple américain et la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-25-2-fab-jesus/) | 25 Décembre 2006
 Franklin D Roosevelt | [La moralité du président Roosevelt](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-26-1-fab-franklin-d-roosevelt/) | 26 Décembre 2006
 Jésus | [Guerre et paix et le plan de Dieu - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-26-2-fab-jesus/) | 26 Décembre 2006
-Joan d'Arc | [Et si je [Jeanne d’Arc] n’avait pas été exécutée ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-26-3-gmb-joan-darc/) | 26 Décembre 2006
+Jeanne d'Arc | [Et si je [Jeanne d’Arc] n’avais pas été exécutée ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-26-3-gmb-joan-darc/) | 26 Décembre 2006
 
 ### [**Lien vers les messages des années 2007**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/)
 

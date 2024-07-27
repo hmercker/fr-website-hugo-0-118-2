@@ -36,4 +36,4 @@ Avec tout mon amour, je suis votre frère en Christ, St. Jacques de la Bible, ma
 
 2. <large id="f2"> ll s'agit du Dr Stone, premier publicateur des messages reçus par James Padgett[↩](#a2)
 
-3. <large id="f3"> Il s’agit d’une erreur, car cette référence n’est pas dans Luc mais dans Matthieu (Mathieu 27:51-53) Des commentateurs ont laissé entendre qu’il s’agissait d’une erreur du Dr Samuels, soit lors de la réception du message ou lors de sa transcription, car il est inconcevable que Jacques ait fait cette erreur.[↩](#a3)
+3. <large id="f3"> Il s’agit d’une erreur, car cette référence n’est pas dans Luc mais dans [Matthieu 27:51-53](https://saintebible.com/matthew/27-52.htm). Des commentateurs ont laissé entendre qu’il s’agissait d’une erreur du Dr Samuels, soit lors de la réception du message ou lors de sa transcription, car il est inconcevable que Jacques ait fait cette erreur.[↩](#a3)

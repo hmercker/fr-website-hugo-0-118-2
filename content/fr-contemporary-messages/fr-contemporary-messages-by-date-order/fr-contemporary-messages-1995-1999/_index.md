@@ -34,7 +34,7 @@ Marie | [Conseil personnel à A___](/fr-contemporary-messages/fr-contemporary-me
 Marie | [Sur les médiums canalisant la contre-vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1998-11-25-1-ar-mary/) | 25 Novembre 1998
 Marie | [L’ascension de Jésus et les prophéties de Daniel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1998-12-1-ar-mary/) |  1<sup>er</sup> Décembre 1998
 Marie | [Pourquoi Dieu nous a-t-il créés ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1998-12-10-1-ar-mary/) | 10 Décembre 1998
-Marie | [Marie Le livre d’Urantia et le texte des Mormons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-1-16-1-ar-mary/) | 16 Janvier 1999
+Marie | [Le livre d’Urantia et le texte des Mormons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-1-16-1-ar-mary/) | 16 Janvier 1999
 Marie | [Partager](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-2-25-1-ar-mary/) | 25 Février 1999
 Joseph | [Mental et spiritualité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-3-4-1-ar-joseph/) | 4 Mars 1999
 Kahlil Gibran | [Poésie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-3-19-1-ar-kahlil-gibran/) | 19 Mars 1999
@@ -49,8 +49,8 @@ Jésus | [Les esprits peuvent ajuster leur apparence pour répondre à l'attente
 Aigle Blanc | [Les animaux et l’amour naturel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-9-4-1-ar-white-eagle/) | 4 Septembre 1999
 Jésus | [Prière et protection contre les esprits inférieurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-9-12-1-ks-jesus/) | 12 Septembre 1999
 Marie | [Réponse aux questions personnelles et sur la raison pour laquelle James Padgett a été choisi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-9-16-1-ar-mary/) | 16 Septembre 1999
-Jésus | [Le miracle de Fatima et l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-9-19-1-ks-jesus/) | 19 Septembre 1999
-Marie & White Eagle | [Le soleil bondissant de Fatima](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-9-19-2-ar-mary-white-eagle/) | 19 Septembre 1999
+Jésus | [Le soleil bondissant de Fatima](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-9-19-1-ks-jesus/) | 19 Septembre 1999
+Marie & Aigle  Blanc | [Le miracle de Fatima et l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-9-19-2-ar-mary-white-eagle/) | 19 Septembre 1999
 Marie | [Comment les lois de Dieu agissent sur la vie des hommes et des femmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-10-12-1-ar-mary/) | 12 Octobre 1999
 Jésus | [Les pensées pécheresses et la loi de compensation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-10-25-1-ks-jesus/) | 25 Octobre 1999
 Marie | [Sur la cruauté envers les animaux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-10-30-1-ar-mary/) | 30 Octobre 1999
