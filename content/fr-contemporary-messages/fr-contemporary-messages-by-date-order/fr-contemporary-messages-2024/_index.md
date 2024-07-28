@@ -219,7 +219,6 @@ Barbara Davies | [Permettez à ce don de faire son œuvre, cette bénédiction d
 Faith | [Marchez dans la foi et partagez la vérité de l’Amour Divin ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-24-3-af-faith/) | 24 Juin 2024
 Augustin | [Les opportunités abondent pour vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-24-4-af-augustine/) | 24 Juin 2024
 Serreta Kem | [Vous trouverez votre chemin dans ce voyage d’éveil à travers la médiumnité ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-24-5-af-serreta-kem/) | 24 Juin 2024
-Augustin | [Les opportunités abondent pour vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-24-4-af-augustine/) | 24 Juin 2024
 Kahlil Gibran | [Amour Infini](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-25-1-jw-kahlil-gibran/) | 25 Juin 2024
 Luc | [Prières magnétiques](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-25-2-jw-luke/) | 25 Juin 2024
 Serreta Kem | [La transformation est la clé de votre rassemblement ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-25-3-af-serreta-kem/) | 25 Juin 2024
