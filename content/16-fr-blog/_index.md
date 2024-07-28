@@ -9,6 +9,8 @@ weight: 145
 ---
 ### Blog
 
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
 La Résurection de Jésus | [Le vrai sens de la résurrection de Jésus de Nazareth](/16-fr-blog/fr-2017-04-23-the-resurrection-from-jesus-of-nazareth/) | 23 Avril 2017
 La Nouvelle Naissance | [La Nouvelle Naissance dont Jésus a parlé](16-fr-blog/fr-2017-07-06-the-new-birth) | 06 Juillet 2017
 La Nouvelle Naissance | [Le vrai sens du sacrifice de Jésus sur la croix](16-fr-blog/fr-2017-07-06-the true-sense-of-jesus-sacrifice) | 06 Juillet 2017
