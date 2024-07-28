@@ -9,7 +9,7 @@ weight:
 ---
 ### Un nouvel ange qui nous apporte une grande lumière
 
-Eaux Vives - reçu par Albert Fike le 23 Février 2024, Sechelt, Colombie-Britannique, Canada.
+Eaux Vives - reçu par Albert Fike le 18 Juin 2024, Sechelt, Colombie-Britannique, Canada.
 
 Alors que le Grand Esprit Blanc touche vos âmes, je m’appelle Bright Waters (Eaux Vives) et vous ne me connaissez pas, mais je vous connais. Je suis une habitante du Ciel Céleste. Je le suis depuis longtemps maintenant. Ce cher instrument remarque la beauté des femmes. Moi aussi, j’étais belle à l’époque où j’étais sur Terre, et je le suis toujours. Chaque enfant du Royaume des Cieux est beau et affiche une lumière et un amour magnétiques. Cela attire beaucoup de gens vers nous, parce que nous avons l’amour de Dieu en nous.
 

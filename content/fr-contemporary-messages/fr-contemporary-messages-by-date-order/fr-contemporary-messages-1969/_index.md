@@ -20,7 +20,7 @@ Sœur Maria | [Les deux voies](/fr-contemporary-messages/fr-contemporary-message
 Samuel | [Explication sur l'immortalité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-10-1969-7-3-anonymous-samuel/) | 3 Juillet 1969
 Reboham | [Dieu est Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-11-1969-7-10-anonymous-rehaboam/) | 10 Juillet 1969
 Thérèse | [Cherchez l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-12-1969-7-14-anonymous-therese/) | 14 Juillet 1969
-Joseph Smith | [Fondateur de la foi mormone](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-13-1969-7-14-anonymous-joseph-smith/) | 14 Juillet 1969
+Joseph Smith | [Fondateur de la foi Mormone](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-13-1969-7-14-anonymous-joseph-smith/) | 14 Juillet 1969
 Samuel | [Renforcez ce lien entre vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-14-1969-7-17-anonymous-samuel/) | 17 Juillet 1969
 Keea Atta Kem | [Les lois de Dieu sont universelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-16-1969-7-24-anonymous-keea-atta-kem/) | 24 Juillet 1969
 Samuel | [La vérité ne peut jamais échouer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-17-1969-8-1-anonymous-samuel/) | 1<sup>er</sup> Août 1969

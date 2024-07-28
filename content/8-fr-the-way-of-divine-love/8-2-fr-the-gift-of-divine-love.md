@@ -54,15 +54,13 @@ Dans les messages sur les Cieux, vous trouverez une description et la différenc
 <br>
 > Finalement, la lumière est venue à moi et avec elle, un tel afflux d'amour que je n'aurais jamais imaginé que cela soit possible, ni sur terre ni dans le monde spirituel. Mais elle est venue à moi et j'ai eu l'impression d'être un nouvel esprit, et une telle félicité m'est venue, comme je ne l'avais jamais connue auparavant. Et puis ta tendre mère est venue exulter avec moi, ainsi que ta magnifique épouse, qui s'est donné tant de mal pour me faire rechercher cet amour. - Albert G. Riddle
 
-Le concept de l'Amour Divin est simple et particulièrement en accord avec le Nouveau Testament :  *« Jésus répondit et lui dit : En vérité, en vérité, je te le dis, si quelqu'un ne naît de nouveau, il ne peut voir le royaume de Dieu »* - Jean 3:3
-
-Et encore : *« Et je leur ai fait connaître ton nom, et je le leur ferai connaître, afin que l'amour dont tu m'as aimé soit en eux, et que je sois en eux »* - Jean 17:26
+Et encore : *« Et je leur ai fait connaître ton nom, et je le leur ferai connaître, afin que l'amour dont tu m'as aimé soit en eux, et que je sois en eux »* - [Jean 17:26](https://saintebible.com/john/17-26.htm)
 
 De toutes les théories sur la façon dont on peut être sauvé en suivant Jésus, c'est certainement la plus simple ! On peut se le prouver à soi-même en tentant simplement [la grande expérience](/fr-james-padgett-messages/1-13-fr-the-great-experiment/) ! Vous SENTIREZ réellement cet amour.
 
 > J'invitais en même temps tous ceux qui entendaient mes paroles à mettre mon message à l'épreuve et à demander l'infusion de l'Amour Divin, ce qui ne peut être obtenu que par la prière sérieuse et l'aspiration de l'âme. Car une fois que l'Esprit Saint aura été envoyé pour déposer l'Amour Divin dans le cœur des hommes et le faire briller, personne ne douterait plus que je suis vraiment celui qui a été promis il y a si longtemps. – [Jésus le 14 Juin et le 5 Novembre 1955](/fr-samuels-messages/fr-revelations/fr-rev-5-14-june-und-5-november-1955-samuels-jesus/)
 
-C'est ainsi que l'on fait l'expérience de la paix qui transcende toute expédition. Même la Bible rapporte le sentiment physique de cet amour : *« Et ils disaient entre eux : Notre cœur ne brûlait-il pas au dedans de nous, lorsqu'il nous parlait en chemin et qu'il nous ouvrait les Écritures ? »* -  Luc 24:32
+C'est ainsi que l'on fait l'expérience de la paix qui transcende toute expédition. Même la Bible rapporte le sentiment physique de cet amour : *« Et ils disaient entre eux : Notre cœur ne brûlait-il pas au dedans de nous, lorsqu'il nous parlait en chemin et qu'il nous ouvrait les Écritures ? »* -  [Luc 24:32](https://saintebible.com/luke/24-32.htm)
 
 Jésus ne nous a pas seulement enseigné la nécessité de cette Nouvelle Naissance, mais aussi le chemin par lequel ce miracle peut être accompli. Ce chemin n'est pas seulement simple et facile à comprendre, mais il révèle aussi la vérité qui lui est inhérente, car en même temps que cet amour, la connaissance de ce miracle mûrit également. Celui qui aspire à la grâce de l'amour divin doit demander ce don au Père de tout son cœur ; c'est ce que Jésus a enseigné et continue d'enseigner.
 

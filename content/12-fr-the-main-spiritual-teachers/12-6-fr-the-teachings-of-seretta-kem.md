@@ -106,7 +106,7 @@ Seretta Kem | [Instructions pour la Voix Directe](/fr-contemporary-messages/fr-c
 Seretta Kem | [Ouvrez-vous au plus haut niveau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-27-2-af-seretta-kem/) | 27 Septembre 2018
 Seretta Kem | [La bénédiction transformatrice de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-1-2-af-seretta-kem/) | 1 Octobre 2018
 Seretta Kem | [La naissance de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-2-2-af-seretta-kem/) | 2 Octobre 2018
-Seretta Kem | [La naissance de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-6-1-af-seretta-kem/) | 6 Octobre 2018
+Seretta Kem | [La naissance de l'âme_2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-6-1-af-seretta-kem/) | 6 Octobre 2018
 Seretta Kem | [Vous vous réveillez ensemble pour faire partie du plan de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-7-2-af-seretta-kem/) | 7 Octobre 2018
 Seretta Kem | [L'intégration du mental matériel au mental de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-9-1-af-seretta-kem/) | 9 Octobre 2018
 Seretta Kem | [La Voix Directe Clarifiée - Alignement de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-10-2-af-seretta-kem/) | 10 Octobre 2018
@@ -149,7 +149,7 @@ Seretta Kem | [Vous continuez à vous éveiller alors que vos âmes grandissent 
 Seretta Kem | [L'engagement est nécessaire pour développer les dons de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-10-19-1-af-seretta-kem/) | 19 Octobre 2019
 Seretta Kem | [Priez pour que Dieu guérisse la faille entre chaque âme et Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-10-21-1-af-seretta-kem/) | 21 Octobre 2019
 Seretta Kem | [Conseils pour que le Cercle des Sept se réunisse en personne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-19-2-mc-seretta-kem/) | 19 Décembre 2019
-Seretta Kem | [Guide pour la retraite de la voix directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-5-1-af-seretta-kem/) | 5 Janvier 2020
+Seretta Kem | [Guide pour la retraite de la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-5-1-af-seretta-kem/) | 5 Janvier 2020
 Seretta Kem | [Il vous sera donné de dont vous aurez besoin pour servir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-7-3-af-seretta-kem/) | 7 Janvier 2020
 Seretta Kem | [Vous devez vous concentrer sur la Prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-12-2-af-seretta-kem/) | 12 Janvier 2020
 Seretta Kem | [Encouragement au développement des dons de médiumnité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-2-14-2-af-seretta-kem/) | 14 Février 2020
@@ -160,7 +160,7 @@ Seretta Kem | [La médiumnité exige de se consacrer au développement d'une rel
 Seretta Kem | [La conscience de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-18-1-af-seretta-kem/) | 18 Avril 2020
 Seretta Kem | [Comment le mental interprète les événements par rapport à l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-8-2-af-seretta-kem/) | 8 Mai 2020
 Seretta Kem | [Accueillir la libération de ce qui n'est pas en Harmonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-22-1-af-seretta-kem/) | 22 Mai 2020
-Seretta Kem | [Maintenir l'harmonie dans votre groupe - V.D.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-25-2-af-seretta-kem/) | 25 Mai 2020
+Seretta Kem | [Maintenir l'harmonie dans votre groupe - Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-25-2-af-seretta-kem/) | 25 Mai 2020
 Seretta Kem | [Les contradictions entre l'esprit et l'âme - Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-26-1-af-seretta-kem/) | 26 Mai 2020
 Seretta Kem | [Le plan de Dieu pour le salut de l'humanité et la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-14-2-af-seretta-kem/) | 14 Juin 2020
 Seretta Kem | [Nous vous tricotons ensemble d'âme à âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-14-3-af-seretta-kem/) | 14 Juin 2020
@@ -185,7 +185,7 @@ Seretta Kem | [Démarrage et engagement des anges](/fr-contemporary-messages/fr-
 Seretta Kem | [Les efforts des anges pour apporter la vérité sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-9-1-af-seretta-kem/) | 9 Juin 2021
 Seretta Kem | [Conseils et instructions pour la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-12-1-af-seretta-kem/) | 12 Juin 2021
 Seretta Kem | [Les conditions terrestres et le libre arbitre de chaque individu détermineront qui participera à la retraite](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-15-1-af-seretta-kem/) | 15 Juin 2021
-Seretta Kem | [Instructions sur la façon de se préparer à Direct Voice (2021 Voix Directe II)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-26-1-af-seretta-kem/) | 26 Juin 2021
+Seretta Kem | [Instructions sur la façon de se préparer à la Voix Directe (2021 Voix Directe II)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-26-1-af-seretta-kem/) | 26 Juin 2021
 Seretta Kem | [Changements terrestres et changements que nous remarquerons en nous-mêmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-27-2-af-seretta-kem/) | 27 Juin 2021
 Seretta Kem | [Encouragement de nos efforts et notre auto-compassion dans le développement de la voix directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-10-1-af-seretta-kem/) | 10 Juillet 2021
 Seretta Kem | [Vous saurez quand faire un pas en avant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-17-2-af-seretta-kem/) | 17 Juillet 2021
@@ -245,4 +245,9 @@ Seretta Kem | [Les prières inébranlables sont essentielles au développement d
 Seretta Kem | [Encouragement personnel pour Al  et Jeanne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-11-1-af-seretta-kem/) | 11 Avril 2024
 Seretta Kem | [Découverte des attributs de l'âme ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-13-1-mc-seretta-kem/) | 13 Avril 2024
 Seretta kem | [Les interventions de guérison sont accessibles à tous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-24-1-af-seretta-kem/) | 24 Mai 2024
+Seretta Kem | [Soyez en paix ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-17-2-af-seretta-kem/) | 17 Juin 2024
+Serreta Kem | [Vous trouverez votre chemin dans ce voyage d’éveil à travers la médiumnité ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-24-5-af-serreta-kem/) | 24 Juin 2024
+Serreta Kem | [La transformation est la clé de votre rassemblement ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-25-3-af-serreta-kem/) | 25 Juin 2024
+
+
 

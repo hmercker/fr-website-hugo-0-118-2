@@ -17,11 +17,11 @@ Nos messages couvrent un grand nombre de lois spirituelles, dont peu de gens ont
 | [La loi de donner et recevoir](/10-fr-spiritual-subjects/10-1-fr-spiritual-laws/10-1-2-fr-the-law-of-give-and-receive/) |
 | [La loi de restauration (compensation)](/10-fr-spiritual-subjects/10-1-fr-spiritual-laws/10-1-3-fr-the-law-of-compensation/) |
 | [La loi de péréquation](/10-fr-spiritual-subjects/10-1-fr-spiritual-laws/10-1-4-fr-the-law-of-mutual-aid/) |
-| [La loi d’equipoise ou equilibre](/10-fr-spiritual-subjects/10-1-fr-spiritual-laws/10-1-5-fr-the-law-of-equipoise-or-balance/) |
+| [La loi d’Équipoise ou d'Équilibre](/10-fr-spiritual-subjects/10-1-fr-spiritual-laws/10-1-5-fr-the-law-of-equipoise-or-balance/) |
 | [La loi d’activation](/10-fr-spiritual-subjects/10-1-fr-spiritual-laws/10-1-6-fr-the-law-of-activation/) |
 | [La loi de l’Amour Divin](/10-fr-spiritual-subjects/10-1-fr-spiritual-laws/10-1-7-fr-the-law-of-divine-love/) |
 | [La loi du pardon](/10-fr-spiritual-subjects/10-1-fr-spiritual-laws/10-1-8-fr-the-law-of-forgiveness/) |
-| [La moi de la Prière](/10-fr-spiritual-subjects/10-1-fr-spiritual-laws/10-1-9-fr-the-law-of-prayer/) |
+| [La loi de la Prière](/10-fr-spiritual-subjects/10-1-fr-spiritual-laws/10-1-9-fr-the-law-of-prayer/) |
 | [La loi du progrès, du changement et de la croissance](/10-fr-spiritual-subjects/10-1-fr-spiritual-laws/10-1-10-fr-the-law-of-progress-change-and-growth/) |
 | [La loi du désir](/10-fr-spiritual-subjects/10-1-fr-spiritual-laws/10-1-11-fr-the-law-of-desire/) |
 | [La loi de l’harmonie](/10-fr-spiritual-subjects/10-1-fr-spiritual-laws/10-1-12-fr-the-law-of-harmony/) |

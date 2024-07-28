@@ -122,6 +122,6 @@ Yogananda | [L'âme dans l'Amour de Dieu](/fr-contemporary-messages/fr-contempor
 Yogananda | [La progression de l'âme vers la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-16-2-jw-yogananda/) | 16 Octobre 2023
 Yogananda | [Héritage spirituel et ADN](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-29-1-jw-yogananda/) | 29 Janvier 2024
 Yogananda | [Suivez vos rêves](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-4-1-jw-yogananda/) | 4 Mars 2024
-Yogananda | [Une leçon sur la vérité ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-22-1-af-yogananda/) | 22 Mai 2024
+Yogananda | [Une leçon sur la Vérité ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-22-1-af-yogananda/) | 22 Mai 2024
 
 

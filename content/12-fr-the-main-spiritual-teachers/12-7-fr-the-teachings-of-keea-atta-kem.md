@@ -26,7 +26,7 @@ Keea Atta Kem | [Ishmirama](/fr-contemporary-messages/fr-contemporary-messages-b
 Keea Atta Kem | [Plus vous donnez de l'amour et de la compréhension aux autres, plus vous recevez l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-150-1970-anonymous-keea-atta-kem/) |   1970
 Keea Atta Kem | [St. Augustin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-152-1970-anonymous-keea-atta-kem/) |   1970
 Keea Atta Kem | [C'est le développement de l'âme qui est important pour l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-49-1970-1-8-anonymous-keea-atta-kem/) | 8 Janvier 1970
-Keea Atta Kem | [Effet curatif des couleurs.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-54-1970-7-26-anonymous-keea-atta-kem/) | 26 Juillet 1970
+Keea Atta Kem | [Effet curatif des couleurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-54-1970-7-26-anonymous-keea-atta-kem/) | 26 Juillet 1970
 Keea Atta Kem | [Utiliser la gratitude pour éliminer les pensées négatives](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-9-14-1-af-keea-atta-kem/) | 14 Septembre 2015
 Keea Atta Kem | [Accepter chaque âme unique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-16-1-af-keea-atta-kem/) | 16 Janvier 2016
 Keea Atta Kem | [Le prisme de nos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-4-2-af-keea-atta-kem/) | 4 Avril 2016
@@ -109,3 +109,4 @@ Keea Atta Kem | [Affirme que le portail est ouvert ](/fr-contemporary-messages/f
 Keea Atta Kem | [Nous sommes avec vous dans l'amour et la joie ! ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-24-1-af-keea-atta-kem/) | 24 Octobre 2023
 Keea ata Kem | [Avec les bénédictions de Jésus. Encourage les expressions de nos âmes ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-10-2-af-keea-ata-kem/) | 10 Décembre 2023
 Keea Atta Kem | [L'harmonisation de vos prières crée une grande lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-11-1-af-keea-atta-kem/) | 11 Février 2024
+Keea Atta Kem | [Vous êtes des sages-femmes pour la conscience de l'âme à l'accouchement ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-6-1-af-keea-atta-kem/) | 6 Juin 2024

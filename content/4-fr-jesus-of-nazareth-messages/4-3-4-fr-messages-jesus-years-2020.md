@@ -16,7 +16,7 @@ Jésus | [Vous serez unis par un grand amour](/fr-contemporary-messages/fr-conte
 Jésus | [Les portes des Cieux Célestes ne seront pas fermées pendant des millénaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-2-4-1-af-jesus/) | 4 Février 2020
 Jésus | [Les temps de grands changements sont à nos portes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-2-1-af-jesus/) | 2 Mars 2020
 Jésus | [Je vous bénis comme mes disciples](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-5-3-af-jesus/) | 5 Mars 2020
-Jésus | [L'amour de Dieu est disponible pour chaque âme et existe partout](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-14-1-af-jesus/) | 14 Mars 2020
+Jésus | [L'Amour de Dieu est disponible pour chaque âme et existe partout](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-14-1-af-jesus/) | 14 Mars 2020
 Jésus | [Ayez foi en Dieu, les anges et le voyage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-22-1-af-jesus/) | 22 Mars 2020
 Jésus | [Permettez à Dieu de vous élever](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-27-2-af-jesus/) | 27 Mars 2020
 Jésus | [Cherchez et ce sera à vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-17-1-af-jesus/) | 17 Avril 2020
@@ -48,7 +48,7 @@ Jésus | [Que l’Amour de Dieu se déverse sur vous](/fr-contemporary-messages/
 Jésus | [Leçon 2 : Le choix – Choisissez de changer vos façons de voir et de comprendre le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-8-1-af-jesus/) | 8 Octobre 2020
 Jésus | [Les bénédictions couleront de manière plus constante, plus profonde et plus puissante](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-10-2-af-jesus/) | 10 Octobre 2020
 Jésus | [Une bénédiction de Jésus et des amis Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-11-1-af-jesus/) | 11 Octobre 2020
-Jésus | [L’âme, le mental et la libre volonté (Enseignements spéciaux 2020)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-13-1-af-jesus/) | 13 Octobre 2020
+Jésus | [L’âme, le mental et le libre arbitre (Enseignements spéciaux 2020)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-13-1-af-jesus/) | 13 Octobre 2020
 Jésus | [La Volonté de Dieu (Enseignements spéciaux 2020)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-13-2-af-jesus/) | 13 Octobre 2020
 Jésus | [Leçon 3 : Comment le mental et la condition humaine manifestent l’obscurité dans ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-15-1-af-jesus/) | 15 Octobre 2020
 Jésus | [Marcher sur la route de l’amour en tant qu’enfant de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-20-1-af-jesus/) | 20 Octobre 2020

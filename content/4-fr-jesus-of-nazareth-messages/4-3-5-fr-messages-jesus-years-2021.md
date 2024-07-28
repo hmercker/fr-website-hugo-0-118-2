@@ -29,7 +29,7 @@ Jésus | [Dernier message de Jésus au monde](/fr-contemporary-messages/fr-conte
 Jésus | [Bénédiction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-21-1-af-jesus/) | 21 Mars 2021
 Jésus | [Jésus visitera le plan terrestre à Pâques](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-30-1-af-jesus/) | 30 Mars 2021
 Jésus | [Cette flamme d’amour nettoiera tous les mondes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-4-1-af-jesus/) | 4 Avril 2021
-Jésus | [Changements Terrestres – Suivi des 20 Leçons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-9-1-af-jesus/) | 9 Avril 2021
+Jésus | [Leçon 1 : Changements Terrestres – Suivi des 20 Leçons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-9-1-af-jesus/) | 9 Avril 2021
 Jésus | [Déposez votre manteau de protection et venez nu à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-11-1-af-jesus/) | 11 Avril 2021
 Jésus | [Leçon 2 : Les Changements de la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-13-2-af-jesus/) | 13 Avril 2021
 Jésus | [Le toucher puissant de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-18-1-af-jesus/) | 18 Avril 2021

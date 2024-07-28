@@ -125,3 +125,4 @@ St Matthieu | [La Volonté de Dieu comme protection](/fr-contemporary-messages/f
 St Matthieu | [Le choix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-12-3-af-st-matthew/) | 12 Janvier 2024
 St Matthieu | [La bienveillance de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-17-1-af-st-matthew/) | 17 Janvier 2024
 St Matthieu | [Se présente comme un autre guide de Pierre ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-8-1-af-st-matthew/) | 8 Mars 2024
+Matthieu | [L'Amour de Dieu vous libérera des ténèbres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-3-1-af-matthew/) | 3 Octobre 2023

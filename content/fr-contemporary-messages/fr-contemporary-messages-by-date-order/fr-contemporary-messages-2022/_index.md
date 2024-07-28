@@ -57,7 +57,7 @@ Anna (Grand mère de Jésus) | [La grand-mère de Jésus se présente](/fr-conte
 Orion | [Décrit l'éveil de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-2-26-1-af-orion/) | 26 Février 2022
 Jésus | [Ne craignez rien, l’amour prévaudra et apportera la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-2-27-1-af-jesus/) | 27 Février 2022
 Judas | [Être en état de grâce](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-2-28-1-jw-judas/) | 28 Février 2022
-Claire d'Assise | [Pour que la paix l’emporte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-1-1-jw-clare-of-assisi/) | 1 Mars 2022
+Claire d'Assise | [Pour que la paix l’emporte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-1-1-jw-clare-of-assisi/) | 1<sup>er</sup Mars 2022
 Seretta Kem | [Soyez fidèle à votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-1-2-af-seretta-kem/) | 1<sup>er</sup> Mars 2022
 Care Derby Walsh | [Pas de regrets et service](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-3-1-jw-care-derby-walsh/) | 3 Mars 2022
 Anna (Grand mère de Jésus) | [Bénédiction d’une rose](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-3-2-mc-anna-grandmother-of-jesus/) | 3 Mars 2022
@@ -207,6 +207,7 @@ Orion | [Lever tous les obstacles à une plus grande lumière](/fr-contemporary-
 Jésus | [La porte est ouverte pour chacun de nous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-14-1-af-jesus/) | 14 Août 2022
 Jésus | [Leçon 21 : Les joies profondes de l’éveil de l’âme !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-16-1-af-jesus/) | 16 Août 2022
 Michael Collier  | [La chance d'avoir une communauté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-16-2-af-michael-collier/) | 16 Août 2022
+Orion | [Lever tous les obstacles à une plus grande lumière.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-16-3-af-orion/) | 16 Août 2022
 Moïse | [Nous sommes appelés à diriger](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-17-1-af-moses/) | 17 Août 2022
 André | [Cherchez la réalité de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-19-2-af-andrew/) | 19 Août 2022
 Orion | [Transformation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-20-2-af-orion/) | 20 Août 2022

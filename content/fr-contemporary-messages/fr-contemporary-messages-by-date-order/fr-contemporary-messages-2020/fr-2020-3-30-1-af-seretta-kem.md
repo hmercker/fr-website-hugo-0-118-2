@@ -11,7 +11,7 @@ weight:
 
 Seretta Kem - reçu par Al Fike le 30 Mars 2020, Gibsons, Colombie-Britannique, Canada.
 
-C’est moi, Seretta Kem. Je souhaite développer davantage l’exposé que notre bien-aimé [Flavius Joséphe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-29-1-af-josephus/) a fait l’autre jour. Je voudrais en particulier aborder les différentes expériences que les individus vivent lorsqu’ils prient pour l’Amour Divin, qu’ils tendent la main à Dieu et qu’ils se connectent avec leurs amis anges.
+C’est moi, Seretta Kem. Je souhaite développer davantage l’exposé que notre bien-aimé [Flavius Josèphe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-29-1-af-josephus/) a fait l’autre jour. Je voudrais en particulier aborder les différentes expériences que les individus vivent lorsqu’ils prient pour l’Amour Divin, qu’ils tendent la main à Dieu et qu’ils se connectent avec leurs amis anges.
 
 Le mortel, et d’ailleurs l’esprit, est une créature complexe. Dans votre monde, le monde matériel, dans une certaine mesure, chaque individu construit sa propre réalité. L’expérience de la vie de chaque individu est unique, bien que de nombreux aspects de la vie se chevauchent et que le cœur de l’expérience de la vie soit certainement identique en raison des divers aspects du monde matériel. Pourtant, chacun dispose du mental pour interpréter ces expériences. Chacun les perçoit différemment. Certains éléments de la perception sont accentués, chaque individu créant ainsi un kaléidoscope d’informations tactiles, visuelles et sensuelles qui varient d’un individu à l’autre.
 

@@ -9,7 +9,7 @@ weight: 620
 ---
 ## Les Âmes Sœurs
 
-Voici ce que dit le Dr Samuels :
+Voici ce que dit [le Dr Samuels](/fr-james-padgett-messages/fr-the-true-mission-of-jesus/) :
 
 > Les âmes humaines créées par le Père, selon les messages, sont duelles : elles sont composées d'un homme et d'une femme1 et, au moment de l'incarnation, elles se divisent en leurs deux parties constitutives. Chacune d'entre elles, par la suite dans la chair, est une âme complète en soi. Les âmes-sœurs peuvent ou non se rencontrer et se marier dans la chair, selon les diverses conditions et circonstances qui prévalent au moment de leur mariage ; mais un tel mariage n'est en aucun cas une garantie de bonheur, car les différences d'éducation, de croyances religieuses, de traditions familiales, d'éducation et d'autres circonstances de chacun peuvent souvent entraver plutôt qu'aider leurs relations maritales. D'autre part, les âmes qui ne sont pas des compagnons ont une meilleure chance d'harmonie conjugale si leur mariage est basé sur des intérêts, une éducation, une instruction et une condition sociale générale similaires sur le plan du monde matériel. Les âmes-sœurs, après la mort, finissent par se rencontrer et rester ensemble dans un véritable amour d'âme-sœur, mais pas avant une période de purification, et en fonction de leur état d'âme.
 
@@ -56,7 +56,7 @@ St Jean | [Jean explique la séparation des âmes sœurs dans le cas où les deu
 Mary Kennedy | [Réussit à faire entrer son âme sœur, Leslie, dans la troisième sphère, bien qu’à son retour il ne se souvienne pas du voyage qu’il a fait dans le monde des esprits](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-12-13-4-jep-mary-kennedy/) | 13 Décembre 1916
 Néron | [Néron raconte son expérience dans les enfers et l’aide de son âme-soeur](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-16-1-jep-nero/) | 16 Janvier 1917
 George E Luckett | [Un célibataire endurci décide qu’il va essayera de se mettre dans la condition qui lui permettra de rencontrer son âme-sœur](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-19-2-jep-george-luckett/) | 19 Janvier 1917
-Hélène Padgett | [Helen explique l'Amour Divin, l'amour naturel, l'amour de l'âme-soeur et les autres amours](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-11-26-1-jep-helen-padgett/) | 26 Novembre 1918
+Hélène Padgett | [Hélène explique l'Amour Divin, l'amour naturel, l'amour de l'âme-soeur et les autres amours](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-11-26-1-jep-helen-padgett/) | 26 Novembre 1918
 Jésus | [L’âme incarnée, par Jésus](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1920-1922/fr-1920-2-15-1-jep-jesus/) | 15 Février 1920
 Mary Kennedy | [Mary Kennedy dit que nous esprits des âmes-sœurs ne font pas d’autres plans quand nous pouvons être avec nos âmes-sœurs sur la terre.](/fr-james-padgett-messages/fr-padgett-messages-undated/fr-undated-45-jep-mary-kennedy/) | non daté
 Judas | [Homosexualité et âmes-sœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-30-1-hr-judas/) | 30 Août 2001

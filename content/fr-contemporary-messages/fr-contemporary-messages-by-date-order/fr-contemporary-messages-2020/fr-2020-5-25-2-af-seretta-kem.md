@@ -1,13 +1,13 @@
 ---
-title: "Maintenir l'harmonie dans votre groupe - V.D."
+title: "Maintenir l'harmonie dans votre groupe - Voix Directe"
 menu_title: ""
-description: "Maintenir l'harmonie dans votre groupe - V.D."
+description: "Maintenir l'harmonie dans votre groupe - Voix Directe"
 date: 2022-06-01 06:00:01+00:1120
 draft: False
 hidden: True
 weight:
 ---
-### Maintenir l'harmonie dans votre groupe - V.D.
+### Maintenir l'harmonie dans votre groupe - Voix Directe
 
 Seretta Kem - reçu par Al Fike le 25 Mai 2020, Gibsons, Colombie-Britannique, Canada.
 

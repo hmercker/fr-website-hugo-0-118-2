@@ -27,7 +27,7 @@ Jésus | [L’importance pour l’homme de cultiver la perception de l’âme. L
 St Luc | [Incarnation de l’âme – Mystère de la naissance de l’âme dans l’être humain](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-13-1-jep-st-luke/) | 13 Janvier 1916
 Samuel | [Incarnation de l’âme](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-17-1-jep-samuel/) | 17 Janvier 1916
 St Luc | [Le développement de l’âme dans son amour naturel, lorsque la Nouvelle Naissance n’est pas ressentie](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-3-1-jep-st-luke/) | 3 Février 1916
-St Luc | [Le développement de l’âme dans son amour naturel](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-16-1-jep-st-luke/) | 16 Février 1916
+St Luc | [Le développement de l’âme dans son amour naturel (suite)](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-16-1-jep-st-luke/) | 16 Février 1916
 St Luc | [Ce qu’un homme doit faire pour retrouver la pureté d’âme et d’amour que possédaient les premiers parents. La doctrine du péché originel est un mensonge hypocrite](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-4-27-1-jep-st-luke/) | 27 Avril 1916
 St Jean | [La condition de l’Âme lorsque l’Amour Divin s’écoule en elle](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-6-19-1-jep-st-john/) | 19 Juin 1916
 Jésus | [L’âme – ce qu’elle est et ce qu’elle n’est pas](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-3-2-1-jep-jesus/) | 2 Mars 1917

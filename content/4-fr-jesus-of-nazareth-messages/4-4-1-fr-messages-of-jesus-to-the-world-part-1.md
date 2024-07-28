@@ -17,7 +17,7 @@ C’est un livre d’espoir, d’espoir pour l’avenir de l’humanité. C’es
 
 Ce livre peut-être téléchargé par ce lien : [Messages de Jésus au Monde](/4-fr-jesus-of-nazareth-messages/notre-monde-en-transition-messages-de-jesus.pdf).
 
-Ce livre est également disponible à la vente sur Amazon.
+Ce livre est également disponible à la vente sur [Amazon](https://www.amazon.fr/Notre-Monde-Transition-Messages-Jesus/dp/B09S64MT54/ref=sr_1_1?__mk_fr_FR=%C3%85M%C3%85%C5%BD%C3%95%C3%91&crid=2V9ZLLN2ZRE5G&keywords=notre+monde+en+transition&qid=1644946773&sprefix=notre+mode+en+transition%2Caps%2C99&sr=8-1).
 
 Ces messages ont été communiqués entre le 1er Octobre 2020 et le 18 Mars 2021.
 

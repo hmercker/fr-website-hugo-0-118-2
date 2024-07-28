@@ -1,13 +1,13 @@
 ---
-title: "Une leçon sur la vérité"
+title: "Une leçon sur la Vérité"
 menu_title: ""
-description: "Une leçon sur la vérité"
+description: "Une leçon sur la Vérité"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### Une leçon sur la vérité 
+### Une leçon sur la Vérité 
 
 Yogananda -  reçu par Albert Fike le 22 Mai 2024, Sechelt, Colombie-Britannique, Canada.
 

@@ -9,7 +9,7 @@ weight: 90
 ---
 ## Sujets d'Actualité
 
-1. [L'âme](/9-fr-topical-subjects/9-1-fr-the-soul/)
+1. [La nature de l'âme](/9-fr-topical-subjects/9-1-fr-the-soul/)
 2. [La préexistence et l'incarnation de l'âme](/9-fr-topical-subjects/9-2-fr-the-pre-existence-and-incarnation-of-the-soul/)
 3. [Le processus de transformation de l'âme](/9-fr-topical-subjects/9-3-fr-the-process-of-transformation-of-the-soul/)
 4. [Qui et qu'est- ce que Dieu ?](/9-fr-topical-subjects/9-4-fr-who-and-what-is-god/)

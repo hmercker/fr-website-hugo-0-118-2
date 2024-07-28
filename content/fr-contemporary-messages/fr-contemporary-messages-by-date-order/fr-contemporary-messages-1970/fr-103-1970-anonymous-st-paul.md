@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Dieu aime tous Sses enfants
+### Dieu aime tous Ses enfants
 
 St Paul - reçu en 1970, Vancouver, Colombie-Britannique, Canada.
 

@@ -25,3 +25,4 @@ Bartholomée | [Il y a beaucoup de travail à faire et le temps presse](/fr-cont
 Bartholomée | [J'ai rencontré Jésus sur Terre et continue de répandre la vérité de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-13-1-af-st-bartholomew/) | 13 Janvier 2024
 Bartholomée | [L’Esprit Saint touche profondément vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-15-4-af-bartholomew/) | 15 Janvier 2024
 Bartholomée | [Parle sérieusement de l’avenir de l’Amour Divin à la Barbade ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-21-1-af-st-bartholomew/) | 21 Janvier 2024
+Bartholomée | [Vous connaîtrez le but et la raison de ce cercle ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-27-1-em-bartholomew/) | 27 Juin 2024

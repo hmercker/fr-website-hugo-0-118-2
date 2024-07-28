@@ -1,0 +1,26 @@
+---
+title: "Vous connaîtrez le but et la raison de ce cercle"
+menu_title: ""
+description: "Vous connaîtrez le but et la raison de ce cercle"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Vous connaîtrez le but et la raison de ce cercle 
+
+Bartholomée - reçu par Albert Fike le 27 Juin 2024, Sechelt, Colombie-Britannique, Canada.
+
+Je m’appelle Bartholomée. Oui, je suis proche de vous, ma fille (A), de vous tous dans les îles des Caraïbes qui cherchez à apporter cette Vérité de l’Amour de Dieu, cet amour rédempteur aux âmes de vos frères et sœurs. La Vérité est semée en vous. La Vérité est vécue par chacun de vous alors que vous vous réunissez dans ce Cercle de Lumière. De même que la Vérité s’épanouit dans votre être, ainsi les dons de votre âme se manifesteront effectivement et se réaliseront dans le monde, non déformés par un esprit cherchant le contrôle, non ternis par un esprit faible, mais manifestés dans la force, la gloire et la lumière de votre propre âme cherchant à être le canal de l’Amour de Dieu dans le monde. En cela, toutes les autres parties de vous-même s’alignent en expression et en harmonie avec les Lois de l’Amour, la lumière intérieure, l’amour s’exprimant à travers vous tous et chaque partie de vous.
+
+À la fin de ce temps passé ensemble, vous aurez peut-être l’impression que vous n’avez pas atteint vos objectifs, mais je vous le dis, mes amis, depuis quelques jours que vous êtes ensemble, vous avez beaucoup progressé. Certaines parties de vous ont été changées, déjà transformées par la vérité, par l’amour, par les soins des anges. Vous aurez tous ressenti l’impact des bénédictions qui se trouvent ici dans ce Cercle de Lumière.
+
+Mes amis bien-aimés, nous nous réunissons avec le désir de trouver les voies et moyens d’apporter cette vérité au monde. Certains d’entre vous sont très enthousiasmés par cette perspective. Certains d’entre vous se demandent comment faire partie d’un projet aussi vaste. Vous trouverez votre voie et les expressions de vos dons. En effet, à mesure que Dieu permet à Son plan de se déployer à travers chacun de vous, vous verrez comment vous en faites partie, comment vous pouvez y être exprimé, les beaux dons qui sont en vous, appliqués et manifestés à travers vous et reçus et expérimentés par d’autres. Suivez votre cœur. Suivez votre âme. Suivez l’inspiration qui vient de ces lieux et vous connaîtrez les gloires et l’émerveillement d’être un serviteur de Dieu.
+
+Nous donnons beaucoup à chacun de vous, âmes bien-aimées. Nous donnons beaucoup parce que nous voyons le potentiel qui est en vous. Nous sentons la Volonté de Dieu agir à travers nous pour votre bénéfice et nous avons un aperçu de ce qui peut se dérouler dans votre vie et sur Terre. Ayez foi, mes amis. Ayez confiance en vous. Ayez foi en la Volonté de Dieu manifestée à travers vous. Ayez foi dans la transformation qui se produit chez chacun de vous et marchez dans la joie. Pour qui d’autre avez-vous vécu cette expérience ensemble ? Qui d’autre vit la vérité ensemble de cette manière ?
+
+Vous êtes des âmes bénies, profondément bien-aimées, bénies au-delà de toute mesure, bénies avec une telle profondeur et une telle ampleur qu’il vous faudra un certain temps pour vraiment apprécier et comprendre ce qui a été donné. Vous verrez comment ces bénédictions données se manifesteront dans votre vie. Ce faisant, vous repenserez à cette période et réaliserez que Dieu a amené chacun de vous dans ce magnifique cercle dans un but et une raison. Cette raison et cet objectif se manifesteront dans plusieurs années à venir. Vous vous retrouverez motivé. Vous verrez en vous des changements. Vous ressentirez ces changements comme de puissantes bénédictions et motivations qui vous guideront tout au long de votre vie.
+
+Mes amis bien-aimés, puissiez-vous être vraiment bénis dans l’Amour de Dieu et dans la sagesse qui vient avec cet amour et la joie qui est un reflet, une expression de cet amour dans les perceptions, compréhensions et expériences uniques qui seront enflammées par cet amour. Tout est donné avec amour. Tous viendront dans l’amour, viendront dans l’amour, seront la véritable expression de la Volonté de Dieu à travers vous. Puissiez-vous être bénis, mes amis bien-aimés. Je m’appelle Barthélolomée et je vous aime.
+
+Je suis souvent avec toi, chère fille (A), et il y aura un jour où je parlerai à travers toi et j’exprimerai les intentions d’Amour de Dieu, de moi-même et de toi et toutes ces merveilleuses manières et dons manifestés dans la beauté de ton âme, chère fille. Une âme vraiment belle, une âme qui aspire à s’exprimer et à être utile à Dieu. Tu le seras dans une mesure encore plus grande que tu ne l’es en ce moment. Cela viendra et tu trouveras une grande joie en cela, fille bien-aimée, une grande joie dans l’éveil de l’expression de votre âme en alignement avec la grande âme de Dieu. Sois en paix, chère fille, et sache que tu progresses comme Dieu le veut. Tu découvres, à mesure que Dieu tes donne les voies et moyens de le faire, la grande vérité de l’amour, l’émerveillement de la création de Dieu, la beauté de votre propre âme. Que Dieu te bénisse, fille bien-aimée et bien-aimée. Que Dieu te bénisse.

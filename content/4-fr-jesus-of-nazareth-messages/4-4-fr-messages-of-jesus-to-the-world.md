@@ -27,7 +27,7 @@ Ces messages ont été communiqués en plusieurs parties.
 2. [Messages de Jésus au Monde 2ème partie - 9 Avril 2021 au 15 Décembre 2021](/4-fr-jesus-of-nazareth-messages/4-4-2-fr-messages-of-jesus-to-the-world-part-2/)
 3. [Messages de Jésus au Monde 3ème partie - 21 Juin 2022 au 26 Août 2022](/4-fr-jesus-of-nazareth-messages/4-4-3-fr-messages-of-jesus-to-the-world-part-3/)
 
-## Le 1er Octobre 2020 marque le début d'une collaboration spéciale entre Albert Fike et Jésus
+## Le 1<sup>er</sup> Octobre 2020 marque le début d'une collaboration spéciale entre Albert Fike et Jésus
 
 ![title](/4-fr-jesus-of-nazareth-messages/fr-picture-of-jeanne-al-by-dennis_small.jpg)
 

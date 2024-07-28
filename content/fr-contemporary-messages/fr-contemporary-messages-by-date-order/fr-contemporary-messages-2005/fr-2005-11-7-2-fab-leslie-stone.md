@@ -11,7 +11,7 @@ weight:
 
 Leslie Stone - reçu par FAB le 7 Novembre 2005, Santa Cruz, Californie, USA.
 
-Je suis ici, Leslie Stone<sup id="a1">[1](#f1)</sup> *[l'homme qui a publié en premier les messages de Padgett, et est un ami de M. Padgett]*.
+Je suis ici, Leslie Stone<sup id="a1">[1](#f1)</sup> *[l'homme qui a publié en premier les messages de James Padgett, et est un ami de M. Padgett]*.
 
 Je réside dans une Sphère Céleste sans nombre, tant mes progrès ont été grands jusqu'ici. Ce miracle s'est produit parce que, dans mon travail de publication des Vérités, j'ai attiré tout le Royaume Céleste, ce qui a eu un effet énorme sur mon âme. En effet, même sur Terre, j'ai souvent eu des expériences tout à fait inhabituelles, dont je savais qu'elles provenaient de cette influence Céleste.
 

@@ -41,8 +41,8 @@ Jésus | [Qui est l'auteur de "Nouveaux enseignements pour une humanité en éve
 Jésus | [Le levain de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-11-12-1-dl-jesus/) | 12 Novembre 1987
 Jésus | [Sans amour, je suis comme une cymbale qui tinye](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-12-17-1-dl-jesus/) | 17 Décembre 1987
 Jésus | [Le travail qui nous attend](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-12-31-1-dl-jesus/) | 31 Décembre 1987
-Jésus | [Jésus : La loi de l’équipoise et de l’équilibre.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-1-18-1-dl-jesus/) | 18 Janvier 1988
-Jésus | [Naissance sans péché.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-2-4-1-dl-jesus/) | 4 Février 1988
+Jésus | [Jésus : La loi de l’équipoise et de l’équilibre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-1-18-1-dl-jesus/) | 18 Janvier 1988
+Jésus | [Naissance sans péché_2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-2-4-1-dl-jesus/) | 4 Février 1988
 Jésus | [Les guérisons ne se font pas toujours instantanément](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-3-31-1-dl-jesus/) | 31 Mars 1988
 Jésus | [L'Amour Divin ne connaît pas la douleur du regret, du retard ou du manque d'accomplissement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-4-29-1-dl-jesus/) | 29 Avril 1988
 Jésus | [Jésus : La vérité et le voyage vers la perfection.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-8-11-1-dl-jesus/) | 11 Août 1988
@@ -81,13 +81,13 @@ Jésus | [Le soleil bondissant de Fatima](/fr-contemporary-messages/fr-contempor
 Jésus | [Les pensées pécheresses et la loi de compensation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-10-25-1-ks-jesus/) | 25 Octobre 1999
 Jésus | [Sur la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-6-1-ks-jesus/) | 6 Novembre 1999
 Jésus | [Encourageant Alfredo](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-19-1-ks-jesus/) | 19 Novembre 1999
-Jésus | [Dr Samuels et l’importance de la capacité du lecteur à utiliser ses propres perceptions de ces vérités par son âme.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-12-25-1-ar-jesus/) | 25 Décembre 1999
-Jésus | [Sur le suicide.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-1-16-1-ar-jesus/) | 16 Janvier 2000
-Jésus | [Jésus : Marchant sur l’eau.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-3-5-2-ks-jesus/) | 5 Mars 2000
+Jésus | [Dr Samuels et l’importance de la capacité du lecteur à utiliser ses propres perceptions de ces vérités par son âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-12-25-1-ar-jesus/) | 25 Décembre 1999
+Jésus | [Sur le suicide](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-1-16-1-ar-jesus/) | 16 Janvier 2000
+Jésus | [Jésus : Marchant sur l’eau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-3-5-2-ks-jesus/) | 5 Mars 2000
 Jésus | [Faire confiance aux autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-3-19-1-ks-jesus/) | 19 Mars 2000
 Jésus | [La vérité qui est écrite dans votre âme doit être parlée dans toutes les langues](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-6-4-1-ar-jesus/) | 4 Juin 2000
 Jésus | [Message annuel de transe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-6-25-1-ar-jesus/) | 25 Juin 2000
 Jésus | [Encouragement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-7-30-1-ar-jesus/) | 30 Juillet 2000
 Jésus | [Alfredo et Ourson Véloce](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-8-28-2-ar-jesus/) | 28 Août 2000
 Jésus | [La violence est-elle jamais justifiée en cas de légitime défense ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-9-8-1-ks-jesus/) | 8 Septembre 2000
-Jésus | [Un message de Noël.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-12-25-1-ar-jesus/) | 25 Décembre 2000
+Jésus | [Un message de Noël](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-12-25-1-ar-jesus/) | 25 Décembre 2000

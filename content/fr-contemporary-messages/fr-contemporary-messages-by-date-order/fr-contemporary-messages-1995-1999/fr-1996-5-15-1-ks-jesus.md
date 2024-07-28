@@ -37,9 +37,6 @@ Ainsi, un temps de progression fut de nouveau nécessaire et un retard dans le t
 
 Aujourd'hui, il est l'un des Anges Célestes qui travaillent parmi les hommes et les femmes sur terre, en particulier ceux qui cherchent à connaître la vérité, qui aiment Dieu et veulent que Sa volonté soit faite dans leur vie. Nous avons tous de nombreuses personnes avec lesquelles nous travaillons de temps en temps ; et notre travail est gratifiant lorsque nous voyons les résultats de nos influences se réaliser de jour en jour.
 
-
-
-
 Nous ne nous attendons pas à un grand retournement de situation en un clin d'œil, mais lorsque nous réussissons à influencer un million de personnes à prier, à aimer davantage leur prochain, à cesser de se battre mais plutôt à négocier, nous considérons ces petits pas comme un grand progrès.
 
 Les tendances et les attitudes négatives sont profondément ancrées et doivent subir des séries de changements, petit à petit, avant que la nature de ces individus ne subisse un renversement significatif. Si des millions d'Anges Célestes exercent leur influence sur les cœurs endurcis de l'humanité, il ne fait aucun doute que des progrès seront réalisés.
@@ -57,6 +54,8 @@ Et M. Padgett me demande de faire savoir à B____ qu'il sera l'un de ses esprits
 Je vais me contenter de cela pour aujourd'hui et je vous laisse maintenant avec mes bénédictions pour une semaine à venir productive et harmonieuse, et je vous remercie d'avoir reçu ce message.
 
 Je suis votre ami et frère en Christ, Jésus de la Bible et Maître des Cieux Célestes.
+
+**Note** : Sur la sélection de James Padgett, divers messages ont été adressés par divers esprits Célestes et entre autres par Jésus et St Jean. Ces différents messages sont accessibles par l'intermédiaire de [ce lien](/fr-james-padgett-messages/1-4-fr-james-padgett-messages-by-theme/1-4-1-fr-jesus-of-nazareth-selects-james-padgett/)
 
 ### [**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)
 

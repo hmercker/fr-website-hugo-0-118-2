@@ -57,5 +57,5 @@ Jésus | [Parle du plan de Dieu et de notre appel](/fr-contemporary-messages/fr-
 Jésus | [Confirme le message d'Orion et encourage l'ouverture aux possibilités](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-4-4-af-jesus/) | 4 Octobre 2022
 Jésus | [Bénis et encouragés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-8-3-al-jesus/) | 8 Octobre 2022
 Jésus | [Changements à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-15-2-af-jesus/) | 15 Octobre 2022
-Jésus | [L'Aamour de Dieu perce votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-21-1-af-jesus/) | 21 Octobre 2022
+Jésus | [L'Amour de Dieu perce votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-21-1-af-jesus/) | 21 Octobre 2022
 Jésus | [Continuez à vous concentrer sur la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-27-1-af-jesus/) | 27 Novembre 2022

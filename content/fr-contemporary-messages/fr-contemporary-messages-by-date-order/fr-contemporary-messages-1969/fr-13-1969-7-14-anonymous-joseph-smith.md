@@ -1,13 +1,13 @@
 ---
-title: "Fondateur de la foi mormone"
+title: "Fondateur de la foi Mormone"
 menu_title: ""
-description: "Fondateur de la foi mormone"
+description: "Fondateur de la foi Mormone"
 date: 2022-06-01 06:00:01+00:13
 draft: False
 hidden: True
 weight:
 ---
-### Fondateur de la foi mormone
+### Fondateur de la foi Mormone
 
 Joseph Smith - reçu le 14 Juillet 1969, Vancouver, Colombie-Britannique, Canada.
 

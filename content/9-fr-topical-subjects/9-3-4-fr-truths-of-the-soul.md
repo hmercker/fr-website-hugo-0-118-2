@@ -32,7 +32,7 @@ Keea Atta Kem | [Comment la vérité émerge dans l'âme](/fr-contemporary-messa
 Augustin | [Les graines de votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-23-1-af-augustine/) | 23 Novembre 2017
 Keea Atta Kem | [Un esprit qui suit la grâce de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-4-1-af-keea-atta-kem/) | 4 Décembre 2017
 Alec Gaunt | [Au fil des découvertes de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-24-1-af-alec-gaunt/) | 24 Janvier 2018
-Augustin | [La voix de l'âme vous guidera pour mettre en œuvre la volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-16-1-af-augustine/) | 16 Février 2018
+Augustin | [La voix de l'âme vous guidera pour mettre en œuvre la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-16-1-af-augustine/) | 16 Février 2018
 André | [Laissez l'âme s'exprimer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-2-1-af-andrew/) | 2 Mars 2018
 St Jean | [Le voyage vers l'éveil de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-2-2-af-st-john/) | 2 Mars 2018
 Augustin | [60/40 Défi de l’esprit d’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-15-2-af-augustine/) | 15 Mai 2018

@@ -1,13 +1,13 @@
 ---
-title: "Le développement de l’âme dans son amour naturel"
+title: "Le développement de l’âme dans son amour naturel (suite)"
 menu_title: ""
-description: "Le développement de l’âme dans son amour naturel"
+description: "Le développement de l’âme dans son amour naturel (suite)"
 date: 2022-06-01 06:00:01+00:146
 draft: False
 hidden: True
 weight:
 ---
-### Le développement de l’âme dans son amour naturel
+### Le développement de l’âme dans son amour naturel (suite)
 
 St Luc - reçu par James Padgett le 16 Février 1916, Washington, USA.
 

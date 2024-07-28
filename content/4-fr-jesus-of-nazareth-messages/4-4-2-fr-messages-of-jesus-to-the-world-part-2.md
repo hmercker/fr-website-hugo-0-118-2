@@ -30,6 +30,6 @@ Jésus | [Leçon 16 : Appel à tous les porteurs de lumière pour aider à const
 Jésus | [Leçon 17 : Les changements à venir dans votre monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-1-1-af-jesus/) | 1 Octobre 2021
 Jésus | [Leçon 18 : La loi de l’attraction et la progression de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-13-1-af-jesus/) | 13 Octobre 2021
 Jésus | [Leçon 19 : Appelle tous les éclaireurs à servir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-2-1-af-jesus/) | 2 Novembre 2021
-Jésus | [Leçon 20 : L’amour de Dieu est le seul moyen de sauver l’humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-4-1-af-jesus/) | 4 Novembre 2021
+Jésus | [Leçon 20 : L’Amour de Dieu est le seul moyen de sauver l’humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-4-1-af-jesus/) | 4 Novembre 2021
 Jésus | [Leçon 21 : Les lois qui régissent la progression de l’âme (2021 Projet Jésus 2)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-25-1-af-jesus/) | 25 Novembre 2021
 Jésus | [Leçon 22 : L’obscurité qui vient avant la lumière (2021 Le Projet Jésus 2)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-15-1-af-jesus/) | 15 Décembre 2021

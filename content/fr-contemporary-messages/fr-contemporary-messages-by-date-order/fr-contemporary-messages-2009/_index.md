@@ -24,7 +24,7 @@ St Jean | [La culture Grecque et les Juifs dans l’Ancienne Palestine](/fr-cont
 Le roi Arthur | [Un roi légendaire - le roi Arthur - est réel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-1-1-fab-king-arthur/) | 1<sup>er</sup> Février 2009
 St Jean | [Le choc des Juifs et des Gentils au premier siècle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-3-1-fab-st-john/) | 3 Février 2009
 Jésus | [La fermeture des Cieux Célestes - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-7-1-fab-jesus/) | 7 Février 2009
-Jésus | [Pré-existence des Cieux Célestes - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-7-2-fab-jesus/) | 7 Février 2009
+Jésus | [Pré-existence des Cieux Célestes - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-7-2-fab-jesus/) | 7 Février 2009
 Jésus | [L'unicité avec Dieu et les Soufis](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-9-1-fab-jesus/) | 9 Février 2009
 Noé | [L'histoire du déluge](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-10-1-fab-noah/) | 10 Février 2009
 St Jean | [La culture Juive du premier siècle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-11-1-fab-st-john/) | 11 Février 2009

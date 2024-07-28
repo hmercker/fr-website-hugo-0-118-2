@@ -1,13 +1,13 @@
 ---
-title: "Effet curatif des couleurs."
+title: "Effet curatif des couleurs"
 menu_title: ""
-description: "Effet curatif des couleurs."
+description: "Effet curatif des couleurs"
 date: 2022-06-01 06:00:01+00:122
 draft: False
 hidden: True
 weight:
 ---
-### Effet curatif des couleurs.
+### Effet curatif des couleurs
 
 Keea Atta Kem - reçu le 26 Juillet 1970, Vancouver, Colombie-Britannique, Canada.
 

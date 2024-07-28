@@ -241,7 +241,7 @@ Ils n'ont aucune raison de s'attarder ici, car le bonheur est plus grand dans le
 
 En fait, beaucoup d'esprits de l'Amour Divin s'empressent également d'entrer dans la sixième, puis d'en revenir. La sixième n'est pas tout à fait adaptée pour eux, et ils ont beaucoup de développement à faire dans la cinquième. Et, une fois qu'ils ont reçu davantage d'Amour Divin, ils peuvent progresser directement vers la Septième Sphère.
 
-Il a été rapporté que Mère Teresa est passée dans la Cinquième Sphère, et c'est le plus haut niveau que nous ayons entendu pour un mortel, bien qu'il y en ait eu d'autres. Tout récemment, nous avons appris que François d'Assise était également passé dans la Cinquième Sphère. Peu de gens pourraient douter de l'amour que Mère Teresa avait, ou de la ferveur spirituelle que François d'Assise avait. Le Dr Stone, qui a assisté James Padgett <sup id="a14">[14](#f14)</sup> dans ses révélations spirituelles, est également passé dans la Cinquième. Ce qui est intéressant, c'est que ni Mère Teresa ni François d'Assise n'ont été instruits du concept d'Amour Divin, mais leur ferveur spirituelle était telle qu'ils ont suivi cette voie automatiquement. Il est en fait possible de trouver cette voie intuitivement, et c'est probablement ce qui a distingué de nombreux « saints ».
+Il a été rapporté que Mère Teresa est passée dans la Cinquième Sphère, et c'est le plus haut niveau que nous ayons entendu pour un mortel, bien qu'il y en ait eu d'autres. Tout récemment, nous avons appris que François d'Assise était également passé dans la Cinquième Sphère. Peu de gens pourraient douter de l'amour que Mère Teresa avait, ou de la ferveur spirituelle que François d'Assise avait. Le Dr Stone, qui a assisté James Padgett <sup id="a14">[14](#f14)</sup> dans ses révélations spirituelles, a  également transité au niveau de la Cinquième sphère. Ce qui est intéressant, c'est que ni Mère Teresa ni François d'Assise n'ont été instruits du concept d'Amour Divin, mais leur ferveur spirituelle était telle qu'ils ont suivi cette voie automatiquement. Il est en fait possible de trouver cette voie intuitivement, et c'est probablement ce qui a distingué de nombreux « saints ».
 
 Voici la description d'une maison dans la Cinquième Sphère :
 
@@ -320,13 +320,13 @@ Certaines de ces publications sont disponibles en français. Ce sont :
 - Le Journal Post Mortem du Colonel Lawrence par Janes Sherwood
 - Le Guide de l'au-delà pour tous (Everyone’s guide to the herefater) de Ken Akehurst
 - Ma vie au Paradis (Life in the world unseen) d'Anthony Borgia
-- Mes aventures dans l'au-delà (A Wanderer in the Spirit Lands) par Franchezzo
-- 30 ans parmi les morts (30 Years among the Dead ) par Carl Wickland
-- Le Livre d'Urantia (The Urantia Book) publié par la Fondation Urantia.
+- [Mes aventures dans l'autre vie (A Wanderer in the Spirit Lands)](https://www.decitre.fr/livres/mes-aventures-dans-l-autre-vie-9782911525025.html) par Franchezzo
+- [30 ans parmi les morts (30 Years among the Dead )](https://www.fnac.com/a3830868/Carl-Wickland-Trente-ans-parmi-les-morts-Un-psychiatre-et-sa-fmme-medium-aident-les-ames-en-peine) par Carl Wickland
+- [Le Livre d'Urantia (The Urantia Book)]( https://www.urantia.org/fr/le-livre-durantia/lire) publié par la Fondation Urantia.
 
 Vous pouvez en prendre connaissance [par l’intermédiaire de ce lien](/13-fr-publications-and-downloads/).
 
-Les autres ouvrages listés ci-dessous ne sont pas encore, à ma connaissance, traduits en français mis à part quelques extraits que vous pourrez découvrir [ici](/14-fr-links-friendly-websites/). Ce sont :
+Les autres ouvrages listés ci-dessous ne sont pas encore, à notre connaissance, traduits en français mis à part quelques extraits que vous pourrez découvrir [ici](/14-fr-links-friendly-websites/). Ce sont :
 
 - Through the Mist (À travers les brumes) par Robert James Lees
 - The Life Elysian (La vie élyséenne) par Robert James Lees
@@ -351,21 +351,21 @@ Les autres ouvrages listés ci-dessous ne sont pas encore, à ma connaissance, t
 
 6. <large id="f6"> [« Ma vie au paradis »](https://www.fnac.com/a5527754/Robert-Hugh-Benson-Ma-vie-au-Paradis-Comment-la-mort-n-est-que-le-debut-d-une-vie-superieure-et-eternelle), par Anthony Borgia.[↩](#a6)
 
-7. <large id="f7"> James Padgett a reçu un très grand nombre de communications de personnes se trouvant dans les enfers, mais je n'appellerais pas cela des descriptions particulièrement détaillées, bien que certaines le soient. Beaucoup d'entre elles peuvent être lues ici [Les enfers, le jugement, le pardon et la résurrection](/7-fr-life-after-death/7-4-fr-the-underworld-judgement-and-forgiveness-and-the-resurrection/). Je n'ai trouvé que deux livres traitant de manière approfondie des plans sombres. Il s'agit de « A Wanderer in the Spirit Lands (Mes Aventures dans le Monde des Esprits) » de Franchezzo et de [« Gone West : Three Narratives of After-Death Experiences(3 récits sur les expériences dans le monde de-vie) » de J.S.M Ward.](https://books.google.fr/books/about/Gone_West.html?id=JtN-jfx7bHAC&redir_esc=y)[↩](#a7)
+7. <large id="f7"> James Padgett a reçu un très grand nombre de communications de personnes se trouvant dans les enfers. Ce ne sont pas, à quelques exceptions près, des descriptions particulièrement détaillées. Beaucoup d'entre elles peuvent être lues ici [Les enfers, le jugement, le pardon et la résurrection](/7-fr-life-after-death/7-4-fr-the-underworld-judgement-and-forgiveness-and-the-resurrection/). Deux livres seulement traitant de manière approfondie les plans sombres du "monde de l'après-vie'. Il s'agit de [A Wanderer in the Spirit Lands (Mes Aventures dans le Monde des Esprits)](https://www.decitre.fr/livres/mes-aventures-dans-l-autre-vie-9782911525025.html) » de Franchezzo et de [« Gone West : Three Narratives of After-Death Experiences(3 récits sur les expériences dans le monde de-vie) » de J.S.M Ward.](https://books.google.fr/books/about/Gone_West.html?id=JtN-jfx7bHAC&redir_esc=y)[↩](#a7)
 
 8. <large id="f8"> [Un esprit décrit son expérience dans l'un des enfers.](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-5-3-jep-george-butler/)[↩](#a8)
 
 9. <large id="f9"> [César raconte ses expériences après avoir reçu l'aide d'un esprit divin.]( /fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-1-1-jep-julius-caesar/)[↩](#a9)
 
-10. <large id="f10"> [Les remords d'un chef britannique.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-1-31-1-fab-neville-chamberlain/)[↩](#a10)
+10. <large id="f10"> [Les remords d'un drigeant britannique.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-1-31-1-fab-neville-chamberlain/)[↩](#a10)
 
 11. <large id="f11"> [L'expérience de Judas dans les enfers.]( /fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-6-1-hr-judas/)[↩](#a11)
 
-12.	<large id="f12"> « Ma vie au Paradis » par Anthony Borgia.[↩](#a12)
+12.	<large id="f12"> « [Ma vie au Paradis](https://www.fnac.com/a5527754/Robert-Hugh-Benson-Ma-vie-au-Paradis-Comment-la-mort-n-est-que-le-debut-d-une-vie-superieure-et-eternelle) » par Anthony Borgia.[↩](#a12)
 
 13.	<large id="f13"> Reçu par James Padgett [le 30 Novembre 1914](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-11-30-1-jep-helen-padgett/)[↩](#a13)
 
-14.	<large id="f14"> Les messages de James Padgett publiés ici. [Dr Stone](/fr-james-padgett-messages/1-14-fr-the-testimony-of-dr-leslie-stone/)[↩](#a14)
+14.	<large id="f14"> Les messages de James Padgett publiés [ici](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/). [Dr Stone](/fr-james-padgett-messages/1-14-fr-the-testimony-of-dr-leslie-stone/)[↩](#a14)
 
 15.	<large id="f15"> [Hélène écrit sur sa progression de la troisième sphère de l'esprit à la cinquième sphère de l'esprit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-7-1-jep-helen-padgett/)[↩](#a15)
 

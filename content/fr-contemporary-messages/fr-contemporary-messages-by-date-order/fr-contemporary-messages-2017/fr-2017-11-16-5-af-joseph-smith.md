@@ -20,7 +20,7 @@ Que Dieu vous bénisse. Que Dieu vous bénisse.
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-Joseph Smith | [Fondateur de la foi mormone](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-13-1969-7-14-anonymous-joseph-smith/) | 14 Juillet 1969
+Joseph Smith | [Fondateur de la foi Mormone](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-13-1969-7-14-anonymous-joseph-smith/) | 14 Juillet 1969
 Joseph Smith | [L’imagination et les idées des hommes créent des faussetés et des interprétations erronées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-6-15-1-af-joseph-smith/) | 15 Juin 2015
 
 ### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)

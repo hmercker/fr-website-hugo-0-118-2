@@ -45,6 +45,7 @@ Augustin | [La rigueur de la douleur qui accompagne le libre arbitre](/fr-contem
 Jésus | [Je serai avec chacun de vous dans votre voyage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-1-3-af-jesus/) | 1 Février 2023
 Jacques | [Soyez fidèle à vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-2-1-af-james/) | 2 Février 2023
 Confucius | [Dieu vous guidera dans votre service](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-2-2-af-confucius/) | 2 Février 2023
+Orion | [Nous sommes plus forts ensemble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-2-3-af-orion/) | 2 Février 2023
 Seretta Kem | [Ouverture de la retraite - Cadeau d'un portail](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-3-1-mc-seretta-kem/) | 3 Février 2023
 Faith | [Attribut d'âme de la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-4-1-mc-faith/) | 4 Février 2023
 Jésus | [Le voyage de la Nouvelle Naissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-4-2-mc-jesus/) | 4 Février 2023
@@ -110,12 +111,14 @@ Jésus | [Lance des liens d'âme - Nouveau cercle de prière du Royaume-Uni](/fr
 Jeanne d'Arc | [La prière avec les Liens de l'Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-30-3-af-joan-of-arc/) | 30 Mars 2023
 Michael Collier | [Également engagé envers des liens d'äme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-30-4-af-michael-collier/) | 30 Mars 2023
 Orion | [Dieu nous a rassemblés tous ensemble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-31-1-af-orion/) | 31 Mars 2023
+Orion | [Il faut une armée d’anges pour nous faire avancer.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-1-1-af-orion/) | 1er Avril 2023
 Moïse | [Surmonter les exigences du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-2-1-af-moses/) | 2 Avril 2023
 Fred Rogers | [Habitudes, Dépendances  et Guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-3-1-jw-fred-rogers/) | 3 Avril 2023
 Yogananda | [Nous encourage dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-4-1-af-yogananda/) | 4 Avril 2023
 Fred Rogers | [Habitudes, Dépendances  et Guérisson (Suite)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-7-1-jw-fred-rogers/) | 7 Avril 2023
 St Luc | [Être en phase avec la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-7-2-af-st-luke/) | 7 Avril 2023
 Rebecca | [Bénédiction pour Lani et le Cercle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-8-1-af-rebecca/) | 8 Avril 2023
+Orion | [La volonté de travailler ensemble est très importante](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-8-2-af-orion/) | 8 Avril 2023
 Augustin | [Vous avez choisi la bataille pour la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-9-1-af-augustine/) | 9 Avril 2023
 St Luc | [Deux élans pour sauver le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-10-1-af-st-luke/) | 10 Avril 2023
 St Matthieu | [La communion avec Dieu est subtile, douce et demande un effort persistant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-11-1-af-st-matthew/) | 11 Avril 2023
@@ -149,6 +152,7 @@ Orion | [Amour Magnifique](/fr-contemporary-messages/fr-contemporary-messages-by
 Claire d'Assise | [Vous êtes là où se trouve votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-5-16-2-jw-clare-von-assisi/) | 16 Mai 2023
 St Matthieu | [La conception de l'homme naît dans l'esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-5-16-3-af-st-matthew/) | 16 Mai 2023
 Professeur Salyards | [L'inspiration continue de bouillonner](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-5-18-1-af-professor-salyards/) | 18 Mai 2023
+Orion | [Soyez en harmonie avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-5-18-2-af-orion/) | 18 Mai 2023
 Orion | [Passage de la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-5-20-1-af-orion/) | 20 Mai 2023
 Keea Atta Kem | [Vous êtes les rares privilégiés au monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-5-23-1-af-keea-atta-kem/) | 23 Mai 2023
 Orion | [A de la compassion pour les conditions dans lesquelles nous vivons sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-5-23-2-af-orion/) | 23 Mai 2023
@@ -174,7 +178,7 @@ Yogananda | [Comment vous sentez-vous ?](/fr-contemporary-messages/fr-contempora
 Care Darby Walsh | [Votre destin dans l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-6-26-1-jw-care-darby-walsh/) | 26 Juin 2023
 Seretta Kem | [Point de contrôle à mi-chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-6-28-1-af-seretta-kem/) | 28 Juin 2023
 Seretta Kem | [La transformation continue dans l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-6-29-1-af-seretta-kem/) | 29 Juin 2023
-jésus | [Clôture la retraite Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-6-30-1-af-jesus/) | 30 Juin 2023
+Jésus | [Clôture la retraite Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-6-30-1-af-jesus/) | 30 Juin 2023
 Orion | [Poursuite de l’éveil de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-1-1-af-orion/) | 1 Juillet 2023
 Michael Collier | [L'importance de la cohérence, du dévouement et de la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-4-1-af-michael-collier/) | 4 Juillet 2023
 Seretta Kem | [Encourage l'intégration de la retraite](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-4-2-af-seretta-kem/) | 4 Juillet 2023
@@ -239,6 +243,7 @@ Jésus | [Le véritable but de votre âme dans le monde (Cercle de Lumière en l
 Jean le Bien Aimé | [Une affaire de cœur ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-9-18-1-jw-john-the-beloved/) | 18 Septembre 2023
 Care Darby Walsh | [Qu'est-ce qui vous attend dans le monde des esprits !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-9-26-1-jw-care-darby-walsh/) | 26 Septembre 2023
 Flavius Josèphe | [Promesses de bénédictions à Laurelville](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-9-29-1-af-josephus/) | 29 Septembre 2023
+Matthieu | [L'Amour de Dieu vous libérera des ténèbres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-3-1-af-matthew/) | 3 Octobre 2023
 Orion | [Conseils pour le groupe des douze à Laurelville](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-6-1-af-orion/) | 6 Octobre 2023
 Judas | [Laissez l’Amour de Dieu imprégner votre journée, illuminez votre nuit !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-9-1-jw-judas/) | 9 Octobre 2023
 Jésus | [Nous accueille et nous prépare pour Laurelville](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-10-1-af-jesus/) | 10 Octobre 2023
@@ -309,6 +314,7 @@ Keea ata Kem | [Avec les bénédictions de Jésus. Encourage les expressions de 
 Robert Hugh Benson  | [Les Royaumes Spirituels de Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-11-1-jw-robert-hugh-benson/) | 11 Décembre 2023
 Jeanne d'Arc | [Jeanne nous encourage à développer une relation avec nos guides](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-12-1-em-joan-of-arc/) | 12 Décembre 2023
 Jean le Baptiste | [Vous êtes l'accomplissement de la mission des Maîtres sur la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-18-1-jw-john-the-baptist/) | 18 Décembre 2023
+Orion | [Bénédictions à l’approche de Noël et du Nouvel An](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-19-1-af-orion/) | 19 Décembre 2023
 Jean le Bien Aimé | [Le message de Noël reconnaît la mission de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-24-1-af-john-the-beloved/) | 24 Décembre 2023
 Jeanne d'Arc | [Comme Dieu le veut, ainsi cela sera](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-28-1-em-joan-of-arc/) | 28 Décembre 2023
 

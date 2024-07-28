@@ -16,7 +16,7 @@ Jésus | [Bénédictions pour la nouvelle année](/fr-contemporary-messages/fr-c
 Jésus | [Vous avez un but](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-13-2-em-jesus/) | 13 Janvier 2023
 Jésus | [Les prophètes sont nécessaires dans les temps à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-24-1-af-jesus/) | 24 Janvier 2023
 Jésus | [Je serai avec chacun de vous dans votre voyage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-1-3-af-jesus/) | 1 Février 2023
-Jésus | [Le voyage de la nouvelle naissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-4-2-mc-jesus/) | 4 Février 2023
+Jésus | [Le voyage de la Nouvelle Naissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-4-2-mc-jesus/) | 4 Février 2023
 Jésus | [Reconnaît l'aspiration profonde de chacun à l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-14-2-af-jesus/) | 14 Février 2023
 Jésus | [La vérité de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-17-1-af-jesus/) | 17 Février 2023
 Jésus | [La vérité s'enflammera dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-19-1-af-jesus/) | 19 Mars 2023

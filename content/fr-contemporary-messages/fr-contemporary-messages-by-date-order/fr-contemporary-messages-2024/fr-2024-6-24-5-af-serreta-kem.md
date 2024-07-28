@@ -1,0 +1,22 @@
+---
+title: "Vous trouverez votre chemin dans ce voyage d’éveil à travers la médiumnité"
+menu_title: ""
+description: "Vous trouverez votre chemin dans ce voyage d’éveil à travers la médiumnité"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Vous trouverez votre chemin dans ce voyage d’éveil à travers la médiumnité  
+
+Serreta Kem - reçu par Albert Fike le 24 Juin 2024, Sechelt, Colombie-Britannique, Canada.
+
+Mes amis, je m’appelle Seretta Kem. C’est moi qui dirigerai ce cercle de développement et orchestrerai les différentes procédures et événements qui auront lieu dans les prochains jours. Notre première procédure sera de vous aider à vous harmoniser tous ensemble, en solidifiant ce groupe afin que vous puissiez travailler ensemble comme une seule entité plutôt que comme des entités individuelles. Car chacun de vous est unique, bien sûr. Chacun de vous apporte une certaine énergie et signature à ce cercle. Chacun de vous a des dons différents, des combinaisons de dons et ainsi, coordonner et harmoniser ces différents éléments en un cercle homogène est notre premier défi et notre premier effort.
+
+Vous vous sentirez détendu et intégré à cet état énergétique, un sentiment de paix, un sentiment d’harmonie vous feront rêver. Je vous exhorte à vous laisser aller dans cette condition que nous allons créer, cette paix qui viendra et à ouvrir vos âmes à l’afflux de l’Amour Divin. Car c’est la bénédiction harmonisant qui vous rassemblera. Vous vous sentirez fusionner et le flux d’énergie circulera entre vous. Vous ressentirez une sensation de mouvement de cette énergie l’une vers l’autre. Cela sert également à unifier et à connecter chaque individu dans la grande structure de lumière, le magnifique cercle d’amour qui est votre condition et votre présence ici combinée avec vos frères et sœurs.
+
+Nous avons beaucoup de travail à faire, beaucoup de chemin à parcourir ensemble. Chacun de vous trouvera sa voie, le voyage de l’éveil dans cette voie unique de médiumnité. La qualité de la médiumnité et le type de médiumnité dépendront de vous, de vos qualités et de votre condition. Je vous exhorte à prier, à avoir une grande foi dans ce que nous faisons ensemble et à être en harmonie les uns avec les autres. Il y aura de la paix et de la joie, de l’élévation et des idées, des perceptions et des expériences. Beaucoup de choses se passeront ensemble et nous sommes très heureux d’être ici avec vous. Pour ceux qui ont des yeux pour voir, vous ressentirez et visualiserez la grande foule d’esprits qui vous entourent, la puissance des bénédictions qui vous sont accordées, vos âmes s’ouvrant à cette puissance. Notre souhait est que chacun d’entre vous soit vraiment conscient de son âme et permette à vos âmes et à votre conscience consciente de fusionner en une seule entité pendant ce temps ensemble.
+
+Cela peut sembler quelque peu étrange pour certains d’entre vous et familier pour d’autres. Vous êtes ici tous ensemble sur un pied d’égalité. Vous vivez tous cela comme une seule entité, un seul corps, expérimentant et voyant sous différents angles les événements de la journée. Puissiez-vous être bénies, âmes bien-aimées, bénies profondément, bénies pleinement. Ouvrez-vous. Mettez de côté toute réticence. Soyez libre au sein de cet espace sûr et magnifique créé pour vous, pour votre bénéfice et vos bénédictions, votre développement et votre éveil. Dieu vous fait un grand cadeau en vous réunissant. Utilisez, profitez de ce qui est donné. Ne vous retenez en aucune façon. Connaissez la joie du Toucher Divin sur vous, éveillant chaque partie de vous. Vous ouvrir à ce que peuvent être les possibilités, les potentiels qui sont en vous, ce qui désire être libéré et exprimé, ce qui désire être transformé et éveillé, ce qui désire davantage du grand Amour de Dieu. Toutes ces choses arrivent parce que vous vous êtes réunis pour chercher, rechercher les grandes bénédictions, chercher un moyen de rendre service, chercher à vous connaître plus pleinement, chercher à vous ouvrir à des dons encore non réalisés.
+
+Mes bien-aimés, j’honore chacune d’entre vous, âmes bénies, qui recherchez le plus haut et désirez être utilisées par Dieu pour apporter des bénédictions, la paix, l’élévation, le réconfort et l’amour à vos frères et sœurs qui en ont besoin. Dieu est avec nous, sa main puissante sur nous tous. Nous communierons donc dans le grand Amour de Son Être et de Sa présence. Que Dieu vous bénisse. Seretta Kem vous aime. Je suis proche car il y en a beaucoup. Que Dieu vous bénisse.

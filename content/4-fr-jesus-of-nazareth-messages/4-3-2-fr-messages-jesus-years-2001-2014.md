@@ -210,7 +210,7 @@ Jésus | [Les faits, pas la naïveté](/fr-contemporary-messages/fr-contemporary
 Jésus | [L’autodéfense et l’amour de ses ennemis](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-2-5-1-fab-jesus/) | 5 Février 2011
 Jésus | [La loi de l’histoire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-4-12-1-fab-jesus/) | 12 Avril 2011
 Jésus | [Posséder l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-6-24-1-fab-jesus/) | 24 Juin 2011
-Jésus | [le plan de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-6-28-1-fab-jesus/) | 28 Juin 2011
+Jésus | [Le plan de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-6-28-1-fab-jesus/) | 28 Juin 2011
 Jésus | [Le réconfort de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-11-6-1-fab-jesus/) | 6 Novembre 2011
 Jésus | [Le sommeil et la responsabilité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-11-22-1-fab-jesus/) | 22 Novembre 2011
 Jésus | [Mémoire des rêves](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-12-4-1-fab-jesus/) | 4 Décembre 2011
@@ -235,7 +235,7 @@ Jésus | [Devenez un adepte de mes enseignements](/fr-contemporary-messages/fr-c
 Jésus | [La relation réflétée de nos parents et de notre Père](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-17-2-cog-jesus/) | 17 Mars 2013
 Jésus | [Encouragement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-22-1-fab-jesus/) | 22 Mars 2013
 Jésus | [Paix, première partie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-30-1-jg-jesus/) | 30 Avril 2013
-Jésus | [Paix, deuxième parti](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-7-1-jg-jesus/) | 7 Mai 2013
+Jésus | [Paix, deuxième partie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-7-1-jg-jesus/) | 7 Mai 2013
 Jésus | [N’ayez pas peur de marcher sur le chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-2-1-bs-jesus/) | 2 Juin 2013
 Jésus | [L’Esprit de Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-29-1-af-jesus/) | 29 Juin 2013
 Jésus | [Conseils](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-13-1-joseph-jesus/) | 13 Mai 2014

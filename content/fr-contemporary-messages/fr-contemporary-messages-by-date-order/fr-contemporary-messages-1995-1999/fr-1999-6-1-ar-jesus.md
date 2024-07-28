@@ -299,7 +299,7 @@ Jésus : As-tu prié pour elle ?
 
 <u>Jésus</u> : Des millions d’années avant.
 
-*[<u>Doug<:u> : Plus de 8 millions ?]*
+*[<u>Doug</u> : Plus de 8 millions ?]*
 
 <u>Jésus</u>: Oui.
 

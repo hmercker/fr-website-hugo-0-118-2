@@ -1,13 +1,13 @@
 ---
-title: "Orientations sur les préparations pour perfusion intraveineuse"
+title: "Marcher dans la lumière à travers les bouleversements à venir"
 menu_title: ""
-description: "Orientations sur les préparations pour perfusion intraveineuse"
+description: "Marcher dans la lumière à travers les bouleversements à venir"
 date: 2022-06-01 06:00:01+00:130
 draft: False
 hidden: True
 weight:
 ---
-### Marcher dans la lumière à travers les bouleversements à venir - V.D.
+### Marcher dans la lumière à travers les bouleversements à venir
 
 Tahlia<sup id="a1">[1](#f1)</sup> - reçu par Al Fike le 2 Octobre 2017, Gibsons, Colombie-Britannique, Canada
 

@@ -20,5 +20,5 @@ Samuel | [Les choix de l'âme - Le bien contre le mal](/fr-contemporary-messages
 Augustin | [Destinée et libre arbitre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-4-10-1-af-augustine/) | 10 Avril 2019
 Augustin | [Destinée et libre arbitre - Partie 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-4-11-1-af-augustine/) | 11 Avril 2019
 Flavius Josèphe | [Le libre arbitre et son impact sur la Terre (Collection générale 2020)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-27-1-af-josephus/) | 27 Avril 2020
-Jésus | [L’âme, le mental et la libre volonté (Enseignements spéciaux 2020)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-13-1-af-jesus/) | 13 Octobre 2020
+Jésus | [L’âme, le mental et le libre arbitre (Enseignements spéciaux 2020)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-13-1-af-jesus/) | 13 Octobre 2020
 Augustin | [Libre Arbitre et Perfectionnisme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-27-1-af-augustine/) | 27 Octobre 2020

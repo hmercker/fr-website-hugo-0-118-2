@@ -22,7 +22,7 @@ Jésus | [La résonance de l'amour parmi vous](/fr-contemporary-messages/fr-cont
 Jésus | [Le ministère de Jésus et les enseignements de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-2-1-af-jesus/) | 2 Avril 2016
 Jésus | [Il y a une route plus élevée de service - une qui reconnaît un batteur différent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-4-1-af-jesus/) | 4 Avril 2016
 Jésus | [Marchez avec moi dans la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-5-11-3-af-jesus/) | 11 Mai 2016
-Jésus | [Aimer avec le cœur d'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-6-27-2-af-jesus/) | 27 Juin 2016
+Jésus | [Aimer avec le cœur d'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-6-27-2-af-jesus/) | 27 Juin 2016
 Jésus | [Recevoir des conseils](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-7-4-2-af-jesus/) | 4 Juillet 2016
 Jésus | [Soyez ouverts à l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-1-2-af-jesus/) | 1 Septembre 2016
 Jésus | [Je suis votre frère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-2-3-af-jesus/) | 2 Septembre 2016

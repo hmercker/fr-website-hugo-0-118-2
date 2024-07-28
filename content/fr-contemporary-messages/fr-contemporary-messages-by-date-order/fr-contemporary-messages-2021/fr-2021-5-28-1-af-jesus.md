@@ -102,7 +102,7 @@ Que Dieu vous bénisse, âmes bien-aimées. J’aimerais pouvoir partager davant
 Que Dieu vous bénisse, âmes bien-aimées. Puissions-nous tous parvenir à de plus grandes révélations, car il n’y a pas de limite à celles-ci, et être en plus grand alignement avec Dieu. Ainsi, le voyage vers la joie, la vraie et merveilleuse joie, continue. Que Dieu vous bénisse, mes bien-aimés. Je suis avec vous, votre frère et ami Jésus. Que Dieu vous bénisse.
 <small>
 
-1. <large id="f1"> Il s'agit très certainement d'une référence aux projets actuels de développement de [voix directe](/fr-direct-voice/).[↩](#a1)
+1. <large id="f1"> Il s'agit très certainement d'une référence aux projets actuels de développement de Voix Directe.[↩](#a1)
 
 ### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
 

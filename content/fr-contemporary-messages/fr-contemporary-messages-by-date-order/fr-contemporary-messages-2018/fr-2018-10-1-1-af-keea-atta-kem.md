@@ -1,13 +1,13 @@
 ---
-title: "L'éveil de l'âme, une nouvelle naissance"
+title: "L'éveil de l'âme, une Nouvelle Naissance"
 menu_title: ""
-description: "L'éveil de l'âme, une nouvelle naissance"
+description: "L'éveil de l'âme, une Nouvelle Naissance"
 date: 2022-06-01 06:00:01+00:491
 draft: False
 hidden: True
 weight:
 ---
-### L'éveil de l'âme, une nouvelle naissance
+### L'éveil de l'âme, une Nouvelle Naissance
 
 Keea Atta Kem - reçu par Al Fike le 1<sup>er</sup> Octobre 2018, Gibsons, Colombie-Britannique, Canada.
 

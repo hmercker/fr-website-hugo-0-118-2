@@ -94,6 +94,6 @@ Souvent, il ne s'agit pas d'une situation formalisée, mais d'un acte de compass
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-Judas | [Aide au suicide et symboles chrétiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-5-2-hr-judas/) | 5 Octobre 2001
+Judas | [Aide au suicide et symboles Chrétiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-5-2-hr-judas/) | 5 Octobre 2001
 Judas | [Le souhait de la mort](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-9-1-hr-judas/) | 9 Décembre 2001
 Jésus | [Séance de questions et réponses n°2 : L’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-2-25-1-af-jesus/) | 25 Février 2021

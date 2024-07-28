@@ -17,6 +17,7 @@ Al Fike | [AF](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium
 Amada Résa | [AR](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-2-fr-amada-reza/)
 David Lampron | [DL](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-3-fr-david-lampron/)
 Enfant de Dieu | [EdD](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-4-fr-child-of-god/)
+Elizabeth Mack | [EM](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-14-fr-elizabeth-mack)
 Révérend Arthur Finman | [FAB](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-5-fr-fab/)
 Helge Elisabeth Mercker | [HM](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-6-fr-helge-mercker/)
 James Reid | [JR](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-11-fr-james-reid/)
