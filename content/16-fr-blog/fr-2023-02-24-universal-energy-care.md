@@ -9,9 +9,9 @@ weight:
 ---
 ### Apprendre le soin énergies universelles avec Corinne et Raphaël
 
-La  Nouvelle Vérité - 24 Février 2023
+La Nouvelle Vérité - 24 Février 2023
 
-Insérer une image
+![](16-fr-blog/soins-energies-universeles.jpg)
 
 Bienvenue à tous ! 
 

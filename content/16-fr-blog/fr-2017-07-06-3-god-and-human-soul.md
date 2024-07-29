@@ -9,7 +9,7 @@ weight:
 ---
 ### Dieu et l’âme humaine
 
-La  Nouvelle Vérité - 6 Juillet 2017
+La Nouvelle Vérité - 6 Juillet 2017
 
 Quant à qui et ce qui est Dieu, j’ose dire que jamais la Bible, que soit l’Ancien ou le Nouveau Testament, a donné une compréhension de la Déité et de Ses attributs dans une étendue et profondeur comparable à celle qui apparaît dans les messages signés Jésus et les Esprits Célestes. Selon ces esprits élevés, l’homme est un avec le Père dans la mesure où Son Amour abonde dans leurs âmes. Dieu est Âme, composée de Son plus grand attribut, l’Amour Divin, qui est Sa nature même et son essence, suivi par la Miséricorde, la Bonté, la Puissance, l’Omniscience et la Volonté et avec l’Esprit, tellement adoré par l’homme, qui est seulement un aspect de cet Être. Bien que Dieu n’ait pas une forme comme celle donnée à l’humanité lors de l’incarnation, ni un corps-esprit, qui est manifesté par l’homme après sa mort physique, Dieu, cependant, possède Sa forme définie de l’Âme. Celle-ci devient plus clairement perceptible à l’âme qui se sent ou perçoit la Sur-Âme de Dieu ou les attributs divins de celle-ci, alors qu’elle est en rapport plus étroit avec Dieu à travers son développement de l’âme. Bien que Dieu soit seulement une âme, unique dans son Unicité, et bien qu’Il n’ait pas de corps matériel ou de corps esprit, Il a cependant une personnalité, la personnalité divine manifestant Son Amour et Sa Miséricorde, Sa Bonté et sollicitude pour toutes Ses créatures. Dieu n’est donc pas une intelligence froide, un esprit abstrait, ou une force indifférente et insensible, mais une personne chaleureuse et un Père affectueux, avide du bonheur de Ses enfants, quelle que soit la race, la couleur ou la croyance.
 

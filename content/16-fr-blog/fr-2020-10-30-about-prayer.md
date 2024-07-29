@@ -9,9 +9,9 @@ weight:
 ---
 ### Au sujet de la Prière
 
-La  Nouvelle Vérité - 30 Octobre 2020
+La Nouvelle Vérité - 30 Octobre 2020
 
-Insertion d'une image
+![](16-fr-blog/au-sujet-de-la-prière.webp)
 
 Lorsque l’on consulte Wikipédia sur ce sujet, il nous est répondu *« La prière est un acte codifié ou non, collectif ou individuel, par lequel on s’adresse à Dieu ou à une divinité ou à un être désigné comme médiateur de Dieu ou de la divinité. »*
 

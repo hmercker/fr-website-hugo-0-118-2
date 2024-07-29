@@ -9,7 +9,7 @@ weight:
 ---
 ### La Nouvelle Naissance
 
-La  Nouvelle Vérité - 8 Août 2017
+La Nouvelle Vérité - 8 Août 2017
 
 Les Églises Chrétiennes ont été marquées par le désir de concilier ce qui parait inconciliable à savoir si Jésus était le fils de Dieu ou le fils de l’Homme. La traduction de concepts « divins » dans le langage des hommes est toujours une tâche périlleuse dans la mesure où l’esprit humain n’est pas vraiment adapté à comprendre certains concepts. Nous sommes, particulièrement dans le monde occidental, formatés par la logique. L’intuition n’est pas le fort de l’homme moderne.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Réflexions sur la Résurrection et  l’Ascension de Jésus
 
-La  Nouvelle Vérité - 21 Juin 2024
+La Nouvelle Vérité - 21 Juin 2024
 
 <span style="color:red">
 LES ATTENTES DES JUIFS FACE AU MESSIE 

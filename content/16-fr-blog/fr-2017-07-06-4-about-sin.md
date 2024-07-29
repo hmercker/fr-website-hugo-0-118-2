@@ -9,7 +9,7 @@ weight:
 ---
 ### Le problème du péché
 
-La  Nouvelle Vérité - 6 Juillet 2017
+La Nouvelle Vérité - 6 Juillet 2017
 
 Lorsque les premiers parents (Adam et Eve selon les écrits bibliques), ou ce qu’ils représentent, ont possédé leurs âmes données par Dieu, ces âmes furent à l’image de Dieu, mais elles n’avaient rien de l’essence de Dieu en elles. Ils ont eu l’occasion, toutefois, d’obtenir la nature de Dieu par la prière pour Son Amour, qui, en entrant dans l’âme humaine par l’entremise de l’Esprit Saint, transforme cette âme de l’image de Dieu en l’essence de Dieu. Mais les premiers parents, au lieu de se tourner vers Dieu et Son Amour, ont cherché la maîtrise de leur seul environnement matériel et, au lieu de développer leurs âmes de façon à prendre part à la nature de Dieu par l’Amour Divin, ont choisi le développement de leurs facultés intellectuelles. Car c’est par le biais de ses accomplissements intellectuels que l’homme acquiert les possessions matérielles et la richesse auxquelles il accorde une grande importance et qui le caractérisent comme un succès selon les standards mondains. 
 

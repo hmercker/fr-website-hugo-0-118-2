@@ -9,7 +9,7 @@ weight:
 ---
 ### Dépendances
 
-La  Nouvelle Vérité - 8 Juin 2024
+La Nouvelle Vérité - 8 Juin 2024
 
 <span style="color:red">
 **LA REPENTANCE SIGNIFIE UN CHANGEMENT DE DIRECTION**

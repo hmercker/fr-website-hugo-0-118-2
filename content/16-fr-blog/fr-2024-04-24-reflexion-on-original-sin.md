@@ -9,7 +9,7 @@ weight:
 ---
 ### Réflexions sur le « péché originel »
 
-La  Nouvelle Vérité - 4 Avril 2024
+La Nouvelle Vérité - 4 Avril 2024
 
 <span style="color:red">
 **Historique du concept**
@@ -27,7 +27,7 @@ Avant tout, il nous faut comprendre le sens du mot péché correspond au mot hé
 
 **La notion de péché originel renferme en fait deux concepts**. <span style="color:blue">**Le premier concept fait référence à la faute originelle des premiers parents (faute « admise » ou « reconnue ») par les religions Judéo-Chrétienne.**(/span) Oui, il y a bien eu « une faute » commise à l’origine par les premiers parents de l’humanité et cette faute a eu pour conséquence une séparation entre l’humanité et Dieu. Suite à cette faute originelle, les hommes et les femmes se sont retrouvés plus bas même que les animaux. Il s’en est suivi un long, très long chemin de retour vers Dieu. Du fait de cette séparation, les hommes et les femmes ont « hérité » d’une nature pécheresse que nous tous subissons aujourd’hui. **Et ce faux héritage spirituel ne peut pas s'effeacer, comme par magie, par l'intermédiaire d'une quelconque cérémonie religieuse qu'elle que soit le nom donné à cette cérémonie (Baptême ou Bénédiction).** Ce n’est que par la prière et la pratique de l’Amour de Dieu dans nos vies quotidiennes que ce faux héritage peut, **𝕻𝖗𝖔𝖌𝖗𝖊𝖘𝖘𝖎𝖛𝖊𝖒𝖊𝖓𝖙**, être effacé.
 
-**Le second concept contenu dans la théologie du péché originel c’est la croyance en une faute transmissible de génération en génération**. C’est ce second concept qui fut introduit par St Augustin dans les années 400 et qui a insisté sur le pouvoir du baptême pour se libérer de cette faute. Cette croyance était aussi liée à la non croyance en la pré-existence de l’âme (défendue par les partisans du [Créationisme](https://fr.wikipedia.org/wiki/Cr%C3%A9ationnisme)) mais en la croyance que l’âme était transmise on de l’âme par les parents (croyance défendue par les partisans du [Traducianisme}(https://fr.wiktionary.org/wiki/traducianisme)). Il convient toutefois de noter qu’Augustin ne s’est pas clairement prononcé sur un concept plutôt qu’un autre.
+**Le second concept contenu dans la théologie du péché originel c’est la croyance en une faute transmissible de génération en génération**. C’est ce second concept qui fut introduit par St Augustin dans les années 400 et qui a insisté sur le pouvoir du baptême pour se libérer de cette faute. Cette croyance était aussi liée à la non croyance en la pré-existence de l’âme (défendue par les partisans du [Créationisme](https://fr.wikipedia.org/wiki/Cr%C3%A9ationnisme)) mais en la croyance que l’âme était transmise on de l’âme par les parents (croyance défendue par les partisans du [Traducianisme](https://fr.wiktionary.org/wiki/traducianisme)). Il convient toutefois de noter qu’Augustin ne s’est pas clairement prononcé sur un concept plutôt qu’un autre.
 
 <span style="color:red">
 **Seule une influence « Culturelle » se transmet de génération en génération**

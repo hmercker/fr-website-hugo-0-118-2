@@ -9,7 +9,7 @@ weight:
 ---
 ### Groupes de Prière
 
-La  Nouvelle Vérité - 4 Octobre 2018
+La Nouvelle Vérité - 4 Octobre 2018
 
 Depuis peu, il existe des groupes de prières en ligne où les gens se connectent pour prier à la même heure. Tout est gratuit et le logiciel utilisé s’appelle Zoom.
 

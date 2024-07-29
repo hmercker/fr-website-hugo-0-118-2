@@ -9,7 +9,7 @@ weight:
 ---
 ### La Nouvelle Naissance dont Jésus a parlé
 
-La  Nouvelle Vérité - 6 Juillet 2017
+La Nouvelle Vérité - 6 Juillet 2017
 
 Alors que le monde chrétien célèbre la fête de Pâques, il me semble nécessaire de s’interroger sur le vrai sens de la résurrection de Jésus de Nazareth. Au-delà de cette compréhension, il convient également de s’interroger sur le vrai sens de sa mission et plus précisément surs le sens de certains propos qu’il a tenus lorsqu’il a parlé de *« Nouvelle Naissance »*.
 

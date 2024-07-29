@@ -9,7 +9,7 @@ weight:
 ---
 ### Réflexions sur l’épisode biblique appelé la Chute
 
-La  Nouvelle Vérité - 4 Avril 2024
+La Nouvelle Vérité - 4 Avril 2024
 
 Le 27 Mars 2024, sur la chaîne BFMTV, une rescapée des attentats du [7 Octobre 2023](https://fr.wikipedia.org/wiki/Attaque_du_Hamas_contre_Isra%C3%ABl_de_2023) a donné son témoignage. Je n’ai malheureusement suivi qu’une partie de l’entretien.
 

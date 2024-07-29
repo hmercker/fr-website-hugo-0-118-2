@@ -9,7 +9,7 @@ weight:
 ---
 ### Le vrai sens de la résurrection de Jésus de Nazareth
 
-La  Nouvelle Vvérité - 23 Avril 2017
+La Nouvelle Vvérité - 23 Avril 2017
 
 ésus de Nazareth affirme que le récit Biblique de sa naissance, diminué des nombreux éléments surnaturels qu’il contient, est essentiellement vrai. Il est né à Bethléem, fut emmené par ses parents en Égypte pour éviter la destruction par Hérode, que les Mages sont venus de l’Est pour lui rendre hommage et qu’il a appris, de la part d’enseignants, les éléments de la foi Hébraïque; mais que ce fut le Père, Lui-même, qui lui a appris la vérité de l’Amour Divin et lui a fait comprendre quelle était sa mission. Il nous dit que Jean le Baptiste, son cousin, fut un grand voyant et a eu une certaine compréhension de sa mission comme le Messie et que tous deux ont planifié le ministère public du Maître. Il affirme que Jean n’a jamais envoyé des émissaires lorsqu’il était en prison afin d’être rassuré que Jésus était « celui que nous recherchons » et que Jésus, comme un garçon de douze ans, n’a jamais comparu devant les docteurs de la loi dans le Temple à Jérusalem.
 

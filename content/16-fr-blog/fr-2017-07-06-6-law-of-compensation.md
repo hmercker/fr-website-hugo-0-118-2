@@ -9,7 +9,7 @@ weight:
 ---
 ### La loi de compensation
 
-La  Nouvelle Vérité - 6 Juillet 2017
+La Nouvelle Vérité - 6 Juillet 2017
 
 Mais, en ce qui concerne les mauvais esprits, ils se réveillent, au cours du temps, à la loi d »indemnisation et traversent leur période de souffrance pour leurs méfaits et mauvaises actions. Ils sont aidés dans cette condition par d’autres qui sont un peu plus avancé qu’eux-mêmes, et qui les instruisent dans les moyens qui existent pour progresser hors de leur état déplorable. Par conséquent, les âmes en souffrance apprennent finalement à renoncer à leurs mauvais penchants, que ce soit un penchant pour l’argent, les biens, la satisfaction des plaisirs ou le désir de nuire à autrui – la cupidité, les tromperies, la convoitise, la haine, l’envie, l’injustice et d’autres créations pécheresses du cœur humain – et elles peuvent utiliser leur volonté et leurs facultés intellectuelles pour oublier les faits qui sont source de remords dans leur âme. 
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Réflexions sur la perfection au sens Chrétien du terme
 
-La  Nouvelle Vérité - 4 Avril 2024
+La Nouvelle Vérité - 4 Avril 2024
 
 Avant tout il me semble essentiel de revenir sur la conséquence de ce que la Bible appelle la chute. Contrairement à certaines idées répandues et qui datent des premiers siècles du Christianisme, cet épisode dramatique n’a jamais eu pour origine une relation sexuelle. Non la faute première de nos premiers parents fut « simplement » d’avoir refusé de recevoir l’Amour de Dieu.Et comme l’ont rappelé Aman dans son  message du [17 Octobre 2010](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-10-17-1-fab-aman/), Amon dans son message du [20 Janvier 2010](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010\fr-2010-1-20-1-fab-amon/)  et Abel dans son message du [25 Janvier 2007](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-25-1-fab-abel/), ce refus de recevoir et de s’unir avec l’Amour de Dieu les a rendus incapables de transmettre cet Amour à leurs enfants  et  cette incapacité s’est alors transmise de génération en génération et cela continue toujours de nos jours.
 

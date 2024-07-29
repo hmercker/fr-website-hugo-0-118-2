@@ -9,7 +9,7 @@ weight:
 ---
 ### La Parabole du Bon Samaritain
 
-La  Nouvelle Vérité - 10 Juin 2024
+La Nouvelle Vérité - 10 Juin 2024
 
 Hier matin alors que je regardais et écoutais, à la télévision, l’émission [Fréquence Protestante](https://www.france.tv/france-2/presence-protestante/6040263-emission-du-dimanche-9-juin-2024.html) consacrée à l’étude d’un texte Biblique<sup id="a1">[1](#f1)</sup>, j’ai eu l’heureuse surprise de découvrir que l’émission était consacrée à un commentaire sur la parabole du Bon Samaritain racontée dans l’évangile de St Luc . L’invité de l’émission était Émilie de Turckeim. Cette parabole est peut-être la parabole la plus célèbre formulée par Jésus et elle est particulièrement bien connue par les enfants qui suivent un cursus de découverte de la foi. Et nous pensons tous avoir compris que cette parabole était une invitation à aimer son prochain.
 

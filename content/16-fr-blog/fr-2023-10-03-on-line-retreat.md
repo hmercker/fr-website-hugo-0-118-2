@@ -9,9 +9,9 @@ weight:
 ---
 ### Retraite en ligne historique de l’Amour Divin
 
-La  Nouvelle Vérité - 3 Octobre 2023
+La Nouvelle Vérité - 3 Octobre 2023
 
-Insérer une image
+![](16-fr-blog/retraite-laurelville.jpg)
 
 Bonjour à tous!
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Les Ateliers de l'Amour Divin
 
-La  Nouvelle Vérité - 8 Août 2022
+La Nouvelle Vérité - 8 Août 2022
 
 Bonjour  à  tous,
 

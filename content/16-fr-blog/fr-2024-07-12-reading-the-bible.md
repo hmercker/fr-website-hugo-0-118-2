@@ -9,13 +9,13 @@ weight:
 ---
 ### Lecture de la Bible
 
-La  Nouvelle Vérité - 7 Juillet 2024
+La Nouvelle Vérité - 7 Juillet 2024
 
 <span style="color:red">
 LA BIBLE NOUS PARLE-T-ELLE AUJOURD’HUI ?
 (/span)
 
-La compréhension de la Bible a toujours fait l’objet de nombreux débats. Ce n’est pas la même chose de dire : « Dieu parle à travers la Bible » ou de dire « La Bible est la parole de Dieu ». La Bible est souvent présentée comme le livre le plus sûr au monde et ses grandes affirmations sont à l’origine de la constitution de bien des nations et notamment de la constitution Européenne. Même si la société occidentale contemporaine a largement tourné le dos à la religion, la Bible influence beaucoup de nos comportements moraux. Cela se traduit par des slogans tels que *« Rendre à César ce qui est à César »*, *« Reconnaître l’arbre à ces fruits »*, *« Jeter la première pierre »*, *« ne pas changer d’un Iota »* et de beaucoup d’autres. La Bible peut parfois paraître homophobe, raciste, sexiste, voire violente. Quoiqu’il en soit, il est important cependant de pas réduire la Bible à une liste de slogans.
+La compréhension de la Bible a toujours fait l’objet de nombreux débats. Ce n’est pas la même chose de dire : *« Dieu parle à travers la Bible »* ou de dire *« La Bible est la parole de Dieu »*. La Bible est souvent présentée comme le livre le plus sûr au monde et ses grandes affirmations sont à l’origine de la constitution de bien des nations et notamment de la constitution Européenne. Même si la société occidentale contemporaine a largement tourné le dos à la religion, la Bible influence beaucoup de nos comportements moraux. Cela se traduit par des slogans tels que *« Rendre à César ce qui est à César »*, *« Reconnaître l’arbre à ces fruits »*, *« Jeter la première pierre »*, *« ne pas changer d’un Iota »* et de beaucoup d’autres. La Bible peut parfois paraître homophobe, raciste, sexiste, voire violente. Quoiqu’il en soit, il est important cependant de pas réduire la Bible à une liste de slogans.
 
 <span style="color:red">
 LA BIBLE EST LE FRUIT D’UNE LONGUE TRADITION ORALE
@@ -33,7 +33,7 @@ LA BIBLE EST LE SUPPORT DE LA RÉVÉLATION DIVINE
 
 Lorsque l’on dit que Dieu parle à travers la Bible, il est important de comprendre que la Bible est le support de la révélation Divine. Cependant, encore une fois, la Bible n’est pas la parole de Dieu au mot près. Il n’y a pas deux manuscrits identiques. La bible est issue d’une longue tradition orale qui s’est transmise de génération en génération. Plutôt que les mots exacts, c’est le message qui est important. Les auteurs ont avant tout voulu témoigner de leur foi, de leur expérience de Dieu, ils ont retranscrit leurs expériences par écrit. Les générations se sont succédées pour faire vivre le texte, l’étoffer, le parfaire, le parachever, le transmette durant deux millénaires c’est pourquoi nous avons ce texte aujourd’hui et donc tout cela peut nourrir notre foi.
 
-Il est donc très important de ne pas faire dire à la Bible ce qu’elle ne veut pas dire. Prenons l’exemple de l’homophobie, c’est à dire la condamnation de l’homosexualité. Comme il est dit « Tu ne coucheras pas avec un homme comme on couche avec une femme, c’est une abomination devant l’éternel (https://saintebible.com/leviticus/18-22.htm) ». La condamnation semble donc absolue et sans équivoque. Cependant si on lit cette même phrase dans le texte original, le sens est nettement moins évident. Certains mots employés font débat.
+Il est donc très important de ne pas faire dire à la Bible ce qu’elle ne veut pas dire. Prenons l’exemple de l’homophobie, c’est à dire la condamnation de l’homosexualité. Comme il est dit « Tu ne coucheras pas avec un homme comme on couche avec une femme, c’est [une abomination devant l’éternel](https://saintebible.com/leviticus/18-22.htm). La condamnation semble donc absolue et sans équivoque. Cependant si on lit cette même phrase dans le texte original, le sens est nettement moins évident. Certains mots employés font débat.
 
 <span style="color:red">
 LIRE LA BIBLE AVEC SAGESSE

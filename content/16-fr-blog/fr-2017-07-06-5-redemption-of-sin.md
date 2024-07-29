@@ -9,7 +9,7 @@ weight:
 ---
 ### La rédemption du péché
 
-La  Nouvelle Vérité - 6 Juillet 2017
+La Nouvelle Vérité - 6 Juillet 2017
 
 Pour les pieux Hébreux de l’Ancien Testament, il semblait que leurs mauvaises actions, aussi bien en tant que nation qu’en tant qu’individus, furent la cause des catastrophes nationales et que leurs succès furent le résultat de leur fidélité à l’Alliance entre Dieu et les Patriarches. Les prophètes ont souligné la nécessité, en période de stress national, d’éviter des alliances avec d’autres pays et de mettre leur foi dans la protection de Dieu. Leur incapacité à tenir compte des avertissements des Prophètes a conduit à la calamité comme à l’époque du prophète Jérémie, quand le mépris de ses conseils a amené la captivité à Babylone. Encore une fois, dans les heures douloureuses de l’histoire de la Judée, lorsque le peuple a été poussé, presque au-delà de l’endurance, à une sanglante rébellion contre la puissante Rome, un prophète de Nazareth est venu avec un message de paix et de patience, pour être seulement rejeté par les dirigeants. La Judée fut écrasée et le peuple – ceux qui restaient – furent dispersés sur la surface du globe. 
 
