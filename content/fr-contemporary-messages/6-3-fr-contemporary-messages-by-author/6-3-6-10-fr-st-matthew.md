@@ -117,6 +117,7 @@ St Matthieu | [Les multitudes se réjouissent avec nous](/fr-contemporary-messag
 St Matthieu | [Nous prions avec vous depuis les Cieux ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-14-2-af-st-matthew/) | 14 Juillet 2023
 St Matthieu | [Le pouvoir de l'Amour Divin élève toutes les situations](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-20-1-af-st-matthew/) | 20 Août 2023
 St Matthieu | [Le pouvoir des bénédictions de Dieu est plus fort que toute autre force dans l'univers](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-25-1-af-st-matthew/) | 25 Août 2023
+St Matthieu | [L'Amour de Dieu vous libérera des ténèbres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-3-1-af-st-matthew/) | 3 Octobre 2023
 St Matthieu | [Ce rassemblement changera vos perspectives et vos motivations pour vous faire avancer ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-11-7-af-st-matthew/) | 11 Octobre 2023
 St Matthieu | [Vous êtes les auditeurs ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-13-8-af-st-matthew/) | 13 Octobre 2023
 St Matthieu | [Nous encourage à créer plus de cercles de lumière dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-16-1-af-st-matthew/) | 16 Octobre 2023
@@ -125,4 +126,3 @@ St Matthieu | [La Volonté de Dieu comme protection](/fr-contemporary-messages/f
 St Matthieu | [Le choix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-12-3-af-st-matthew/) | 12 Janvier 2024
 St Matthieu | [La bienveillance de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-17-1-af-st-matthew/) | 17 Janvier 2024
 St Matthieu | [Se présente comme un autre guide de Pierre ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-8-1-af-st-matthew/) | 8 Mars 2024
-Matthieu | [L'Amour de Dieu vous libérera des ténèbres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-3-1-af-matthew/) | 3 Octobre 2023
