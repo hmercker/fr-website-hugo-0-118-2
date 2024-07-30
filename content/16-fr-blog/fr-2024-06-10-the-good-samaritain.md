@@ -51,7 +51,7 @@ Un prêtre et un lévite qui passaient par là, détournèrent leur yeux et pass
 **COMMENTAIRES DE JUDAS**
 </span>
 
-Dans un message communiqué [le 3 Mai 2002](/fr-contemporary-messages/fr-contemporary-messages-by-date-order\fr-contemporary-messages-2002/fr-2002-5-3-1-hr-judas/) à travers un médium anonyme, Judas nous invite à un commentaire à trois niveaux.
+Dans un message communiqué [le 3 Mai 2002](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-5-3-1-hr-judas/) à travers un médium anonyme, Judas nous invite à un commentaire à trois niveaux.
 
 <span style="color:red">Selon le premier niveau de compréhension</span> auquel Jésus fait référence et auquel jésus a très habilement, amené le pharisien à le reconnaitre : **« Tout le monde est notre prochain Juif, Gentil et même Samaritain. »** En effet, **dans l’Ancien Testament, nous pouvons lire, dans de nombreux cas, comment la loi définit un traitement différent des Juifs et des non-Juifs**. Ce qui n’était pas légal de faire à un Juif pouvait être légal de le faire à un païen. Lorsque l’on a donc conscience du mépris des Pharisiens pour les Samaritains qu’ils considéraient comme de simples païens, reconnaître dans un Samaritain son prochain c’était un pas presque impossible à franchir.
 
@@ -72,6 +72,6 @@ Jésus a essayé d’expliquer qu’à côté de la chose la plus évidente, il 
 **L’homme n’est pas indépendant. Il est le prisonnier d’un tourbillon d’émotions, et sa mentalité est teintée par la polarisation de l’atmosphère dans laquelle il vit.** Si nous ne voulons pas être freiné par ce tourbillon, mais servir comme un point fixe, comme un pilier stable dans ce monde, il faut intégrer ce qui est stable et ne jamais changer : **L’Amour que notre Père Céleste a pour nous.**
 <small>
 
-1. <large id="f1"> Note : Cette émission n’est disponible, en replay, sur France2, que jusqu’au 8 Juillet 2024.[↩](#a1)
+1. <large id="f1"> <u>Note</u> : Cette émission n’est disponible, en replay, sur France2, que jusqu’au 8 Juillet 2024.[↩](#a1)
 
 

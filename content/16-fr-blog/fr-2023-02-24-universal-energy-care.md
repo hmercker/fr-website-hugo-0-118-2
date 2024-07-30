@@ -11,21 +11,21 @@ weight:
 
 La Nouvelle Vérité - 24 Février 2023
 
-![](16-fr-blog/soins-energies-universelles)
+![](/16-fr-blog/soins-energies-universelles)
 
 Bienvenue à tous ! 
 
 Dans ce cours : 
 
-    1°) Vous apprendrez à vous connecter à votre lumière interne, à l’étendre et à la conserver tout au long du soin et de la journée si vous le souhaitez.
+    1. Vous apprendrez à vous connecter à votre lumière interne, à l’étendre et à la conserver tout au long du soin et de la journée si vous le souhaitez.
 
-    2°) Vous apprendrez à vous connecter aux énergies universelles et à accueillir votre équipe spirituelle de soins. 
+    2. Vous apprendrez à vous connecter aux énergies universelles et à accueillir votre équipe spirituelle de soins. 
 
-    3°) A l’aide de la méditation, vous apprendrez à maintenir votre taux vibratoire et votre connexion avec votre équipe de soins  
+    3. A l’aide de la méditation, vous apprendrez à maintenir votre taux vibratoire et votre connexion avec votre équipe de soins  
 
-    4°) Vous apprendrez l’auto-soin, le soin pour un client ou pour un groupe 
+    4. Vous apprendrez l’auto-soin, le soin pour un client ou pour un groupe 
 
-    5°) Vous apprendrez les principes spirituels nécessaires à une bonne pratique. 
+    5. Vous apprendrez les principes spirituels nécessaires à une bonne pratique. 
 
 Ce cours correspond à un désir de démystifier le soin énergétique. Nous avons en nous un potentiel de guérisseur. Nous avons le choix de le laisser en sommeil ou de l’exploiter pour le bien de notre entourage et de l’humanité. 
 

@@ -27,7 +27,7 @@ A bientot!
 
 Les organisateurs.
 
-![](16-fr-blog/atelier-discussion-amour-divin.jpg)
+![](/16-fr-blog/atelier-discussion-amour-divin.jpg)
 
 Nous poursuivrons nos discussions sur l’Amour divin. 
 
@@ -61,4 +61,4 @@ Christian a été le premier à traduire l’intégralité des milliers de messa
 
 – **Raphael L** :
 
-Raphael organise des cercles de prière dédiés à la connexion directe avec le divin. Il organise aussi [des soins  énérgetiques](www.divinelovehealers.com) pour la communauté en partenariat avec son équipe de guérisseurs.
+Raphael organise des cercles de prière dédiés à la connexion directe avec le divin. Il organise aussi [des soins  énérgetiques](https://divinelovehealers.xyz/) pour la communauté en partenariat avec son équipe de guérisseurs.

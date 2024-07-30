@@ -1,13 +1,13 @@
 ---
-title: "La Nouvelle Naissance"
+title: "Le concept de la Nouvelle Naissance"
 menu_title: ""
-description: "La Nouvelle Naissance"
+description: "Le concept de la Nouvelle Naissance"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### La Nouvelle Naissance
+### Le concept de la Nouvelle Naissance
 
 La Nouvelle Vérité - 8 Août 2017
 

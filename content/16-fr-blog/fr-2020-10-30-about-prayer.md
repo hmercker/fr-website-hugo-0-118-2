@@ -11,7 +11,7 @@ weight:
 
 La Nouvelle Vérité - 30 Octobre 2020
 
-![](16-fr-blog/au-sujet-de-la-prière.webp)
+![](/16-fr-blog/au-sujet-de-la-prière.webp)
 
 Lorsque l’on consulte Wikipédia sur ce sujet, il nous est répondu *« La prière est un acte codifié ou non, collectif ou individuel, par lequel on s’adresse à Dieu ou à une divinité ou à un être désigné comme médiateur de Dieu ou de la divinité. »*
 

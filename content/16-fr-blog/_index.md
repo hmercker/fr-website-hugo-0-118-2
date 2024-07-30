@@ -12,12 +12,12 @@ weight: 145
 **Titre du message** | **Date du message**  
 ---|---
 [Le vrai sens de la résurrection de Jésus de Nazareth](/16-fr-blog/fr-2017-04-23-the-resurrection-from-jesus-of-nazareth/) | 23 Avril 2017
-[La Nouvelle Naissance dont Jésus a parlé](16-fr-blog/fr-2017-07-06-1-the-new-birth/) | 06 Juillet 2017
-[Le vrai sens du sacrifice de Jésus sur la croix](16-fr-blog/fr-2017-07-06-2-the-true-sense-of-jesus-sacrifice/) | 06 Juillet 2017
+[La Nouvelle Naissance dont Jésus a parlé](/16-fr-blog/fr-2017-07-06-1-the-new-birth/) | 06 Juillet 2017
+[Le vrai sens du sacrifice de Jésus sur la croix](/16-fr-blog/fr-2017-07-06-2-the-true-sense-of-jesus-sacrifice/) | 06 Juillet 2017
 [Dieu et l'âme humaine](/16-fr-blog/fr-2017-07-06-3-god-and-human-soul/) | 06 Juillet 2017
 [Le problème du péché](/16-fr-blog/fr-2017-07-06-4-about-sin/) | 06 Juillet 2017
 [La rédemption du péché](/16-fr-blog/fr-2017-07-06-5-redemption-of-sin/) | 06 Juillet 2017
-[La loi de compensation](/16-fr-blog/fr-2017-07-06-6-law-of-compensation/) | 06 Juillet 2018
+[La loi de Compensation](/16-fr-blog/fr-2017-07-06-6-law-of-compensation/) | 06 Juillet 2018
 [Retour sur le concept de La Nouvelle Naissance](/16-fr-blog/fr-2017-08-02-the-new-birth2/) | 02 Août 2017
 [Groupes de Prière](/16-fr-blog/fr-2018-10-04-prayers-groups/) | 04 Juillet 2019
 [Au sujet de la Prière](/16-fr-blog/fr-2020-10-30-about-prayer/) | 30 Octobre 2020

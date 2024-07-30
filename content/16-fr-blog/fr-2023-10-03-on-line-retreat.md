@@ -11,7 +11,7 @@ weight:
 
 La Nouvelle Vérité - 3 Octobre 2023
 
-![](16-fr-blog/retraite-laurelville.webp)
+![](/16-fr-blog/retraite-laurelville.webp)
 
 Bonjour à tous!
 
