@@ -207,7 +207,7 @@ Orion | [Lever tous les obstacles à une plus grande lumière](/fr-contemporary-
 Jésus | [La porte est ouverte pour chacun de nous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-14-1-af-jesus/) | 14 Août 2022
 Jésus | [Leçon 21 : Les joies profondes de l’éveil de l’âme !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-16-1-af-jesus/) | 16 Août 2022
 Michael Collier  | [La chance d'avoir une communauté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-16-2-af-michael-collier/) | 16 Août 2022
-Orion | [Lever tous les obstacles à une plus grande lumière.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-16-3-af-orion/) | 16 Août 2022
+Orion | [Lever tous les obstacles à une plus grande lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-16-3-af-orion/) | 16 Août 2022
 Moïse | [Nous sommes appelés à diriger](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-17-1-af-moses/) | 17 Août 2022
 André | [Cherchez la réalité de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-19-2-af-andrew/) | 19 Août 2022
 Orion | [Transformation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-20-2-af-orion/) | 20 Août 2022
