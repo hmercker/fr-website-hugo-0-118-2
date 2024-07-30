@@ -15,11 +15,11 @@ Depuis peu, il existe des groupes de prières en ligne où les gens se connecten
 
 Les groupe de prière en francais dispose [d'une page facebook](https://www.facebook.com/pg/Les-courants-c%C3%A9lestes-100253238429498/events/) ou les évènements sont postés.
 
-Les groupes de prières en anglais sont les plus nombreux mais comme la prière est silencieuse cela ne pose pas trop de problèmes. Les mediums se connectent en même temps et font de leur mieux pour nous transmettre les messages encourageants et les enseignements de l’Amour Divin venant des esprits celestes qui travaillent avec nous. L’important c’est le ressenti, c’est l'experience de la prière et de la communion avec Dieu et les anges celestes qui nous assistent lors de ces evenements particuliers.
+Les groupes de prières en anglais sont les plus nombreux mais comme la prière est silencieuse cela ne pose pas trop de problèmes. Les médiums se connectent en même temps et font de leur mieux pour nous transmettre les messages encourageants et les enseignements de l’Amour Divin venant des esprits Célestes qui travaillent avec nous. L’important c’est le ressenti, c’est l'expérience de la prière et de la communion avec Dieu et les anges Célestes qui nous assistent lors de ces évènements particuliers.
 
-Pour recevoir une intation aux cercle de priere en anglais envoyer un email a raphaellegros@gmail.com et vous recevrez une invitation directement dans Zoom.
+Pour recevoir une invitation aux cercle de priere en anglais envoyer un email a raphaellegros@gmail.com et vous recevrez une invitation directement dans Zoom.
 
-Alors qu attendez vous?
+Alors qu attendez vous ?
 
-A bientot!
+A bientot !
 

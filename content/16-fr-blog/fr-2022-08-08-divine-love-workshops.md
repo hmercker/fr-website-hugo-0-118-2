@@ -27,21 +27,21 @@ A bientot!
 
 Les organisateurs.
 
-Insérer une image
+![](16-fr-blog/atelier-discussion-amour-divin.jpg)
 
 Nous poursuivrons nos discussions sur l’Amour divin. 
 
-Comme auparavant,  nous rendrons hommage aux messages de Jésus canalisés par James Edward Padgett, consultables sur le site lanouvellenaissance.com.
+Comme auparavant,  nous rendrons hommage aux messages de Jésus canalisés par James Edward Padgett, consultables sur [ce site](https://lanouvelleverite.fr/).
 
-Nous traiterons de la question de l’Amour divin, comparé à l’amour humain, d’un point de vue philosophique. 
+Nous traiterons de la question de l’Amour Divin, comparé à l’amour humain, d’un point de vue philosophique. 
 
-En quoi cette récente révélation de Jésus dans les messages de James Padgett apporte-t-elle un nouvel éclairage sur les conceptions traditionnelles humaines sur l’amour? Dans quelle mesure peut-elle nous permettre de nous élever spirituellement au quotidien?
+Nous expliquerons comment cette récente révélation de Jésus dans les messages de James Padgett apporte un nouvel éclairage sur les conceptions traditionnelles humaines sur l’amour et dans quelle mesure elle peut nous permettre de nous élever spirituellement au quotidien.
 
 Une première séance sera consacrée à exposer ces perspectives philosophiques, afin de dégager les présupposés humains sur ce thème. Dans quelle mesure le nouveau message de Jésus propose-t-il une (ré)conciliation de ces points de vue rationnels sur la nature de l’amour?
 
-Une deuxième séance portera sur le progrès spirituel. Nous commencerons par donner une perspective historique de la relation de l’humanité  avec le divin. 
+Une deuxième séance portera sur le progrès spirituel. Nous commencerons par donner une perspective historique de la relation de l’humanité avec le divin. 
 
-Ensuite, nous verrons comment le don de l’amour divin peut guérir et éclairer le sens l’existence?
+Ensuite, nous verrons comment le don de l’Amour Divin peut guérir et éclairer le sens de l’existence.
 
 Pour vous connecter, il suffit de télécharger l’application zoom.us sur votre ordinateur ou votre smartphone et le jour J de cliquer sur le lien zoom ci-dessous:
 

@@ -13,7 +13,7 @@ La Nouvelle Vérité - 8 Juin 2024
 
 <span style="color:red">
 **LA REPENTANCE SIGNIFIE UN CHANGEMENT DE DIRECTION**
-(/span)
+</span>
 
 Alors que nous parcourons le chemin de la spiritualité, il est important de s’interroger sur le sens profond de la repentance : la repentance signifie un changement de direction.
 
@@ -23,19 +23,19 @@ Le fait de commettre des erreurs, de s’en sentir mal et de se repentir, pour e
 
 <span style="color:red">
 **NOTRE VÉRITABLE DÉPENDANCE EST NOTRE ATTACHEMENT AUX FORMES DE PENSÉE NÉGATIVES**
-(/span)
+</span>
 
-Nous sommes souvent attachés à nos dépendances tout comme nous pouvons être attachés à tout un tas de vieilles choses. Ce à quoi nous nous accrochons a une signification pour nous, même si personne d’autre ne peut le comprendre. Certainement, lorsque Dieu regarde Ses enfants il doit penser : : « Comment ceux qui font partie de Ma famille peuvent-ils être si attachés à quelque chose d’aussi peu important ? »
+Nous sommes souvent attachés à nos dépendances tout comme nous pouvons être attachés à tout un tas de vieilles choses. Ce à quoi nous nous accrochons a une signification pour nous, même si personne d’autre ne peut le comprendre. Certainement, lorsque Dieu regarde Ses enfants il doit penser : : *« Comment ceux qui font partie de Ma famille peuvent-ils être si attachés à quelque chose d’aussi peu important ? »*
 
 En fait nous sommes devenus dépendant de certains schémas mentaux et émotionnels qui sont des modèles d’émotion qui sont encapsulés dans notre corps. Nous sommes souvent prisonniers de souvenirs transmis parfois de génération en génération et nous avons l’impression que notre identité est profondément liée à ces souvenirs.
 
 En fait notre véritable dépendance est notre attachement aux formes de pensée négatives. C’est cette dépendance qui a possédé l’humanité et qui continue à nous posséder. Ainsi, aujourd’hui, même si beaucoup de gens parlent de paix sur la terre, les conflits deviennent plus clairement définis au sein de chaque personne, au sein des familles et des tribus, et dans le monde entier.
 
-Nous   pouvons prendre l’analogie d’une marche sous une pluie battante. En regardant devant nous, nous apercevons soudain un ciel bleu clair et lumineux Dans les innombrables jours qui ont précédé, le temps était gris tous les jours Nous nous étions habitués à la morosité et nous n’avions rien remarqué d’inhabituel. Mais en regardant dans la nouvelle perspective du ciel bleu, nous ressentons soudain avec acuité l’humidité et le froid de cette pluie constante. Une nouvelle détermination nait alors en nous afin de retrouver notre enthousiasme à la pensée du ciel bleu entrevu. Nous avons un plus grand espoir maintenant, un plus grand but à atteindre dans notre vie. Nous devons aller de l’avant.
+Nous pouvons prendre l’analogie d’une marche sous une pluie battante. En regardant devant nous, nous apercevons soudain un ciel bleu clair et lumineux Dans les innombrables jours qui ont précédé, le temps était gris tous les jours Nous nous étions habitués à la morosité et nous n’avions rien remarqué d’inhabituel. Mais en regardant dans la nouvelle perspective du ciel bleu, nous ressentons soudain avec acuité l’humidité et le froid de cette pluie constante. Une nouvelle détermination nait alors en nous afin de retrouver notre enthousiasme à la pensée du ciel bleu entrevu. Nous avons un plus grand espoir maintenant, un plus grand but à atteindre dans notre vie. Nous devons aller de l’avant.
 
 <span style="color:red">
 **LA SEULE FAÇON D’ALLER DE L’AVANT EST D’OUVRIR NOTRE CŒUR**
-(/span)
+</span>
 
 Dans leur livre « Chaque jour Dieu » qui retrace leur dialogue avec Dieu suite à une très grande détresse, David et Takeko Hose ont été inspirés d’écrire les propos suivants :
 
@@ -43,4 +43,4 @@ Dans leur livre « Chaque jour Dieu » qui retrace leur dialogue avec Dieu suite
 
 Nous devons avant tout ouvrir notre cœur dans notre relation avec Dieu. Nous considérons beaucoup trop la prière comme un rituel formel qui doit suivre des règles précises. Lorsque nous ouvrons profondément notre cœur, une vraie communication s’installe alors entre Dieu et nous et c’est ainsi que s’ouvre une vraie communication entre Dieu et nous. Nous ne devons pas seulement aller à Dieu lorsque nous nous sentons inspirés et joyeux. Nous devons apprendre à laisser nos bagages inutiles derrière nous en ouvrant notre cœur à Dieu même dans des moments de profonde dépression, de tristesse ou de lourdeur indéfinie que nous ressentons en nous-même.
 
-Les propos ci-dessus sont extraits du livre « Every Day God (Chaque jour Dieu) » et plus particulièrement du chapitre 16 ( Le Soleil au-delà de la Pluie) dont nous pouvons trouver les références par l’intermédiaire de [ce lien](/13-fr-publications-and-downloads/13-2-1-fr-french-spiritual-books).
+Les propos ci-dessus sont extraits du livre « Every Day God (Chaque jour Dieu), publié par David and Takeko Hose, et plus particulièrement du chapitre 16 ( Le Soleil au-delà de la Pluie) dont nous pouvons trouver les références par l’intermédiaire de [ce lien](/13-fr-publications-and-downloads/13-2-1-fr-french-spiritual-books).
