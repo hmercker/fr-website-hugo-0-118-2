@@ -11,7 +11,7 @@ weight:
 
 La Nouvelle Vérité - 24 Février 2023
 
-![](/16-fr-blog/soins-energies-universelles)
+![](/16-fr-blog/soins-energies-universelles.jpg)
 
 Bienvenue à tous ! 
 

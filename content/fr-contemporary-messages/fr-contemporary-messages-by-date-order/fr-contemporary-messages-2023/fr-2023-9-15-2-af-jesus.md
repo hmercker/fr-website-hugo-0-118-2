@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Reconnaît Kevin comme un véritable enfant de Dieu. 
+### Reconnaît Kevin comme un véritable enfant de Dieu
 
 Jésus - reçu par Albert Fike le 15 Septembre 2023, Sechelt, Colombie-Britannique, Canada.
 

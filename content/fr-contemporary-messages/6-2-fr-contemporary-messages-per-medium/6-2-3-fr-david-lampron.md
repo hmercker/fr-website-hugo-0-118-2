@@ -38,12 +38,12 @@ Jésus | [Le levain de l'amour](/fr-contemporary-messages/fr-contemporary-messag
 Jésus | [Sans amour, je suis comme une cymbale qui tinye](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-12-17-1-dl-jesus/) | 17 Décembre 1987
 Jésus | [Le travail qui nous attend](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1987-12-31-1-dl-jesus/) | 31 Décembre 1987
 Jésus | [Jésus : La loi de l’équipoise et de l’équilibre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-1-18-1-dl-jesus/) | 18 Janvier 1988
-Jésus | [Naissance sans péché.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-2-4-1-dl-jesus/) | 4 Février 1988
+Jésus | [Naissance sans péché_2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-2-4-1-dl-jesus/) | 4 Février 1988
 Jésus | [Les guérisons ne se font pas toujours instantanément](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-3-31-1-dl-jesus/) | 31 Mars 1988
 Jésus | [L'Amour Divin ne connaît pas la douleur du regret, du retard ou du manque d'accomplissement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-4-29-1-dl-jesus/) | 29 Avril 1988
 Jésus | [La vérité et le voyage vers la perfection](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-8-11-1-dl-jesus/) | 11 Août 1988
 Jésus | [Atlantide](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-10-18-1-dl-jesus/) | 18 Octobre 1988
-Jésus | [l'humanité commence à voir la Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1989-1-16-1-dl-jesus/) | 16 Janvier 1989
+Jésus | [L'humanité commence à voir la Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1989-1-16-1-dl-jesus/) | 16 Janvier 1989
 Jésus | [Le porteur de bonnes nouvelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1989-3-24-1-dl-jesus/) | 24 Mars 1989
 Jésus | [Le flux et reflux de l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1989-10-1-1-dl-jesus/) | 1 Octobre 1989
 Jésus | [La dissémination de la vérité et la réincarnation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1990-1-10-1-dl-jesus/) | 10 Janvier 1990
@@ -64,4 +64,4 @@ Jésus | [Démontrer l'amour dans le corps et dans l'âme](/fr-contemporary-mess
 Marie-Madeleine | [Portez la lumière de l'amour en vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-7-2-1-dl-mary-magdalene/) | 2 Juillet 2008
 Bill Reilly | [Un message de Bill Reilly](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-20-1-dl-bill-reilly/) | 20 Juillet 2009
 
-## [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)
+[Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

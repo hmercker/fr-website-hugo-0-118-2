@@ -28,7 +28,7 @@ Marie | [Partager](/fr-contemporary-messages/fr-contemporary-messages-by-date-or
 Joseph | [Mental et spiritualité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-3-4-1-ar-joseph/) | 4 Mars 1999
 Kahlil Gibran | [Poésie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-3-19-1-ar-kahlil-gibran/) | 19 Mars 1999
 Jésus | [Message annuel en transe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-6-1-ar-jesus/) |  Juin 1999
-Marie | [Sur l’autodéfense](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-7-7-1-ar-mary/) | 7 Juillet 1999
+Marie | [Sur l’autodéfense_2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-7-7-1-ar-mary/) | 7 Juillet 1999
 Marie | [Sur le don de la communication avec les esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-8-5-1-ar-mary/) | 5 Août 1999
 Marie | [Pourquoi Dieu permet que de mauvaises choses se produisent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-8-6-1-ar-mary/) | 6 Août 1999
 White Eagle | [Les animaux et l’amour naturel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-9-4-1-ar-white-eagle/) | 4 Septembre 1999
@@ -116,4 +116,4 @@ Marie | [L'étoffe de l'éternité](/fr-contemporary-messages/fr-contemporary-me
 Jésus | [Le moment éternel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-6-10-1-ar-jesus/) | 10 Juin 2006
 Marie | [Nous sommes tous connectés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-27-1-ar-mary/) | 27 Mai 2018
 
-## [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)
+[Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

@@ -200,6 +200,8 @@ Augustin | [Excellent message d’enseignement sur la Volonté de Dieu et la vol
 Jésus | [Ayez de la compassion et ne jugez pas vos frères et sœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-9-2-af-jesus/) | 9 Août 2022
 Professeur Salyards | [Les anges cherchent à travailler avec le mental de notre âme  en nous nourrissant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-9-3-af-professor-salyards/) | 9 Août 2022
 Jésus | [Leçon 19 : Les lois d’Amour et d’harmonie de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-10-1-af-jesus/) | 10 Août 2022
+Jean le Bien Aimé | [Nous sommes tous aimés de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-10-2-jw-john-the-beloved/) | 10 Août 2022
+Judas | [Les deux frères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-10-3-jw-judas/) | 10 Août 2022
 Jésus | [Leçon 20 : Il faut davantage d’âmes dévouées pour construire des portails et étendre le treillis de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-12-1-af-jesus/) | 12 Août 2022
 Augustin | [La pression de la résistance au changement s'accentue](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-12-2-af-augustine/) | 12 Août 2022
 Orion | [C’est le moment d’être libre !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-13-1-af-orion/) | 13 Août 2022
@@ -214,7 +216,6 @@ Orion | [Transformation](/fr-contemporary-messages/fr-contemporary-messages-by-d
 Jésus | [Leçon 22 : La foi peut lever les obstacles à la connaissance de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-22-1-af-jesus/) | 22 Août 2022
 Care Derby Walsh | [De nombreuses façons de donner de l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-22-2-jw-care-derby-walsh/) | 22 Août 2022
 Judas | [Chaque crise est une opportunité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-23-1-jw-judas/) | 23 Août 2022
-Judas | [Les deux frères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-23-2-jw-judas/) | 23 Août 2022
 Orion | [Il y a beaucoup à faire pour apporter une plus grande lumière dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-23-3-af-orion/) | 23 Août 2022
 Jésus | [Leçon 23 : La route vers la Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-24-1-af-jesus/) | 24 Août 2022
 Jésus | [Leçon 24 : La conclusion de la série sur notre monde en transition](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-26-1-af-jesus/) | 26 Août 2022

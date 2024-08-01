@@ -1,7 +1,7 @@
 ---
-title: "Ton cœur est le lieu où repose mon amour"
+title: "Ton cœur est le lieu où repose Mon Amour"
 menu_title: ""
-description: "Ton cœur est le lieu où repose mon amour"
+description: "Ton cœur est le lieu où repose Mon Amour"
 date: 2022-06-01 06:00:01+00:62
 draft: False
 hidden: True

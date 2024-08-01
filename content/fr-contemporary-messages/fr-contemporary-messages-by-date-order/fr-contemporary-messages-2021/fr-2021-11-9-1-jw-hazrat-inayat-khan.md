@@ -1,17 +1,17 @@
 ---
-title: "Gardez une chanson dans votre cœur"
+title: "Gardez un chant dans votre cœur"
 menu_title: ""
-description: "Gardez une chanson dans votre cœur"
+description: "Gardez un chant dans votre cœur"
 date: 2022-06-01 06:00:01+00:1709
 draft: False
 hidden: True
 weight:
 ---
-### Gardez une chanson dans votre cœur
+### Gardez un chant dans votre cœur
 
 Hazrat Inayat Khan - reçu par Jimbeau Walsh le 9 Novembre 2021, Punalu’u, Oahu, Hawaii, USA.
 
-Je viens dans la grâce de Dieu avec une chanson dans mon cœur et l’Amour Divin dans mon âme. Je suis Hazrat Inayat Khan.<sup id="a1">[1](#f1)</sup>
+Je viens dans la grâce de Dieu avec un chant dans mon cœur et l’Amour Divin dans mon âme. Je suis Hazrat Inayat Khan.<sup id="a1">[1](#f1)</sup>
 
 Il est écrit qu’au commencement était la parole et que par elle toute la création a commencé. Dans les écritures hindoues, la Bhagavad Gita, qui signifie le Chant de Dieu, c’est le son, le chant et la vibration qui sont la force créatrice. Lorsque le Maître Jésus a guéri son âme brûlante avec l’Amour de Dieu, ces mots, leur vibration, ont permis au destinataire de ressentir la force de guérison de l’Amour de Dieu et cela a apporté la foi et changé la vie de chacun. J’étais un musicien et un soufi, et j’ai apporté le soufisme en Occident avec de la musique, de la poésie et mes écrits, qui traitent tous de la manière de se connecter à Dieu, de ressentir la Présence de Dieu et de s’y ouvrir. C’est le pouvoir du son, la magnificence du chant.
 

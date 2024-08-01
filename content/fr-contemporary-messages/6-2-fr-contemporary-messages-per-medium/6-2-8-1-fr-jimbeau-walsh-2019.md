@@ -22,7 +22,7 @@ Eileen Caddy | [Maintenir la puissance spirituelle des lieux bénis](/fr-contemp
 Yogananda | [Débarrassez-vous de vos distractions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-5-3-2-jw-yogananda/) | 3 Mai 2019
 Charlie Chaplin | [L'Amour de Dieu est la plus grande chose de l'univers](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-5-4-1-jw-charlie-chaplin/) | 4 Mai 2019
 Yogananda | [La porte de la lumière passe par le cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-5-21-1-jw-yogananda/) | 21 Mai 2019
-Care Darby Walsh | [Ceux qui servent Dieu dans l'amour travaillent au niveau de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-5-28-1-jw-care-derby-walsh/) | 28 Mai 2019
+Care Darby Walsh | [Ceux qui servent Dieu dans l'Amour travaillent au niveau de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-5-28-1-jw-care-derby-walsh/) | 28 Mai 2019
 Charlie Chaplin | [Whoo ! C'est merveilleux !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-6-14-2-jw-charlie-chaplin/) | 14 Juin 2019
 St François d'Assise | [Lorsque vous voyez avec votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-6-22-1-jw-st-francis-of-assisi/) | 22 Juin 2019
 Yogananda | [Encourager la communion avec les autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-6-23-2-jw-yogananda/) | 23 Juin 2019
@@ -35,8 +35,8 @@ Yogananda | [Le yoga le plus important est d'être ouvert à l'amour de Dieu](/f
 St François d'Assise | [Vous pouvez avoir un cercle de lumière n'importe où](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-8-6-3-jw-st-francis-of-assisi/) | 6 Août 2019
 Yogananda | [Élevez vos pensées vers le plus haut](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-8-7-1-jw-yogananda/) | 7 Août 2019
 Care Derby Walsh | [La Vérité Divine est l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-8-7-2-jw-care-derby-walsh/) | 7 Août 2019
-Yogananda | [Il n'y a pas de yoga plus élevé que le yoga de l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-8-20-1-jw-yogananda/) | 20 Août 2019
-St François d'Assise | [Soyez dans le jardin de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-8-20-3-jw-st-francis-of-assisi/) | 20 Août 2019
+Yogananda | [Il n'y a pas de yoga plus élevé que le yoga de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-8-20-1-jw-yogananda/) | 20 Août 2019
+St François d'Assise | [Soyez dans le jardin de l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-8-20-3-jw-st-francis-of-assisi/) | 20 Août 2019
 Yogananda | [Branchez-vous sur le canal Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-8-31-1-jw-yogananda/) | 31 Août 2019
 Eileen Caddy | [Que voulez-vous construire ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-8-31-4-jw-eileen-caddy/) | 31 Août 2019
 Marie | [Bénissez les enfants dans l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-2-1-jw-mary/) | 2 Septembre 2019
@@ -76,6 +76,6 @@ St François d'Assise | [Entretenez les jardins de vos âmes](/fr-contemporary-m
 Yogananda | [Noël est un moment privilégié pour partager le cadeau de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-15-3-jw-yogananda/) | 15 Décembre 2019
 Yogananda | [Priez !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-20-2-jw-yogananda/) | 20 Décembre 2019
 
-## [Lien vers les messages contemporains reçus par Jimbeau walsh au cours de l’année 2020](/fr-contemporary-messages\6-2-fr-contemporary-messages-per-medium/6-2-8-2-fr-jimbeau-walsh-2020/)
+[Lien vers les messages contemporains reçus par Jimbeau walsh au cours de l’année 2020](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-8-2-fr-jimbeau-walsh-2020/)
 
-## [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)
+[Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

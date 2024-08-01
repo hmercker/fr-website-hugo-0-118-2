@@ -21,10 +21,10 @@ Judas | [Les conseils viennent de Dieu](/fr-contemporary-messages/fr-contemporar
 Jésus | [Ne néglige jamais ta relation avec le Père](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-10-11-1-hm-jesus/) | 11 Octobre 2012
 Jésus | [Nous voyons vos luttes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-11-21-1-hm-jesus/) | 21 Novembre 2012
 Le Père Céleste | [Aimer la création de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-11-27-1-hm-father/) | 27 Novembre 2012
-Marie | [Se  soumetre à l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-7-1-hm-mary/) | 7 Décembre 2012
+Marie | [Se  soumetre à lAmour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-7-1-hm-mary/) | 7 Décembre 2012
 Judas | [Le vent du changement souffle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-9-1-hm-judas/) | 9 Décembre 2012
 Anne Rollins | [Avoir la Foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-10-1-hm-ann-rollins/) | 10 Décembre 2012
-Le Père Céleste | [L'amour imprègne le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-23-1-hm-father/) | 23 Décembre 2012
+Le Père Céleste | [L'Amour imprègne le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-23-1-hm-father/) | 23 Décembre 2012
 Jésus | [Salutations pour la Nouvelle Année](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-1-1-hm-jesus/) | 1 Janvier 2013
 Anne Rollins | [La communication requiert de la dévotion et de l'engagement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-2-1-hm-ann-rollins/) | 2 Janvier 2013
 Judas | [Conseils personnels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-4-1-hm-judas/) | 4 Janvier 2013
@@ -41,7 +41,7 @@ Augustin | [Faire progresser l'âme et détecter les changements](/fr-contempora
 Jésus | [L'avancée de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-8-5-1-hm-jesus/) | 5 Août 2017
 Confucius | [Confucius nous conseille de reposer notre esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-8-12-1-hm-confucius/) | 12 Août 2017
 Augustin | [La vérité doit être expérimentée par l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-24-1-hm-augustine/) | 24 Avril 2020
-André | [Servir dans le réseau de l'amour (Collection générale 2020)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-26-1-hm-andrew/) | 26 Avril 2020
+André | [Servir dans le réseau de l'Amour (Collection générale 2020)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-26-1-hm-andrew/) | 26 Avril 2020
 Augustin | [Marcher le chemin de l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-30-1-hm-augustine/) | 30 Avril 2020
 Jésus | [Goutte par Goutte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-30-2-hm-jesus/) | 30 Avril 2020
 Faith | [Salutations de Faith (Atelier de la médiumnité 2020)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-4-4-hm-faith/) | 4 Mai 2020
@@ -58,10 +58,10 @@ Augustin | [Une Salutation Matinale](/fr-contemporary-messages/fr-contemporary-m
 Confucius | [L'Amour de Dieu est le catalyseur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-25-1-hm-confucius/) | 25 Mai 2020
 Martin Luther | [Une salutation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-29-1-hm-martin-luther/) | 29 Mai 2020
 Martin Luther | [Une salutation matinale](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-12-1-hm-martin-luther/) | 12 Juin 2020
-Anne Rollins | [Réseau de l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-15-2-hm-ann-rollins/) | 15 Juin 2020
+Anne Rollins | [Réseau de l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-15-2-hm-ann-rollins/) | 15 Juin 2020
 Seretta Kem | [A propos de la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-16-4-hm-seretta-kem/) | 16 Juin 2020
 Seretta Kem | [Prise de conscience de la nouvelle vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-26-1-hm-seretta-kem/) | 26 Juillet 2020
 Jésus | [Connexion d'amour instantanée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-21-2-hm-jesus/) | 21 Août 2020
 Seretta Kem | [Guérison de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-4-3-hm-seretta-kem/) | 4 Septembre 2020
 
-## [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)
+[Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

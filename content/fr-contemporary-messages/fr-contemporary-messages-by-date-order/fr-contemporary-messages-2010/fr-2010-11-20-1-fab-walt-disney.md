@@ -13,7 +13,7 @@ Walt Disney - reçu par FAB le 20 Novembre 2010, Berkeley, Californie, USA.
 
 C'est moi, Walt Disney.<sup id="a1">[1](#f1)</sup>
 
-Pour votre information, je ne suis pas sorti blanc comme neige de la grève de mon studio. Non, je me suis rendu compte que j'avais moi aussi fait des erreurs. Ça a été difficile pour moi.
+Pour votre information, je ne suis pas sorti blanc comme neige de la grève de mes studios. Non, je me suis rendu compte que j'avais moi aussi fait des erreurs. Ça a été difficile pour moi.
 <small>
 
 1. <large id="f1"> Walt Disney  s'est également exprimé dans les messages ci-dessous indiqués :[↩](#a1)

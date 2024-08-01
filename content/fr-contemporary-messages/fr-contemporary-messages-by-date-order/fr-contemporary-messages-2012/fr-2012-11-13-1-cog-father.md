@@ -1,13 +1,13 @@
 ---
-title: "Laisse Mon amour t’envahir"
+title: "Laisse Mon Amour t’envahir"
 menu_title: ""
-description: "Laisse Mon amour t’envahir"
+description: "Laisse Mon Amour t’envahir"
 date: 2022-06-01 06:00:01+00:297
 draft: False
 hidden: True
 weight:
 ---
-### Laisse Mon amour t’envahir
+### Laisse Mon Amour t’envahir
 
 Le Père Céleste - reçu par Enfant de Dieu le 13 Novembre 2012.
 

@@ -1,13 +1,13 @@
 ---
-title: "Leçon sur la compréhension de la vérité"
+title: "Leçon sur la compréhension de la Vérité"
 menu_title: ""
-description: "Leçon sur la compréhension de la vérité"
+description: "Leçon sur la compréhension de la Vérité"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### Leçon sur la compréhension de la vérité 
+### Leçon sur la compréhension de la Vérité 
 
 Jean le Bien Aimé - reçu par Elizabeth Mack le 14 Janvier 2024, La Barbade.
 

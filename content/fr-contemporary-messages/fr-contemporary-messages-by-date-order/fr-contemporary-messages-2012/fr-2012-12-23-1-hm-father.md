@@ -1,7 +1,7 @@
 ---
-title: "L'amour imprègne le monde"
+title: "L'Amour imprègne le monde"
 menu_title: ""
-description: "L'amour imprègne le monde"
+description: "L'Amour imprègne le monde"
 date: 2022-06-01 06:00:01+00:306
 draft: False
 hidden: True

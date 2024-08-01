@@ -11,11 +11,11 @@ weight:
 
 Depuis de nombreuses années Maureen Cardoso est très active dans la communauté de l’Amour Divin, particulièrement dans l’Ouest Canadien où elle vit présentement. Maureen est particulièrement active en tant que Soignante et adepte du Reiki. Dans ce cadre, Maureen anime, chaque mois, la tenue d’un cercle de guérison sur Internet.
 
-Au 1er Juillet 2023, elle avait canalisé près de 80 messages disponibles par le lien ci-dessous indiqué.
+Au 1er Juillet 2024, elle avait canalisé près de 90 messages disponibles par le lien ci-dessous indiqué.
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-Seretta Kem | [Permettez à l'amour de Dieu de s'exprimer de manière unique à travers votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-13-1-mc-seretta-kem/) | 13 Juin 2018
+Seretta Kem | [Permettez à l'Amour de Dieu de s'exprimer de manière unique à travers votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-13-1-mc-seretta-kem/) | 13 Juin 2018
 Keea Atta Kem | [La loyauté envers Dieu et votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-7-27-1-mc-keea-atta-kem/) | 27 Juillet 2018
 Faith | [Prendre soin de son corps physique et de son corps spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-27-3-mc-faith/) | 27 Août 2018
 Alec Gaunt | [Une âme en quête d'Amour Divin apporte un soutien Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-28-2-mc-alec-gaunt/) | 28 Août 2018
@@ -30,7 +30,7 @@ Keea Atta Kem | [Compassion pour soi et pour les autres pendant l'éveil de l'â
 Seretta Kem | [Le service réveille l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-14-2-mc-seretta-kem/) | 14 Octobre 2018
 Seretta Kem | [Remerciements du cercle de prière en ligne, encouragements pour la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-21-1-mc-seretta-kem/) | 21 Octobre 2018
 Marie | [Les anges prient pour nous dans notre éveil](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-22-5-mc-mary/) | 22 Octobre 2018
-Marc | [La foi chevauche les ailes de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-23-3-mc-mark/) | 23 Octobre 2018
+Marc | [La foi chevauche les ailes de l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-23-3-mc-mark/) | 23 Octobre 2018
 Keea Atta Kem | [Intégrer les éveils de l'âme au corps et à l'esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-24-2-mc-keea-atta-kem/) | 24 Octobre 2018
 Keea Atta Kem | [Votre relation la plus profonde est avec votre Créateur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-4-4-mc-keea-atta-kem/) | 4 Novembre 2018
 Marc | [L'Amour Divin est la clé de la transformation éternelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-8-1-mc-mark/) | 8 Novembre 2018
@@ -106,4 +106,4 @@ Seretta Kem | [Intégration du portail](/fr-contemporary-messages/fr-contemporar
 Marie | [La transformation apportée par la grâce de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-10-1-mc-mary/) | 10 Janvier 2024
 Goldie | [La substance de la JOIE ! ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-14-1-mc-goldie/) | 14 Février 2024
 
-### [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)
+[Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

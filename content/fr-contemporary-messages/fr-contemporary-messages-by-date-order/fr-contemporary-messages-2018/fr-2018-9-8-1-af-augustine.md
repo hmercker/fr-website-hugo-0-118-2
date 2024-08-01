@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### La Hiérarchie du Cciel
+### La Hiérarchie du Ciel
 
 Augustin - reçu par Al Fike le 8 Septembre 2018, Gibsons, Colombie-Britannique, Canada.
 

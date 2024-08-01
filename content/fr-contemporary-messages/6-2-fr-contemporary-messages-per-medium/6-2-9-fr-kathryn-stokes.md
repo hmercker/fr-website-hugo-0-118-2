@@ -73,7 +73,7 @@ Jésus | [Prier pour la paix](/fr-contemporary-messages/fr-contemporary-messages
 Joseph | [La prière, la meilleure préparation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-30-1-ks-joseph/) | 30 Septembre 2001
 Jésus | [L'Amour et la Vérité doivent passer en premier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-10-6-1-ks-jesus/) | 6 Octobre 2001
 André | [Surmonter les obstacles au voyage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-11-23-1-ks-andrew/) | 23 Novembre 2001
-Joseph | [Vivre dans l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-2-1-ks-joseph/) | 2 Décembre 2001
+Joseph | [Vivre dans l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-2-1-ks-joseph/) | 2 Décembre 2001
 St Jean | [Pas à pas, vous apprenez bien vos leçons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-21-1-ks-st-john/) | 21 Janvier 2002
 Jacques | [Seul l'Amour peut révéler la Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-28-2-ks-james/) | 28 Janvier 2002
 André | [Lâcher prise pour s'épanouir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-16-1-ks-andrew/) | 16 Mars 2002
@@ -106,4 +106,4 @@ James Padgett | [Le pouvoir de l’Amour pour effacer les erreurs](/fr-contempor
 St Pierre | [Les règles du jeu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-20-1-ks-st-peter/) | 20 Juillet 2006
 Inconnu | [Un avenir radieux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-24-1-ks-unknown/) | 24 Juillet 2006
 
-### [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)
+[Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

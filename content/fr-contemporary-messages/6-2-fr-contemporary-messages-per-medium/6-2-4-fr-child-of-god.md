@@ -54,7 +54,7 @@ Le Père Céleste | [N’oublie pas que nous sommes UN](/fr-contemporary-message
 Le Père Céleste | [Tu demandes comment Me servir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-9-3-1-cog-father/) | 3 Septembre 2012
 Le Père Céleste | [Sentir Mon Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-9-4-1-cog-father/) | 4 Septembre 2012
 Le Père Céleste | [Accepte l’amour pour faire grandir ton amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-11-11-1-cog-father/) | 11 Novembre 2012
-Le Père Céleste | [Laisse Mon amour t’envahir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-11-13-1-cog-father/) | 13 Novembre 2012
+Le Père Céleste | [Laisse Mon Amour t’envahir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-11-13-1-cog-father/) | 13 Novembre 2012
 Le Père Céleste | [Je parle à ceux qui entendent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-11-24-1-cog-father/) | 24 Novembre 2012
 Le Père Céleste | [Le Monde de l’Illusion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-2-1-cog-father/) | 2 Décembre 2012
 Le Père Céleste | [Retrouve ton innocence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-11-1-cog-father/) | 11 Décembre 2012
@@ -81,12 +81,12 @@ Le Père Céleste | [Je touche ton âme avec un baiser silencieux](/fr-contempor
 Le Père Céleste | [Ta joie est ma récompense](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-19-1-cog-father/) | 19 Mai 2013
 Le Père Céleste | [Tu as marché seul, maintenant réveille-toi à Mon Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-20-1-cog-father/) | 20 Mai 2013
 Le Père Céleste | [Vos mots sont les vôtres comme ils sont les miens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-7-19-1-cog-father/) | 19 Juillet 2013
-Le Père Céleste | [Ton cœur est le lieu où repose mon amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-7-21-1-cog-father/) | 21 Juillet 2013
+Le Père Céleste | [Ton cœur est le lieu où repose Mon Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-7-21-1-cog-father/) | 21 Juillet 2013
 Le Père Céleste | [Mon amour vit et tu le sens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-7-28-1-cog-father/) | 28 Juillet 2013
 Le Père Céleste | [Vous êtes un mystère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-7-29-1-cog-father/) | 29 Juillet 2013
 Le Père Céleste | [Laissez tes larmes couler comme des diamants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-8-3-1-cog-father/) | 3 Août 2013
 Le Père Céleste | [Mon amour va guérir tes blessures](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-8-7-1-cog-father/) | 7 Août 2013
 Le Père Céleste | [Je t'ai entendu et j'ai répondu à ton appel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-8-8-1-cog-father/) | 8 Août 2013
 Le Père Céleste | [Laissez Mon Amour être votre fondement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-9-3-1-cog-father/) | 3 Septembre 2013
-Le Père Céleste | [L’amour que je suis est l’amour que tu es](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-7-9-1-cog-father/) | 9 Juillet 2014
+Le Père Céleste | [L’Amour que je suis est l’Amour que tu es](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-7-9-1-cog-father/) | 9 Juillet 2014
 Le Père Céleste | [Échange de l'âme avec "L'Unique"](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-3-2-cog-father/) | 3 Décembre 2020

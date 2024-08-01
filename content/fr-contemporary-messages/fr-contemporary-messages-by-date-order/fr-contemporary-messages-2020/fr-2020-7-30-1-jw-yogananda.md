@@ -1,13 +1,13 @@
 ---
-title: "Fais du monde ton ashram, ton monastère"
+title: "Faites du monde votre ashram, votre monastère"
 menu_title: ""
-description: "Fais du monde ton ashram, ton monastère"
+description: "Fais du monde votre ashram, votre monastère"
 date: 2022-06-01 06:00:01+00:1203
 draft: False
 hidden: True
 weight:
 ---
-### Fais du monde ton ashram, ton monastère
+### Fais du monde votre ashram, votre monastère
 
 Yogananda - reçu par Jimbeau Walsh le 30 Juillet 2020, Schwenksville, Pennsylvania, USA.
 

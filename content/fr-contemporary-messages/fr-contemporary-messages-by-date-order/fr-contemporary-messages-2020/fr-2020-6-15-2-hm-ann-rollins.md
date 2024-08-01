@@ -1,13 +1,13 @@
 ---
-title: "Réseau de l’amour"
+title: "Réseau de l’Amour"
 menu_title: ""
-description: "Réseau de l’amour"
+description: "Réseau de l’Amour"
 date: 2022-06-01 06:00:01+00:1140
 draft: False
 hidden: True
 weight:
 ---
-### Réseau de l’amour
+### Réseau de l’Amour
 
 Anne Rollins - reçu par Helge Mercker le 15 Juin 2020, Swakopmund, Namibie.
 

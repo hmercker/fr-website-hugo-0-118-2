@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous nous réjouissons en vous
 
-Claire d'Assise - reçu par Jimbeau Walsh le 22 Avril 2024, Nashville, Tennesse, USA.
+Claire d'Assise - reçu par Jimbeau Walsh le 18 Avril 2024, Nashville, Tennesse, USA.
 
 Mes chères souris, c'est moi, Claire. J'ai été proche, et je viens chaque fois que je le peux dans ce cercle, qui est en quelque sorte à ma charge, et j'aime chacun de ceux qui viennent. Vos explorations des vérités vous ont apporté à chacun une merveilleuse clarté et vous ont permis non seulement de vous aider et de vous soutenir mutuellement, mais aussi de vous équiper et de vous encourager à diffuser la vérité à toutes les âmes que vous rencontrez et qui sont ouvertes à la recevoir. Si vous pouvez amener ne serait-ce qu'une seule âme à frapper à la porte de Dieu, à ouvrir son cœur, à demander la bénédiction de l'Amour Divin, vous aurez accompli quelque chose de merveilleux qui se répercute dans les Cieux. Nous nous réjouissons de chaque âme qui s'ouvre et se laisse toucher pour recevoir l'Amour de Dieu, car nous savons que l'issue, quelle qu'en soit la durée, quelle qu'en soit l'importance, est que cette âme sera transformée, changée. Quel beau cadeau !  
 

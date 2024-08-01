@@ -71,14 +71,14 @@ Le Père Céleste | [Tu as marché seul, maintenant réveille-toi à Mon Amour](
 Jésus | [N’ayez pas peur de marcher sur le chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-2-1-bs-jesus/) | 2 Juin 2013
 Jésus | [L’Esprit de Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-29-1-af-jesus/) | 29 Juin 2013
 Le Père Céleste | [Vos mots sont les vôtres comme ils sont les miens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-7-19-1-cog-father/) | 19 Juillet 2013
-Le Père Céleste | [Ton cœur est le lieu où repose mon amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-7-21-1-cog-father/) | 21 Juillet 2013
+Le Père Céleste | [Ton cœur est le lieu où repose Mon Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-7-21-1-cog-father/) | 21 Juillet 2013
 Le Père Céleste | [Mon amour vit et tu le sens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-7-28-1-cog-father/) | 28 Juillet 2013
 Le Père Céleste | [Vous êtes un mystère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-7-29-1-cog-father/) | 29 Juillet 2013
 Richard Rodgers | [Une autre vision de l’Amérique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-7-30-1-fab-richard-rodgers/) | 30 Juillet 2013
 Charles T. Russell | [Charles T. Russell parle des Témoins de Jéhovah](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-8-2-1-fab-charles-t-russell/) | 2 Août 2013
 Le Père Céleste | [Laissez vos larmes couler comme des diamants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-8-3-1-cog-father/) | 3 Août 2013
 Le Père Céleste | [Mon amour va guérir tes blessures](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-8-7-1-cog-father/) | 7 Août 2013
-Le Père Céleste | [Je vous ai entendu et j'ai répondu à votree appel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-8-8-1-cog-father/) | 8 Août 2013
+Le Père Céleste | [Je t'ai entendu et j'ai répondu à ton appel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-8-8-1-cog-father/) | 8 Août 2013
 Le Père Céleste | [Laissez Mon Amour être votre fondement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-9-3-1-cog-father/) | 3 Septembre 2013
 John Wilkes Booth | [Comprendre un fanatique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-9-5-1-fab-john-wilkes-booth/) | 5 Septembre 2013
 Yogananda | [Transcender ses émotions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-11-15-1-wv-yogananda/) | 15 Novembre 2013

@@ -27,7 +27,7 @@ Jean le Bien Aimé | [Servir de tout son cœur](/fr-contemporary-messages/fr-con
 Jean le Bien Aimé | [Alignez vos cœurs dans la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-13-3-jw-john-the-beloved/) | 13 Septembre 2021
 Jean le Bien Aimé | [Une histoire sans fin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-14-1-jw-john-the-beloved/) | 14 Octobre 2021
 Jean le Bien Aimé | [Prier pour l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-16-1-af-john-the-beloved/) | 16 Avril 2022
-Jean le Bien Aimé | [Nous sommes tous aimés par Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-1-1-jw-john-the-beloved/) | 1 Août 2022
+Jean le Bien Aimé | [Nous sommes tous aimés de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-10-2-jw-john-the-beloved/) | 10 Août 2022
 Jean le Bien Aimé | [Nos chemins seront marqués par le nombre d'âmes que nous toucherons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-5-1-af-john-the-beloved/) | 5 Octobre 2022
 Jean le Bien Aimé | [L'accomplissement de votre âme dans la famille d'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-28-2-af-john-the-beloved/) | 28 Janvier 2023
 Jean le Bien Aimé | [Prières de l'Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-20-2-af-john-the-beloved/) | 20 Avril 2023

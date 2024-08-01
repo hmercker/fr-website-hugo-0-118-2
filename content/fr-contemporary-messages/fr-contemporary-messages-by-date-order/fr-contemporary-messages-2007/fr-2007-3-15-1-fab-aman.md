@@ -1,7 +1,7 @@
 ---
-title: "La communication des premiers parents avec Dieu"
+title: "La communication des Premiers Parents avec Dieu"
 menu_title: ""
-description: "La communication des premiers parents avec Dieu"
+description: "La communication des Premiers Parents avec Dieu"
 date: 2022-06-01 06:00:01+00:123
 draft: False
 hidden: True

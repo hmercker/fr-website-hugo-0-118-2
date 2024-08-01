@@ -24,13 +24,13 @@ St Jean | [Répandre l’Amour par tous les moyens disponibles](/fr-contemporary
 Care Derby Walsh | [La multiplicité des dons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-22-2-jw-care-derby-walsh/) | 22 Janvier 2021
 Claire d'Assise | [Laissez une trace d’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-25-1-jw-clare-of-assisi/) | 25 Janvier 2021
 Charlie Chaplin | [Visez le plus haut](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-27-1-jw-charlie-chaplin/) | 27 Janvier 2021
-Kahlil Gibran | [Que votre amour soit un baume de guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-29-1-jw-kahlil-gibran/) | 29 Janvier 2021
+Kahlil Gibran | [Que votre Amour soit un baume de guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-29-1-jw-kahlil-gibran/) | 29 Janvier 2021
 Yogananda | [Être libre des préoccupations terrestres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-2-1-1-jw-yogananda/) | 1 Février 2021
 Eileen Caddy | [La vie spirituelle requiert du courage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-2-3-1-jw-eileen-caddy/) | 3 Février 2021
 Claire d'Assise | [L'importance de la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-2-5-2-jw-clare-of-assisi/) | 5 Février 2021
 Yogananda | [Élevez votre vibration pour guérir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-2-5-3-jw-yogananda/) | 5 Février 2021
 Judas | [Pensez à l'éternité et non à la mort](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-2-12-1-jw-judas/) | 12 Février 2021
-St François d'Assise | [Tendre la main avec l’Aamour de Dieu dans vos cœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-2-15-1-jw-st-francis-of-assisi/) | 15 Février 2021
+St François d'Assise | [Tendre la main avec l’Amour de Dieu dans vos cœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-2-15-1-jw-st-francis-of-assisi/) | 15 Février 2021
 Judas | [Faire face aux menaces de préjudice](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-2-17-1-jw-judas/) | 17 Février 2021
 Yogananda | [Toutes les choses faites dans l'Amour de Dieu sont bonnes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-2-22-1-jw-yogananda/) | 22 Février 2021
 Claire d'Assise | [En grandissant dans l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-2-24-2-jw-clare-of-assisi/) | 24 Février 2021
@@ -131,6 +131,6 @@ St Étienne | [Parlez au monde depuis votre âme](/fr-contemporary-messages/fr-c
 Care Darby Walsh | [Liberté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-26-3-jw-care-derby-walsh/) | 26 Décembre 2021
 Jude, le frère de Jésus | [Chaque voyage commence par un premier pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-30-1-jw-jesus-brother-jude/) | 30 Décembre 2021
 
-## [Lien vers les messages contemporains reçus par Jimbeau walsh au cours de l’année 2022](/fr-contemporary-messages\6-2-fr-contemporary-messages-per-medium/6-2-8-4-fr-jimbeau-walsh-2022/)
+[Lien vers les messages contemporains reçus par Jimbeau walsh au cours de l’année 2022](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-8-4-fr-jimbeau-walsh-2022/)
 
-## [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)
+[Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

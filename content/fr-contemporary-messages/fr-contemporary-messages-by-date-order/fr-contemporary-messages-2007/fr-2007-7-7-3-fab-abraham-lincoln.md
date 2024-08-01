@@ -1,13 +1,13 @@
 ---
-title: "Abraham Lincoln complète à son message précédent"
+title: "Abraham Lincoln complète son message précédent"
 menu_title: ""
-description: "Abraham Lincoln complète à son message précédent"
+description: "Abraham Lincoln complète son message précédent"
 date: 2022-06-01 06:00:01+00:132
 draft: False
 hidden: True
 weight:
 ---
-### Abraham Lincoln complète à son message précédent<sup id="a1">[1](#f1)</sup>
+### Abraham Lincoln complète son message précédent<sup id="a1">[1](#f1)</sup>
 
 Abraham Lincoln - reçu par FAB le 7 Juillet 2007, Santa Cruz, Californie, USA.
 

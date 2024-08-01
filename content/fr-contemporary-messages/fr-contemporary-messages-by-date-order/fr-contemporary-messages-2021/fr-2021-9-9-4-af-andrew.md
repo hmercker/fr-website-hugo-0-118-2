@@ -1,13 +1,13 @@
 ---
-title: "Nous nous réveillons ! (2021 Voix directe II)"
+title: "Nous nous réveillons ! (2021 Voix Directe II)"
 menu_title: ""
-description: "Nous nous réveillons ! (2021 Voix directe II)"
+description: "Nous nous réveillons ! (2021 Voix Directe II)"
 date: 2022-06-01 06:00:01+00:1633
 draft: False
 hidden: True
 weight:
 ---
-### Nous nous réveillons ! (2021 Voix directe II)
+### Nous nous réveillons ! (2021 Voix Directe II)
 
 André - reçu par Al Fike le 9 Septembre 2021, Gibsons, Colombie-Britannique, Canada.
 

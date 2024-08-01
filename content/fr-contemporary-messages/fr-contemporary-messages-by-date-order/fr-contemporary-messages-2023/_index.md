@@ -161,7 +161,7 @@ Orion | [Conseils pour rapprocher le mental de l'âme et le mental matériel](/f
 Yogananda | [Marcher dans la grâce](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-5-29-1-jw-yogananda/) | 29 Mai 2023
 Orion | [La domination de l'esprit spirituel cédera la place à la simplicité de l'âme dans le temps](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-5-30-1-af-orion/) | 30 Mai 2023
 Robert James Lee | [Le temple de l'adoration](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-6-1-1-jw-robert-james-lee/) | 1 Juin 2023
-Seretta Kem | [Souligne (encore une fois) ce qui est nécessaire pour obtenir une voix directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-6-3-1-af-seretta-kem/) | 3 Juin 2023
+Seretta Kem | [Souligne (encore une fois) ce qui est nécessaire pour obtenir une Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-6-3-1-af-seretta-kem/) | 3 Juin 2023
 Judas | [La gratitude dans le corps et l'esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-6-5-1-jw-judas/) | 5 Juin 2023
 Care Darby Walsh | [Suivez votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-6-8-1-jw-care-darby-walsh/) | 8 Juin 2023
 Mylora | [La Terre vous remercie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-6-10-1-af-mylora/) | 10 Juin 2023

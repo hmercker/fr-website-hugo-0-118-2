@@ -9,7 +9,7 @@ weight:
 ---
 ### Les deux frères
 
-Judas - reçu par Jimbeau Walsh le 23 Août 2022, Nashville, TN, USA.
+Judas - reçu par Jimbeau Walsh le 10 Août 2022, Nashville, TN, USA.
 
 Laissez-moi vous raconter l’histoire de ces deux frères. Tous deux avaient le don de médiumnité ; des canaux de lumière et d’amour, et de vérité. L’un des frères, grâce à l’unicité de son âme, recevait des messages très complets et éloquents, étonnants par leur ampleur et leur profondeur, et capables d’impressionner un large éventail d’âmes. L’autre frère, plus âgé mais pas plus sage, recevait des messages qui semblaient souvent très simples, paraboliques ou allégoriques, qui faisaient passer un message à travers une histoire simple. Ces messages avaient aussi leur éloquence.
 

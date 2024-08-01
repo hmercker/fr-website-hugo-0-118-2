@@ -1,7 +1,7 @@
 ---
-title: "Message de clôture de la retraite VD (Séminaire Voix Directe 2021)"
+title: "Message de clôture de la retraite Voix Directe (Séminaire Voix Directe 2021)"
 menu_title: ""
-description: "Message de clôture de la retraite VD (Séminaire Voix Directe 2021)"
+description: "Message de clôture de la retraite Voix Directe (Séminaire Voix Directe 2021)"
 date: 2022-06-01 06:00:01+00:1662
 draft: False
 hidden: True

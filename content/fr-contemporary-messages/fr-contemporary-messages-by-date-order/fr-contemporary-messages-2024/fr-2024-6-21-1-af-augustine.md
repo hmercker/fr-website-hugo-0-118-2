@@ -1,13 +1,13 @@
 ---
-title: "Plus d’encouragements pour enseigner les vérités de l’amour divin de Dieu"
+title: "Plus d’encouragements pour enseigner les vérités de l’Amour Divin de Dieu"
 menu_title: ""
-description: "Plus d’encouragements pour enseigner les vérités de l’amour divin de Dieu"
+description: "Plus d’encouragements pour enseigner les vérités de l’Amour Divin de Dieu"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-###  Plus d’encouragements pour enseigner les vérités de l’amour divin de Dieu
+###  Plus d’encouragements pour enseigner les vérités de l’Amour Divin de Dieu
 
 Augustin - reçu par Albert Fike le 21 Juin 2024, Sechelt, Colombie-Britannique, Canada.
 

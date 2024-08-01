@@ -13,7 +13,7 @@ Jésus - reçu par FAB le 22 Juin 2006, Santa Cruz, Californie, USA.
 
 C’est moi, Jésus.
 
-Vous vous interrogez sur le langage strident des messages de James Padgett. Eh bien, notre but avec M. Padgett était de mettre l’accent sur les choses de la Bible qui ne sont pas conformes à la volonté de Dieu. Mais cela ne signifie pas que beaucoup d’autres choses dans ce grand Livre ne sont pas en harmonie non plus.
+Vous vous interrogez sur le langage strident des messages de James Padgett. Eh bien, notre but avec M. Padgett était de mettre l’accent sur les choses de la Bible qui ne sont pas conformes à la Volonté de Dieu. Mais cela ne signifie pas que beaucoup d’autres choses dans ce grand Livre ne sont pas en harmonie non plus.
 
 Nous avions un temps et des ressources limités pour travailler. James Padgett connaissait très bien les choses merveilleuses de la Bible, et il n’y avait aucune raison de répéter ce que lui et le monde Chrétien savent déjà.
 

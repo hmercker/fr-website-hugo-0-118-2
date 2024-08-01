@@ -1,13 +1,13 @@
 ---
-title: "Embrassez tout dans l'amour"
+title: "Embrassez tout dans l'Amour"
 menu_title: ""
-description: "Embrassez tout dans l'amour"
+description: "Embrassez tout dans l'Amour"
 date: 2022-06-01 06:00:01+00:1206
 draft: False
 hidden: True
 weight:
 ---
-### Embrassez tout dans l'amour
+### Embrassez tout dans l'Amour
 
 St François d'Assise - reçu par Jimbeau Walsh le 1<sup>er</sup> Août 2020, Punalu’u, Oahu, Hawaii, USA.
 

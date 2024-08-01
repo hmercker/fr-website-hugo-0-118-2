@@ -1,13 +1,13 @@
 ---
-title: "Soyez dans le jardin de l'amour"
+title: "Soyez dans le jardin de l'Amour"
 menu_title: ""
-description: "Soyez dans le jardin de l'amour"
+description: "Soyez dans le jardin de l'Amour"
 date: 2022-06-01 06:00:01+00:816
 draft: False
 hidden: True
 weight:
 ---
-### Soyez dans le jardin de l'amour
+### Soyez dans le jardin de l'Amour
 
 St François d'Assise - reçu par Jimbeau Walsh le 20 Août 2019, Boscobel, WI, USA.
 

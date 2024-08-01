@@ -1,13 +1,13 @@
 ---
-title: "Vous êtes le fondement de la vérité sur Terre"
+title: "Vous êtes le fondement de la Vérité sur Terre"
 menu_title: ""
-description: "Vous êtes le fondement de la vérité sur Terre"
+description: "Vous êtes le fondement de la Vérité sur Terre"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### Vous êtes le fondement de la vérité sur Terre
+### Vous êtes le fondement de la Vérité sur Terre
 
 St Matthieu - reçu par Elizabeth Mack le 2 Janvier 2024, République Dominicaine.
 

@@ -117,7 +117,7 @@ Eileen Caddy | [Là où votre cœur est là, là est aussi votre trésor](/fr-co
 Yogananda | [Ouvrez-vous en permettant à la vérité de pénétrer en vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-24-3-af-yogananda/) | 24 Avril 2020
 Augustin | [Profitez des temps qui vous sont donnés (Atelier de médiumnité 2020)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-25-1-af-augustine/) | 25 Avril 2020
 St François d'Assise | [Uu pont entre le Ciel et la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-25-2-jw-st-francis-of-assisi/) | 25 Avril 2020
-André | [Servir dans le réseau de l'amour (Collection générale 2020)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-26-1-hm-andrew/) | 26 Avril 2020
+André | [Servir dans le réseau de l'Amour (Collection générale 2020)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-26-1-hm-andrew/) | 26 Avril 2020
 Augustin | [La puissance primordiale de l'Amour Divin est la véritable force qui apportera le changement (Cercles de prière en ligne 2020)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-26-2-af-augustine/) | 26 Avril 2020
 Flavius Josèphe | [Le libre arbitre et son impact sur la Terre (Collection générale 2020)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-27-1-af-josephus/) | 27 Avril 2020
 Confucius | [Vous créez un portail de lumière en vous unifiant dans la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-27-2-af-confucius/) | 27 Avril 2020
@@ -159,7 +159,7 @@ Fleur de Lotus | [Comparaison des expiations entre les voies de l'Amour Divin et
 Seretta Kem | [Accueillir la libération de ce qui n'est pas en Harmonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-22-1-af-seretta-kem/) | 22 Mai 2020
 St François d'Assise | [Permettez aux intentions de vos âmes de vous atteindre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-23-1-jw-st-francis-of-assisi/) | 23 Mai 2020
 Augustin | [L'intensité de votre désir apportera l'éveil de votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-23-2-af-augustine/) | 23 Mai 2020
-Eileen Caddy | [Portez l'amour dans vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-24-1-jw-eileen-caddy/) | 24 Mai 2020
+Eileen Caddy | [Portez l'Amour dans vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-24-1-jw-eileen-caddy/) | 24 Mai 2020
 Thomas Merton | [Si vous aviez une croyance pour vous porter](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-24-2-jw-thomas-merton/) | 24 Mai 2020
 St Jean | [Vos actes d'amour, de service, de bonté et de lumière seront votre héritage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-24-3-af-st-john/) | 24 Mai 2020
 Confucius | [L'Amour de Dieu est le catalyseur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-25-1-hm-confucius/) | 25 Mai 2020
@@ -167,7 +167,7 @@ Seretta Kem | [Maintenir l'harmonie dans votre groupe - V.D.](/fr-contemporary-m
 Seretta Kem | [Les contradictions entre l'esprit et l'âme - Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-26-1-af-seretta-kem/) | 26 Mai 2020
 Yogananda | [Demandez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-28-1-jw-yogananda/) | 28 Mai 2020
 Martin Luther | [Une salutation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-29-1-hm-martin-luther/) | 29 Mai 2020
-Claire d'Assise | [Mettez l'amour sur les ondes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-30-1-jw-clare-of-assisi/) | 30 Mai 2020
+Claire d'Assise | [Mettez l'Amour sur les ondes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-30-1-jw-clare-of-assisi/) | 30 Mai 2020
 St Pierre | [La Pentecôte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-31-1-af-st-peter/) | 31 Mai 2020
 André | [Dieu cherche à réconcilier l'humanité avec Lui alors que les changements terrestres balaient le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-1-1-af-andrew/) | 1<sup>er</sup> Juin 2020
 St François d'Assise | [Le chemin de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-6-1-jw-st-francis-of-assisi/) | 6 Juin 2020
@@ -175,15 +175,15 @@ Joseph | [Agissez avec votre âme](/fr-contemporary-messages/fr-contemporary-mes
 Augustin | [L'expérience de la croissance de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-8-1-af-augustine/) | 8 Juin 2020
 Charlie Chaplin | [Le voleur de cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-9-1-jw-charlie-chaplin/) | 9 Juin 2020
 Yogananda | [Nous sommes tous ensemble en train de boire l'élixir d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-9-2-af-yogananda/) | 9 Juin 2020
-Judas | [Permettre l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-10-1-jw-judas/) | 10 Juin 2020
+Judas | [Permettre l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-10-1-jw-judas/) | 10 Juin 2020
 Claire d'Assise | [Trois souris bienveillantes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-10-2-jw-clare-of-assisi/) | 10 Juin 2020
 Martin Luther | [Une salutation matinale](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-12-1-hm-martin-luther/) | 12 Juin 2020
 St François d'Assise | [Offrez le cadeau de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-13-1-jw-st-francis-of-assisi/) | 13 Juin 2020
 Jésus | [Soyez dans la vérité de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-14-1-af-jesus/) | 14 Juin 2020
 Seretta Kem | [Le plan de Dieu pour le salut de l'humanité et la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-14-2-af-seretta-kem/) | 14 Juin 2020
 Seretta Kem | [Nous vous tricotons ensemble d'âme à âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-14-3-af-seretta-kem/) | 14 Juin 2020
-St Jean | [Dieu est amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-15-1-jw-st-john/) | 15 Juin 2020
-Anne Rollins | [Réseau de l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-15-2-hm-ann-rollins/) | 15 Juin 2020
+St Jean | [Dieu est Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-15-1-jw-st-john/) | 15 Juin 2020
+Anne Rollins | [Réseau de l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-15-2-hm-ann-rollins/) | 15 Juin 2020
 Yogananda | [Toute la paix et le silence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-15-3-jw-yogananda/) | 15 Juin 2020
 André | [S'ouvrir à la coopération avec les autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-16-1-af-andrew/) | 16 Juin 2020
 Elizabeth | [Unis dans l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-16-2-jw-elizabeth/) | 16 Juin 2020
@@ -246,10 +246,10 @@ Judas | [Amour, Lumière et Guérison](/fr-contemporary-messages/fr-contemporary
 Claire d'Assise | [Choisissez judicieusement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-27-2-jw-clare-of-assisi/) | 27 Juillet 2020
 Yogananda | [Soyez ouverts à la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-28-1-jw-yogananda/) | 28 Juillet 2020
 Claire d'Assise | [Nous sommes avec vous dans ce voyage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-29-1-jw-clare-of-assisi/) | 29 Juillet 2020
-Yogananda | [Fais du monde ton ashram, ton monastère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-30-1-jw-yogananda/) | 30 Juillet 2020
+Yogananda | [Fais du monde votre ashram, votre monastère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-30-1-jw-yogananda/) | 30 Juillet 2020
 Seretta Kem | [Seretta Kem aidera ceux qui se sentent appelés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-31-1-af-seretta-kem/) | 31 Juillet 2020
 St François d'Assise | [Restez dans la grâce de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-31-2-jw-st-francis-of-assisi/) | 31 Juillet 2020
-St François d'Assise | [Embrassez tout dans l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-1-1-jw-st-francis-of-assisi/) | 1<sup>er</sup> Août 2020
+St François d'Assise | [Embrassez tout dans l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-1-1-jw-st-francis-of-assisi/) | 1<sup>er</sup> Août 2020
 Care Derby Walsh | [Dans l’Amour de Dieu, il n’y a pas de mauvais choix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-2-1-jw-care-derby-walsh/) | 2 Août 2020
 Care Derby Walsh | [Je l'adore !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-2-2-jw-care-derby-walsh/) | 2 Août 2020
 Judas | [Exploration des messages de Judas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-3-1-jw-judas/) | 3 Août 2020
@@ -257,7 +257,7 @@ Jésus | [Le Pardon (2eme partie)](/fr-contemporary-messages/fr-contemporary-mes
 Augustin | [Connaissez vos propres âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-7-1-af-augustine/) | 7 Août 2020
 Yogananda | [Les pensées que vous absorbez et émettez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-7-2-jw-yogananda/) | 7 Août 2020
 Jésus | [Perte et Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-7-3-jg-jesus/) | 7 Août 2020
-Pasteur George Vale Owen | [Prier pour s'ouvrir à l'amour du Créateur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-10-1-jw-rev-george-vale-owen/) | 10 Août 2020
+Pasteur George Vale Owen | [Prier pour s'ouvrir à l'Amour du Créateur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-10-1-jw-rev-george-vale-owen/) | 10 Août 2020
 Keea Atta Kem | [Il y aura beaucoup de cercles de prière comme ceux-ci](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-11-1-af-keea-atta-kem/) | 11 Août 2020
 Jésus | [La Joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-11-2-jg-jesus/) | 11 Août 2020
 Pasteur George Vale Owen | [Dans la gratitude et l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-12-1-jw-rev-george-vale-owen/) | 12 Août 2020
@@ -279,7 +279,7 @@ André | [La prière est la clé du travail spirituel](/fr-contemporary-messages
 Jésus | [L’Amour (deuxième partie)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-27-1-jg-jesus/) | 27 Août 2020
 Joseph | [Obtenir des conseils](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-28-1-af-joseph/) | 28 Août 2020
 André | [Plantez les graines de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-29-1-jw-andrew/) | 29 Août 2020
-Kahlil Gibran | [Mise à l'honneur du livre « Pour l'amour de sa création »](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-30-1-jw-kahlil-gibran/) | 30 Août 2020
+Kahlil Gibran | [Mise à l'honneur du livre « Pour l'amour de Sa création »](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-30-1-jw-kahlil-gibran/) | 30 Août 2020
 St Luc | [Les pensées que vous entretenez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-1-1-jw-st-luke/) | 1<sup>er</sup> Septembre 2020
 Marie | [Soyez Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-1-2-af-mary/) | 1<sup>er</sup> Septembre 2020
 Jésus | [Écouter](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-1-3-jg-jesus/) | 1<sup>er</sup> Septembre 2020

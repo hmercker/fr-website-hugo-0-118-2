@@ -51,10 +51,10 @@ Charles Sumner | [Réflexions d'un homme d'État américain du XIXe siècle](/fr
 Jael | [La longévité dans la première famille](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-10-2-fab-jael/) | 10 Mars 2007
 Thaddeus Stevens | [Réflexions d'un autre homme d'État américain du XIXe siècle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-10-3-fab-thaddeus-stevens/) | 10 Mars 2007
 Oliver Cromwell | [Souffrances d’un souverain anglais](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-12-1-fab-oliver-cromwell/) | 12 Mars 2007
-Aman | [La communication des premiers parents avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-15-1-fab-aman/) | 15 Mars 2007
+Aman | [La communication des Premiers Parents avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-15-1-fab-aman/) | 15 Mars 2007
 Old Joe | [Old Joe ajoute un commentaire à son message précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-19-1-fab-old-joe/) | 19 Mars 2007
 Thomas Paine | [Une discussion sur la médiumnité et la guerre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-16-2-fab-thomas-paine/) | 16 Mars 2007
-Jacobus Arminius | [Un théologien néerlandais découvre la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-21-1-fab-jacobus-arminius/) | 21 Mars 2007
+Jacobus Arminius | [Un théologien Néerlandais découvre la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-21-1-fab-jacobus-arminius/) | 21 Mars 2007
 Jésus | [L'inconscient](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-22-1-fab-jesus/) | 22 Mars 2007
 Thomas Paine | [Thomas Paine et la guerre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-22-2-fab-thomas-paine/) | 22 Mars 2007
 Jésus | [Canalisation sur la guerre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-26-1-fab-jesus/) | 26 Mars 2007
@@ -62,7 +62,7 @@ Jésus | [Tendre l'autre joue](/fr-contemporary-messages/fr-contemporary-message
 Ho Chi Minh | [Un message de paix de la part d’Ho Chi Minh](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-4-12-1-fab-ho-chi-minh/) | 12 Avril 2007
 Abraham Lincoln | [Abraham Lincoln commente son style dans les Messages reçus par James Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-7-1-fab-abraham-lincoln/) | 7 Juillet 2007
 Jésus | [Les races de l'humanité, et la diversité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-7-2-fab-jesus/) | 7 Juillet 2007
-Abraham Lincoln | [Abraham Lincoln complète à son message précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-7-3-fab-abraham-lincoln/) | 7 Juillet 2007
+Abraham Lincoln | [Abraham Lincoln complète son message précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-7-3-fab-abraham-lincoln/) | 7 Juillet 2007
 Jésus | [Meher Baba](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-7-4-fab-jesus/) | 7 Juillet 2007
 Wolfgang Amadeus Mozart | [Mozart complète son message precedent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-17-1-fab-wolfgang-amadeus-mozart/) | 17 Juillet 2007
 David Ben-Gurion | [Un dirigeant israélien complète son message précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-20-1-fab-david-ben-gurion/) | 20 Juillet 2007

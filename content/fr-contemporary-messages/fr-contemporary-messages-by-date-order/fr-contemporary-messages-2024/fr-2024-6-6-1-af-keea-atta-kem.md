@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous êtes des sages-femmes pour la conscience de l'âme à l'accouchement  
 
-Keaa Atta Kem - reçu par Albert Fike le 06 Juin 2024, Sechelt, Colombie-Britannique, Canada.
+Keea Atta Kem - reçu par Albert Fike le 06 Juin 2024, Sechelt, Colombie-Britannique, Canada.
 
 Je m’appelle Keea Atta Kem. D’une certaine manière, vous êtes les sages-femmes qui font naître la conscience de l’âme chez chaque individu qui participera. C’est ce qui est nécessaire pour aider à guider l’individu vers cet endroit où il peut entrer en toute confiance et le faire encore et encore, non seulement un endroit où il peut être avec Dieu et connaître Dieu, mais aussi un endroit où nous pouvons être avec lui. et qu’ils nous connaissent. De cette façon, à mesure que cette relation se développe, chaque individu trouvera les voies et moyens de permettre nos communications. Ils se sentiront à l’aise et confiants face à ce qui peut apparaître, à ce qui peut apparaître dans leur conscience, à ce qui peut apparaître à travers eux en tant qu’instruments pour les Anges Célestes.
 

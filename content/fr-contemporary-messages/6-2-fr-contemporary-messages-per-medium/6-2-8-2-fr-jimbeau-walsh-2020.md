@@ -58,7 +58,7 @@ St François d'Assise | [Ne rejetez pas ceux qui désirent la vérité](/fr-cont
 Care Darby Walsh | [Réalisation de soi et réalisation de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-16-1-jw-care-derby-walsh/) | 16 Mai 2020
 Yogananda | [Les pensées deviennent des choses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-19-1-jw-yogananda/) | 19 Mai 2020
 St François d'Assise | [Permettez aux intentions de vos âmes de vous atteindre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-23-1-jw-st-francis-of-assisi/) | 23 Mai 2020
-Eileen Caddy | [Portez l'amour dans vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-24-1-jw-eileen-caddy/) | 24 Mai 2020
+Eileen Caddy | [Portez l'Amour dans vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-24-1-jw-eileen-caddy/) | 24 Mai 2020
 Thomas Merton | [Si vous aviez une croyance pour vous porter](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-24-2-jw-thomas-merton/) | 24 Mai 2020
 Yogananda | [Demandez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-28-1-jw-yogananda/) | 28 Mai 2020
 Claire d'Assise | [Mettez l'Amour sur les ondes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-30-1-jw-clare-of-assisi/) | 30 Mai 2020
@@ -103,7 +103,7 @@ Judas | [Amour, Lumière et Guérison](/fr-contemporary-messages/fr-contemporary
 Claire d'Assise | [Choisissez judicieusement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-27-2-jw-clare-of-assisi/) | 27 Juillet 2020
 Yogananda | [Soyez ouverts à la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-28-1-jw-yogananda/) | 28 Juillet 2020
 Claire d'Assise | [Nous sommes avec vous dans ce voyage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-29-1-jw-clare-of-assisi/) | 29 Juillet 2020
-Yogananda | [Fais du monde ton ashram, ton monastère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-30-1-jw-yogananda/) | 30 Juillet 2020
+Yogananda | [Fais du monde votre ashram, votre monastère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-30-1-jw-yogananda/) | 30 Juillet 2020
 St François d'Assise | [Restez dans la grâce de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-31-2-jw-st-francis-of-assisi/) | 31 Juillet 2020
 St François d'Assise | [Embrassez tout dans l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-1-1-jw-st-francis-of-assisi/) | 1 Août 2020
 Care Derby Walsh | [Dans l’Amour de Dieu, il n’y a pas de mauvais choix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-2-1-jw-care-derby-walsh/) | 2 Août 2020
@@ -119,7 +119,7 @@ Yogananda | [Soyez ouverts à la guérison](/fr-contemporary-messages/fr-contemp
 Yogananda | [S’ouvrir sans crainte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-21-1-jw-yogananda/) | 21 Août 2020
 Claire d'Assise | [Prenez ceci à cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-24-1-jw-clare-of-assisi/) | 24 Août 2020
 André | [Plantez les graines de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-29-1-jw-andrew/) | 29 Août 2020
-Kahlil Gibran | [Mise à l'honneur du livre «Pour l'amour de sa création»](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-30-1-jw-kahlil-gibran/) | 30 Août 2020
+Kahlil Gibran | [Mise à l'honneur du livre « Pour l'amour de Sa création »](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-30-1-jw-kahlil-gibran/) | 30 Août 2020
 St Luc | [Les pensées que vous entretenez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-1-1-jw-st-luke/) | 1 Septembre 2020
 Yogananda | [Ne maudissez pas l’obscurité, mais louez la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-4-1-jw-yogananda/) | 4 Septembre 2020
 Yogananda | [Harmonie dans la nature et Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-6-2-jw-yogananda/) | 6 Septembre 2020
@@ -166,7 +166,7 @@ Marie | [Vous êtes l’aube](/fr-contemporary-messages/fr-contemporary-messages
 Noé | [A propos du déluge](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-29-1-jw-noah/) | 29 Décembre 2020
 Claire d'Assise | [Accrochez-vous à l'espoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-30-1-jw-clare-of-assisi/) | 30 Décembre 2020
 
-## [Lien vers les messages contemporains reçus par Jimbeau walsh au cours de l’année 2021](/fr-contemporary-messages\6-2-fr-contemporary-messages-per-medium/6-2-8-3-fr-jimbeau-walsh-2021/)
+[Lien vers les messages contemporains reçus par Jimbeau walsh au cours de l’année 2021](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-8-3-fr-jimbeau-walsh-2021/)
 
-## [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)
+[Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)
 

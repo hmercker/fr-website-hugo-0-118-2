@@ -100,11 +100,11 @@ Jésus | [Nous voyons vos luttes](/fr-contemporary-messages/fr-contemporary-mess
 Le Père Céleste | [Je parle à ceux qui entendent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-11-24-1-cog-father/) | 24 Novembre 2012
 Le Père Céleste | [Aimer la création de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-11-27-1-hm-father/) | 27 Novembre 2012
 Le Père Céleste | [Le Monde de l’Illusion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-2-1-cog-father/) | 2 Décembre 2012
-Marie | [Se  soumetre à l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-7-1-hm-mary/) | 7 Décembre 2012
+Marie | [Se  soumetre à l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-7-1-hm-mary/) | 7 Décembre 2012
 Judas | [Le vent du changement souffle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-9-1-hm-judas/) | 9 Décembre 2012
 Anne Rollins | [Sur la Foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-10-1-hm-ann-rollins/) | 10 Décembre 2012
 Le Père Céleste | [Retrouve ton innocence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-11-1-cog-father/) | 11 Décembre 2012
-Le Père Céleste | [L'amour imprègne le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-23-1-hm-father/) | 23 Décembre 2012
+Le Père Céleste | [L'Amour imprègne le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-23-1-hm-father/) | 23 Décembre 2012
 
 ### [**Lien vers les messages des années 2013**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/)
 

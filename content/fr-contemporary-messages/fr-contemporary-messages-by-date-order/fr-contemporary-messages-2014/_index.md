@@ -41,7 +41,7 @@ Augustin | [Les vents du changement](/fr-contemporary-messages/fr-contemporary-m
 St François d'Assise | [« S’aimer les uns les autres »](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-26-1-jr-st-francis-of-assisi/) | 26 Mai 2014
 Yogananda | [Le monde n’est qu’une illusion de notre imagination](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-31-1-wv-yogananda/) | 31 Mai 2014
 St François d'Assise | [Vivre dans l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-6-8-1-jr-st-francis-of-assisi/) | 8 Juin 2014
-Père | [L’amour que je suis est l’amour que tu es](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-7-9-1-cog-father/) | 9 Juillet 2014
+Le Père Céleste| [L’Amour que je suis est l’Amour que tu es](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-7-9-1-cog-father/) | 9 Juillet 2014
 James Padgett | [Détails de la vie de James Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-7-17-1-af-james-padgett/) | 17 Juillet 2014
 Hélène Padgett | [Détails de la vie d’Hélène Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-7-18-1-af-helen-padgett/) | 18 Juillet 2014
 Augustin | [Le libre arbitre fait que le monde est libre. Rien n’est garanti](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-7-26-1-af-augustine/) | 26 Juillet 2014

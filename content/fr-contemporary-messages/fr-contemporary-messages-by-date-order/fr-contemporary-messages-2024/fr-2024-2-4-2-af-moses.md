@@ -1,4 +1,4 @@
-æ---
+---
 title: "Votre responsabilité d’indiquer le chemin vers Dieu pour les autres"
 menu_title: ""
 description: "Votre responsabilité d’indiquer le chemin vers Dieu pour les autres"

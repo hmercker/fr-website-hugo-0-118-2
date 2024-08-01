@@ -1,13 +1,13 @@
 ---
-title: "Le pouvoir de l’amour pour effacer les erreurs"
+title: "Le pouvoir de l’Amour pour effacer les erreurs"
 menu_title: ""
-description: "Le pouvoir de l’amour pour effacer les erreurs"
+description: "Le pouvoir de l’Amour pour effacer les erreurs"
 date: 2022-06-01 06:00:01+00:21
 draft: False
 hidden: True
 weight:
 ---
-### Le pouvoir de l’amour pour effacer les erreurs
+### Le pouvoir de l’Amour pour effacer les erreurs
 
 James Padgett<sup id="a1">[1](#f1)</sup> - reçu par Kathryn Stokes le 10 Juin 2006, Santa Cruz, Californie, USA.
 
