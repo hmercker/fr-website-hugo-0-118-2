@@ -15,7 +15,7 @@ Jean Paul II | [Un pape appelle à la paix](/fr-contemporary-messages/fr-contemp
 Ronald Reagan | [Ronald Reagan a besoin d'aide](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-1-2-fab-ronald-reagan/) | 1<sup>er</sup> Janvier 2007
 Jean Paul II | [L'Amour de Dieu et le pape](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-3-1-fab-john-paul-ii/) | 3 Janvier 2007
 Uharu | [Une discussion sur l'environnement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-10-1-fab-uharu/) | 10 Janvier 2007
-Uharu | [Une perspective amérindienne sur la société](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-10-2-fab-uharu/) | 10 Janvier 2007
+Uharu | [Une perspective Amérindienne sur la société](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-10-2-fab-uharu/) | 10 Janvier 2007
 Martin Luther King jr | [La Terre Promise](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-12-1-fab-martin-luther-king-jr/) | 12 Janvier 2007
 Thomas Jefferson | [Un changement spirituel dans la politique Américaine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-14-1-fab-thomas-jefferson/) | 14 Janvier 2007
 Jésus | [L'attention du public aux messages de James Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-17-1-fab-jesus/) | 17 Janvier 2007
@@ -47,10 +47,10 @@ Jésus | [L'apathie Américaine](/fr-contemporary-messages/fr-contemporary-messa
 Jésus | [Jésus parle de l’avortement et de l’abandon des enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-4-1-fab-jesus/) | 4 Mars 2007
 Jésus | [L'utilisation d'un langage dur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-7-1-fab-jesus/) | 7 Mars 2007
 Old Joe | [Expériences d'un esclave américain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-9-1-fab-old-joe/) | 9 Mars 2007
-Charles Sumner | [Réflexions d'un homme d'État américain du XIXe siècle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-10-1-fab-charles-sumner/) | 10 Mars 2007
+Charles Sumner | [Réflexions d'un homme d'État Américain du XIXe siècle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-10-1-fab-charles-sumner/) | 10 Mars 2007
 Jael | [La longévité dans la première famille](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-10-2-fab-jael/) | 10 Mars 2007
-Thaddeus Stevens | [Réflexions d'un autre homme d'État américain du XIXe siècle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-10-3-fab-thaddeus-stevens/) | 10 Mars 2007
-Oliver Cromwell | [Souffrances d’un souverain anglais](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-12-1-fab-oliver-cromwell/) | 12 Mars 2007
+Thaddeus Stevens | [Réflexions d'un autre homme d'État Américain du XIXe siècle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-10-3-fab-thaddeus-stevens/) | 10 Mars 2007
+Oliver Cromwell | [Souffrances d’un souverain Anglais](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-12-1-fab-oliver-cromwell/) | 12 Mars 2007
 Aman | [La communication des Premiers Parents avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-15-1-fab-aman/) | 15 Mars 2007
 Old Joe | [Old Joe ajoute un commentaire à son message précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-19-1-fab-old-joe/) | 19 Mars 2007
 Thomas Paine | [Une discussion sur la médiumnité et la guerre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-16-2-fab-thomas-paine/) | 16 Mars 2007
@@ -107,7 +107,7 @@ Confucius | [La sagesse ancienne de l'humanité et la paix](/fr-contemporary-mes
 Guillaume le Conquérant | [Un souverain médiéval œuvre désormais pour la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-11-21-1-fab-william-the-conquerer/) | 21 Novembre 2007
 John Brown | [Le destin de John Brown](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-11-23-1-fab-john-brown/) | 23 Novembre 2007
 Dag Hammarskjold | [Les réflexions d'un dirigeant de l'ONU](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-11-24-1-fab-dag-hammarskjold/) | 24 Novembre 2007
-George Washington | [La protection divine et la guerre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-11-25-1-fab-george-washington/) | 25 Novembre 2007
+George Washington | [La protection Divine et la guerre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-11-25-1-fab-george-washington/) | 25 Novembre 2007
 Roi George I | [Un roi anglais est maintenant heureux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-11-25-2-fab-king-george-i/) | 25 Novembre 2007
 George Washington | [Le salut de l'Amérique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-12-3-1-fab-george-washington/) | 3 Décembre 2007
 Jésus | [Canaliser les esprits sombres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-12-6-1-fab-jesus/) | 6 Décembre 2007

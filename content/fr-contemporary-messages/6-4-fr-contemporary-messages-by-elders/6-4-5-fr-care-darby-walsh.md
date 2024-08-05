@@ -11,7 +11,7 @@ weight:
 
 ![](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/fr-care-darby-walsh.jpg)
 
-Care Darby Walsh  était l'épouse de médium Jimbeau Walsh, qui est un médium et artiste très connu et très appécié dans la communauté de l'Amour Divin. Care darby Walsh est née le 9 Février 1947 et a grandi à Cambridge Maryland où sa grand-mère et sa mère possédaient des capacités psychiques. Elle est devenue membre de la communauté de l'Amour Divin dans les années 70 et était très appréciée dans la communauté en tant que médium douée.
+Care Darby Walsh  était l'épouse de médium Jimbeau Walsh, qui est un médium et artiste très connu et très appécié dans la communauté de l'Amour Divin. Care Darby Walsh est née le 9 Février 1947 et a grandi à Cambridge Maryland où sa grand-mère et sa mère possédaient des capacités psychiques. Elle est devenue membre de la communauté de l'Amour Divin dans les années 70 et était très appréciée dans la communauté en tant que médium douée.
 
 Care Darby Walsh et son mari, le Révérend Jimbau Walsh, se sont encontrés dans des circonstances un peu exceptionnelles et leur union fut toujours placée sous le signe de la spiritualité. Tous les deux étaient également des artistes confimés et c'est leur engagement musical qui, sur le plan extérieur, fut à la source de leur renconttre. Sur le plan intérieur leur rencontre a pu prendre place en réponse à une profonde recherche spirituelle de son mari, le révérend Jimbeau Wwalsh. Care Darby Walsh est décédée avec trois autres personnes dans un terrible accident de voiture. Elle avait été informée de cette fin tragique peu de temps avant.
 
@@ -20,7 +20,7 @@ Care Darby Walsh et son mari, le Révérend Jimbau Walsh, se sont encontrés dan
 ---|---|---
 Care Darby Walsh | [Les potentiels en herbe de nos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-29-1-af-care-derby-walsh/) | 29 Novembre 2016
 Care Darby Walsh | [Ceux qui servent Dieu dans l'amour travaillent au niveau de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-5-28-1-jw-care-derby-walsh/) | 28 Mai 2019
-Care Darby Walsh | [La vérité divine est l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-8-7-2-jw-care-derby-walsh/) | 7 Août 2019
+Care Darby Walsh | [La vérité Divine est l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-8-7-2-jw-care-derby-walsh/) | 7 Août 2019
 Care Darby Walsh | [Suivez le chemin le moins fréquenté, le chemin de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-9-4-jw-care-derby-walsh/) | 9 Septembre 2019
 Care Darby Walsh | [Choisir de vivre dans l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-10-10-1-jw-care-derby-walsh/) | 10 Octobre 2019
 Care Darby Walsh | [Votre connexion est d'âme à âme en esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-10-31-2-jw-care-derby-walsh/) | 31 Octobre 2019
@@ -30,10 +30,10 @@ Care Darby Walsh | [Réalisation de soi et réalisation de Dieu](/fr-contemporar
 Care Darby Walsh | [Frères dans l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-25-1-jw-care-derby-walsh/) | 25 Juin 2020
 Care Darby Walsh | [Vous êtes digne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-28-1-jw-care-derby-walsh/) | 28 Juin 2020
 Care Darby Walsh | [Fou de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-29-1-jw-care-derby-walsh/) | 29 Juin 2020
-Care Darby Walsh | [Pour l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-12-1-jw-care-derby-walsh/) | 12 Juillet 2020
+Care Darby Walsh | [Pour l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-12-1-jw-care-derby-walsh/) | 12 Juillet 2020
 Care Darby Walsh | [Permettez la grâce de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-21-1-jw-care-derby-walsh/) | 21 Juillet 2020
 Care Darby Walsh | [Les enfants de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-23-2-jw-care-derby-walsh/) | 23 Juillet 2020
-Care Darby Walsh | [Dans l’amour de Dieu, il n’y a pas de mauvais choix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-2-1-jw-care-derby-walsh/) | 2 Août 2020
+Care Darby Walsh | [Dans l’Amour de Dieu, il n’y a pas de mauvais choix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-2-1-jw-care-derby-walsh/) | 2 Août 2020
 Care Darby Walsh | [Je l'adore !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-2-2-jw-care-derby-walsh/) | 2 Août 2020
 Care Darby Walsh | [La foi en Dieu et en vos dons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-15-1-jw-care-derby-walsh/) | 15 Août 2020
 Care Darby Walsh | [Quel sera votre cadeau à Dieu ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-22-1-jw-care-derby-walsh/) | 22 Septembre 2020
@@ -69,7 +69,7 @@ Care Darby Walsh | [Suivez la joie](/fr-contemporary-messages/fr-contemporary-me
 Care Darby Walsh | [De nombreuses façons de donner de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-22-2-jw-care-derby-walsh/) | 22 Août 2022
 Care Darby Walsh | [Progression au-delà des flux et reflux de la vie terrestre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-3-1-jw-care-derby-walsh/) | 3 Octobre 2022
 Care Darby Walsh | [Faites connaitre les intentions de votre ame au monde entier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-6-1-jw-care-derby-walsh/) | 6 Novembre 2022
-Care Darby Walsh | [La connexion divine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-19-1-jw-care-derby-walsh/) | 19 Décembre 2022
+Care Darby Walsh | [La connexion Divine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-19-1-jw-care-derby-walsh/) | 19 Décembre 2022
 Care Darby Walsh | [Parler vrai sans regrets](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-17-1-jw-care-darby-walsh/) | 17 Avril 2023
 Care Darby Walsh | [Suivez votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-6-8-1-jw-care-darby-walsh/) | 8 Juin 2023
 Care Darby Walsh | [Le vrai bonheur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-6-12-1-jw-care-darby-walsh/) | 12 Juin 2023
@@ -81,8 +81,9 @@ Care Darby Walsh | [Qu'est-ce qui vous attend dans le monde des esprits !](/fr-c
 Care Darby Walsh | [Santé du corps et de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-4-1-jw-care-darby-walsh/) | 4 Décembre 2023
 Care Darby Walsh | [Chagrin et amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-12-1-jw-care-darby-walsh/) | 12 Janvier 2024
 Care Darby Walsh | [Embrassez-les comme Dieu vous a embrassé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-15-1-jw-care-darby-walsh/) | 15 Janvier 2024
-Care Darby Walsh | [Toutes choses conspirent pour votre bonheur dans l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-12-1-jw-care-darby-walsh/) | 12 Février 2024
+Care Darby Walsh | [Écoutez les voix de l'espoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-12-1-jw-care-darby-walsh/) | 12 Février 2024
 Care Darby Walsh | [Survivre à la mort avec les perceptions de l’éternité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-28-1-jw-care-darby-walsh/) | 28 Mars 2024
 Care Darby  Walsh | [La transformation de l’âme dans l’Amour de Dieu est réelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-3-1-jw-care-darby-walsh/) | 3 Mai 2024
 Care Darby Walsh | [Dites une simple prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-27-1-jw-care-darby-walsh/) | 27 Mai 2024
 Care Darby Walsh | [La Nouvelle  Naissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-24-1-jw-care-darby-walsh/) | 24 Juin 2024
+Care Darby Walsh | [Détente spirituelle, sanctuaire et responsabilité personnelle ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-8-1-jw-cara-darby-walsh/) | 8 Juillet 2024

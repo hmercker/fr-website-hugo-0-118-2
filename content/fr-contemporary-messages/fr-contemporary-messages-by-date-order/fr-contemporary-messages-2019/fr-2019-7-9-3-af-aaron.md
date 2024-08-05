@@ -1,13 +1,13 @@
 ---
-title: "Soyez l'agent actif du changement de Dieu"
+title: "Soyez l'agent actif  de Dieu pour le changement"
 menu_title: ""
-description: "Soyez l'agent actif du changement de Dieu"
+description: "Soyez l'agent actif de Dieu pour le changement"
 date: 2022-06-01 06:00:01+00:770
 draft: False
 hidden: True
 weight:
 ---
-### Soyez l'agent actif du changement de Dieu
+### Soyez l'agent actif de Dieu pour le changement
 
 Aaron - reçu par Al Fike le 9 Juillet 2019, Gibsons, Colombie-Britannique, Canada.
 

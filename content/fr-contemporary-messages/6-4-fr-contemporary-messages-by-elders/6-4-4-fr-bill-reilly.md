@@ -13,7 +13,7 @@ Suite à la démission de Jocelyne Harleston, Bill Reilly est devenu le préside
 
 [Le lien suivant](/fr-james-padgett-messages/1-12-fr-continuity-of-james-padgetts-messages/) permet de découvrir le cheminement qui a permis la naissance de la F.C.D.T . 
 
-Au cours des dernières semaines qui ont précédé son décès, Bill Reilly a continué à communiquer avec les autres administrateurs par téléphone, mais il ne fut plus en mesure de prendre part aux réunions. Il est décédé dans une maison de repos située tout près de la maison de son fils à Deltona, en Floride, le 30 juin 1995, à l’âge de 76 ans. Le Révérend David Lamprom a alors succédé à Bill Reilly et il est toujours le président actif de la [F.C.D.T.](https://fcdt.org). 
+Au cours des dernières semaines qui ont précédé son décès, Bill Reilly a continué à communiquer avec les autres administrateurs par téléphone, mais il ne fut plus en mesure de prendre part aux réunions. Il est décédé dans une maison de repos située tout près de la maison de son fils à Deltona, en Floride, le 30 juin 1995, à l’âge de 76 ans. Le Révérend David Lampron a alors succédé à Bill Reilly et il est toujours le président actif de la [F.C.D.T.](https://fcdt.org). 
 
 Depuis son passage dans le monde des esprits, Bill Reilly a communiqué deux messages listés ci-dessous.
 

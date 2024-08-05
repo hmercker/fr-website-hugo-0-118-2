@@ -18,4 +18,4 @@ George Stokes | [Développer une relation avec Dieu ](/fr-contemporary-messages/
 George Stokes | [Envoyer de l'Amour à Dieu est une communion spéciale](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-5-1-em-george-stokes/) | 5 Décembre 2022 
 George Stokes | [Veut nous soutenir tous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-13-2-em-george-stokes/) | 13 Janvier 2024
 George Stokes| [Vous êtes une force redoutable sur cette île](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-15-3-em-george/) | 15 Janvier 2024
-George Stokes | [Adaptez-vous, enfants de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-31-1-em-george-stokes/) | 31 Mars 2024
+George Stokes | [Adaptez-vous, enfants de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-11-2-em-george/) | 31 Mars 2024

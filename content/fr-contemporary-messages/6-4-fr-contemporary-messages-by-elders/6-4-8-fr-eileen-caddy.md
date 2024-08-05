@@ -32,7 +32,7 @@ Eileen Caddy | [Le courage d’aller de l’avant](/fr-contemporary-messages/fr-
 Eileen Caddy | [Suggestions de Findhorn](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-13-1-jw-eileen-caddy/) | 13 Mars 2020
 Eileen Caddy | [Fondations de Findhorn](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-15-2-jw-eileen-caddy/) | 15 Mars 2020
 Eileen Caddy | [Là où votre cœur est là, là est aussi votre trésor](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-24-2-jw-eileen-caddy/) | 24 Avril 2020
-Eileen Caddy | [Portez l'amour dans vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-24-1-jw-eileen-caddy/) | 24 Mai 2020
+Eileen Caddy | [Portez l'Amour dans vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-24-1-jw-eileen-caddy/) | 24 Mai 2020
 Eileen Caddy | [Vous êtes la bénédiction dont ce monde a besoin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-7-1-jw-eileen-caddy/) | 7 Juillet 2020
 Eileen Caddy | [Commencez votre journée en vous ouvrant à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-11-13-1-jw-eileen-caddy/) | 13 Novembre 2020
 Eileen Caddy | [La transformation par l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-11-16-1-jw-eileen-caddy/) | 16 Novembre 2020

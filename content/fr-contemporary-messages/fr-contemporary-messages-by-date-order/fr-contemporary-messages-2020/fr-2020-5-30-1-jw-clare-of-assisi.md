@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Mettez l'Aamour sur les ondes
+### Mettez l'Amour sur les ondes
 
 Claire d'Assise - reçu par Jimbeau Walsh le 30 Mai 2020, Punalu’u, Oahu, Hawaii, USA.
 

@@ -20,9 +20,9 @@ Aigle Blanc | [La guérison par l’intermédiaire des guérisseurs spirituels](
 Aigle Blanc | [L’autre vision.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-2-11-1-ar-white-eagle/) | 11 Février 2001
 Aigle Blanc | [Aigle Blanc vient offrir la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-29-2-jw-white-eagle/) | 29 Mars 2020
 Aigle Blanc | [Nous sommes tous des peuples indigènes en tant qu'enfants de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-19-2-jw-white-eagle/) | 19 Avril 2020
-Marie & Aigle Blanc | [Le soleil bondissant de Fatima](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-9-19-2-ar-mary-white-eagle/) | 19 Septembre 1999
+Marie & Aigle Blanc | [Le Miracle de Fatima et l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-9-19-2-ar-mary-white-eagle/) | 19 Septembre 1999
 Aman | [La première expérience](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-6-5-1-ar-aman/) | 5 Juin 2005
-Aman | [Changements dans le programme "The First Parents"](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-24-4-fab-aman/) | 24 Janvier 2007
+Aman | [Changements dans le programme "Les Premiers Parents"](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-24-4-fab-aman/) | 24 Janvier 2007
 Aman | [Les besoins nutritionnels des Premiers Parents et du Maître.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-24-3-fab-aman/) | 24 Janvier 2007
 Aman | [Les premiers parents - leur famille et leur langue](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-24-2-fab-aman/) | 24 Janvier 2007
 Aman | [Les premiers parents - une description physique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-24-1-fab-aman/) | 24 Janvier 2007
@@ -39,7 +39,7 @@ Amon | [La nature maternelle d’Amon](/fr-contemporary-messages/fr-contemporary
 Amon | [Avoir de l’espoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-2-1-jw-amon/) | 2 Juillet 2021
 Amon | [Quand vous faites briller la lumière de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-8-4-jw-amon/) | 8 Mai 2022
 Amon | [Qualités de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-6-1-jw-amon/) | 6 Mars 2023
-Amon | [Nous nous réjouissons en vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-22-1-jw-amon/) | 22 Avril 2024
+Amon | [Pour la Terre et toutes ses créatures](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-22-1-jw-amon/) | 22 Avril 2024
 Aramée | [L’Amour Divin ne contourne pas vos leçons (Retraite Voix Directe 2021)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-5-1-af-aramaeus/) | 5 Septembre 2021
 Aristote | [Sur la réincarnation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-19-2-Alfredo-aristotle/) | 19 Novembre 1999
 Aristote | [La progression d'Aristote, et l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-7-1-fab-aristotle/) | 7 Mai 2009
@@ -61,7 +61,7 @@ Leytergus | [Embrasser la diversité et l’autre dans l’acceptation et l’am
 Leytergus | [Prier avec intention](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-2-23-1-af-leytergus/) | 23 Février 2021
 Mala | [La spiritualité des premiers Amérindiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-9-11-1-fab-mala/) | 11 Septembre 2005
 Nuage Blanc | [Vous devez chercher et vous préparer à recevoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-72-1969-anonymous-white-cloud/) |   1969
-Nuage Blanc et Eau Christalline | [Nuage blanc, eau cristalline](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-111-1969-anonymous-white-cloud-crystal-water/) |   1969
+Nuage Blanc et Eau de Chrystal | [Nuage blanc et eau de Chrystal](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-111-1969-anonymous-white-cloud-crystal-water/) |   1969
 Nuage Blanc | [Aidez les autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-114-1969-anonymous-white-cloud/) |   1969
 Nuage Blanc | [L'importance de la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-124-1969-anonymous-white-cloud/) |   1969
 Nuage Blanc | [Apprenez à lancer des pensées d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-143-1970-anonymous-white-cloud/) |   1970
@@ -79,14 +79,14 @@ Melchizédek | [Un travail important est nécessaire pour rectifier les conditio
 Socrates | [Notre boussole intérieure supérieure.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-19-1-fab-socrates/) | 19 Juillet 2006
 Tahlia | [Semer les graines de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-1-1-af-tahlia/) | 1 Décembre 2016
 Tahlia | [Marcher dans la lumière à travers les bouleversements à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-2-1-af-tahlia/) | 2 Octobre 2017
-Tahlia | [Connaître Dieu dans son grand fleuve d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-17-2-af-tahlia/) | 17 Mars 2018
+Tahlia | [Connaître Dieu dans son grand fleuve d'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-17-2-af-tahlia/) | 17 Mars 2018
 Tahlia | [Ce qui n'est pas en harmonie avec la création de Dieu s'écroulera](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-3-10-1-af-tahlia/) | 10 Mars 2019
-Uharu | [Un point de vue amérindien sur la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-11-2-fab-uharu/) | 11 Avril 2006
+Uharu | [Un point de vue Amérindien sur la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-11-2-fab-uharu/) | 11 Avril 2006
 Uharu | [Valeurs amérindiennes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-18-1-fab-uharu/) | 18 Juillet 2006
 Uharu | [Une discussion sur l'environnement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-10-1-fab-uharu/) | 10 Janvier 2007
-Uharu | [Une perspective amérindienne sur la société](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-10-2-fab-uharu/) | 10 Janvier 2007
+Uharu | [Une perspective Amérindienne sur la société](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-10-2-fab-uharu/) | 10 Janvier 2007
 Uharu | [Préjugés contre les Amérindiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-9-7-1-fab-uharu/) | 7 Septembre 2007
 Uharu | [Les bons et les mauvais aspects de la culture Amérindienne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-12-23-1-fab-uharu/) | 23 Décembre 2007
-Uharu | [Un concept amérindien de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-3-1-fab-uharu/) | 3 Janvier 2008
+Uharu | [Un concept Amérindien de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-3-1-fab-uharu/) | 3 Janvier 2008
 Uharu | [Des dispositions pour les Amérindiens dans le monde de l'esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-4-2-fab-uharu/) | 4 Septembre 2008
 [Les enseignements de Confucius](/12-fr-the-main-spiritual-teachers/12-8-fr-the-teachings-of-confucius/)

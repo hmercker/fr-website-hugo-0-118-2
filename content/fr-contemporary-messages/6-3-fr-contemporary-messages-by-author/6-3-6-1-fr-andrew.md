@@ -11,7 +11,7 @@ weight:
 
 ![title](/3-fr-judas-of-kerioth-messages/fr-andrew-large.jpg)
 
-André était à l'origine un disciple de Jean le Baptiste. C'est peu après la baptême de jésus par Jean le Baptiste, alors que jésus revenait à Caparnaüm que ses premiers disciples l'ont ejoint. Et le premier d'entre eux fut André comme Judas l'a rapporté dans le message qu'il a communiqué le [5 Février 2002](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-5-1-hr-judas/). 
+André était à l'origine un disciple de Jean le Baptiste. C'est peu après la baptême de Jésus par Jean le Baptiste, alors que Jésus revenait à Caparnaüm, que ses premiers disciples l'ont rejoint. Et le premier d'entre eux fut André comme Judas l'a rapporté dans le message qu'il a communiqué le [5 Février 2002](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-5-1-hr-judas/). 
 
 Judas explique entre autres qu'André n’a pas porté la moindre attention aux propos de Jésus mais qu'il fut, par contre, très impressionné par la personnalité de Jésus. Judas s'exprime ainsi *« Tu sais très bien que, parfois, tu rencontres des gens qui ont "quelque chose de spécial" d'attirant, et Jésus avait un charisme, mon Dieu, qui était énorme. »* André était le frère de Pierre. La rencontre entre Jésus et Pierre est résumée dans le [lien suivant](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-6-12-fr-st-peter/).
 
@@ -20,6 +20,8 @@ André a joué un rôle très important dans le salut de Judas, consécutivement
 [Le 2 Mars 2018](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-2-1-af-andrew/) André s'est également exprimé sur sa relation avec Judas alors que celui-ci était dans les enfers :*« Je suis venu à lui pour le rassurer et pour l’inspirer à progresser hors de cette condition et j’ai travaillé très diligemment pour l’aider. Je suis venu le voir très souvent et je lui ai apporté mon amour, afin d’avoir le don d’aider à élever mon frère vers la Lumière. Et avec le temps, il a trouvé sa voie. Avec le temps, il est devenu un ange Céleste.*
 
 *Maintenant, j’aurais pu juger mon frère pour ce qu’il a fait, j’aurais pu dire qu’il avait mérité son sort. Mais alors, d’où serait venue cette pensée ? Pas de l’âme. L’âme est faite d’amour. L’âme pardonne, l’âme embrasse tous les frères et sœurs sur son chemin. Bien que j’aie dû faire des sacrifices afin d’effectuer ce voyage des Cieux Célestes aux enfers, mon âme m’a poussé et j’ai été poussé par l’amour. J’ai embrassé mon frère. J’ai fait la promesse à Dieu de soutenir mon frère qui s’était égaré dans ses voies et qui payait le prix en compensation de ses actes.*
+
+Au milieu de l'année 2024, André avat communiqué près de 120 messages.
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---

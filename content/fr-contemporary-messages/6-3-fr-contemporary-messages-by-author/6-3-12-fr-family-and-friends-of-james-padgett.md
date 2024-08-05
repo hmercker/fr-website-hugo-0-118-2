@@ -24,7 +24,6 @@ Anne Rollins | [Influence spirituelle et loi de l’attraction](/fr-contemporary
 Hélène Padgett | [Détails de la vie d’Hélène Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-7-18-1-af-helen-padgett/) | 18 Juillet 2014
 Hélène Padgett | [Ceux qui servent dans l'amour feront des percées dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-17-2-af-helen-padgett/) | 17 Septembre 2017
 Hélène Padgett | [Buvez profondément ces eaux de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-4-2-af-helen-padgett/) | 4 Octobre 2022
-James et Hélène Padgett | [Nous bénit et nous encourage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-9-1-al-james-helen-padgett/) | 9 Octobre 2022
 James Padgett | [Édition du deuxième volume des messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1991-3-9-1-ks-james-padgett/) | 9 Mars 1991
 James Padgett | [Message personnel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1997-10-21-2-dl-james-padgett/) | 21 Octobre 1997
 James Padgett | [Le deuxième avènement.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-5-21-1-db-james-padgett/) | 21 Mai 2006
@@ -53,7 +52,7 @@ James Padgett | [Explorez la vérité avec vos âmes](/fr-contemporary-messages/
 James Padgett | [Comprendre Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-10-1-jw-james-padgett/) | 10 Juin 2021
 James Padgett | [Le monde connaîtra ces vérités à temps](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-4-1-af-james-padgett/) | 4 Octobre 2022
 James Padgett | [L'impact considérable qu'une petite décision peut avoir ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-29-2-af-james-padgett/) | 29 Novembre 2023
-James et Hélène Padgett | [Nous bénit et nous encourage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-9-1-al-james-helen-padgett/) | 9 Octobre 2022
+James et Hélène Padgett | [Nous bénissent et nous encouragent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-9-1-al-james-helen-padgett/) | 9 Octobre 2022
 Professeur Salyards | [Qui apportera la vérité à ce monde ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-21-3-af-professor-salyards/) | 21 Janvier 2018
 Professeur Salyards | [L’amour naturel contre l’Amour Divin Développement de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-20-3-af-professor-salyards/) | 20 Novembre 2018
 Professeur Salyards | [Orientation pour l'Université de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-31-2-af-professor-salyards/) | 31 Octobre 2020

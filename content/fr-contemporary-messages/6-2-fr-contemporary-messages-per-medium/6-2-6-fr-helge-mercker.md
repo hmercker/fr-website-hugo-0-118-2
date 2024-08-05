@@ -33,7 +33,7 @@ Le Père Céleste | [L'Amour du Père](/fr-contemporary-messages/fr-contemporary
 Jésus | [Devenez un adepte de mes enseignements](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-8-2-hm-jesus/) | 8 Janvier 2013
 Le Père Céleste | [Le réseau d'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-9-1-hm-father/) | 9 Janvier 2013
 Le Père Céleste | [Unis à travers l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-15-1-hm-father/) | 15 Janvier 2013
-Marie | [Le soleil de l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-18-1-hm-mary/) | 18 Janvier 2013
+Marie | [Unis par l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-18-1-hm-mary/) | 18 Janvier 2013
 Le Père Céleste | [Amour et Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-22-2-hm-father/) | 22 Janvier 2013
 Judas | [Quelques conseils personnels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-22-3-hm-judas/) | 22 Janvier 2013
 Emi et Martin Luther | [Courage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-7-13-1-hm-emi-martin-luther/) | 13 Juillet 2017

@@ -1,0 +1,24 @@
+---
+title: "Créer un sanctuaire dans une communauté de cœur"
+menu_title: ""
+description: "Créer un sanctuaire dans une communauté de cœur"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Créer un sanctuaire dans une communauté de cœur
+
+Yogananda - reçu par Jimbeau Walsh le 1<sup>er</sup> 2024, Nashville, Tennesse, USA.
+
+C’est moi, votre frère et ami dans le grand Amour de Dieu, Yogananda.
+
+Je viens ce soir partager avec vous un peu de mon expérience de formation d’une communauté sur terre. Car, à mesure que les événements dans le monde deviennent plus polarisés, le besoin de sanctuaire, le besoin de lieux de refuge devient plus nécessaire. Lorsque mon gourou m’a envoyé aux États-Unis, je me suis retrouvé dans la situation d’être cet Indien aux cheveux longs, atterrissant comme sur une autre planète au milieu de l’urbanisation et de la modernisation des États-Unis, ce que je n’avais pas vu en Inde. Et alors, j’ai prié. Et pendant que je priais, j’ai commencé à diffuser ce que je connaissais comme la vérité, qui était une forme de Kriya yoga, pour calmer ceux qui vivent dans un monde occupé, si privé de paix, de vraie paix. J’ai commencé à rassembler un groupe de disciples et ce petit groupe a consacré son temps à mon enseignement et bien sûr à Dieu et nous avons cherché refuge.
+
+Et je suis très reconnaissant que de nombreux centres dans le monde ainsi qu’aux États-Unis aient été formés et créés sans que j’aie un sou en poche, car Dieu pouvait en voir le besoin. Et ces centres étaient entretenus et développés par les fidèles qui y vivaient et attiraient ceux qui sentaient que quelque chose de réel se produisait, quelque chose de spirituellement magnétique. Et donc, encore aujourd’hui, il y a ceux qui visitent, il y a ceux qui passent du temps en retraite, il y a ceux qui mangent de temps en temps, il y a ceux qui suivent des cours, et il y a ceux qui vivent là et entretiennent l’ambiance. J’avais promis à mes disciples que je reviendrais encore et encore si nécessaire sur terre, car mon amour pour eux était au-delà des mots. Et, alors que je réalisais dans ma progression spirituelle que je n’allais pas m’incarner de nouveau sur terre, je pouvais quand même tenir ma promesse, en venant vers ceux qui étudiaient mes enseignements, en passant par ce frère et d’autres. La condition de mon âme est maintenant transformée et je vous encourage à créer un havre de paix, aussi durable que possible, paisible et axé principalement sur l’amour de Dieu.
+
+Pour ceux qui entrent dans les vérités de l’Amour Divin, peut-être en lisant un livre, en écoutant une chanson, en étant présents en compagnie d’un médium de l’Amour Divin ou en écoutant ce qui est reçu, ils sont souvent inspirés à marcher à nouveau sur ce chemin. . Et tandis qu’ils s’engagent dans la prière et dans la communauté et commencent à comprendre les choses qu’ils ont lu et ce qui leur a été communiqué, ils ont profondément faim de ressentir la présence et l’Amour de Dieu et cela, comme on vous l’a dit d’innombrables fois, s’accomplit par la prière. Car les aspirations profondes de chaque âme, de chaque cœur, qui se tournent vers Dieu, sont satisfaites par le grand don de Son essence, cet Amour Divin. Et pour ceux qui sont intellectuellement engagés et ont une certaine compréhension mais qui n’ont pas l’impression d’avoir eu cette connexion, nous vous encourageons à continuer avec votre cœur, afin que celui de votre âme puisse s’ouvrir. 
+
+Ayez foi que la promesse de ce grand don vous changera et une fois que vous sentirez la magnificence de l’Amour de Dieu dans votre âme élevée au-dessus de vos préoccupations, une fois que vous ressentirez cela, vous ne souhaiterez plus jamais revenir, et bien sûr, le voyage est progressif. . Vous reculerez parfois, mais vous ne perdrez jamais cet amour dans vos âmes et cet amour continuera de croître à mesure que vous vous engagez dans la prière. Tous les messages, tous les livres, toutes les chansons, toutes les merveilleuses citations qui vous ont été données, puissent-ils inspirer vos âmes à s’engager dans cette prière, afin que vous puissiez être transformés. Pour tous ceux qui ont ressenti l’Amour de Dieu dans leur être, ils connaissent la vérité que je dis et pour ceux qui ont une idée, qui comprennent que c’est réel, continuez, prenez courage, pour cette promesse, ce don, Il est donné à tous ceux qui demandent vraiment, qui s’ouvrent vraiment, qui s’engagent vraiment dans la foi, dans la prière et dans l’amour.
+
+Je tiens à remercier mon frère de m’avoir permis de manger ce soir. Cela fait longtemps et je suis très heureux de toujours parler à travers lui. Je prie pour que mon message résonne auprès de tous, et je prendrai du recul dans l’humilité de cette prière, demandant au Créateur de nous combler de son amour. Que Dieu bénisse chacun et que la paix de son amour soit vraiment la vôtre. Je t’aime et je suis ton frère en Christ. Je suis Yogananda.

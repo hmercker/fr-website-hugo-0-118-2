@@ -20,6 +20,7 @@ Ces êtres ne sont pas des êtres spirituels mais des êtres qui vivent actuelle
 Judas | [Autres êtres et le but de ces messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-7-1-hr-judas/) | 7 Janvier 2002
 Christine | [Se présente](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-16-1-af-christine/) | 16 Mars 2024
 Christine | [Conseils pour Matt partagés avec autorisation ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-18-3-af-christine/) | 18 Mars 2024
+Christine | [De grandes chaussures à remplir - Personnel pour Matt](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-1-2-af-christine/) | 1 Juillet 2024
 George | [Se connecter avec Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-11-2-em-george/) | 11 Mars 2024
 George et Will | [Une offre d’assistance/de confiance ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-2-2-em-georges-and-will/) | 2 Janvier 2024
 Goldie & Visiteurs autres Galaxies | [Goldie et les visiteurs d’une autre galaxie.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-40-1969-12-3-anonymous-goldie-visitors-from-another-galaxy/) | 3 Décembre 1969
@@ -68,10 +69,9 @@ Orion | [Les barrières en nous causées par le conflit de nos esprits et de nos
 Orion | [Orion est toujours avec nous, pour nous soutenir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-8-1-af-orion/) | 8 Juin 2022
 Orion | [L’humanité continue de résister à l’amour et aux énergies de guérison de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-11-1-af-orion/) | 11 Juin 2022
 Orion | [S’émerveiller de la diversité que Dieu a créée sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-1-1-af-orion/) | 1<sup>er</sup> Juillet 2022
-Orion | [Ecrira, à travers Al, un livre sur la vie sur sa planète](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-19-3-af-orion/) | 19 Juillet 2022
+Orion | [Écrira, à travers Al, un livre sur la vie sur sa planète](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-19-3-af-orion/) | 19 Juillet 2022
 Orion | [Méfiez-vous de vos peurs et affrontez vos barrières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-6-2-af-orion/) | 6 Août 2022
 Orion | [C’est le moment d’être libre !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-13-1-af-orion/) | 13 Août 2022
-Orion | [Lever tous les obstacles à une plus grande lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-13-2-af-orion/) | 13 Août 2022
 Orion | [Lever tous les obstacles à une plus grande lumière.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-16-3-af-orion/) | 16 Août 2022
 Orion | [Transformation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-20-2-af-orion/) | 20 Août 2022
 Orion | [Il y a beaucoup à faire pour apporter une plus grande lumière dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-23-3-af-orion/) | 23 Août 2022
@@ -127,10 +127,10 @@ Orion | [Assumez la responsabilité de vos pensées](/fr-contemporary-messages/f
 Orion | [Du temps et de l’absence de temps ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-7-1-af-orion/) | 7 Mai 2024
 Orion | [Les changements terrestres à venir auront leurs effets](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-11-2-af-orion/) | 11 Mai 2024
 Orion | [Développer et partager vos dons ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-14-3-af-orion/) | 14 Mai 2024
-Orion & Augustin | [Décrit plus en détail son travail avec ce projet VD](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-13-1-af-orion-augustine/) | 13 Septembre 2021
+Orion & Augustin | [Décrit plus en détail son travail avec ce projet Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-13-1-af-orion-augustine/) | 13 Septembre 2021
 Orion & Jésus | [Décrit la tendresse de leur approche pour travailler avec nous (2021 Gardiens de la Lumière)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-23-1-af-orion-jesus/) | 23 Octobre 2021
 Orion & Jésus & Orion | [Orion et Jésus encouragent les efforts pour de futures publications](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-27-1-af-jesus-orion/) | 27 Octobre 2021
-Prolotheos | [Evolution](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-2-1-vs-prolotheos/) | 2 Mars 2013
+Prolotheos | [Évolution](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-2-1-vs-prolotheos/) | 2 Mars 2013
 Shandor | [Nous n'avons pas besoin de grands édifices pour accomplir l'œuvre de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-84-1969-anonymous-shandor/) |   1969
 Shandor | [Le secret de la vie sur terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-116-1969-anonymous-shandor/) |   1969
 Shandor | [Commentaires de Shandor sur la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-8-4-af-shandor/) | 8 Mars 2018

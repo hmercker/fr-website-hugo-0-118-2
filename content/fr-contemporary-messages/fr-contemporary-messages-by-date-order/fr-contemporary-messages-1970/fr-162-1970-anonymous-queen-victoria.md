@@ -1,13 +1,13 @@
 ---
-title: "Soyez fidèles, mais surtout, soyez forts et sages dans l'amour de Dieu."
+title: "Soyez fidèles, mais surtout, soyez forts et sages dans l'Amour de DieU"
 menu_title: ""
-description: "Soyez fidèles, mais surtout, soyez forts et sages dans l'amour de Dieu."
+description: "Soyez fidèles, mais surtout, soyez forts et sages dans l'Amour de Dieu"
 date: 2022-06-01 06:00:01+00:164
 draft: False
 hidden: True
 weight:
 ---
-### Soyez fidèles, mais surtout, soyez forts et sages dans l'amour de Dieu.
+### Soyez fidèles, mais surtout, soyez forts et sages dans l'Amour de Dieu
 
 Reine Victoria - reçu en 1970, Vancouver, Colombie-Britannique, Canada.
 

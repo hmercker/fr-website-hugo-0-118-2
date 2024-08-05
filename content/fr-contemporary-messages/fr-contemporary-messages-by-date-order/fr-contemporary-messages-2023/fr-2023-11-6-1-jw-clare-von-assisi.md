@@ -1,13 +1,13 @@
 ---
-title: "Sachez que cet amour est éternel"
+title: "Sachez que cet Amour est éternel"
 menu_title: ""
-description: "Sachez que cet amour est éternel"
+description: "Sachez que cet Amour est éternel"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### Sachez que cet amour est éternel
+### Sachez que cet Amour est éternel
 
 Claire d'Assise - reçu par Jimbeau Walsh le 6 Novembre 2023, Nashville, Tennesse, USA.
 

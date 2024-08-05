@@ -111,7 +111,7 @@ Jésus | [Lance des liens d'âme - Nouveau cercle de prière du Royaume-Uni](/fr
 Jeanne d'Arc | [La prière avec les Liens de l'Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-30-3-af-joan-of-arc/) | 30 Mars 2023
 Michael Collier | [Également engagé envers des liens d'äme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-30-4-af-michael-collier/) | 30 Mars 2023
 Orion | [Dieu nous a rassemblés tous ensemble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-31-1-af-orion/) | 31 Mars 2023
-Orion | [Il faut une armée d’anges pour nous faire avancer.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-1-1-af-orion/) | 1er Avril 2023
+Orion | [Il faut une armée d’anges pour nous faire avancer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-1-1-af-orion/) | 1er Avril 2023
 Moïse | [Surmonter les exigences du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-2-1-af-moses/) | 2 Avril 2023
 Fred Rogers | [Habitudes, Dépendances  et Guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-3-1-jw-fred-rogers/) | 3 Avril 2023
 Yogananda | [Nous encourage dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-4-1-af-yogananda/) | 4 Avril 2023

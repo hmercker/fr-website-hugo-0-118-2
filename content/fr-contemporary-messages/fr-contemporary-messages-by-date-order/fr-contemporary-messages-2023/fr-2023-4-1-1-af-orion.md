@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Il faut une armée d’anges pour nous faire avancer.
+### Il faut une armée d’anges pour nous faire avancer
 
 Orion - reçu par Al Fike le 1<sup>er</sup> Avril 2023, Sechelt, Colombie-Britannique, Canada.
 

@@ -45,7 +45,7 @@ St Luc | [Les conditions énergétiques de la Terre vous affectent tous](/fr-con
 St Luc | [Les pensées exercent une puissante influence sur votre monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-9-3-af-st-luke/) | 9 Mars 2020
 St Luc | [Dieu souhaite que tous nos dons d'âme s'épanouissent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-12-2-af-st-luke/) | 12 Avril 2020
 St Luc | [Soyez conscient de ce qui se trouve dans votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-3-1-jw-st-luke/) | 3 Juillet 2020
-St Luc | [Laissez l'amour vous guider](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-10-1-jw-st-luke/) | 10 Juillet 2020
+St Luc | [Laissez l'Amour vous guider](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-10-1-jw-st-luke/) | 10 Juillet 2020
 St Luc | [Équilibre entre les poursuites matérielles et spirituelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-24-2-af-st-luke/) | 24 Août 2020
 St Luc | [Les pensées que vous entretenez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-1-1-jw-st-luke/) | 1 Septembre 2020
 St Luc | [Choisissez ce qui touche votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-11-1-jw-st-luke/) | 11 Septembre 2020
@@ -62,4 +62,4 @@ St Luc | [Les anges nous aident à passer de la conscience de l'esprit à la con
 St Luc | [Celui qui vous a créé ne vous abandonnera pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-22-1-jw-st-luke/) | 22 Janvier 2024
 Luc | [Prières magnétiques](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-25-2-jw-luke/) | 25 Juin 2024
 Luc | [Communion spirituelle et communauté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-30-1-jw-luke/) | 30 Juin 2024
-St Luc & Seretta Kem | [Orientation V.D (Seretta Kem) et être au service (Luc)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-5-1-af-st-luke-seretta-kem/) | 5 Août 2018
+St Luc & Seretta Kem | [Orientation Voix Directe (Seretta Kem) et être au service (Luc)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-5-1-af-st-luke-seretta-kem/) | 5 Août 2018

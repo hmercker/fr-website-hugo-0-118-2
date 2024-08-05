@@ -23,4 +23,4 @@ weight: 50
 10. | [Le vrai sens de la mission de Jésus - l'enseignement par les paraboles](/5-fr-the-key-points-of-jesus-messages/5-10-fr-the-true-meaning-of-jesus-mission/) |
 11. | [La chute des premiers parents : la non existence d'une déité du mal](/5-fr-the-key-points-of-jesus-messages/5-11-fr-the-fall-of-the-first-parents/) |
 12. | [Le second avènement de Jésus](/5-fr-the-key-points-of-jesus-messages/5-12-fr-the-second-coming-of-jesus/) |
-13. | [Il y a un certain nombre d'erreurs dans la Bible](/5-fr-the-key-points-of-jesus-messages/5-13-fr-erros-in-the-bible/) |
+13. | [Il y a un certain nombre d'erreurs dans la Bible](/5-fr-the-key-points-of-jesus-messages/5-13-fr-errors-in-the-bible/) |

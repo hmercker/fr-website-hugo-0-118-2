@@ -9,15 +9,17 @@ weight:
 ---
 ### Messages d'Alec Gaunt
 
-![](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders-old/fr-alec-gaunt.jpg)
+![](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/fr-alec-gaunt.jpg)
 
 Alec Gaunt était un médium et un guérisseur naturellement doué, fasciné par la communication avec les esprits. Il a été impliqué dans des groupes spiritualistes pendant la majeure partie de sa vie. Sa capacité à communiquer avec les esprits et à connaître leurs intentions était extraordinaire. C'était un guérisseur puissant et de nombreuses personnes de la région ont bénéficié de ses dons.
 
-En 1949, Alec et sa femme Phyllis se sont lancés dans une recherche spirituelle de la vérité et ont étudié ensemble de nombreuses religions et philosophies du monde. C'est à cette époque qu'Alec a été guidé vers une librairie d'occasion au Nord de Vancouver, en Colombie-Britannique, où il a trouvé l'un des volumes des messages de James Padgett publiés par le Dr Leslie Stone. Comme Alec était un médium doué, il a été attiré par le livre parce qu'il a vu une lumière autour de lui ! Ses guides spirituels l'ont incité à lire ce livre et à en suivre les enseignements. Ce livre intéressa tellement Alec et Phyllis qu'ils commencèrent à prier pour l'Amour Divin de Dieu.
+En 1949, Alec et sa femme Phyllis se sont lancés dans une recherche spirituelle de la vérité et ont étudié ensemble de nombreuses religions et philosophies du monde. C'est à cette époque qu'Alec a été guidé vers une librairie de vente de livres de seconde main au Nord de Vancouver, en Colombie-Britannique, où il a trouvé l'un des volumes des messages de James Padgett publiés par le Dr Leslie Stone. Comme Alec était un médium doué, il a été attiré par le livre parce qu'il a vu une lumière autour de lui ! Ses guides spirituels l'ont incité à lire ce livre et à en suivre les enseignements. Ce livre intéressa tellement Alec et Phyllis qu'ils commencèrent à prier pour l'Amour Divin de Dieu.
 
 Alec et Phyllis ont correspondu avec le Dr Leslie Stone et le Dr Stone est venu leur rendre visite trois fois à Vancouver depuis son domicile à Washington, D.C. Pendant de nombreuses années, Alec et Phyllis ont organisé chez eux des groupes de prière hebdomadaires comprenant des groupes de débutants et avancés ainsi que des groupes axés principalement sur la guérison et l'apprentissage des lois spirituelles.
 
 Alec et Phyllis ont laissé un grand héritage car ils ont été en grande partie responsables du développement d'une culture de pratique de la prière qui est encore suivie aujourd'hui dans divers Cercles de Lumière de l'ouest du Canada.
+
+Alec Gaunt est décédé en 1970.
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
@@ -33,7 +35,7 @@ Alec Gaunt | [Comment être avec Dieu ?](/fr-contemporary-messages/fr-contempora
 Alec Gaunt | [Alec partage ses frustrations concernant le premier projet Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-6-12-1-af-alec-gaunt/) | 12 Juin 2017
 Alec Gaunt | [Le monde a besoin de plus de gens comme vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-26-1-af-alec-gaunt/) | 26 Septembre 2017
 Alec Gaunt | [La Transition de Percy](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-11-2-af-alec-gaunt/) | 11 Octobre 2017
-Alec Gaunt | [Sans amour, on ne peut pas progresser](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-3-3-af-alec-gaunt/) | 3 Décembre 2017
+Alec Gaunt | [Sans amour, il n'est pas possible de progresser](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-3-3-af-alec-gaunt/) | 3 Décembre 2017
 Alec Gaunt | [Accepter les différences](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-8-2-af-alec-gaunt/) | 8 Décembre 2017
 Alec Gaunt | [Au fil des découvertes de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-24-1-af-alec-gaunt/) | 24 Janvier 2018
 Alec Gaunt | [Connaître la Volonté de Dieu pour vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-9-1-af-alec-gaunt/) | 9 Mai 2018

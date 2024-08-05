@@ -1,13 +1,13 @@
 ---
-title: "En vous, je ne vois que de la beauté"
+title: "En toi, je ne vois que de la beauté"
 menu_title: ""
-description: "En vous, je ne vois que de la beauté"
+description: "En toi, je ne vois que de la beauté"
 date: 2022-06-01 06:00:01+00:20
 draft: False
 hidden: True
 weight:
 ---
-### En vous, je ne vois que de la beauté
+### En toi, je ne vois que de la beauté
 
 Le Père Céleste - reçu par Enfant de Dieu le 25 Janvier 2013.<sup id="a1">[1](#f1)</sup>
 

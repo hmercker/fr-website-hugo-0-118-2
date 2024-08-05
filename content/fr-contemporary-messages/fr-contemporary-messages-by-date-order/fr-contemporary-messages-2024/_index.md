@@ -216,7 +216,6 @@ Jeanne d'Arc | [Permettez à Dieu d'être connecté à vous](/fr-contemporary-me
 Augustin | [Votre vrai moi reconnu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-23-2-af-augustine/) | 23 Juin 2024
 Care Darby Walsh | [La Nouvelle  Naissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-24-1-jw-care-darby-walsh/) | 24 Juin 2024
 Barbara Davies | [Permettez à ce don de faire son œuvre, cette bénédiction de transformation pour chacun d'entre vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-24-2-af-barbara-davies/) | 24 Juin 2024
-Faith | [Marchez dans la foi et partagez la vérité de l’Amour Divin ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-24-3-af-faith/) | 24 Juin 2024
 Augustin | [Les opportunités abondent pour vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-24-4-af-augustine/) | 24 Juin 2024
 Serreta Kem | [Vous trouverez votre chemin dans ce voyage d’éveil à travers la médiumnité ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-24-5-af-serreta-kem/) | 24 Juin 2024
 Kahlil Gibran | [Amour Infini](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-25-1-jw-kahlil-gibran/) | 25 Juin 2024
@@ -231,7 +230,12 @@ Jésus | [Jésus encourage Cliff](/fr-contemporary-messages/fr-contemporary-mess
 Marie | [Vous servez le Ciel et la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-30-3-mc-mary/) | 30 Juin 2024
 Moïse | [Un chercheur reçoit une invitation ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-30-4-em-moses/) | 30 Juin 2024
 Confucius | [Poursuivre le voyage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-1-1-af-confucius/) | 1 Juillet 2024
+Christine | [De grandes chaussures à remplir - Personnel pour Matt](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-1-2-af-christine/) | 1 Juillet 2024
+Yogananda | [Créer un sanctuaire dans une communauté de cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-1-3-jw-yogananda/) | 1 Juillet 2024
 Augustin | [Suivre la volonté de Dieu et la loi de progression ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-5-1-af-augustine/) | 5 Juillet 2024
+Care Darby Walsh | [Détente spirituelle, sanctuaire et responsabilité personnelle ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-8-1-jw-cara-darby-walsh/) | 8 Juillet 2024
+Elizabeth | [Laissez l'Amour de Dieu vous guider](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-15-1-jw-elizabeth/) | 15 Juillet 2024
+Khalil Gibran | [Le cadeau de l'amour intemporel ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-22-1-jw-khalil-gibran/) | 22 Juillet 2024
 
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

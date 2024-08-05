@@ -70,6 +70,7 @@ Kahlil Gibran | [Que votre amour soit un baume de guérison](/fr-contemporary-me
 Kahlil Gibran | [Le désir de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-21-3-jw-kahlil-gibran/) | 21 Mai 2022
 Khalil Gibran | [Le réveil d'un rêve](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-13-1-jw-khalil-gibran/) | 13 Mai 2024
 Kahlil Gibran | [Amour Infini](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-25-1-jw-kahlil-gibran/) | 25 Juin 2024
+Khalil Gibran | [Le cadeau de l'amour intemporel ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-22-1-jw-khalil-gibran/) | 22 Juillet 2024
 Karl Marx | [Le célèbre révolutionnaire connaît la confusion.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-9-24-1-fab-karl-marx/) | 24 Septembre 2007
 Karl Marx | [Les difficultés de Karl Marx](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-27-1-fab-karl-marx/) | 27 Mai 2009
 Lady Murasaki | [Une ancienne et célèbre Romancière Japonaise a fait l'expérience de la Nouvelle Naissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-10-20-1-fab-lady-murasaki/) | 20 Octobre 2006
@@ -85,7 +86,7 @@ Pablo Neruda | [Le voyage d’un poète vers la foi](/fr-contemporary-messages/f
 Pablo Neruda | [Communistes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-6-2-fab-pablo-neruda/) | 6 Mars 2008
 Pablo Neruda | [La tristesse d’un poète](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-7-1-fab-pablo-neruda/) | 7 Mars 2008
 Pablo Neruda | [Communistes – 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-5-2-fab-pablo-neruda/) | 5 Mai 2013
-Pasteur George Vale Owen | [Prier pour s'ouvrir à l'amour du Créateur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-10-1-jw-rev-george-vale-owen/) | 10 Août 2020
+Pasteur George Vale Owen | [Prier pour s'ouvrir à l'Amour du Créateur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-10-1-jw-rev-george-vale-owen/) | 10 Août 2020
 Pasteur George Vale Owen | [Dans la gratitude et l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-12-1-jw-rev-george-vale-owen/) | 12 Août 2020
 Pasteur George Vale Owen | [Quelques propos du Révérend GV Owen](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-11-1-jw-rev-george-vale-owen/) | 11 Janvier 2021
 Robert Hugh Benson | [Merci pour votre considération](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-1-13-1-jw-robert-hugh-benson/) | 13 Janvier 2022
@@ -122,8 +123,8 @@ William Shakespeare | [La vie de Shakespeare](/fr-contemporary-messages/fr-conte
 William Shakespeare | [Shakespeare - Adolescence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-13-1-fab-william-shakespeare/) | 13 Août 2007
 William Shakespeare | [Shakespeare - Enfance et adolescence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-13-2-fab-william-shakespeare/) | 13 Août 2007
 William Shakespeare | [Shakespeare - Anne Hathaway](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-14-1-fab-william-shakespeare/) | 14 Août 2007
-William Shakespeare | [Shakespeare - arrivée à Londres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-14-2-fab-william-shakespeare/) | 14 Août 2007
 William Shakespeare | [Shakespeare - en route pour Londres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-14-3-fab-william-shakespeare/) | 14 Août 2007
+William Shakespeare | [Shakespeare - arrivée à Londres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-14-2-fab-william-shakespeare/) | 14 Août 2007
 William Shakespeare | [Shakespeare - autres auteurs contemporains](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-18-1-fab-william-shakespeare/) | 18 Août 2007
 William Shakespeare | [Shakespeare - commentaires sur les messages passés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-18-2-fab-william-shakespeare/) | 18 Août 2007
 William Shakespeare | [Shakespeare - sa méthode de création](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-20-1-fab-william-shakespeare/) | 20 Août 2007

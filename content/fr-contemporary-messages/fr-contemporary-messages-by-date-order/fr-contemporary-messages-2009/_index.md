@@ -70,8 +70,8 @@ Jésus | [Barack Obama et la politique américaine](/fr-contemporary-messages/fr
 George Harrison | [Un grand musicien revient à la maison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-12-1-fab-george-harrison/) | 12 Juillet 2009
 Jésus | [Dire la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-14-1-fab-jesus/) | 14 Juillet 2009
 George Harrison | [George Harrison rentre à la maison - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-14-2-fab-george-harrison/) | 14 Juillet 2009
-Jeannette Rankin | [L’image que se fait d’elle-même une politicienne américaine – 1](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-16-1-fab-jeannette-rankin/) | 16 Juillet 2009
-Jeannette Rankin | [L’image que se fait d’elle-même une politicienne américaine – 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-17-1-fab-jeannette-rankin/) | 17 Juillet 2009
+Jeannette Rankin | [L’image que se fait d’elle-même une politicienne Américaine – 1](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-16-1-fab-jeannette-rankin/) | 16 Juillet 2009
+Jeannette Rankin | [L’image que se fait d’elle-même une politicienne Américaine – 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-17-1-fab-jeannette-rankin/) | 17 Juillet 2009
 Jeannette Rankin | [L’opinion de Jeannette Rankin sur ses biographes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-17-2-fab-jeannette-rankin/) | 17 Juillet 2009
 Jésus | [Le Maître sur Jeannette Rankin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-17-3-fab-jesus/) | 17 Juillet 2009
 Bill Reilly | [Un message de Bill Reilly](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-20-1-dl-bill-reilly/) | 20 Juillet 2009
@@ -81,12 +81,12 @@ Moïse | [Préparation de Moïse à l’approche Hébraïque de Dieu – 2](/fr-
 W.E.B. Du Bois | [La passion d'un militant afro-américain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-25-1-fab-web-du-bois/) | 25 Juillet 2009
 James Albert Okawsaw Gronniosaw | [Un voyage spirituel au dix-huitième siècle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-27-1-fab-james-albert-okawsaw-gronniosaw/) | 27 Juillet 2009
 Frederick Douglass | [La joie d'un abolitionniste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-27-2-fab-frederick-douglass/) | 27 Juillet 2009
-Malcolm X | [Semer et récolter pour un leader afro-américain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-28-1-fab-malcolm-x/) | 28 Juillet 2009
+Malcolm X | [Semer et récolter pour un leader Afro-Américain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-28-1-fab-malcolm-x/) | 28 Juillet 2009
 Jean | [La relation de Jésus au Judaïsme, et l'idée de Logos](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-29-1-fab-john/) | 29 Juillet 2009
 James Madison | [Le soi-disant problème de Madison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-8-2-1-fab-james-madison/) | 2 Août 2009
 Milton Friedman | [Les souffrances d'un esprit - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-8-19-1-fab-milton-friedman/) | 19 Août 2009
 Jésus | [Faire de l'argent - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-8-21-1-fab-jesus/) | 21 Août 2009
-Harriet Ann Jacobs | [Le bonheur d'une Ancienne Esclave](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-8-26-1-fab-harriet-ann-jacobs/) | 26 Août 2009
+Harriet Ann Jacobs | [Le Bonheur d'une Ancienne Esclave](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-8-26-1-fab-harriet-ann-jacobs/) | 26 Août 2009
 Robert Kennedy | [Pensées d'un Kennedy](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-8-28-1-fab-robert-kennedy/) | 28 Août 2009
 James Madison | [Une pensée d'un père fondateur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-8-31-1-fab-james-madison/) | 31 Août 2009
 Jésus | [La véritable croissance de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-9-4-1-fab-jesus/) | 4 Septembre 2009

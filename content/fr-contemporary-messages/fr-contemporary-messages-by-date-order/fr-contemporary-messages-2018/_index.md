@@ -85,7 +85,7 @@ Shandor | [Une révolution dans votre monde est à venir](/fr-contemporary-messa
 André | [S'ouvrir à la lumière de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-16-1-af-andrew/) | 16 Mars 2018
 Augustin | [Le don d'amour et de lumière de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-16-2-af-augustine/) | 16 Mars 2018
 Augustin | [Accepterez-vous le don de l'Amour de Dieu ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-17-1-af-augustine/) | 17 Mars 2018
-Tahlia | [Connaître Dieu dans son grand fleuve d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-17-2-af-tahlia/) | 17 Mars 2018
+Tahlia | [Connaître Dieu dans son grand fleuve d'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-17-2-af-tahlia/) | 17 Mars 2018
 Jésus | [Une bénédiction de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-18-1-af-jesus/) | 18 Mars 2018
 Augustin | [Le chemin de la guérison et de la compassion par l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-21-1-af-augustine/) | 21 Mars 2018
 St Luc | [Soyez des guerriers contre l'obscurité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-21-2-af-st-luke/) | 21 Mars 2018

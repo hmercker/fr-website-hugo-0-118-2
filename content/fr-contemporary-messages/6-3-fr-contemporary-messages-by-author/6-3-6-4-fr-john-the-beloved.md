@@ -9,7 +9,7 @@ weight:
 ---
 ### Jean le Bien Aimé
 
-Selon les messages reçus, il semble qu'il soit nécessaire de différencier Jean l'évangéliste, surnommé Jean le Bien Aimé de Jean, fils de Zébédée. Cependant il n'y a jamais eu de communication à ce sujet. La seule piste d'information est seulemet dit au fait que pour certains messages, l'auteur se présente comme étant "Jean le Bien Aimé". Il aurait été présent lors de la crucifxion et serait accouru au tombeau, lors de l'annonce de la résurection de Jésus. Il  serait toutefois entré au tombeau après Pierre. Il serait également l'auteur de l'évangile de Jean.
+**Selon les messages reçus, il semble qu'il soit nécessaire de différencier Jean l'évangéliste, surnommé Jean le Bien Aimé de Jean, fils de Zébédée.** Cependant il n'y a jamais eu de communication à ce sujet. La seule piste d'information est seulemet dit au fait que pour certains messages, l'auteur se présente comme étant «  Jean le Bien Aimé ». Il aurait été présent lors de la crucifxion et serait accouru au tombeau, lors de l'annonce de la résurection de Jésus. Il  serait toutefois entré au tombeau après Pierre. Il serait également l'auteur de l'évangile de Jean.
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
@@ -35,7 +35,7 @@ Jean le Bien Aimé | [Même si vous êtes peu nombreux, votre lumière est brill
 Jean le Bien Aimé | [La route que vous vous apprêtez à emprunter englobera le monde ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-11-3-af-john-the-beloved/) | 11 Octobre 2023
 Jean le Bien Aimé | [Gardez votre cœur ouvert](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-20-1-jw-john-the-beloved/) | 20 Novembre 2023
 Jean le Bien Aimé | [Le message de Noël reconnaît la mission de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-24-1-af-john-the-beloved/) | 24 Décembre 2023
-Jean le Bien Aimé | [Leçon sur la compréhension de la vérité ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-14-2-em-john-the-beloved/) | 14 Janvier 2024
+Jean le Bien Aimé | [Leçon sur la compréhension de la Vérité ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-14-2-em-john-the-beloved/) | 14 Janvier 2024
 Jean le Bien Aimé | [Bienvenue aux nouvelles âmes de ce cercle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-28-2-em-john-the-beloved/) | 28 Janvier 2024
 Jean le Bien Aimé | [Décrit l'Amour Divin et accueille deux nouveaux venus dans le cercle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-29-2-ad-john-the-beloved/) | 29 Février 2024
 Jean le Bien Aimé | [Apprenez à connaître vos propres capacités](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-8-2-em-john-the-beloved/) | 8 Mars 2024

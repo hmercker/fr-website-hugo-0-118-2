@@ -32,7 +32,7 @@ Ingénieur céleste Isaac | [L’ingénierie et le passé](/fr-contemporary-mess
 Jésus | [Culte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-3-14-2-jg-jesus/) | 14 Mars 2017
 Jésus | [La dévotion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-3-14-3-jg-jesus/) | 14 Mars 2017
 Jésus | [La dévotion (2ème partie)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-3-26-1-jg-jesus/) | 26 Mars 2017
-Jacques | [Libérer la volonté propre et embrasser la volonté parfaite de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-3-27-1-af-james/) | 27 Mars 2017
+Jacques | [Libérer la volonté propre et embrasser la Volonté parfaite de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-3-27-1-af-james/) | 27 Mars 2017
 Jacques | [Les facultés de l’âme comparées à un objectif d’appareil photo](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-4-10-1-af-james/) | 10 Avril 2017
 Augustin | [Choisissez d’embrasser la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-4-20-1-af-augustine/) | 20 Avril 2017
 Jésus | [Jésus parle de la Pentecôte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-11-1-af-jesus/) | 11 Mai 2017

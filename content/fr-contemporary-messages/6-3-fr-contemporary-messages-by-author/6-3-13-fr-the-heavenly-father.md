@@ -9,7 +9,7 @@ weight:
 ---
 ### Le Père Céleste
 
-La dernière catégorie de messages correspond à une série de messages communiqués par Notre Père Céleste : Dieu !!! La presque quasi-totalité de ces messages a été communiqué, principalement au cours de l’année 2012 et partiellement au cours de l’année 2013, par l’intermédiaire d’un médium qui a souhaité garder l’anonymat en utilisant le pseudonyme de « Enfant de Dieu ». Tous ces messages ont un titre évocateur « Je t’ai toujours aimé », «  Ta résistance me fait souffrir », «  Prends une respiration de mon Amour », « L’illusion que nous sommes séparés » ou encore « Le but est que tu ressentes mon Amour »
+La dernière catégorie de messages correspond à une série de messages communiqués par Notre Père Céleste : Dieu !!! La presque quasi-totalité de ces messages a été communiqué, principalement au cours de l’année 2012 et partiellement au cours de l’année 2013, par l’intermédiaire d’un médium qui a souhaité garder l’anonymat en utilisant le pseudonyme de « Enfant de Dieu ». Tous ces messages ont un titre évocateur *« Je t’ai toujours aimé »*, *«  Ta résistance me fait souffrir »*, *«  Prends une respiration de mon Amour »*, *« L’illusion que nous sommes séparés »* ou encore *« Le but est que tu ressentes mon Amour »*.
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
@@ -74,7 +74,7 @@ Le Père Céleste | [Je suis ta lumière directrice à tout moment](/fr-contempo
 Le Père Céleste | [Te connaître pour me connaître](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-19-1-cog-father/) | 19 Janvier 2013
 Le Père Célestee | [Je veux que vous rejoigniez les cœurs et que vous sentiez notre connexion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-22-1-cog-father/) | 22 Janvier 2013
 Le Père Céleste | [Amour et Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-22-2-hm-father/) | 22 Janvier 2013
-Le Père Céleste | [En vous, je ne vois que de la beauté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-25-1-cog-father/) | 25 Janvier 2013
+Le Père Céleste | [En toi, je ne vois que de la beauté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-25-1-cog-father/) | 25 Janvier 2013
 Le Père Céleste | [Tu dois te donner du temps](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-26-1-cog-father/) | 26 Janvier 2013
 Le Père Céleste | [Les attentes ne laissent aucune place au mystère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-29-1-cog-father/) | 29 Janvier 2013
 Le Père Céleste | [Tu es mon temple](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-2-1-1-cog-father/) | 1 Février 2013

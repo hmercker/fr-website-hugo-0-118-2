@@ -64,7 +64,7 @@ Nuage Blanc | [Vivez ces vérités](/fr-contemporary-messages/fr-contemporary-me
 Grace Moore | [J'ai écouté les Aspirations et j'ai senti vos Désirs ardents pour l'Amour Divin.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-159-1970-anonymous-grace-moore/) |   1970
 Mario Lanza | [La meilleure façon d'enseigner, c'est d'être un exemple](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-160-1970-anonymous-mario-lanza/) |   1970
 Franklin D Roosevelt | [Donnez à votre prochain la seule chose qui peut le libérer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-161-1970-anonymous-franklin-d-roosevelt/) |   1970
-Reine Victoria | [Soyez fidèles, mais surtout, soyez forts et sages dans l'amour de Dieu.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-162-1970-anonymous-queen-victoria/) |   1970
+Reine Victoria | [Soyez fidèles, mais surtout, soyez forts et sages dans l'Amour de Dieu.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-162-1970-anonymous-queen-victoria/) |   1970
 Nuage Blanc | [Conférence sur la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-163-1970-anonymous-white-cloud/) |   1970
 Ishmirama | [Exposé sur la Relaxation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-164-1970-anonymous-ishmirama/) |   1970
 Alexandre | [La nécessité d'une bonne base](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-165-1970-anonymous-alexander/) |   1970

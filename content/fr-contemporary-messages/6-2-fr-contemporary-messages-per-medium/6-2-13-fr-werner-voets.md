@@ -15,7 +15,7 @@ Les différents messages qu’il a reçus sont disponibles dans le tableau ci-de
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-John | [Le don du libre arbitre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-14-2-wv-john/) | 14 Janvier 2002
+St Jean | [Le don du libre arbitre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-14-2-wv-john/) | 14 Janvier 2002
 St Jean | [Nous sommes tous des médiums](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-4-30-1-wv-st-john/) | 30 Avril 2003
 St Jean | [Propager l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-5-20-1-wv-st-john/) | 20 Mai 2003
 Anonyme | [Pour renoncer à tout](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-9-28-1-wv-anonyme/) | 28 Septembre 2003
@@ -39,6 +39,6 @@ St Jean | [Volonté et Libre Arbitre et le sens de 666](/fr-contemporary-message
 St Jean | [Tout est Simple](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-1-2-1-wv-st-john/) | 2 Janvier 2015
 St Jean | [Fonctionnement de la loi de Compensation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-1-19-1-wv-st-john/) | 19 Janvier 2015
 St Jean | [La différence entre l’ego et l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-6-25-1-wv-st-john/) | 25 Juin 2016
-Jean | [Le pouvoir de l'ego peut subvertir le processus de croissance de l'âme dans l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-2-2-wv-john/) | 2 Octobre 2017
+St Jean | [Le pouvoir de l'ego peut subvertir le processus de croissance de l'âme dans l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-2-2-wv-john/) | 2 Octobre 2017
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

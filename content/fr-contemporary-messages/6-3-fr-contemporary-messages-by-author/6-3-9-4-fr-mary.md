@@ -9,7 +9,7 @@ weight:
 ---
 ### Marie
 
-Marie, mère de Jésus, est très considérée dans l'Eglise Catholique où elle est particulièrmnt vénérée. Une véritable légende est née autour d'elle et cette légened est à l'origine du dogme de la naissance virginale qui stipule que Jésus serait né sans faire l'objet d'une conception traditionnelle et donc ne serait pas le résultat d'une relation entre elle et Joseph. La bible renferme de nombreuses légendes qui semblent avoir été introduites dans les récits bibliques aux premiers temps des églises Chrétiennes dans le seul but de présenter Jésus comme étant un personnaga hors du commun.
+Marie, mère de Jésus, est très considérée dans l'Eglise Catholique où elle est particulièrmnt vénérée. Une véritable légende est née autour d'elle et cette légende est à l'origine du dogme de la naissance virginale qui stipule que Jésus serait né sans faire l'objet d'une conception traditionnelle et donc ne serait pas le résultat d'une relation entre elle et Joseph. La bible renferme de nombreuses légendes qui semblent avoir été introduites dans les récits bibliques aux premiers temps des églises Chrétiennes dans le seul but de présenter Jésus comme étant un personnaga hors du commun.
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
@@ -29,7 +29,7 @@ Marie | [Pourquoi Dieu permet que de mauvaises choses se produisent](/fr-contemp
 Marie | [Réponse aux questions personnelles et sur la raison pour laquelle James Padgett a été choisi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-9-16-1-ar-mary/) | 16 Septembre 1999
 Marie | [Comment les lois de Dieu agissent sur la vie des hommes et des femmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-10-12-1-ar-mary/) | 12 Octobre 1999
 Marie | [Sur la cruauté envers les animaux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-10-30-1-ar-mary/) | 30 Octobre 1999
-Marie | [Vous Vous demandez ce que Dieu attend de vous ? Seulement votre amour !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-7-1-ar-mary/) | 7 Novembre 1999
+Marie | [Vous vous demandez ce que Dieu attend de vous ? Seulement votre amour !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-7-1-ar-mary/) | 7 Novembre 1999
 Marie | [Comment les anges guident les mortels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-20-1-ar-mary/) | 20 Novembre 1999
 Marie | [Sentiments d’indignité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-23-1-ar-mary/) | 23 Novembre 1999
 Marie | [Comment honorer son père et sa mère s’ils adoptent un comportement violent ou abusif](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-12-1-1-ar-mary/) | 1 Décembre 1999
@@ -52,7 +52,7 @@ Marie | [S’opposer fermement à la violence](/fr-contemporary-messages/fr-cont
 Marie | [Pourquoi nous avons besoin d’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-3-7-1-ar-mary/) | 7 Mars 2002
 Marie | [Le Cœur Collectif](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-5-1-2-ar-mary/) | 1 Mai 2002
 Marie | [L’amour est présent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-11-30-1-ar-mary/) | 30 Novembre 2002
-Marie | [Voir le monde avec les yeux de l’âme.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-7-19-1-cc-mary/) | 19 Juillet 2003
+Marie | [Voir le monde avec les yeux de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-7-19-1-cc-mary/) | 19 Juillet 2003
 Marie | [Aime-toi totalement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-10-18-1-cc-mary/) | 18 Octobre 2003
 Marie | [La radio de l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-11-12-1-ar-mary/) | 12 Novembre 2003
 Marie | [Assez est ennuyeux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-2-4-1-ar-mary/) | 4 Février 2004
@@ -63,7 +63,7 @@ Marie | [L'Amour est la Vérité que nous recherchons](/fr-contemporary-messages
 Marie | [Un don à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-9-3-1-ar-mary/) | 3 Septembre 2005
 Marie | [L'étoffe de l'éternité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-6-5-1-ar-mary/) | 5 Juin 2006
 Marie | [Je suis la chaleur de ton cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-7-18-1-cog-mary/) | 18 Juillet 2012
-Marie | [Se soumetre à l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-7-1-hm-mary/) | 7 Décembre 2012
+Marie | [Se soumetre à l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-7-1-hm-mary/) | 7 Décembre 2012
 Marie | [Le soleil de l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-18-1-hm-mary/) | 18 Janvier 2013
 Marie | [Avancez dans cette rivière d’Amour et lâchez prise](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-19-1-af-mary/) | 19 Mai 2014
 Marie | [Utilisez votre don de la vie de manière optimale](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-15-1-af-mary/) | 15 Décembre 2014
@@ -85,7 +85,7 @@ Marie | [L'éveil de l'âme](/fr-contemporary-messages/fr-contemporary-messages-
 Marie | [Soyez frères et sœurs dans l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-7-17-1-af-mary/) | 17 Juillet 2018
 Marie | [Marie apporte sa bénédiction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-26-2-af-mary/) | 26 Août 2018
 Marie | [Permettez à vos cœurs d'être tendres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-12-3-mc-mary/) | 12 Septembre 2018
-Marie | [Au service de la volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-28-2-af-mary/) | 28 Septembre 2018
+Marie | [Au service de la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-28-2-af-mary/) | 28 Septembre 2018
 Marie | [Bénédiction de Marie - Cercle de prière en ligne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-21-3-af-mary/) | 21 Octobre 2018
 Marie | [Les anges prient pour nous dans notre éveil](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-22-5-mc-mary/) | 22 Octobre 2018
 Marie | [Beaucoup croient que leur mental apporte la conscience de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-12-17-1-af-mary/) | 17 Décembre 2018
@@ -95,10 +95,10 @@ Marie | [Partager la vérité de l'Amour Divin](/fr-contemporary-messages/fr-con
 Marie | [Marcher avec foi en Dieu et son plan pour vous et l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-4-12-1-af-mary/) | 12 Avril 2019
 Marie | [C'est votre âme qui communique avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-4-25-1-mc-mary/) | 25 Avril 2019
 Marie | [Les intentions de vos âmes apportent de nombreuses bénédictions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-6-2-1-af-mary/) | 2 Juin 2019
-Marie | [Quel est le don de l'amour de Dieu ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-6-23-1-mc-mary/) | 23 Juin 2019
+Marie | [Quel est le don de l'Amour de Dieu ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-6-23-1-mc-mary/) | 23 Juin 2019
 Marie | [Dieu se servira de vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-12-4-af-mary/) | 12 Juillet 2019
 Marie | [Il suffit de demander et vos âmes seront touchées par Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-18-1-mc-mary/) | 18 Juillet 2019
-Marie | [Bénissez les enfants dans l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-2-1-jw-mary/) | 2 Septembre 2019
+Marie | [Bénissez les enfants dans l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-2-1-jw-mary/) | 2 Septembre 2019
 Marie | [Marie apporte l'amour d'une mère aux âmes de la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-8-4-mc-mary/) | 8 Septembre 2019
 Marie | [Laissez-vous guider](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-21-1-af-mary/) | 21 Septembre 2019
 Marie | [C'est votre âme qui est créée à l'image de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-9-3-mc-mary/) | 9 Novembre 2019
@@ -109,7 +109,7 @@ Marie | [Bénédiction de la fête des mères, Dieu a créé tout le monde de ma
 Marie | [Soyez Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-1-2-af-mary/) | 1 Septembre 2020
 Marie | [Les bénédictions couleront de manière plus constante, plus profonde et plus puissante](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-12-2-af-mary/) | 12 Octobre 2020
 Marie | [Vous êtes l’aube](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-25-1-jw-mary/) | 25 Décembre 2020
-Marie | [Nous sommes unis par l’amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-9-1-af-mary/) | 9 Mars 2021
+Marie | [Nous sommes unis par l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-9-1-af-mary/) | 9 Mars 2021
 Marie | [Nous sommes toujours avec vous dans ce voyage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-31-1-af-mary/) | 31 Mars 2021
 Marie | [Consacrez-vous à Dieu, mes bien-aimés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-6-2-af-mary/) | 6 Avril 2021
 Marie | [Soyez l’ami affectueux de l’autre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-5-1-af-mary/) | 5 Juin 2021
@@ -126,7 +126,7 @@ Marie | [Vient prier avec nous ](/fr-contemporary-messages/fr-contemporary-messa
 Marie | [Nous sommes la lumière et nous brillerons ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-13-4-af-mary/) | 13 Octobre 2023
 Marie | [Partagez cette expérience avec vos frères et sœurs terrestres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-10-1-em-mary/) | 10 Décembre 2023
 Marie | [Mon amour pour chacun de vous est grand](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-6-2-af-mary/) | 6 Janvier 2024
-Marie | [La transformation apportée par la grâce de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-10-1-af-mary/) | 10 Janvier 2024
+Marie | [La transformation apportée par la grâce de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-10-1-mc-mary/) | 10 Janvier 2024
 Marie | [Une expérience de communion avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-18-2-em-mary/) | 18 Janvier 2024
 Marie | [Le grand consolateur de l’Amour de Dieu est sur nous tous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-23-1-af-mary/) | 23 Février 2024
 Marie | [Exprime son amour en se joignant à la prière avec nous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-28-2-af-mary/) | 28 Février 2024

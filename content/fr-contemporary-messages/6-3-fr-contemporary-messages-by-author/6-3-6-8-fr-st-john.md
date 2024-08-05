@@ -11,13 +11,13 @@ weight:
 
 ![title](/3-fr-judas-of-kerioth-messages/fr-johanneszebedaeus_small.jpg)
 
-L'appellation Saint Jean semble se rapporter à Jean, le fils de Zébédée et il conviendrait de le distinguer de celui que l'on surnomme Jean le Bien Aimé. Saint Jean était le frère de Jacques dit le majeur. Faute de commnication à ce sujet, il est seulement remarqué que certaines fois l'auteur de certains messages se présente parfois comme étant simplement "Saint Jean" et d'autres fois comme "Jean le Bien Aimé". C'est la  raison pour laquelle on peut supposer que ce sont deux personnes distinctes.
+L'appellation Saint Jean semble se rapporter à Jean, l'évangéliste, le fils de Zébédée et il conviendrait de le distinguer de celui que l'on surnomme Jean le Bien Aimé. Saint Jean était le frère de Jacques dit le majeur. Faute de commnication à ce sujet, il est seulement remarqué que certaines fois l'auteur de certains messages se présente comme étant simplement "Saint Jean" et d'autres fois comme "Jean le Bien Aimé". C'est la  raison pour laquelle on peut supposer que ce sont deux personnes distinctes.
 
 Saint Jean fut avec André, Jacques et Pierre l'un des quatre premiers disciples de Jésus. Dans le message qu'il a communiqué le [15 Février 2002](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-2-15-1-hr-judas/), Judas explique que Jean et Jacques s'étaient rapprochés de l’idéologie des Zélotes dont le but était l’expulsion des Romains de Palestine et le rétablissement d’une théocratie parmi les Juifs. Cette position était conforme avec la pensée Juive de l'époque qui défendait l'idée selon laquelle la mission du messsie était d'établir un royaume physique. Bien entendu Jésus a apporté une toute autre vision et compréhension de la mission du messsie qui prône l'établissement premier d'un royaume spirituel par la transformation intérieure de chaque personne.
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-St Jean | [L'amour de Dieu coule à travers vous pour le monde entier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-8-1969-3-31-anonymous-st-john/) | 31 Mars 1969
+St Jean | [L'Amour de Dieu coule à travers vous pour le monde entier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-8-1969-3-31-anonymous-st-john/) | 31 Mars 1969
 St Jean | [L’intransigeance de la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-18-1-Alfredo-st-john/) | 18 Novembre 1999
 St Jean | [Désir d'être comme Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-97-1970-anonymous-st-john/) |   1970
 St Jean | [Je dois faire plus pour Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-102-1970-anonymous-st-john/) |   1970
@@ -65,7 +65,7 @@ St Jean | [Construire des ponts d'amour](/fr-contemporary-messages/fr-contempora
 St Jean | [L'Amour de Dieu réveille les dons de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-29-1-af-st-john/) | 29 Janvier 2018
 St Jean | [Cherchez l'amour qui vous portera à travers les changements](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-24-2-af-st-john/) | 24 Février 2018
 St Jean | [Le voyage vers l'éveil de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-2-2-af-st-john/) | 2 Mars 2018
-St Jean | [Chercher à connaître Dieu par l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-9-1-af-st-john/) | 9 Juin 2018
+St Jean | [Chercher à connaître Dieu par l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-9-1-af-st-john/) | 9 Juin 2018
 St Jean | [Questions et réponses sur la période de sommeil](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-27-3-af-st-john/) | 27 Janvier 2019
 St Jean | [Il est maintenant temps de préparer vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-2-1-af-st-john/) | 2 Juillet 2019
 St Jean | [L'innocence de l'âme prépare le terrain pour la guidance Divine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-10-15-2-af-st-john/) | 15 Octobre 2019

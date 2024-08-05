@@ -9,7 +9,7 @@ weight:
 ---
 ### L’amour commence à la maison
 
-Josef - reçu par Kathryn Stokes le 22 Mars 2001, Santa Cruz, Californie, USA.
+Joseph - reçu par Kathryn Stokes le 22 Mars 2001, Santa Cruz, Californie, USA.
 
 *[Cher Père Céleste, merci pour toutes les nombreuses bénédictions que Tu nous accordes chaque jour. S’il Te plaît, aide-moi à être un canal clair pour recevoir un message de l’un de nos guides spirituels Célestes pour notre chère sœur, R. Elle se bat avec un manque d’amour de soi et a besoin d’encouragement et de conseils. Elle a un guide spirituel/ami spécial qu’elle appelle « Darling », et apprécierait beaucoup d’entendre cet ami et d’en apprendre plus sur lui/elle.*
 

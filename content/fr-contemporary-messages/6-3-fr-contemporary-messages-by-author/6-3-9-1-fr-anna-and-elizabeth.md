@@ -24,4 +24,5 @@ En fait ces informations ne sont que légendaires et semblent avoir été insér
 Anne (Grand mère de Jésus) | [La grand-mère de Jésus se présente](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-2-25-1-mc-anna-grandmother-of-jesus/) | 25 Février 2022
 Anne (Grand mère de Jésus) | [Bénédiction d’une rose](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-3-2-mc-anna-grandmother-of-jesus/) | 3 Mars 2022
 Anne (Grand mère de Jésus) | [Le plus grand nombre possible d’anges tentent d’entrer en relation avec nous tous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-18-1-af-anna-grandmother-of-jesus/) | 18 Mars 2022
-Elizabeth | [Unis dans l’amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-16-2-jw-elizabeth/) | 16 Juin 2020
+Elizabeth | [Unis dans l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-16-2-jw-elizabeth/) | 16 Juin 2020
+Elizabeth | [Laissez l'Amour de Dieu vous guider](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-15-1-jw-elizabeth/) | 15 Juillet 2024

@@ -14,7 +14,7 @@ Parmi les nombreux esprits qui ont communiqué au cours des 50 dernières année
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Aaron | [Les pouvoirs d'Aaron](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-9-12-1-fab-aaron/) | 12 Septembre 2007
-Aaron | [Les anges accompagnent tous ceux qui cherchent l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-7-7-1-af-aaron/) | 7 Juillet 2018
+Aaron | [Les anges accompagnent tous ceux qui cherchent l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-7-7-1-af-aaron/) | 7 Juillet 2018
 Aaron | [Soyez l'agent actif de Dieu pour le changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-9-3-af-aaron/) | 9 Juillet 2019
 Aaron | [Nous supplie de faire notre part pour être intégrés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-2-3-af-aaron/) | 2 Juin 2021
 Aaron | [Le plus grand obstacle à la lumière dans votre monde est l’ignorance et l’apathie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-11-1-af-aaron/) | 11 Juillet 2021
@@ -39,10 +39,10 @@ Daniel | [Expérience de Daniel avec l’Amour Divin](/fr-contemporary-messages/
 Ezéchiel | [Heureux ceux qui sont prêts à aimer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-20-1-af-ezekiel/) | 20 Mai 2014
 Ézéchiel | [Dieu rassemble des lumières du monde entier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-16-1-af-ezekiel/) | 16 Mars 2021
 Ezéchiel | [Répandez la vérité de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-21-1-af-ezekiel/) | 21 Avril 2024
-Hakan | [Le maître d’œuvre Egyptien confirme le message de Moïse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-10-6-1-fab-hakan/) | 6 Octobre 2007
+Hakan | [Le maître d’œuvre Égyptien confirme le message de Moïse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-10-6-1-fab-hakan/) | 6 Octobre 2007
 Isaïe | [Vous aurez besoin les uns des autres dans les temps à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-19-3-af-isaiah/) | 19 Mai 2014
 Isaïe | [Dieu apportera une nouvelle lumière dans ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-1-2-af-isaiah/) | 1 Décembre 2017
-Isaïe | [L'amour de Dieu vous ouvre les portes de l'entendement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-21-1-af-isaiah/) | 21 Février 2018
+Isaïe | [L'Amour de Dieu vous ouvre les portes de l'entendement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-21-1-af-isaiah/) | 21 Février 2018
 Isaïe | [Une déclaration proclamant le début d'une nouvelle ère de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-29-1-af-isaiah/) | 29 Août 2018
 Isaïe | [Vous serez une lumière brillante pour la condition humaine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-2-21-1-af-isaiah/) | 21 Février 2021
 Isaïe | [Soyez en sainte communion avec Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-15-1-af-isaiah/) | 15 Octobre 2023
@@ -121,7 +121,7 @@ Noé | [Noé et le déluge](/fr-contemporary-messages/fr-contemporary-messages-b
 Noé | [L'histoire du déluge](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-10-1-fab-noah/) | 10 Février 2009
 Noé | [Stop à l'obscurité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-17-1-af-noah/) | 17 Novembre 2017
 Noé | [A propos du déluge](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-29-1-jw-noah/) | 29 Décembre 2020
-Noé & Care Derby Walsh | [L’acte de foi et la création de sanctuaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-23-1-jw-noah-care-derby-walsh/) | 23 Octobre 2023
+Noé & Care Darby Walsh | [L’acte de foi et la création de sanctuaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-23-1-jw-noah-care-darby-walsh/) | 23 Octobre 2023
 Salomon | [Laissez les esprits de votre âme prendre le dessus (Salomon de l'Ancien Testament)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-36-1969-11-20-anonymous-solomon/) | 20 Novembre 1969
 Salomon | [L'Amour de Dieu a un pouvoir illimité - Shalom - Solomon](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-175-1969-anonymous-solomon/) |   1969
 Salomon | [Bouclez votre ceinture](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-6-30-2-cc-solomon/) | 30 Juin 2003

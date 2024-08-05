@@ -18,7 +18,7 @@ Augustin | [Les plaisirs physiques](/fr-contemporary-messages/fr-contemporary-me
 Marie Madeleine & Jésus | [Observer l'âme humaine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-1-1-ar-mary-magdalene-jesus/) | 1<sup>er</sup> Avril 2006
 Moïse | [Un médium Juif attire les mêmes esprits Juifs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-9-1-fab-moses/) | 9 Avril 2006
 Confucius | [Confucius et le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-11-1-fab-confucius/) | 11 Avril 2006
-Uharu | [Un point de vue amérindien sur la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-11-2-fab-uharu/) | 11 Avril 2006
+Uharu | [Un point de vue Amérindien sur la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-11-2-fab-uharu/) | 11 Avril 2006
 Ramsès II | [Pharaon a trouvé la Nouvelle Naissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-12-1-fab-rameses-ii/) | 12 Avril 2006
 Samuel Beckett | [Samuel Beckett est malheureux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-13-1-fab-samuel-beckett/) | 13 Avril 2006
 Mani | [Le monde est bon](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-14-1-fab-mani/) | 14 Avril 2006

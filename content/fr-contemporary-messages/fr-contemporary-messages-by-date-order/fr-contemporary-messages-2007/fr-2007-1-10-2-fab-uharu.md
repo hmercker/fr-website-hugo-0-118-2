@@ -49,8 +49,8 @@ Sur une note personnelle, la délivrance est proche pour vous. Votre esprit retr
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-Uharu | [Un point de vue amérindien sur la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-11-2-fab-uharu/) | 11 Avril 2006
-Uharu | [Valeurs amérindiennes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-18-1-fab-uharu/) | 18 Juillet 2006
+Uharu | [Un point de vue Amérindien sur la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-11-2-fab-uharu/) | 11 Avril 2006
+Uharu | [Valeurs Amérindiennes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-18-1-fab-uharu/) | 18 Juillet 2006
 Uharu | [Une discussion sur l'environnement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-10-1-fab-uharu/) | 10 Janvier 2007
 Uharu | [Préjugés contre les Amérindiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-9-7-1-fab-uharu/) | 7 Septembre 2007
 Uharu | [Les bons et les mauvais aspects de la culture Amérindienne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-12-23-1-fab-uharu/) | 23 Décembre 2007

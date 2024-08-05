@@ -64,7 +64,7 @@ Le Père Céleste | [Seul l’amour peut dissoudre l’illusion](/fr-contemporar
 Le Père Céleste | [Je suis ta lumière directrice à tout moment](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-17-1-cog-father/) | 17 Janvier 2013
 Le Père Céleste | [Te connaître pour me connaître](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-19-1-cog-father/) | 19 Janvier 2013
 Le Père Céleste | [Je veux que vous rejoigniez les cœurs et que vous sentiez notre connexion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-22-1-cog-father/) | 22 Janvier 2013
-Le Père Céleste | [En vous, je ne vois que de la beauté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-25-1-cog-father/) | 25 Janvier 2013
+Le Père Céleste | [En toi, je ne vois que de la beauté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-25-1-cog-father/) | 25 Janvier 2013
 Le Père Céleste | [Tu dois te donner du temps](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-26-1-cog-father/) | 26 Janvier 2013
 Le Père Céleste | [Les attentes ne laissent aucune place au mystère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-29-1-cog-father/) | 29 Janvier 2013
 Le Père Céleste | [Tu es mon temple](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-2-1-1-cog-father/) | 1 Février 2013

@@ -38,4 +38,3 @@ Faith  Nyquist| [Les anges sont occupés à préparer les âmes du monde entier 
 Faith Nyquist| [Priera avec des liens d’Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-30-1-af-faith/) | 30 Mars 2023
 Faith Nyquist | [Vous avez fait quelque chose de magnifique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-7-1-af-faith/) | 7 Janvier 2024
 Faith Nyquist | [Marcher dans la foi et partager la vérité de l'Amour Divin ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-4-1-af-faith/) | 4 Juin 2024
-Faith Nyquist | [Marchez dans la foi et partagez la vérité de l’Amour Divin ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-24-3-af-faith/) | 24 Juin 2024

@@ -93,4 +93,4 @@ Stephen Foster | [Une clarification musicale](/fr-contemporary-messages/fr-conte
 Tony Curtis | [Le point de vue d’une star de cinéma dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-10-5-1-fab-tony-curtis/) | 5 Octobre 2011
 Will Rogers | [La paix et l'amour sont assurés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-8-3-1-fab-will-rogers/) | 3 Août 2006
 Wolfgang Amadeus Mozart | [Expériences de Mozart dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-2-1-fab-wolfgang-amadeus-mozart/) | 2 Janvier 2003
-Wolfgang Amadeus Mozart | [Mozart complète son message precedent.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-17-1-fab-wolfgang-amadeus-mozart/) | 17 Juillet 2007
+Wolfgang Amadeus Mozart | [Mozart complète son message precedent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-17-1-fab-wolfgang-amadeus-mozart/) | 17 Juillet 2007

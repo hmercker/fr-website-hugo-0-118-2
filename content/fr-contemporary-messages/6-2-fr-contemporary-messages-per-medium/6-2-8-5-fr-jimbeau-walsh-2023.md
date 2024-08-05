@@ -75,6 +75,6 @@ Judas | [Le chemin à parcourir](/fr-contemporary-messages/fr-contemporary-messa
 Robert Hugh Benson  | [Les Royaumes Spirituels de Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-11-1-jw-robert-hugh-benson/) | 11 Décembre 2023
 Jean le Baptiste | [Vous êtes l'accomplissement de la mission des Maîtres sur la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-18-1-jw-john-the-baptist/) | 18 Décembre 2023
 
-[Lien vers les messages contemporains reçus par Jimbeau walsh au cours de l’année 2024](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-8-6-fr-jimbeau-walsh-2024/)
+[Lien vers les messages contemporains reçus par Jimbeau Walsh au cours de l’année 2024](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-8-6-fr-jimbeau-walsh-2024/)
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

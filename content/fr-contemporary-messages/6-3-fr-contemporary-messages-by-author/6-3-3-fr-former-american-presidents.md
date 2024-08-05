@@ -54,7 +54,7 @@ Andrew Jackson | [Un changement de perspective](/fr-contemporary-messages/fr-con
 Abraham Lincoln | [Les lois simples de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-69-1969-anonymous-abraham-lincoln/) |   1969
 Abraham Lincoln | [Seul Dieu peut rendre l'homme libre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-71-1969-anonymous-abraham-lincoln/) |   1969
 Abraham Lincoln | [Abraham Lincoln et la Guerre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-6-30-1-fab-abraham-lincoln/) | 30 Juin 2005
-Abraham Lincoln | [Le véritable esprit du Pardon.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-12-31-1-fab-abraham-lincoln/) | 31 Décembre 2005
+Abraham Lincoln | [Le véritable esprit du Pardon](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-12-31-1-fab-abraham-lincoln/) | 31 Décembre 2005
 Abraham Lincoln | [Abraham Lincoln complète à son message précédent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-7-3-fab-abraham-lincoln/) | 7 Juillet 2007
 Abraham Lincoln | [La sélection de Lincoln, et la pensée positive](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-16-3-fab-abraham-lincoln/) | 16 Avril 2008
 Abraham Lincoln | [La délivrance viendra](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-23-3-fab-abraham-lincoln/) | 23 Avril 2008
@@ -71,7 +71,7 @@ Grover Cleveland | [L’écrivain exprime sa gratitude envers M. Padgett](/fr-ja
  | <p align="center">**Willam McKinley 25ème président**</p> |
 President McKinley | [President McKinley et d’autres dans le monde des esprits s’efforcent de mettre fin à la guerre](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-2-8-2-jep-president-mckinley/) | 8 Février 1917
  | <p align="center">**Théodore Roosevelt 26ème président**</p> |
-Theodore Roosevelt | [Un président américain se confronte au monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-20-2-fab-theodore-roosevelt/) | 20 Décembre 2006
+Theodore Roosevelt | [Un président Américain se confronte au monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-20-2-fab-theodore-roosevelt/) | 20 Décembre 2006
 Théodore Roosevelt | [Théodore Roosevelt, la guerre et l'empire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-1-23-2-fab-theodore-roosevelt/) | 23 Janvier 2010
  | <p align="center">**William Howard Taft 27ème président**</p>| 
 William Howard Taft | [Les politiciens dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-6-18-1-fab-william-howard-taft/) | 18 Juin 2008

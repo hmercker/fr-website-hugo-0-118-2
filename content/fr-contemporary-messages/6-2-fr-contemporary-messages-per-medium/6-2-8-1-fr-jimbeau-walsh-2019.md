@@ -76,6 +76,6 @@ St François d'Assise | [Entretenez les jardins de vos âmes](/fr-contemporary-m
 Yogananda | [Noël est un moment privilégié pour partager le cadeau de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-15-3-jw-yogananda/) | 15 Décembre 2019
 Yogananda | [Priez !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-20-2-jw-yogananda/) | 20 Décembre 2019
 
-[Lien vers les messages contemporains reçus par Jimbeau walsh au cours de l’année 2020](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-8-2-fr-jimbeau-walsh-2020/)
+[Lien vers les messages contemporains reçus par Jimbeau Walsh au cours de l’année 2020](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-8-2-fr-jimbeau-walsh-2020/)
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

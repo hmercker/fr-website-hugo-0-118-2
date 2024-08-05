@@ -1,13 +1,13 @@
 ---
-title: "L'importance de la voix directe"
+title: "L'importance de la Voix Directe"
 menu_title: ""
-description: "L'importance de la voix directe"
+description: "L'importance de la Voix Directe"
 date: 2022-06-01 06:00:01+00:89
 draft: False
 hidden: True
 weight:
 ---
-### L'importance de la voix directe
+### L'importance de la Voix Directe
 
 Nuage Blanc - reçu en 1969, Vancouver, Colombie-Britannique, Canada.
 

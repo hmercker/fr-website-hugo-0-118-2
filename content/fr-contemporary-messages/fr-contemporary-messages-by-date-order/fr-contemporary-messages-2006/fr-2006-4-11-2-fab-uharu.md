@@ -1,13 +1,13 @@
 ---
-title: "Un point de vue amérindien sur la vie"
+title: "Un point de vue Amérindien sur la vie"
 menu_title: ""
-description: "Un point de vue amérindien sur la vie"
+description: "Un point de vue Amérindien sur la vie"
 date: 2022-06-01 06:00:01+00:09
 draft: False
 hidden: True
 weight:
 ---
-### Un point de vue amérindien sur la vie
+### Un point de vue Amérindien sur la vie
 
 Uharu - reçu par FAB le 11 Avril 2006, Santa Cruz, Californie, USA.
 
@@ -30,9 +30,9 @@ Je reviendrai [une autre fois](/fr-contemporary-messages/fr-contemporary-message
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-Uharu | [Valeurs amérindiennes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-18-1-fab-uharu/) | 18 Juillet 2006
+Uharu | [Valeurs Amérindiennes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-18-1-fab-uharu/) | 18 Juillet 2006
 Uharu | [Une discussion sur l'environnement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-10-1-fab-uharu/) | 10 Janvier 2007
-Uharu | [Une perspective amérindienne sur la société](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-10-2-fab-uharu/) | 10 Janvier 2007
+Uharu | [Une perspective Amérindienne sur la société](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-10-2-fab-uharu/) | 10 Janvier 2007
 Uharu | [Préjugés contre les Amérindiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-9-7-1-fab-uharu/) | 7 Septembre 2007
 Uharu | [Les bons et les mauvais aspects de la culture Amérindienne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-12-23-1-fab-uharu/) | 23 Décembre 2007
 

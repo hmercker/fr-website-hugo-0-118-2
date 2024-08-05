@@ -66,7 +66,7 @@ Yogananda | [Avec Dieu, tout est possible](/fr-contemporary-messages/fr-contempo
 Judas | [Avoir la Foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-19-2-jw-judas/) | 19 Juillet 2022
 Care Darby Walsh | [Tomber en Grace](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-20-1-jw-care-derby-walsh/) | 20 Juillet 2022
 Thomas l’Apôtre | [L'âme touchée par Dieu est la vraie preuve](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-25-1-jw-thomas-the-apostle/) | 25 Juillet 2022
-Jean le Bien Aimé | [Nous sommes tous aimés de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-10-1-jw-john-the-beloved/) | 10 Août 2022
+Jean le Bien Aimé | [Nous sommes tous aimés de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-10-2-jw-john-the-beloved/) | 10 Août 2022
 Judas | [Les deux frères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-10-3-jw-judas/) | 10 Août 2022
 Care Darby Walsh | [De nombreuses façons de donner de l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-22-2-jw-care-derby-walsh/) | 22 Août 2022
 Judas | [Chaque crise est une opportunité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-23-1-jw-judas/) | 23 Août 2022
@@ -87,6 +87,6 @@ St François d'Assise | [Dons de l'âme](/fr-contemporary-messages/fr-contempora
 Care Darby Walsh | [La connexion divine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-19-1-jw-care-derby-walsh/) | 19 Décembre 2022
 Elizabeth Barret Browning | [Comment Dieu vous aime t-il ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-31-2-jw-elizabeth-barret-browning/) | 31 Décembre 2022
 
-[Lien vers les messages contemporains reçus par Jimbeau walsh au cours de l’année 2023](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-8-5-fr-jimbeau-walsh-2023/)
+[Lien vers les messages contemporains reçus par Jimbeau Walsh au cours de l’année 2023](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-8-5-fr-jimbeau-walsh-2023/)
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

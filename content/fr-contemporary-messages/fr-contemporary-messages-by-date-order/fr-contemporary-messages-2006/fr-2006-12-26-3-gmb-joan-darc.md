@@ -35,19 +35,10 @@ Jeanne d'Arc <sup id="a1">[1](#f1)</sup> - reçu par George Barnard le 26 Décem
 
 George : « Merci, chère sœur ».
 
-*Le groupe de progrès 11:11.*<sup id="a2">[2](#f2)</sup>
+*Le groupe de progrès 11:11.
 <small>
 
-1. <large id="f1"> **Jeanne d’Arc** (c.1412 – 30 mai 1431) fut une héroïne nationale et est une sainte de l’Église Catholique. Elle a affirmé avoir eu des visions de Dieu qui lui a demandé de récupérer sa patrie de la domination anglaise à la fin de la guerre de cent ans. Le roi, non couronné, Charles VII l’a envoyée au siège d’Orléans dans le cadre d’une mission de secours. Elle a gagné la reconnaissance alors qu’elle surmontait la considération légère des commandants vétérans et a levé le siège en seulement neuf jours. Plusieurs victoires plus rapides ont conduit au couronnement de Charles VII à Reims et réglé la succession disputée au trône. La confiance française renouvelée a dépassé sa propre carrière. Elle a refusé de quitter le champ de bataille quand elle fut blessée lors d’une tentative de reprendre Paris cet automne. Entravée par les intrigues de la cour, elle n’a mené que des entreprises mineures à partir de là et est tombée prisonnière lors d’une escarmouche près de Compiègne au printemps suivant. Un procès à motivation politique l’a condamnée pour hérésie. Le régent anglais, John de Lancaster, 1er duc de Bedford, l’a fait brûler sur le bûcher à Rouen. Elle fut l’héroïne de son pays à l’âge de dix-sept ans et est décédée à dix-neuf ans. Quelque vingt quatre ans plus tard, le pape Callixtus III a rouvert l’affaire et une nouvelle constatation a infirmé la condamnation d’origine. Sa piété, jusqu’à son derniers souffle, a impressionné le tribunal lors du jugement. Le pape Benoît XV l’a canonisée le 16 mai 1920. (Source : Wikipédia)[↩](#a1)
-
-2. <large id="f2"> Jeanne d'Arc s'est également exprimée dans les messages suivants : [↩](#a2)
-
-**Auteur** | **Titre du message** | **Date du message**  
----|---|---
-Jeanne d'Arc | [La plus grande force vient de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-128-1969-anonymous-joan-darc/) |   1969
-Jeanne d'Arc | [S'avancer pour Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-15-1-af-joan-darc/) | 15 Novembre 2017
-Jeanne d'Arc | [La prière avec les Liens de l'Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-30-3-af-joan-of-arc/) | 30 Mars 2023
-
+1. <large id="f1"> **Jeanne d’Arc** (c.1412 – 30 Mai 1431) fut une héroïne nationale et est une sainte de l’Église Catholique. Elle a affirmé avoir eu des visions de Dieu qui lui a demandé de récupérer sa patrie de la domination anglaise à la fin de la guerre de cent ans. Le roi, non couronné, Charles VII l’a envoyée au siège d’Orléans dans le cadre d’une mission de secours. Elle a gagné la reconnaissance alors qu’elle surmontait la considération légère des commandants vétérans et a levé le siège en seulement neuf jours. Plusieurs victoires plus rapides ont conduit au couronnement de Charles VII à Reims et réglé la succession disputée au trône. La confiance française renouvelée a dépassé sa propre carrière. Elle a refusé de quitter le champ de bataille quand elle fut blessée lors d’une tentative de reprendre Paris cet automne. Entravée par les intrigues de la cour, elle n’a mené que des entreprises mineures à partir de là et est tombée prisonnière lors d’une escarmouche près de Compiègne au printemps suivant. Un procès à motivation politique l’a condamnée pour hérésie. Le régent anglais, John de Lancaster, 1er duc de Bedford, l’a fait brûler sur le bûcher à Rouen. Elle fut l’héroïne de son pays à l’âge de dix-sept ans et est décédée à dix-neuf ans. Quelque vingt quatre ans plus tard, le pape Callixtus III a rouvert l’affaire et une nouvelle constatation a infirmé la condamnation d’origine. Sa piété, jusqu’à son derniers souffle, a impressionné le tribunal lors du jugement. Le pape Benoît XV l’a canonisée le 16 mai 1920. (Source : Wikipédia)[↩](#a1)
 
 ### [**Lien vers les messages des années 2006**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/)
 

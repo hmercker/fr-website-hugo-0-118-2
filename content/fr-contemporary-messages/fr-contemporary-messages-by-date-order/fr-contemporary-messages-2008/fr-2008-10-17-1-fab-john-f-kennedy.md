@@ -25,7 +25,7 @@ Au début, je ne pouvais penser qu'à ma culpabilité et aux conséquences de ma
 
 Mon ange-guide en savait tellement plus que ma grand-mère. Ils m'ont tous les deux conseillé. Ils ont travaillé en équipe. Ma grand-mère était loin d'être aussi développée que l'ange, mais il était plus facile au début de l'écouter. Mais l'Ange est venu et a amplifié ce qu'elle disait d'une manière que je pouvais comprendre.
 
-Oui, j'ai dit "c'est une vie formidable", car c'est ainsi que je la voyais en tant que mortel. Il y avait donc l'obscurité causée par ma folie, et ma vision positive de la vie. Les deux étaient forts.
+Oui, j'ai dit *« c'est une vie formidable »*, car c'est ainsi que je la voyais en tant que mortel. Il y avait donc l'obscurité causée par ma folie, et ma vision positive de la vie. Les deux étaient forts.
 
 La bonne nouvelle est que j'ai maintenant l'espoir d'être heureux, même si je suis toujours bloqué par des circonstances qui ne peuvent être inversées. Mais je ne suis plus totalement désespéré.
 

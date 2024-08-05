@@ -103,7 +103,7 @@ St Matthieu | [La lumière grandit en nous quand nous prions pour l'Amour Divin]
 St Matthieu | [Continuez à chercher la conscience de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-15-2-af-st-matthew/) | 15 Juin 2021
 St Matthieu | [La prière est le levier pour ouvrir la porte à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-27-2-af-st-matthew/) | 27 Juillet 2021
 St Matthieu | [Parle sérieusement de ce qui est nécessaire pour s’engager](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-21-2-af-st-matthew/) | 21 Août 2021
-St Matthieu | [Le monde a besoin de l’amour de Dieu pour survivre aux changements à venir (Cercle de prière en ligne)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-22-3-af-st-matthew/) | 22 Octobre 2021
+St Matthieu | [Le monde a besoin de l’Amour de Dieu pour survivre aux changements à venir (Cercle de prière en ligne)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-22-3-af-st-matthew/) | 22 Octobre 2021
 St Matthieu | [Prier pour l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-12-1-af-st-matthew/) | 12 Novembre 2021
 St Matthieu | [Encouragé à collaborer à la formation du noyau de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-30-1-af-st-matthew/) | 30 Mars 2022
 St Matthieu | [Encourage les nouveaux cercles de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-8-2-al-st-matthew/) | 8 Octobre 2022
@@ -122,7 +122,7 @@ St Matthieu | [Ce rassemblement changera vos perspectives et vos motivations pou
 St Matthieu | [Vous êtes les auditeurs ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-13-8-af-st-matthew/) | 13 Octobre 2023
 St Matthieu | [Nous encourage à créer plus de cercles de lumière dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-16-1-af-st-matthew/) | 16 Octobre 2023
 St Matthieu | [Vous êtes les précurseurs du nouveau monde - Épilogue de Laurelville ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-17-1-af-st-matthew/) | 17 Octobre 2023
-St Matthieu | [La Volonté de Dieu comme protection](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-23-2-em-st-mathhew/) | 23 Octobre 2023
+St Matthieu | [La Volonté de Dieu comme protection](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-23-2-em-st-matthew/) | 23 Octobre 2023
 St Matthieu | [Le choix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-12-3-af-st-matthew/) | 12 Janvier 2024
 St Matthieu | [La bienveillance de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-17-1-af-st-matthew/) | 17 Janvier 2024
 St Matthieu | [Se présente comme un autre guide de Pierre ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-8-1-af-st-matthew/) | 8 Mars 2024

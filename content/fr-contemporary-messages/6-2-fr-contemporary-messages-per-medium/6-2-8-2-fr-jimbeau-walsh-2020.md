@@ -166,7 +166,7 @@ Marie | [Vous êtes l’aube](/fr-contemporary-messages/fr-contemporary-messages
 Noé | [A propos du déluge](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-29-1-jw-noah/) | 29 Décembre 2020
 Claire d'Assise | [Accrochez-vous à l'espoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-30-1-jw-clare-of-assisi/) | 30 Décembre 2020
 
-[Lien vers les messages contemporains reçus par Jimbeau walsh au cours de l’année 2021](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-8-3-fr-jimbeau-walsh-2021/)
+[Lien vers les messages contemporains reçus par Jimbeau Walsh au cours de l’année 2021](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-8-3-fr-jimbeau-walsh-2021/)
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)
 
