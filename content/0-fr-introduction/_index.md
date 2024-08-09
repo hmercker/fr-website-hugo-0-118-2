@@ -19,7 +19,7 @@ Après la transition de James Padgett vers le monde spirituel, d'autres messages
 
 ### Le vrai sens de la seconde venue de Jésus
 
-[Le 02 Décembre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-essages-1915-2/fr-1915-12-2-1-jep-jesus/), Jésus a adressé un message à James Padgett afin d’expliquer  que sa mission d’écriture de ces messages est sa seconde venue sur terre. Nous vous proposons de découvrir un extrait de ce message :
+[Le 02 Décembre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-2-1-jep-jesus/), Jésus a adressé un message à James Padgett afin d’expliquer  que sa mission d’écriture de ces messages est sa seconde venue sur terre. Nous vous proposons de découvrir un extrait de ce message :
 
 
 > Ma venue à vous, c’est vraiment ma seconde venue sur la terre, et le résultat de ma venue, de cette manière, avec, pour résultat, de satisfaire et accomplir toutes les promesses des Écritures quant à ma seconde venue.

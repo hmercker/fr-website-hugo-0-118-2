@@ -18,6 +18,3 @@ Jésus s’est effectivement lui-même sacrifié, mais d’une manière jamais c
 Oui, Jésus s’est sacrifié, mais il est grand temps de mettre de côté le mythe et la métaphysique et de connaître et de réaliser ce que signifie réellement le sacrifice. Lorsque nous comprenons son sacrifice, alors Jésus se dresse dans toute sa grandeur, dans tout son courage, dans toute sa sérénité et pardon et son amour pour l’humanité, avec sa foi absolue dans le Père et Son Amour, au jour de son enseignement, la tribulation et la mort.
 
 En résumé, le plus bel enseignement de Jésus, ce n'est pas le prétendu salut apporté par sa crucifixion, mais l'amour dont il a fait preuve tout au long de sa vie. Et nous pouvons dire et affirmer que Jésus fut réellement un messager de l'Amour.
-
-
-

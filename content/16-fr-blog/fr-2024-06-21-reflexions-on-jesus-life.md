@@ -17,7 +17,6 @@ LES ATTENTES DES JUIFS FACE AU MESSIE
 
 Depuis de nombreux siècles, les anciens prophètes Hébreux ont annoncé que le Messie viendrait pour libérer le peuple de la domination Romaine. Et ce point de vue était partagé par les disciples de Jésus qui ont donc développé en eux la Foi et la Confiance d’un Messie victorieux. Et cette foi et cette croyance ont persisté malgré les différentes oppositions rencontrées par Jésus. Ils ont, un peu trop naïvement peut-être, penser que tout s’arrangerait.
 
-
 <span style="color:red">
 FACE A LA CRUCIFIXION LA CONSTERNATION DES DISCIPLES
 </span>
