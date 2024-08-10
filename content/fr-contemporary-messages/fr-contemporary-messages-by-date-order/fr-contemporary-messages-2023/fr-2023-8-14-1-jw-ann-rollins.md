@@ -9,7 +9,7 @@ weight:
 ---
 ### Influence spirituelle et loi de l’attraction
 
-Anne Rollins - reçu par Albert Fike le 14 Août 2023, Sechelt, Colombie-Britannique, Canada.
+Anne Rollins - reçu par Jimbeau Walsh Fike le 14 Août 2023, Sechelt, Colombie-Britannique, Canada.
 
 C’est moi, Anne Rollins,<sup id="a1">[1](#f1)</sup> votre sœur dans l’Amour Divin. Je souhaite parler de l’influence spirituelle et de la loi de l’attraction et de la façon dont ces deux choses sont liées et de leur importance. Dans la prière que James Padgett a reçue de Jésus, il y a une demande de protection contre les êtres inférieurs, les esprits inférieurs avec les mots « qui m’entourent constamment et qui essaient de détourner mes pensées de Toi vers les plaisirs et les tentations de ce monde » et pas seulement les plaisirs de ce monde, mais les enchevêtrements, les préoccupations. Les esprits qui sont proches du plan terrestre ou dans les enfers recherchent constamment une connexion et il existe bien sûr différents degrés d’obscurité et de lumière.
 

@@ -122,21 +122,12 @@ Noé | [L'histoire du déluge](/fr-contemporary-messages/fr-contemporary-message
 Noé | [Stop à l'obscurité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-17-1-af-noah/) | 17 Novembre 2017
 Noé | [A propos du déluge](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-29-1-jw-noah/) | 29 Décembre 2020
 Noé & Care Darby Walsh | [L’acte de foi et la création de sanctuaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-23-1-jw-noah-care-darby-walsh/) | 23 Octobre 2023
-Salomon | [Laissez les esprits de votre âme prendre le dessus (Salomon de l'Ancien Testament)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-36-1969-11-20-anonymous-solomon/) | 20 Novembre 1969
-Salomon | [L'Amour de Dieu a un pouvoir illimité - Shalom - Solomon](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-175-1969-anonymous-solomon/) |   1969
-Salomon | [Bouclez votre ceinture](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-6-30-2-cc-solomon/) | 30 Juin 2003
-Salomon | [Humilité et confiance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-9-4-1-cc-solomon/) | 4 Septembre 2003
-Salomon | [Appel à tous les médiums](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-12-4-1-cc-solomon/) | 4 Décembre 2003
-Salomon | [Il n'y a pas de différences entre nous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-18-1-af-solomon/) | 18 Novembre 2017
-Salomon | [La confiance dans la sagesse de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-6-1-af-solomon/) | 6 Août 2018
-Salomon | [La sagesse de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-17-4-af-solomon/) | 17 Octobre 2018
-Salomon | [Salomon parle de la sagesse de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-14-1-af-solomon/) | 14 Février 2019
 Samuel | [Explication sur l'immortalité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-10-1969-7-3-anonymous-samuel/) | 3 Juillet 1969
 Samuel | [Renforcez ce lien entre vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-14-1969-7-17-anonymous-samuel/) | 17 Juillet 1969
 Samuel | [La vérité ne peut jamais échouer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-17-1969-8-1-anonymous-samuel/) | 1 Août 1969
 Samuel | [Guidez vos enfants, enseignez-leur le droit chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-21-1969-8-28-anonymous-samuel/) | 28 Août 1969
 Samuel | [Préparation à la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-23-1969-9-22-anonymous-samuel/) | 22 Septembre 1969
-Samuel | [Connaître les causes de la maladie](/fr-contemporary-messages/fr-contemporary-messages-by-dte-order/fr-contemporary-messages-1969/fr-136-1969-12-3-anonymous-samuel/) | 3 Décembre 1969
+Samuel | [Connaître les causes de la maladie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-136-1969-12-3-anonymous-samuel/) | 3 Décembre 1969
 Samuel | [Parler aux esprits de la terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-46-1969-12-22-anonymous-samuel/) | 22 Décembre 1969
 Samuel | [Désirer en vous de servir Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-56-1969-anonymous-samuel/) |   1969
 Samuel | [C'est aujourd'hui que vous servez Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-19-1-af-samuel/) | 19 Septembre 2017

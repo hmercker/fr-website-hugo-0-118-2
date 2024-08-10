@@ -30,7 +30,7 @@ Que vous soyez forts dans la lumière, que vous viviez la vérité à chaque sou
 Vous êtes Ses enfants, des enfants qui sont profondément aimés et bénis. Soyez éveillés, âmes bien-aimées, permettez à l’éveil, au levain de votre âme, d’être une véritable partie de votre moi conscient. Soyez en paix, mes bien-aimés, et sachez que nous sommes avec vous, les anges de l’Amour vous escortent dans ce voyage. Le pouvoir du toucher de Dieu vous assure que vous êtes protégés et dans la lumière. Permettez à tout ce qui est donné d’être absorbé et de faire véritablement partie de vous. Dieu vous bénit, mes bien-aimés, Dieu vous bénit. Je suis Élie et je viens prier avec vous aujourd’hui à l’heure prévue. Je viens pour être avec vous tous comme le fait mon frère aîné Jésus et tous les esprits lumineux du Ciel. Que Dieu vous bénisse, mes bien-aimés.
 <small>
 
-1. <large id="f1"> Les différents messages communiqués par Élie sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-fr-religious-figures/)[↩](#a1)
+1. <large id="f1"> Les différents messages communiqués par Élie sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-fr-old-testament-religious-figures/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2021**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/)
 

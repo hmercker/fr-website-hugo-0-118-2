@@ -13,7 +13,7 @@ Jésus - reçu par FAB le 25 Décembre 2010, Berkeley, Californie, USA.
 
 C’est moi, Jésus.
 
-Vous cherchez une clarification. J'ai dit par l'intermédiaire de M. Padgett [le 25 Décembre 1914](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-12-25-3-jep-jesus/):
+Vous cherchez une clarification. J'ai dit par l'intermédiaire de M. Padgett [le 25 Décembre 1914](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-12-25-3-jep-jesus/) :
 
 > Quant à l'acte de guérison que j'ai accompli à la piscine de Bethsaïda, il est rapporté que j'ai dit : Est-il plus facile de dire : « Prends ton lit et marche », que de demander à Dieu de pardonner ton péché ?.
 

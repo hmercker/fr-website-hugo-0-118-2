@@ -42,7 +42,7 @@ Tel est ton défi, mon fils. Tu continues à passer d’un camp à l’autre, à
 Que Dieu te bénisse. Je suis Salomon<sup id="a1">[1](#f1)</sup> et je suis avec toi. Je suis souvent avec toi pour t’aider à apporter la sagesse à ton âme. Que Dieu te bénisse.
 <small>
 
-1. <large id="f1"> Les différents messages communiqués  par Salomon sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-fr-old-testament-religious-figures/)[↩](#a1)
+1. <large id="f1"> Il est possible de lire les divers messages commuiqués par Salomon par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a1)
 
 
 ### [**Lien vers les messages des années 2018**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/)

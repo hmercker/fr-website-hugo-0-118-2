@@ -53,6 +53,6 @@ La grande vérité des âmes sœurs est une vérité qui a besoin d’être élu
 Eh bien, j’ai beaucoup écrit ce soir et vous êtes fatigué, et moi aussi, et je poursuivrai ultérieurement le reste de mon discours. Avec tout mon amour et mes meilleurs vœux de bonheur et de réussite, je le suis, ton ancien professeur et ami, Salyards.
 <small>
 
-1. <large id="f1"> Lire les messages « Expiation déléguée » de St Jean, St Luc, St. Paul et St. Pierre, pages 221 à 230, dans [l’édition française du premier volume des messages de James Padgett](/13-fr-publications-and-downloads/13-2-1-fr-french-spiritual-books/fr-true-gospel-revealed-anew-volume-1-fr.pdf). (Dr. S.).[↩](#a1)
+1. <large id="f1"> Lire les messages « Expiation déléguée » de St Jean, St Luc, St. Paul et St. Pierre, pages 209 à 219, dans [l’édition française du premier volume des messages de James Padgett](/13-fr-publications-and-downloads/13-2-1-fr-french-spiritual-books/fr-true-gospel-revealed-anew-volume-1-fr.pdf). (Dr. S.).[↩](#a1)
 
 2. <large id="f2"> Dans un message délivré le [30 Août 2001](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-30-1-hr-judas/), Judas précise que les partenaires ou âmes-soeur ne sont pas obligatoirement des partenaires de sexe opposé.[↩](#a2)

@@ -19,7 +19,7 @@ Si vous souhaitez une vérification par un tiers de ce qui se passe jour après 
 
 Quelle en est donc la cause ? Ce n'est pas Dieu qui est en colère et qui nous punit. En fait, en ce moment même, Dieu déverse plus d'énergie, d'amour et de soutien dans ce monde que jamais auparavant pour tenter d'éveiller ceux qui écoutent. Ce n'est pas non plus notre mère la Terre, bien que l'énergie qui nous déstabilisera proviendra des énergies terrestres. Mais le monde a choisi la voie du mal et, dans l'ensemble, la Terre n'a jamais été aussi sombre sur le plan spirituel.
 
-Voici comment [Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-8-17-1-af-jesus/) décrit la cause :
+Voici comment, dans un message communiqué le 17 Août 2015, [Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-8-17-1-af-jesus/) décrit la cause :
 
 > Le monde approche rapidement d'une période de chaos. Un grand changement se prépare, la tempête est juste à l'horizon. Il vous faut, mes bien-aimés, beaucoup de foi et de force, et compter sur votre Père Céleste pour vous guider à travers les temps à venir dans le monde. Car ce sera dramatique et destructeur et cela ne sera pas causé par les hommes mais par Dieu et par la Création de Dieu qui réagit aux actions des hommes. La terre s'élève dans la douleur, elle a été tellement maltraitée par la volonté des hommes, par leur cupidité, et la terre se défend. Et je ne pense pas que l'un d'entre vous comprenne vraiment le pouvoir de la terre, les forces de la terre.
 

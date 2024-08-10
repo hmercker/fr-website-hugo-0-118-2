@@ -20,8 +20,7 @@ Et au fur et à mesure que vous progressez et que vous apprenez à apaiser le me
 La question est le désir, dans l'âme de ceux qui sont assis, d'un dévouement, d'un lien d'amour, d'un renforcement. Nous devons avoir un pouvoir tiré d'une source terrestre pour réaliser ce que nous désirons. Des mots simples comme amour et harmonie, mais combien d'émotions font obstacle à l'harmonie et à l'amour sur Terre. J'apporte une forte puissance avec moi lorsque je viens, alors ouvrez vos âmes à ce cadeau que j'apporte. Le don de l'Amour de Dieu, de la paix de Dieu, des bénédictions de Dieu, ils peuvent être à vous si vous les recevez. Ouvrez vos âmes et désirez que l'Amour de Dieu entre en vous afin que vous soyez un. Je ne vous quitte pas maintenant car c'est mon souhait et mon désir de rester avec ce groupe et je serai là. Mon amour pour vous tous. La bénédiction de Dieu sur vous tous et que vous puissiez remplacer la connaissance par la sagesse afin que vous puissiez tous avoir la vraie connaissance de la vie éternelle. Que Dieu vous bénisse.
 <small>
 
-1. <large id="f1"> Les différents messages communiqués  par Salomon sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-fr-old-testament-religious-figures/)[↩](#a1)
-
+1. <large id="f1"> Il est possible de lire les divers messages commuiqués par Salomon par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a1)
 
 ### [**Lien vers les messages de l’année 1969**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/)
 

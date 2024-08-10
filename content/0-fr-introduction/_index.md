@@ -21,7 +21,6 @@ Après la transition de James Padgett vers le monde spirituel, d'autres messages
 
 [Le 02 Décembre 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-essages-1915-2/fr-1915-12-2-1-jep-jesus/), Jésus a adressé un message à James Padgett afin d’expliquer  que sa mission d’écriture de ces messages est sa seconde venue sur terre. Nous vous proposons de découvrir un extrait de ce message :
 
-
 > Ma venue à vous, c’est vraiment ma seconde venue sur la terre, et le résultat de ma venue, de cette manière, avec, pour résultat, de satisfaire et accomplir toutes les promesses des Écritures quant à ma seconde venue.
 <br><br>
 > Alors ayez confiance en ce fait important et votre foi en moi va croître jusqu’à ce que vous ayez, dans vos âmes et esprits, aucun doute quant à ma mission actuelle, et votre travail de faire connaître aux hommes mon vrai but, en leur révélant les grandes vérités du Père. 
@@ -66,4 +65,4 @@ Vous pouvez également en savoir plus sur le Chemin de l’Amour Divin par l’i
 
 Veuillez également prendre note que la quasi totalité des textes que vous pourrez lire sur ce site ont été originellement publés sur [ce premier site](https://new-birth.net/) jusqu'en 2014. Au-delà de cette date les textes ont été originellement publiés sur [ce second site](https://soultruth.ca/). Ces des deux sites sont administrés par Geoff Cutler à qui il convient d'adresser nos profonds remerciements. Je tiens égalemenet à adresser mes profonds remerciements à Henning Mercker administrateur du site [en langue allemande](https://wahrheitfuerdiewelt.de/) pour ses précieux conseils et son aide chaleureuse sans laquelle ce site n'aurait pas vu le jour.
 
-Bonne navigation sur le site. Nous espérons que vous appécierez ce site. N'hésitez pas à nous faire part de vos réflexions, remarques et même de nous signaler tout message qui serait iaccessible, par l'intermédiaire du formulaire de contact.
+Bonne navigation sur le site. Nous espérons que vous appécierez ce site. N'hésitez pas à nous faire part de vos réflexions, remarques et même de nous signaler tout message qui serait inaccessible, par l'intermédiaire du formulaire de contact.

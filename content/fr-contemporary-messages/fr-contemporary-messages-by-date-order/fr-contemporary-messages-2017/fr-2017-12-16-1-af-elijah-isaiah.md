@@ -28,7 +28,7 @@ Beaucoup de choses se préparent, comme vous le savez bien, et les opportunités
 Vous portez ce don, âmes bien-aimées, n'en doutez pas, vous êtes bénies. Je suis **Isaïe** et je vous bénis mes bien-aimés dans la sainte lumière de Dieu. Son Saint-Esprit descend sur vous. Et vous êtes bénis. Dieu vous bénit.
 <small>
 
-1. <large id="f1"> Les différents messages communiqués  par Élie et Isaïe sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-fr-old-testamenent-religious-figures/)[↩](#a1)
+1. <large id="f1"> Les différents messages communiqués  par Élie et Isaïe sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-fr-old-testament-religious-figures/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
 

@@ -79,7 +79,7 @@ Et, au moment où une âme entre dans ce fœtus et grandit et promet de l’êtr
 
 *[<u>Carolyn</u> : Pouvez-vous me dire à quel niveau il se situe dans sa progression ?]*
 
-Jésus : Il est actuellement dans la 2ème sphère, il se dirige vers la 3ème.
+<u>Jésus</u> : Il est actuellement dans la 2ème sphère, il se dirige vers la 3ème.
 
 *[<u>Michael</u> : Jésus, je te remercie humblement de t’être joint à nous. Nous t’aimons beaucoup et te remercions pour ton aide et ta patience. Je n’ai pas de question particulière, je suis ouvert aux conseils que tu serais prêt à nous donner en ce moment.]*
 
@@ -111,7 +111,7 @@ Jésus : Il est actuellement dans la 2ème sphère, il se dirige vers la 3ème.
 
 *[<u>Dave</u> : Que Dieu vous bénisse, vous et tous ceux qui sont ici. Peut-être qu’ils iront déjeuner aussi. (rires)]*
 
-*[Médium prie à haute voix : Cher Dieu, je T’en prie, élève mes pensées et mes désirs pour ne penser qu’à Toi et aux vérités que Tu nous apporteras aujourd’hui par l’intermédiaire de Tes anges célestes. Je demande de mettre de côté ma volonté et mes désirs pour laisser tes anges faire passer les vérités comme ils le peuvent, pour nous aider à grandir spirituellement et à savoir comment mieux servir tes enfants et leur besoin d’amour. Je prie pour que la foi dans le pouvoir de Ton amour guérisse et apporte la plénitude et la bonté dans nos vies. Et je prie pour que la foi dans le pouvoir de Ton Amour fasse de moi un canal pour la vérité seulement. S’il te plaît, protège-nous de toute influence inférieure qui pourrait vouloir nous faire du mal. Je T’aime.]*
+[Médium prie à haute voix : Cher Dieu, je T’en prie, élève mes pensées et mes désirs pour ne penser qu’à Toi et aux vérités que Tu nous apporteras aujourd’hui par l’intermédiaire de Tes anges célestes. Je demande de mettre de côté ma volonté et mes désirs pour laisser tes anges faire passer les vérités comme ils le peuvent, pour nous aider à grandir spirituellement et à savoir comment mieux servir tes enfants et leur besoin d’amour. Je prie pour que la foi dans le pouvoir de Ton amour guérisse et apporte la plénitude et la bonté dans nos vies. Et je prie pour que la foi dans le pouvoir de Ton Amour fasse de moi un canal pour la vérité seulement. S’il te plaît, protège-nous de toute influence inférieure qui pourrait vouloir nous faire du mal. Je T’aime.]
 
 <u>Jésus</u> : Je suis ici avec vous maintenant, mes chers frères et sœurs, je suis votre ami et Maître, Jésus et je souhaite poser en ce moment vos questions spirituelles auxquelles, avec tout l’amour de mon âme, je pourrais répondre pour aider à apporter la vérité et la guérison dans vos vies.
 
@@ -155,7 +155,7 @@ Cherchez dans votre cœur chaque jour l’amour que vous avez là, qui brille et
 
 *[<u>Bill</u> : Hé, merci.]*
 
-<u>Kathryn</u> : Enlève-lui ses marteaux.
+*[<u>Kathryn</u> : Enlève-lui ses marteaux.]*
 
 *[<u>Holly</u> : Maître, j’ai une question. Une question vraiment stupide, mais pardonnez-moi si c’est le cas. Je réalise qu’en cherchant l’Amour Divin, ce n’est pas tant le temps que nous passons à prier, mais le temps que nous passons à le recevoir. La finalité de la réception est plus importante que la prière constante. Donc, j’ai toujours été curieusee, parce que nous n’avons pas de cartes ici sur terre pour dire, eh bien, où êtes-vous ? Quand vous passez, si vous êtes dans la cinquième sphère, vous savez jusqu’où vous devez aller, n’est-ce pas ? Mais, si vous êtes sur terre, vous ne savez pas où vous êtes ; et je veux savoir s’il y a un moyen de mesurer l’extrémité réceptrice ? Combien de temps nous faudra-t-il pour atteindre les Cieux célestes ? Je veux dire, je fais une blague à ce sujet, je suis dans les enseignements depuis 22 ans, mais pourtant j’ai dit à un ami que j’ai probablement reçu environ 10 minutes d’Amour Divin en 22 ans, vous savez, juste constamment 10 minutes. Si nous pouvions le mesurer, la fin de la réception, parlons-nous de trois mois de réception constante de l’Amour Divin pour arriver aux Cieux Célestes ? Combien de temps faut-il pour passer par la transformation ? Je me suis toujours demandé s’il y avait une telle réponse. Je suis juste curieux.]*
 
@@ -257,7 +257,7 @@ Jésus : As-tu prié pour elle ?
 
 <u>Jesus</u> : Uh-huh.
 
-*[Dave : Oh merveilleux ! Et à quel point ces deux-là sont-ils proches ?]*
+*[<u>Dave</u> : Oh merveilleux ! Et à quel point ces deux-là sont-ils proches ?]*
 
 <u>Jésus</u> : Jessie est dans la cinquième. Abey est dans la troisième.
 
@@ -307,9 +307,11 @@ Jésus : As-tu prié pour elle ?
 
 *[<u>Doug</u> : Les sourcils de Michael sont levés ici. Serait-il possible de nous donner un nombre précis de millions d’années que Amon et Aman ont vécu, et ensuite je me tairai.]*
 
-<u>Jésus</u> : Plus de 70. (Doug ouvre la bouche, voulant parler). Carolyn interjette : « Tais-toi. »
+<u>Jésus</u> : Plus de 70. (Doug ouvre la bouche, voulant parler). 
 
-*[<u>Kathryn<u> : Au tour de Bill.]*
+*[<U>Carolyn interjette</u> : « Tais-toi. »]*
+
+*[<u>Kathryn</u> : Au tour de Bill.]*
 
 *[<u>Dave</u> : (Continue de rire doucement) OK, Bill.]*
 
@@ -437,11 +439,11 @@ Jésus : As-tu prié pour elle ?
 
 <u>Jésus</u> : Je vous encourage à essayer de travailler ensemble, à communiquer plus souvent ensemble, à chercher l’aide des autres. Si vous avez juste besoin de conseils, parler avec quelqu’un qui prie pour l’Amour Divin et qui a foi en cet Amour pour guérir et nous montrer le chemin, est très important, c’est une ressource précieuse. C’est pourquoi je vous encourage à vous tenir la main, souvent. Nous vous aimons tellement et nous voulons que vous ressentiez cet Amour chaque jour de cette année. Je vous remercie de m’avoir donné l’occasion de partager avec vous aujourd’hui et j’espère que vous repartirez tous plus forts et plus clairs sur la manière de mener à bien votre mission, qui est de mettre cet Amour au monde. Vous êtes l’Amour dans ce monde, s’il vous plaît, voyez vous ainsi. Je vous aime.
 
-T<u>ous</u> : Oh, nous vous aimons aussi !
+*[<u>Tous</u> : Oh, nous vous aimons aussi !]*
 
 *[<u>Dave</u> : Et nous aimons tous les esprits. Que Dieu vous bénisse tous d’être venus aujourd’hui. Je vous remercie. Amen, amen. Et que Dieu bénisse notre merveilleux Médium (applaudissements tout autour). Merci. Vous ne nous avez jamais laissé tomber.]*
 
-*[Fin de la séance de transe.]*
+Fin de la séance de transe.
 
 
 ### [**Lien vers les messages des années 1995 à 1999**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/)

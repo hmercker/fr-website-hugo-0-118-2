@@ -205,7 +205,6 @@ Judas | [Les deux frères](/fr-contemporary-messages/fr-contemporary-messages-by
 Jésus | [Leçon 20 : Il faut davantage d’âmes dévouées pour construire des portails et étendre le treillis de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-12-1-af-jesus/) | 12 Août 2022
 Augustin | [La pression de la résistance au changement s'accentue](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-12-2-af-augustine/) | 12 Août 2022
 Orion | [C’est le moment d’être libre !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-13-1-af-orion/) | 13 Août 2022
-Orion | [Lever tous les obstacles à une plus grande lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-13-2-af-orion/) | 13 Août 2022
 Jésus | [La porte est ouverte pour chacun de nous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-14-1-af-jesus/) | 14 Août 2022
 Jésus | [Leçon 21 : Les joies profondes de l’éveil de l’âme !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-16-1-af-jesus/) | 16 Août 2022
 Michael Collier  | [La chance d'avoir une communauté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-16-2-af-michael-collier/) | 16 Août 2022

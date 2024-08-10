@@ -41,7 +41,7 @@ Jésus explique ensuite la vérité réelle de la vie sur terre et ce qu'elle si
 
 > Lorsque les hommes réaliseront qu'ils sont les enfants du Père et qu'ils sont sous Sa protection et Ses soins, ils se rendront compte qu'ils doivent mener une vie qui les rendra aptes à l'unité avec le Père et leur permettra de participer à Son amour, ce qui les rendra en quelque sorte partie intégrante de Lui. Je veux dire par là que tous les êtres humains ont la possibilité de faire partie de l'Essence divine, mais que pour participer à cette divinité, ils doivent laisser l'amour du Père dans sa forme la plus élevée pénétrer dans leur âme et les laisser devenir un avec Lui. Aucun amour qu'ils se donneraient mutuellement, en tant que création du Père, ne leur permettrait d'atteindre cet état sublime.
 
-[Le 15 septembre 1914](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-15-1-jep-ann-rollins/), Anne Rollins a écrit sur la Nouvelle Naissance :
+[Le 15 Septembre 1914](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1914/fr-1914-9-15-1-jep-ann-rollins/), Anne Rollins a écrit sur la Nouvelle Naissance :
 
 > La Renaissance (Nouvelle Naissance) est l'infusion de l'Amour Divin dans votre âme et la dissolution de tout ce qui a tendance à détourner votre cœur de la vérité et de l'amour de Dieu. Elle est réalisée par l'Esprit Saint, qui transmet la grâce de Dieu. Ce n'est pas un travail qui est accompli par votre propre volonté ou par votre force ; c'est l'amour de Dieu qui provoque le changement. Vous ne pouvez pas changer les mauvaises activités de votre cœur par vous-même ; mais vous pouvez prier et l'Esprit Saint viendra dans votre âme et vous verrez alors le changement.
 

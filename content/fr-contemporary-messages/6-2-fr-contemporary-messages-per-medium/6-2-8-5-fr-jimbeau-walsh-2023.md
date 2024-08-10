@@ -12,7 +12,7 @@ weight:
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Judas | [La foi au delà de la peur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-2-1-jw-judas/) | 2 Janvier 2023
-Rachel Carson | [Chaque voyage commence par un pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-6-2-jw-rachel-carson/) | 6 Janvier 2023
+Rachel Carson | [Chaque voyage commence par un pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-6-1-jw-rachel-carson/) | 6 Janvier 2023
 St François d'Assise | [Service et leadership](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-9-2-jw-st-francis-of-assisi/) | 9 Janvier 2023
 Claire d'Assise | [Créez votre vision](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-10-1-jw-clare-of-assisi/) | 10 Janvier 2023
 Judas | [Plus sur la communication avec les esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-16-1-jw-judas/) | 16 Janvier 2023
@@ -53,6 +53,7 @@ George Gurdjieff | [Restez éveillé dans l'Amour Divin](/fr-contemporary-messag
 Yogananda | [Vivez dans la grâce en dehors de vos cases](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-31-1-jw-yogananda/) | 31 Juillet 2023
 Judas | [Grands esprits et grandes âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-7-1-jw-judas/) | 7 Août 2023
 Care Darby Walsh | [Aide Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-10-1-jw-care-darby-walsh/) | 10 Août 2023
+Anne Rolins | [Influence spirituelle et loi de l’attraction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-14-1-jw-ann-rollins/) | 14 Août 2023
 Care Darby Walsh | [Marcher dans la grâce](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-21-1-jw-care-darby-walsh/) | 21 Août 2023
 Care Darby Walsh | [Faites aux autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-27-3-jw-care-darby-walsh/) | 27 Août 2023
 St Jean | [Âmes en transition](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-28-1-jw-st-john/) | 28 Août 2023

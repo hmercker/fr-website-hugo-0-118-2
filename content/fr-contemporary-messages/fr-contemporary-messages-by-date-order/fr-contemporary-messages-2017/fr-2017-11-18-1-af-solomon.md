@@ -16,8 +16,7 @@ Je suis Salomon d'autrefois. Moi aussi je vous soutiens dans votre travail et je
 Que Dieu vous bénisse, mes amis. Je suis Salomon<sup id="a1">[1](#f1)</sup>. Que Dieu vous bénisse.
 <small>
 
-1. <large id="f1"> Les différents messages communiqués  par Salomon sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-fr-old-testament-religious-figures/)[↩](#a1)
-
+1. <large id="f1"> Il est possible de lire les divers messages commuiqués par Salomon par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a1)
 
 ### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
 

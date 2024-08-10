@@ -158,7 +158,7 @@ Confucius | [Une bénédiction spéciale donnée](/fr-contemporary-messages/fr-c
 Jésus | [Vous êtes à un point tournant dans votre service à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-7-31-2-af-jesus/) | 31 Juillet 2018
 André | [Chaque âme est unique et fleurit dans la vérité de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-1-1-af-andrew/) | 1<sup>er</sup> Août 2018
 St Luc & Seretta Kem | [Orientation V.D (Seretta Kem) et être au service (Luc)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-5-1-af-st-luke-seretta-kem/) | 5 Août 2018
-Solomon | [La confiance dans la sagesse de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-6-1-af-solomon/) | 6 Août 2018
+Salomon | [La confiance dans la sagesse de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-6-1-af-solomon/) | 6 Août 2018
 Marc | [Le choix de connaître Dieu vous appartient](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-8-1-af-mark/) | 8 Août 2018
 Seretta Kem | [Apportez vos désirs de servir à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-8-2-af-seretta-kem/) | 8 Août 2018
 Alec Gaunt | [Conseils personnels pour la retraite de médiumnité de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-8-3-af-alec-gaunt/) | 8 Août 2018

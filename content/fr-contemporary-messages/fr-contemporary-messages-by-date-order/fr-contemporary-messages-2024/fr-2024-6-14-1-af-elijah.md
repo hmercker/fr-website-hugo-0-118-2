@@ -24,7 +24,7 @@ Vous êtes les agents de Dieu et il est important que vous le reconnaissiez, âm
 Puissiez-vous être béni en amour. Béni avec une âme éveillée. Béni par la force et l’humilité, la grâce et la Lumière qui accompagnent Son Amour. Que vous, votre vrai moi, serez pleinement réalisé, ouvert et exprimé dans ce monde. Que Dieu vous bénisse, âmes bien-aimées. Je m’appelle Elie et je vous aime tendrement. Car vous êtes les gardiens de la vérité, la flamme de l’amour, le chemin de la lumière. Soyez vraiment cet individu. Marchez sur le chemin de l’Amour et tout vous sera donné par Dieu à mesure que vous progresserez dans la Lumière de la Vérité, dans l’Amour de Sa grâce et de Son Toucher sur vous. Que Dieu vous bénisse. Que Dieu vous bénisse tous, bien-aimés, dans la paix qui dépasse toute intelligence. Dans tout cela, Dieu coule sur vous et vous ouvre en conséquence. Que Dieu vous bénisse. Que Dieu vous bénisse, bien-aimés. Mon amour est avec vous.
 <small> 
 
-1. <large id="f1"> Les différents messages communiqués  par Élie sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-fr-old-testamenent-religious-figures/)[↩](#a1)
+1. <large id="f1"> Les différents messages communiqués  par Élie sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-fr-old-testament-religious-figures/)[↩](#a1)
                                                                 
 2. <large id="f2"> Fiat : Approbation.[↩](#a2)
 

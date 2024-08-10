@@ -13,7 +13,7 @@ Il fut lui aussi un des premiers membres de la communauté de l’Amour Divin en
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-Exposé de Dave Lampron | [Quelle est la substance la plus précieuse qui existe ?](/fr-contemporary-messages\fr-contemporary-messages-by-date-order\fr-contemporary-messages-1984-1994\fr-1985-1-dl-presentation-by-dl/) |   1985
+Exposé de Dave Lampron | [Quelle est la substance la plus précieuse qui existe ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1985-1-dl-presentation-by-dl/) |   1985
 Jésus | [Premier message à Dave Lampron](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1986-4-9-1-dl-jesus/) | 9 Avril 1986
 Jésus | [La loi de la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1986-7-8-1-dl-jesus/) | 8 Juillet 1986
 Jésus | [Né sans péché](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1986-8-28-1-dl-jesus/) | 28 Août 1986

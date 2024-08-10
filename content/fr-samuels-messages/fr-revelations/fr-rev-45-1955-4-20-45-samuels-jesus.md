@@ -38,4 +38,4 @@ Je pense que j’ai assez écrit pour ce soir sur le sujet et je conclurai avec 
 Votre ami et frère, Jésus de la Bible et Maître des Cieux Célestes.
 <small>
 
-1. <large id="f1"> Ceci est la tarduction littérale du texte originel *« without a great effort on the part of sin »*. Pour ma part, je remplacerais « péché » par « pécheur » bien que Jésus emploie très rarement cette expression. Au-delà des mots, il est donc essentiel de s'attaher au sens de la phrase.[↩](#a1)
+1. <large id="f1"> Ceci est la traduction littérale du texte originel *« without a great effort on the part of sin »*. Pour ma part, je remplacerais « péché » par « pécheur » bien que Jésus emploie très rarement cette expression. Au-delà des mots, il est donc essentiel de s'attaher au sens de la phrase.[↩](#a1)
