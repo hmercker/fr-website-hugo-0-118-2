@@ -22,4 +22,3 @@ Pour recevoir une invitation aux cercle de priere en anglais envoyer un email a 
 Alors qu attendez vous ?
 
 A bientot !
-

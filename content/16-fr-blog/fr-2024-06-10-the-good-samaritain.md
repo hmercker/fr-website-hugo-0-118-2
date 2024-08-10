@@ -73,5 +73,3 @@ Jésus a essayé d’expliquer qu’à côté de la chose la plus évidente, il 
 <small>
 
 1. <large id="f1"> <u>Note</u> : Cette émission n’est disponible, en replay, sur France2, que jusqu’au 8 Juillet 2024.[↩](#a1)
-
-
