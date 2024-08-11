@@ -84,5 +84,10 @@ Orion | [La prière est l'outil essentiel de transformation ](/fr-contemporary-m
 George | [Adaptez-vous, enfants de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-31-1-em-george/) | 31 Mars 2024
 Jean - 7ème Sphérien | [Merci de nous avoir invités à prier avec vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-31-2-em-john-7th-spherian/) | 31 Mars 2024
 Jean le Bien Aimé | [Prière continue](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-1-1-em-john-the-beloved/) | 1 Avril 2024
+Jean le Baptiste | [Confirme le message de Jésus pour le fête des pères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-16-1-em-john-the-baptist/) | 16 Juin 2024
+Jeanne d'Arc | [Permettez à Dieu d'être connecté à vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-23-1-em-joan-of-arc/) | 23 Juin 2024
+Bartholomée | [Vous connaîtrez le but et la raison de ce cercle ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-27-1-em-bartholomew/) | 27 Juin 2024
+Moïse | [Un chercheur reçoit une invitation ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-30-4-em-moses/) | 30 Juin 2024
+
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

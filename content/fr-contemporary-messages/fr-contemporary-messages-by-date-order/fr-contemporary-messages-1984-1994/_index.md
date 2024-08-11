@@ -15,6 +15,7 @@ Jésus | [Au sujet de la prière](/fr-contemporary-messages/fr-contemporary-mess
 Jésus | [Une clarication concernant Swenderborg](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1984-2-1-1-vs-jesus/) | 1<sup>er</sup> Février 1984
 Jésus | [Garder la Foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1984-7-18-1-ks-jesus/) | 18 Juillet 1984
 Jésus | [Désir de vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1984-12-10-1-ks-jesus/) | 10 Décembre 1984
+Exposé de Dave Lampron | [Quelle est la substance la plus précieuse qui existe ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-undated/fr-1985-1-dl-presentation-by-dl/) |   1985
 Jésus | [Les vérités du Père](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1985-1-ks-jesus/) |   1985
 Jésus | [L'Avortement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1985-6-30-1-ar-jesus/) | 30 Juin 1985
 Jésus | [Premier message à Dave Lamprom](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1986-4-9-1-dl-jesus/) | 9 Avril 1986

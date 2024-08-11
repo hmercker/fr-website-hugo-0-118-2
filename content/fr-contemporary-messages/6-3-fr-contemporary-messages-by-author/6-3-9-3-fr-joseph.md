@@ -8,7 +8,7 @@ weight:
 ---
 ### Joseph
 
-Joseph a longtmps été assailli de doutes au sujet de la mission de son fils. En effet, par suite de son éducation Juive, Joseph était attaché à la compréhension que le messie viendrait pour créer un royaume physique. Au temps de Jésus, les Juifs souffraient énormémnt de l'occupation Romaine. Tout leur espoir reposait donnc sur la croyance que le Messie, lors de sa venue, chaserait l'occupant Romain. Alors que plusieurs des frères de Jésus étaient engagés dans différents mouvements de lutte contre l'occupant Romain, Jésus refusait obstinément d'y prendre part. Et Joseph ne pouvait pas cmprendre une telle attitude.
+Joseph a longtmps été assailli de doutes au sujet de la mission de son fils. En effet, par suite de son éducation Juive, Joseph était attaché à la compréhension que le messie viendrait pour créer un royaume physique. Au temps de Jésus, les Juifs souffraient énormémnt de l'occupation Romaine. Tout leur espoir reposait donnc sur la croyance que le Messie, lors de sa venue, chaserait l'occupant Romain. Alors que plusieurs des frères de Jésus étaient engagés dans différents mouvements de lutte contre l'occupant Romain, Jésus refusait obstinément d'y prendre part. Et Joseph ne pouvait pas comprendre une telle attitude.
 
 De plus, étant enfant, Jésus disait qu'il sortait pour rencontrer son ami. Or, lorsque Joseph observait Jésus, il le voyait jouer seul. Il était donc difficile pour Joseph de comprendre Jésus. Marie quant à elle, pensait que Jésus traversait une phase de mysticisme et que cela disparaitrait avec le temps.
 

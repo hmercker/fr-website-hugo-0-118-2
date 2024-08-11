@@ -309,7 +309,7 @@ Jésus : As-tu prié pour elle ?
 
 <u>Jésus</u> : Plus de 70. (Doug ouvre la bouche, voulant parler). 
 
-*[<U>Carolyn interjette</u> : « Tais-toi. »]*
+*[<U>Carolyn intervient</u> : « Tais-toi. »]*
 
 *[<u>Kathryn</u> : Au tour de Bill.]*
 
@@ -331,7 +331,7 @@ Jésus : As-tu prié pour elle ?
 
 *[<u>Bill</u> : Obtenir des éclaircissements sur les messages pour que je puisse les comprendre.]*
 
-<u>Jésus<u> : Quel message ?
+<u>Jésus</u> : Quel message ?
 
 *[<u>Bill</u> : Cela concernait l’improbabilité d’aider les esprits chargés négativement, ou les esprits négatifs, parce qu’il y a des lois supérieures qui contrôlent la situation. Donc, dans de nombreux cas, malgré le fait que vos intentions sont bonnes et que vous pensez avoir un moyen de les aider, que cela ne va tout simplement pas marcher, vous perdez votre temps. Il y a des références dans le deuxième paragraphe sur l’effet que ces esprits ont sur vous, c’est en quelque sorte de transformer votre … Je pensais que c’était un saut quantique dans une autre orbite, elle a en fait utilisé ce langage.]*
 

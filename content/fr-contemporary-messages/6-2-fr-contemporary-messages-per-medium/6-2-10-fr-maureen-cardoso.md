@@ -103,8 +103,11 @@ Faith | [Attribut d'âme de la foi](/fr-contemporary-messages/fr-contemporary-me
 Jésus | [Le voyage de la Nouvelle Naissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-4-2-mc-jesus/) | 4 Février 2023
 Seretta Kem | [Dernières recommandations](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-5-1-mc-seretta-kem/) | 5 Février 2023
 Seretta Kem | [Intégration du portail](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-9-1-mc-seretta-kem/) | 9 Février 2023
-
 Marie | [La transformation apportée par la grâce de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-10-1-mc-mary/) | 10 Janvier 2024
 Goldie | [La substance de la JOIE ! ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-14-1-mc-goldie/) | 14 Février 2024
+Barbara Davies | [Apportez vos obstacles à Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-15-2-mc-barbara-davies/) | 15 Février 2024
+Augustin | [Nous accueille et ouvre le cercle de développement en ligne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-9-2-mc-augustine/) | 9 Mars 2024
+Seretta Kem | [Découverte des attributs de l'âme ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-13-1-mc-seretta-kem/) | 13 Avril 2024
+Marie | [Vous servez le Ciel et la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-30-3-mc-mary/) | 30 Juin 2024
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)
