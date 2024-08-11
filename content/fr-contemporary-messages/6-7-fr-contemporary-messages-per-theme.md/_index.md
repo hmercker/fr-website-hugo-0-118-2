@@ -12,3 +12,5 @@ weight: 370
 Comme vous avez pu découvrir le classement des messages contemporains par ordre chronologique ou selon l’auteur qui a émis le message, nous vous proposons de découvrir le classement des messages contemporains selon leur  thème.  
 
 1.	[Messages d'introduction aux enseignements](/fr-contemporary-messages/6-7-fr-contemporary-messages-per-theme/6-7-1-fr-introductory-teachings-messages/)
+2.	[L'Amour Divin ](/fr-contemporary-messages/6-5-fr-contemporary-messages-per-theme/6-5-2-fr-divine-love-teachings-messages/)
+3.	[La prière](/fr-contemporary-messages/6-5-fr-contemporary-messages-per-theme/6-5-3-fr-prayer-teachings-messages/) 
