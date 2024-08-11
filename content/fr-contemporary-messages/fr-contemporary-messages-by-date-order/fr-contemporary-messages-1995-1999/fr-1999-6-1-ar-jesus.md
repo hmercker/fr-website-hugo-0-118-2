@@ -351,7 +351,7 @@ Jésus : As-tu prié pour elle ?
 
 *[<u>Susan</u> : J’aimerais remercier mes frères et soeurs de m’avoir invitée ici cet après-midi. Merci. Et Jésus, j’aimerais juste vous demander si vous avez quelque chose à me dire ?]*
 
-<u>Jésus<u> : Ma chère Susan, je te remercie d’être ici. Tu as montré une foi énorme dans l’amour de tes frères et sœurs pour toi, et je te suis très reconnaissant de leur avoir donné, ainsi qu’à nous, l’occasion de t’aimer par ta présence, en étant ici. Je te remercie.
+<u>Jésus</u> : Ma chère Susan, je te remercie d’être ici. Tu as montré une foi énorme dans l’amour de tes frères et sœurs pour toi, et je te suis très reconnaissant de leur avoir donné, ainsi qu’à nous, l’occasion de t’aimer par ta présence, en étant ici. Je te remercie.
 
 *[<u>Susan</u> : Merci.]*
 
