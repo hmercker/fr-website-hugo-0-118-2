@@ -16,3 +16,6 @@ Les messages suivants ont pour but de vous familiariser avec les enseignements d
 Jésus | [Il commence à l'ouest et s'étend dans le monde entier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-11-23-1-af-jesus/) | 23 Novembre 2015
 Jésus | [Le ministère de Jésus et les enseignements de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-2-1-af-jesus/) | 2 Avril 2016
 Jésus | [Aimer avec le cœur d'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-6-27-2-af-jesus/) | 27 Juin 2016
+Jésus | [Vous cherchez la paix qui dépasse toute compréhension](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-3-4-1-af-jesus/) | 4 Mars 2019
+Jésus | [L’Amour est mon message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-3-14-2-af-jesus/) | 14 Mars 2019
+Jésus | [Ouvrez-vous à ce don de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-5-6-1-af-jesus/) | 6 Mai 2019

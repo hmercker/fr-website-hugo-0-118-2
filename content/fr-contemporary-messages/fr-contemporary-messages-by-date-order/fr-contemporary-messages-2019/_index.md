@@ -32,7 +32,7 @@ Seretta Kem | [Soyez patient alors que l’Amour Divin grandit dans votre âme](
 Augustin | [Dire les vérités de Dieu en termes simples et aimants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-20-2-af-augustine/) | 20 Janvier 2019
 St Luc | [La prière pour l'Amour Divin est le Noyau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-20-3-af-st-luke/) | 20 Janvier 2019
 Martha | [Soyez ouverts et réceptifs à ce que nous faisons - Que chacun de vous puisse donner à chacun de vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-20-4-af-martha/) | 20 Janvier 2019
-Augustin | [Chemin de l’Amour Divin et Chemin de l’Amour Naturel.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-21-1-af-augustine/) | 21 Janvier 2019
+Augustin | [Chemin de l’Amour Divin et Chemin de l’Amour Naturel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-21-1-af-augustine/) | 21 Janvier 2019
 Jésus | [Jésus apporte une bénédiction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-21-2-mc-jesus/) | 21 Janvier 2019
 Albert Einstein | [De nombreux scientifiques en esprit travaillent à l'établissement de meilleures communications entre les mondes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-25-1-af-albert-einstein/) | 25 Janvier 2019
 St Matthieu | [Quel est le désir de votre âme en termes de vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-25-2-af-st-matthew/) | 25 Janvier 2019
@@ -256,7 +256,7 @@ Marie | [Bénissez les enfants dans l'Amour de Dieu](/fr-contemporary-messages/f
 Augustin | [Le plan de Dieu sera mis en œuvre par nos actions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-2-2-af-augustine/) | 2 Septembre 2019
 Yogananda | [La pauvreté de l'Occident](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-2-3-jw-yogananda/) | 2 Septembre 2019
 Jésus | [Continuer à viser le plus haut](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-2-4-af-jesus/) | 2 Septembre 2019
-Martin Luther | [Servir et donner est réciproque](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-2-5-af-martin-luther/) | 2 Septembre 2019
+Martin Luther | [Servir et donner sont réciproques](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-2-5-af-martin-luther/) | 2 Septembre 2019
 André | [Ne pas juger les autres mais les accepter et les embrasser](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-3-1-af-andrew/) | 3 Septembre 2019
 St François d'Assise | [C'est à vous de choisir si vous apportez la lumière ou l'obscurité à ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-3-2-af-st-francis-of-assisi/) | 3 Septembre 2019
 Yogananda | [Élevez vos pensées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-4-1-jw-yogananda/) | 4 Septembre 2019
