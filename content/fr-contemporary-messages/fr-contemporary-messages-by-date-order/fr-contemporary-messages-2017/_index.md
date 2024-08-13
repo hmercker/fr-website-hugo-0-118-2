@@ -47,7 +47,7 @@ Jésus | [S'abreuver aux eaux de l'Amour de Dieu](/fr-contemporary-messages/fr-c
 Augustin | [Le désir de l’âme est une prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-21-1-af-augustine/) | 21 Mai 2017
 Marie | [Je vous réunirai](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-21-2-af-mary/) | 21 Mai 2017
 Icarius | [Apprenez à connaître votre propre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-21-3-af-icarius/) | 21 Mai 2017
-André | [Permettez à Dieu de vous utiliser comme Son canal d’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-22-1-af-andrew/) | 22 Mai 2017
+André | [Permettez à Dieu de vous utiliser comme Son canal d’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-22-1-af-andrew/) | 22 Mai 2017
 Seretta Kem | [Préparatifs pour la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-25-1-af-seretta-kem/) | 25 Mai 2017
 Seretta Kem | [Suite de l’orientation par la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-26-1-af-seretta-kem/) | 26 Mai 2017
 Jésus | [La bénédiction de Dieu par Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-6-4-1-af-jesus/) | 4 Juin 2017

@@ -9,6 +9,8 @@ weight:
 ---
 ###   Le chemin de l'éveil de l'âme
 
+Nous avons ici quelques messages qui décrivent le voyage de l’éveil de l’âme. Il existe de nombreux autres messages sur ce sujet que vous pouvez afficher par [ce lien](9-fr-topical-subjects\9-3-1-fr-awakening-of-the-soul-and-the-purification-of-the-soul.md).
+
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 André | [Il est encore temps de réveiller vos âmes par l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-12-1-1-af-andrew/) | 1<sup>er</sup> Décembre 2018

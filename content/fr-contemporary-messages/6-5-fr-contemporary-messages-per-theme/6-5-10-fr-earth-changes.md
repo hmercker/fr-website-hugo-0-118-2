@@ -9,6 +9,8 @@ weight:
 ---
 ###  Les Changements terrestres
 
+La totalité des messages relatifs au thème "Changements terrestres" peuvent être lus par l'intermédiaire de [ce lien](/9-fr-topical-subjects/9-5-fr-earth-changes/).
+
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 André | [Dieu prépare de nombreuses âmes à ce qui va arriver](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-4-1-1-af-andrew/) | 1<sup>er</sup> Avril 2019
@@ -27,7 +29,7 @@ Jésus | [Votre vie aura un but si vous suivez la Volonté et la Vérité de Die
 Jésus | [Sentez la sûreté de vos pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-13-1-af-jesus/) | 13 Mars 2021
 Jésus | [Leçon 1 : Changements Terrestres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-9-1-af-jesus/) | 9 Avril 2021
 Jésus | [Leçon 2 : Les Changements de la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-13-2-af-jesus/) | 13 Avril 2021
-Jésus | [Comment je vous aime](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-2-4-jw-jesus/) | 2 Juin 2021
+Jésus | [Comme je vous aime](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-2-4-jw-jesus/) | 2 Juin 2021
 Keea Atta Kem | [Une allocution sérieuse sur le changement des conditions de la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-15-1-af-keea-atta-kem/) | 15 Mars 2020
 Lao Tseu | [Le grand potentiel de l'âme doit être découvert par tous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-13-5-af-lao-tzu/) | 13 Mars 2020
 Marie | [Le changement nécessaire pour le monde commencera par les enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-8-20-3-af-mary/) | 20 Août 2015

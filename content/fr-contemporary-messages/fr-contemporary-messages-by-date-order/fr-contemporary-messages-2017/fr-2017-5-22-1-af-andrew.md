@@ -1,13 +1,13 @@
 ---
-title: "Permettez à Dieu de vous utiliser comme Son canal d’amour"
+title: "Permettez à Dieu de vous utiliser comme Son canal d’Amour"
 menu_title: ""
-description: "Permettez à Dieu de vous utiliser comme Son canal d’amour"
+description: "Permettez à Dieu de vous utiliser comme Son canal d’Amour"
 date: 2022-06-01 06:00:01+00:38
 draft: False
 hidden: True
 weight:
 ---
-### Permettez à Dieu de vous utiliser comme Son canal d’amour
+### Permettez à Dieu de vous utiliser comme Son canal d’Amour
 
 André - reçu par Al Fike le 22 Mai 2017, Bend, Oregon, USA
 

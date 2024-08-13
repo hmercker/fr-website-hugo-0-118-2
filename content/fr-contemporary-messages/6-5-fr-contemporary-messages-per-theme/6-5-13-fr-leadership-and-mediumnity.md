@@ -12,7 +12,7 @@ weight:
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Alec Gaunt | [Conseils personnels pour la retraite de médiumnité de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-8-3-af-alec-gaunt/) | 8 Août 2018
-André | [Permettez à Dieu de vous utiliser comme Son canal d’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-22-1-af-andrew/) | 22 Mai 2017
+André | [Permettez à Dieu de vous utiliser comme Son canal d’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-22-1-af-andrew/) | 22 Mai 2017
 André | [Exigences fondamentales de la communication et de la relation avec les esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-4-8-1-af-andrew/) | 8 Avril 2019
 Augustin | [Médiumnité, dons et être un canal d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-4-5-2-af-augustine/) | 5 Avril 2019
 Augustin | [Clarification de la façon dont notre esprit interprète mal les directives](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-5-10-1-af-augustine/) | 10 Mai 2019

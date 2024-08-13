@@ -9,6 +9,8 @@ weight:
 ---
 ###  Le libre arbitre et les lois spirituelles
 
+Les messages suivants nous permettent de mieux comprendre le pouvoir du libre arbitre et la manière dont il influence notre destin et notre vie sur terre et au-delà. Spirituelles. Nous abordons également brièvement les lois spirituelles, mais nous vous recommandons de visiter [ce lien](10-fr-spiritual-subjects\10-1-fr-spiritual-laws) pour explorer d'autres informations que nous avons reçues sur ce sujet.
+
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Aaron | [Soyez l'agent actif de Dieu pour le changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-9-3-af-aaron/) | 9 Juillet 2019
