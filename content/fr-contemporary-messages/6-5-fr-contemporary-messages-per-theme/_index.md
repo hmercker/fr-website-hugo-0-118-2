@@ -24,6 +24,6 @@ Comme vous avez pu découvrir le classement des messages contemporains par ordre
 11.	[Le treillis de lumière](/fr-contemporary-messages/6-5-fr-contemporary-messages-per-theme/6-5-11-fr-the-lattice-of-light/)
 12.	[Messages d'orientation et d'inspiration](/fr-contemporary-messages/6-5-fr-contemporary-messages-per-theme/6-5-12-fr-messages-of-guidance-and-inspiration/)
 13.	[Leadership et médiumnité](/fr-contemporary-messages/6-5-fr-contemporary-messages-per-theme/6-5-13-fr-leadership-and-mediumnity/)
-14.	[Questions et réponses](/fr-contemporary-messages/6-5-fr-contemporary-messages-per-theme/6-5-14-fr-questions-and-answers./) 
-15.	[Autrs](/fr-contemporary-messages/6-5-fr-contemporary-messages-per-theme/6-5-7-fr-others/) 
+14.	[Questions et réponses](/fr-contemporary-messages/6-5-fr-contemporary-messages-per-theme/6-5-14-fr-questions-and-answers/) 
+15.	[Autres](/fr-contemporary-messages/6-5-fr-contemporary-messages-per-theme/6-5-15-fr-others/)
 
