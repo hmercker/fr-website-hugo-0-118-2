@@ -102,6 +102,7 @@ Jeanne d'Arc | [Prier ensemble illumine le monde ](/fr-contemporary-messages/fr-
 Anna et Jeanne d'Arc | [Cette lumière atteint des coins qu'elle n'a jamais atteints auparavant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-19-1-em-anna-and-joan-of-arc/) | 19 Février 2024
 Jacques | [Vous devez comprendre le pouvoir de votre libre arbitre ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-20-1-af-james/) | 20 Février 2024
 Isaïe | [La puissante essence de Dieu sera donnée à chacun de vous avec force ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-20-2-af-isaiah/) | 20 Février 2024
+Jesus | [Je  vous aime profondément](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-20-3-af-jesus/) | 20 Février 2024
 Pierre | [Ce que vous faites aujourd’hui touchera beaucoup de personnes ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-21-2-em-peter/) | 21 Février 2024
 Jeanne d'Arc | [Instruction sur la façon d’ÊTRE ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-22-1-em-joan-of-arc/) | 22 Février 2024
 Marie | [Le grand consolateur de l’Amour de Dieu est sur nous tous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-23-1-af-mary/) | 23 Février 2024
@@ -233,6 +234,7 @@ Moïse | [Un chercheur reçoit une invitation ](/fr-contemporary-messages/fr-con
 Confucius | [Poursuivre le voyage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-1-1-af-confucius/) | 1 Juillet 2024
 Yogananda | [Créer un sanctuaire dans une communauté de cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-1-3-jw-yogananda/) | 1 Juillet 2024
 Augustin | [Suivre la volonté de Dieu et la loi de progression ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-5-1-af-augustine/) | 5 Juillet 2024
+Orion | [S'adapter aux changements de la Terre et recevoir des conseils sur les changements à venir x](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-6-1-af-orion/) | 6 Juillet 2024
 Care Darby Walsh | [Détente spirituelle, sanctuaire et responsabilité personnelle ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-8-1-jw-care-darby-walsh/) | 8 Juillet 2024
 Orion | [Nous supplie d'être dans la Conscience de l'Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-13-1-af-orion/) | 13 Juillet 2024
 Elizabeth| [Laissez l'Amour de Dieu vous guider](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-15-1-jw-elizabeth/) | 15 Juillet 2024

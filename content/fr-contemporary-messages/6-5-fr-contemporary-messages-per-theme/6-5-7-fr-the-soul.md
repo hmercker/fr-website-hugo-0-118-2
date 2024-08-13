@@ -16,7 +16,7 @@ Cependant, pour se reconnaître et se définir comme une entité indépendante, 
 
 Suit ici un traité qui fournit plus d’informations sur l’âme. Nous avons essayé de diviser les nombreux messages en différents thèmes, ce qui était parfois difficile car les faits étaient parfois répétés. Nous vous recommandons également d’en savoir plus sur « L’Âme » ici et sur cette page.
 
-Caractéristiques (structure et facultés)
+**Caractéristiques (structure et facultés)**
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
