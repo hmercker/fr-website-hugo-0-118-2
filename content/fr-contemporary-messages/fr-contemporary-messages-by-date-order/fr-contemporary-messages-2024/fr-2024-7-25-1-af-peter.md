@@ -9,7 +9,7 @@ weight:
 ---
 ### Atteindre la conscience de l’âme
 
-Pierre - reçu par Albert Fike le 25 Juillet 2024, Sechelt, Colombie-Britannique, Canada.
+St Pierre - reçu par Albert Fike le 25 Juillet 2024, Sechelt, Colombie-Britannique, Canada.
 
 Âmes bien-aimées, je suis Pierre, le Rocher comme on m’appelle et je souhaite m’adresser à l’autre Pierre dans cette salle. Car il pose des questions très pertinentes sur sa propre progression de l’âme et sur son expérience avec Dieu. Je souhaite commenter ses questions et ajouter une sagesse qui peut être utile au processus de compréhension lors de l’expérience de l’âme.
 

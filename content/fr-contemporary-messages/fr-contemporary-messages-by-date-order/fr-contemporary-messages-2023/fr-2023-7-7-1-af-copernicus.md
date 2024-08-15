@@ -38,6 +38,7 @@ Ainsi, vous devenez les précurseurs d’une nouvelle ère, une ère d’illumin
 ---|---|---
 Copernic | [Vous avez toute l’éternité pour apprendre les merveilles de la création de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-9-3-af-copernicus/) | 9 Septembre 2019
 Copernic | [La mesure du temps sur Terre est très différente de celle des Cieux Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-2-2-af-copernicus/) | 2 Décembre 2019
+Copernic | [S'élancer dans la gloire de la conscience de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-28-1-af-copernicus/) | 28 Juillet 2024
 
 ### [**Lien vers les messages des années 2023**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/)
 

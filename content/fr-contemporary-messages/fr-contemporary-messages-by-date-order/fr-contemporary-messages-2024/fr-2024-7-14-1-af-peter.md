@@ -9,7 +9,7 @@ weight:
 ---
 ### La lumière qui vous entoure continue de briller
 
-Pierre - reçu par Albert Fike le 14 Juillet 2024, Sechelt, Colombie-Britannique, Canada.
+St Pierre - reçu par Albert Fike le 14 Juillet 2024, Sechelt, Colombie-Britannique, Canada.
 
 La lumière s’illumine autour de vous tous, âmes bien-aimées. Je suis Pierre, connu sous le nom de Pierre le Rocher. Je viens à vous de loin. En effet, là où je réside, il y a une harmonie et une paix telles que vous ne pouvez pas imaginer. Chacun de vous, à mesure que votre lumière brille, que vos âmes continuent d’être nourries par les Eaux Vives de l’Amour de Dieu, que vous recherchez cela avec tout le sérieux et le désir, vous trouverez un jour votre place dans les Cieux Célestes. Car c’est la route vers cet endroit, comme l’a enseigné notre frère bien-aimé et magnifique, Jésus.
 

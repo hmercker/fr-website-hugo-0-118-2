@@ -39,4 +39,6 @@ St Pierre | [Apporte un message profond et puissant](/fr-contemporary-messages/f
 St Pierre | [Le libre arbitre - la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-4-5-em-st-peter/) | 4 Octobre 2022
 St Pierre | [Venez connaitre la réalité de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-9-3-af-st-peter/) | 9 Janvier 2023
 St Pierre | [Cherchez la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-13-4-em-st-peter/) | 13 Janvier 2023
-Pierre | [La lumière qui vous entoure continue de briller](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-14-1-af-peter/) | 14 Juillet 2024
+St Pierre | [La lumière qui vous entoure continue de briller](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-14-1-af-peter/) | 14 Juillet 2024
+St Pierre | [Atteindre la conscience de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-25-1-af-peter/) | 25 Juillet 2024
+
