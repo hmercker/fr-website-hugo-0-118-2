@@ -13,4 +13,4 @@ weight: 120
 2. [Messages contemporains selon le médium de réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)
 3. [Messages contemporains par auteur](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/)
 4. [Messages contemporains par theme](/fr-contemporary-messages/6-5-fr-contemporary-messages-per-theme/)
-5. [Messages contemporains des membres décédés de la communauté de l'Amour Divin/](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/_index/)
+5. [Messages contemporains des membres décédés de la communauté de l'Amour Divin](/fr-contemporary-messages/6-4-fr-contemporary-messages-by-elders/_index/)

@@ -35,6 +35,7 @@ Archimède | [La dynamique des cercles de lumière](/fr-contemporary-messages/fr
 Bertrand Russell | [La simplicité de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-24-2-af-bertrand-russell/) | 24 Novembre 2017
 Copernic | [Vous avez toute l’éternité pour apprendre les merveilles de la création de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-9-3-af-copernicus/) | 9 Septembre 2019
 Copernic | [La mesure du temps sur Terre est très différente de celle des Cieux Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-2-2-af-copernicus/) | 2 Décembre 2019
+Copernic | [S'élancer dans la gloire de la conscience de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-28-1-af-copernicus/) | 28 Juillet 2024
 Cornelius Vanderbilt | [Un industriel américain est perdu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-1-1-fab-cornelius-vanderbilt/) | 1 Mars 2008
 Jay Gould | [Un industriel américain est malheureux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-1-2-fab-jay-gould/) | 1 Mars 2008
 John D Rockefeller | [La vie de John D. Rockefeller Senior](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-5-1-fab-john-d-rockefeller/) | 5 Février 2010

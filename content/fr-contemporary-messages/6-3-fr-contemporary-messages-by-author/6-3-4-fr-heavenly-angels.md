@@ -113,6 +113,7 @@ Martha | [La prière pour l’Amour Divin ouvre la porte à l’éveil de l’â
 Martha | [Nous sommes avec vous sur le chemin de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-26-2-af-martha/) | 26 Octobre 2018
 Martha | [Soyez ouverts et réceptifs à ce que nous faisons - Que chacun de vous puisse donner à chacun de vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-20-4-af-martha/) | 20 Janvier 2019
 Martha | [Prière d'ouverture de Konda Coast](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-1-4-af-martha/) | 1 Mars 2024
+Marthe et Serreta Kem | [Prière d’ouverture de la grande île d’Hawaï](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-27-2-af-martha-and-serreta-kem/) | 27 Février 2024
 Meera | [L’espoir change la réalité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-2-4-2-wv-meera/) | 4 Février 2004
 Meera | [Importance de la dualité et des limites](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-2-19-1-wv-meera/) | 19 Février 2004
 Mère du médium | [Dieu est juste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-8-1-fab-mother-of-medium/) | 8 Août 2007

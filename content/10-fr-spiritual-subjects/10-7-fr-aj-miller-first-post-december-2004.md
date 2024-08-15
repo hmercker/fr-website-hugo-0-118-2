@@ -5,7 +5,7 @@ description: "Premier message d'AJ Miller en Décembre 2004"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
-weight:
+weight: 630
 ---
 ### Premier message d'AJ Miller en Décembre 2004
 

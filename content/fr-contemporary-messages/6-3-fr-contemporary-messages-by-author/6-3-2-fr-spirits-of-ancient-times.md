@@ -99,3 +99,5 @@ Uharu | [Les bons et les mauvais aspects de la culture Amérindienne](/fr-contem
 Uharu | [Un concept Amérindien de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-3-1-fab-uharu/) | 3 Janvier 2008
 Uharu | [Des dispositions pour les Amérindiens dans le monde de l'esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-4-2-fab-uharu/) | 4 Septembre 2008
 [Les enseignements de Confucius](/12-fr-the-main-spiritual-teachers/12-8-fr-the-teachings-of-confucius/)
+Zoroastre | [Le fondateur de la religion zoroastrienne affirme le chemin de l'Amour Divin vers l'expiation avec Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-30-1-af-zoroaster/) | 30 Juillet 2024
+

@@ -11,9 +11,9 @@ weight:
 
 Khalil Gibran - reçu par Jimbeau Walsh le 22 Juillet 2024, Nashville, Tennesse, USA.
 
- Je suis ici, votre frère en Christ, Khalil.
+Je suis ici, votre frère en Christ, Khalil.
 
- Quelle merveille que d’avoir mis le monde de côté cette fois-ci pour permettre à votre âme, votre âme intemporelle, de s’ouvrir à l’Amour de Dieu et à la guidance des anges. Le souvenir d’hier ramène le cœur dans le moment présent et le désir de demain s’étend dans le présent. Car si le monde vit dans le passé, le présent et le futur, l’âme, elle, est toujours dans le présent. Lorsque la grâce de Dieu éveille votre âme, vous apportez chaque moment de votre marche aux autres, les touchant avec le « toujours maintenant » du grand amour du Créateur. En effet, ne réservez-vous pas du temps pour beaucoup de choses ? C’est la façon de faire du monde et pourtant, lorsque vous êtes dans votre âme, vous êtes toujours dans l’instant présent. Vous pouvez le voir dans les jeux des enfants, qui ne pensent à rien d’autre qu’au moment où ils s’amusent en compagnie les uns des autres, en jouant. Vous pouvez le sentir dans les notes d’un musicien plongé dans une mélodie divine.
+Quelle merveille que d’avoir mis le monde de côté cette fois-ci pour permettre à votre âme, votre âme intemporelle, de s’ouvrir à l’Amour de Dieu et à la guidance des anges. Le souvenir d’hier ramène le cœur dans le moment présent et le désir de demain s’étend dans le présent. Car si le monde vit dans le passé, le présent et le futur, l’âme, elle, est toujours dans le présent. Lorsque la grâce de Dieu éveille votre âme, vous apportez chaque moment de votre marche aux autres, les touchant avec le « toujours maintenant » du grand amour du Créateur. En effet, ne réservez-vous pas du temps pour beaucoup de choses ? C’est la façon de faire du monde et pourtant, lorsque vous êtes dans votre âme, vous êtes toujours dans l’instant présent. Vous pouvez le voir dans les jeux des enfants, qui ne pensent à rien d’autre qu’au moment où ils s’amusent en compagnie les uns des autres, en jouant. Vous pouvez le sentir dans les notes d’un musicien plongé dans une mélodie divine.
 
 Tout concourt à vous faire entrer dans votre âme et dans l’amour intemporel qui vous est offert. En effet, l’amour de Dieu ne transcende-t-il pas toutes les choses du monde et ne les bénit-il pas dans l’éternel présent ?
 

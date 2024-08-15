@@ -109,6 +109,7 @@ Marie | [Le grand consolateur de l’Amour de Dieu est sur nous tous ](/fr-conte
 Jean Hugues | [Rejoignez la fête de prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-25-2-em-john-hugues/) | 25 Février 2024
 Judas | [La journée du Héros](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-26-1-jw-judas/) | 26 Février 2024
 Archange Michael et Luc | [Guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-26-2-em-archangel-michael-and-luke/) | 26 Février 2024
+Marthe et Serreta Kem | [Prière d’ouverture de la grande île d’Hawaï](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-27-2-af-martha-and-serreta-kem/) | 27 Février 2024
 Lorna Scott | [Décrit sa progression vers la 5ème Sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-28-1-af-lorna-scott/) | 28 Février 2024
 Marie | [Exprime son amour en se joignant à la prière avec nous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-28-2-af-mary/) | 28 Février 2024
 Judas | [Orchestrer l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-29-1-jw-judas/) | 29 Février 2024
@@ -233,13 +234,26 @@ Marie | [Vous servez le Ciel et la Terre](/fr-contemporary-messages/fr-contempor
 Moïse | [Un chercheur reçoit une invitation ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-30-4-em-moses/) | 30 Juin 2024
 Confucius | [Poursuivre le voyage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-1-1-af-confucius/) | 1 Juillet 2024
 Yogananda | [Créer un sanctuaire dans une communauté de cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-1-3-jw-yogananda/) | 1 Juillet 2024
+Fleur de Lotus | [Transformez votre perception du monde (Retraite 2024 de l’Amour Divin))](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-2-1-mc-lotus-blossom/) | 2 Juillet 2024
 Augustin | [Suivre la volonté de Dieu et la loi de progression ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-5-1-af-augustine/) | 5 Juillet 2024
 Orion | [S'adapter aux changements de la Terre et recevoir des conseils sur les changements à venir x](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-6-1-af-orion/) | 6 Juillet 2024
 Care Darby Walsh | [Détente spirituelle, sanctuaire et responsabilité personnelle ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-8-1-jw-care-darby-walsh/) | 8 Juillet 2024
 Orion | [Nous supplie d'être dans la Conscience de l'Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-13-1-af-orion/) | 13 Juillet 2024
+Pierre | [La lumière qui vous entoure continue de briller](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-14-1-af-peter/) | 14 Juillet 2024
 Elizabeth| [Laissez l'Amour de Dieu vous guider](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-15-1-jw-elizabeth/) | 15 Juillet 2024
 Orion | [L'accent continu sur l'atteinte de la conscience de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-20-1-af-orion/) | 20 Juillet 2024
+Vicky Forest | [Ayant progressé jusqu'à la 5ème sphère, professe son amour pour Allan et les Etats-Unis](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-20-2-af-vicky-forest/) | 20 Juillet 2024
+Jésus | [Nous oblige à être des lumières dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-21-1-af-jesus/) | 21 Juillet 2024
 Khalil Gibran | [Le cadeau de l'amour intemporel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-22-1-jw-khalil-gibran/) | 22 Juillet 2024
+Augustin | [Vivez une vie de prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-23-1-af-augustine/) | 23 Juillet 2024
+Orion | [Affirme son dévouement à notre progression ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-23-2-af-orion/) | 23 Juillet 2024
+Pierre | [Atteindre la conscience de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-25-1-af-peter/) | 25 Juillet 2024
+Jésus | [Une prière pour nous aider à atteindre la conscience de l’âme ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-26-1-af-jesus/) | 26 Juillet 2024
+Copernic | [S'élancer dans la gloire de la conscience de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-28-1-af-copernicus/) | 28 Juillet 2024
+Zoroastre | [Le fondateur de la religion zoroastrienne affirme le chemin de l'Amour Divin vers l'expiation avec Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-30-1-af-zoroaster/) | 30 Juillet 2024
+jésus | [Vos désirs de vérité ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-4-1-af-jesus/) | 4 Août 2024
+Orion | [Nos amis stellaires nous fourniront tout ce dont nous avons besoin au bon moment](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-6-1-af-orion/) | 6 Août 2024
+Luc | [La foi au-delà de l’échec](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-12-1-jw-luke/) | 12 Août 2024
 
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

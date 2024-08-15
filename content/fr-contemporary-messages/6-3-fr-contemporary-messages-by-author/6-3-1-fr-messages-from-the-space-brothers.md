@@ -129,8 +129,11 @@ Orion | [Du temps et de l’absence de temps ](/fr-contemporary-messages/fr-cont
 Orion | [Les changements terrestres à venir auront leurs effets](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-11-2-af-orion/) | 11 Mai 2024
 Orion | [Développer et partager vos dons ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-14-3-af-orion/) | 14 Mai 2024
 Orion | [Le voyage et la lutte vers la conscience de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-8-1-af-orion/) | 8 Juin 2024
-
+Orion | [S'adapter aux changements de la Terre et recevoir des conseils sur les changements à venir x](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-6-1-af-orion/) | 6 Juillet 2024
+Orion | [Nous supplie d'être dans la Conscience de l'Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-13-1-af-orion/) | 13 Juillet 2024
 Orion | [L'accent continu sur l'atteinte de la conscience de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-20-1-af-orion/) | 20 Juillet 2024
+Orion | [Affirme son dévouement à notre progression ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-23-1-af-orion/) | 23 Juillet 2024
+Orion | [Nos amis stellaires nous fourniront tout ce dont nous avons besoin au bon moment](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-6-1-af-orion/) | 6 Août 2024
 Orion & Augustin | [Décrit plus en détail son travail avec ce projet Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-13-1-af-orion-augustine/) | 13 Septembre 2021
 Orion & Jésus | [Décrit la tendresse de leur approche pour travailler avec nous (2021 Gardiens de la Lumière)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-23-1-af-orion-jesus/) | 23 Octobre 2021
 Orion & Jésus & Orion | [Orion et Jésus encouragent les efforts pour de futures publications](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-27-1-af-jesus-orion/) | 27 Octobre 2021

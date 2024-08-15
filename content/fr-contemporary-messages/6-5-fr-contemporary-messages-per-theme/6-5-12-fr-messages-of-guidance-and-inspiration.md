@@ -19,7 +19,7 @@ Augustin | [Une leçon sur le pouvoir de l’humilité](/fr-contemporary-message
 Augustin | [Leçon sur le jugement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-6-15-1-af-augustine/) | 15 Juin 2017
 Augustin | [Nourrir ce centre de lumière ouvrira de nombreuses portes à l'avenir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-4-1-af-augustine/) | 4 Janvier 2019
 Augustin | [Chemin de l’Amour Divin et Chemin de l’Amour Naturel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-21-1-af-augustine/) | 21 Janvier 2019
-Augustin | [Avec le temps, le filet d'amour de Dieu dans votre âme deviendra un fleuve puissant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-2-16-1-af-augustine/) | 16 Février 2020
+Augustin | [Avec le temps, le filet d'Amour de Dieu dans votre âme deviendra un fleuve puissant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-2-16-1-af-augustine/) | 16 Février 2020
 Confucius | [Marchez toujours dans la lumière de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-2-18-1-af-confucius/) | 18 Février 2020
 Faith | [Qu'est-ce que la foi ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-23-1-af-faith/) | 23 Septembre 2017
 Goldie | [L'Amour de Dieu apporte la plus grande joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-17-1-af-goldie/) | 17 Octobre 2018

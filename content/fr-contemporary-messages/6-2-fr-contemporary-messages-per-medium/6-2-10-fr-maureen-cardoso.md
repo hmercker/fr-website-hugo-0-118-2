@@ -109,5 +109,6 @@ Barbara Davies | [Apportez vos obstacles à Dieu ](/fr-contemporary-messages/fr-
 Augustin | [Nous accueille et ouvre le cercle de développement en ligne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-9-2-mc-augustine/) | 9 Mars 2024
 Seretta Kem | [Découverte des attributs de l'âme ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-13-1-mc-seretta-kem/) | 13 Avril 2024
 Marie | [Vous servez le Ciel et la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-30-3-mc-mary/) | 30 Juin 2024
+Fleur de Lotus | [Transformez votre perception du monde (Retraite 2024 de l’Amour Divin))](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-2-1-mc-lotus-blossom/) | 2 Juillet 2024
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)
