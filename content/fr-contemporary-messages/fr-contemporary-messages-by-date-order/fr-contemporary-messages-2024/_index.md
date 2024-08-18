@@ -112,6 +112,7 @@ Archange Michael et Luc | [Guérison](/fr-contemporary-messages/fr-contemporary-
 Marthe et Serreta Kem | [Prière d’ouverture de la grande île d’Hawaï](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-27-2-af-martha-and-serreta-kem/) | 27 Février 2024
 Lorna Scott | [Décrit sa progression vers la 5ème Sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-28-1-af-lorna-scott/) | 28 Février 2024
 Marie | [Exprime son amour en se joignant à la prière avec nous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-28-2-af-mary/) | 28 Février 2024
+Jacques | [C'est vous qui déterminez la vitesse de progression de votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-28-3-af-james/) | 28 Février 2024
 Judas | [Orchestrer l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-29-1-jw-judas/) | 29 Février 2024
 Jean le Bien Aimé | [Décrit l'Amour Divin et accueille deux nouveaux venus dans le cercle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-29-2-ad-john-the-beloved/) | 29 Février 2024
 Jésus | [Nous encourage vers nos destinées ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-29-3-af-jesus/) | 29 Février 2024
