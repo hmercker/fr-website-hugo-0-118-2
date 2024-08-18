@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-###   Le chemin de l'éveil de l'âme
+### Le chemin de l'éveil de l'âme
 
 Nous avons ici quelques messages qui décrivent le voyage de l’éveil de l’âme. Il existe de nombreux autres messages sur ce sujet que vous pouvez afficher par [ce lien](9-fr-topical-subjects\9-3-1-fr-awakening-of-the-soul-and-the-purification-of-the-soul.md).
 

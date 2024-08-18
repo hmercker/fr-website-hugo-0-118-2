@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-###   L’âme
+### L’âme
 
 L’homme est une âme, revêtue d’un corps spirituel et physique ! Ces trois caractéristiques essentielles font de l'homme une créature parfaite, chacun de ces attributs ayant sa propre tâche et existant pendant une période de temps plus ou moins longue selon sa sphère d'influence.
 Toutes les âmes qui n’ont jamais été, et seront créées, existent dans une sphère spirituelle réservée exclusivement à celles qui attendent encore leur incarnation. Cela signifie que bien avant que l'âme puisse s'incarner sur terre, elle vit comme un individu distinctif et conscient, distingué de tous les autres par une personnalité unique.
@@ -16,7 +16,7 @@ Cependant, pour se reconnaître et se définir comme une entité indépendante, 
 
 Suit ici un traité qui fournit plus d’informations sur l’âme. Nous avons essayé de diviser les nombreux messages en différents thèmes, ce qui était parfois difficile car les faits étaient parfois répétés. Nous vous recommandons également d’en savoir plus sur « L’Âme » ici et sur cette page.
 
-# Caractéristiques (structure et facultés)
+#### Caractéristiques (structure et facultés)
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
@@ -32,7 +32,7 @@ Samuel | [Les dons et le but de chaque âme](/fr-contemporary-messages/fr-contem
 Seretta Kem | [Un kaléidoscope de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-16-1-af-seretta-kem/) | 16 Octobre 2018
 St Matthieu | [Sur les aspects de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-10-30-1-af-st-matthew/) | 30 Octobre 2019
 
-# Incrustations et expiation
+#### Incrustations et expiation
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
@@ -43,7 +43,7 @@ Flavius Josèphe | [Ne vous attardez pas sur le seuil de votre âme](/fr-contemp
 Goldie | [Un conseil de Goldie : « Soyez joyeux »](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-6-14-2-af-goldie/) | 14 Juin 2017
 Seretta Kem | [Expiation de l'âme par la recherche de la vérité et la libération de l'erreur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-7-14-1-af-seretta-kem/) | 14 Juillet 2018
 
-# Raison d'âme vs. raison matérielle
+#### Raison d'âme vs. raison matérielle
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
@@ -60,7 +60,7 @@ Orion | [Contrastes entre les chemins de l’amour naturel et de l’Amour Divin
 Seretta Kem | [Comment le mental interprète les événements par rapport à l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-8-2-af-seretta-kem/) | 8 Mai 2020
 St Matthieu | [Connaître les différences entre le mental de l'âme et le mental matériel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-4-18-1-af-st-matthew/) | 18 Avril 2019
 
-# Perceptions et vérité
+#### Perceptions et vérité
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
@@ -73,7 +73,7 @@ St Matthieu | [Soyez prêt à suivre les conseils reçus](/fr-contemporary-messa
 St Matthieu | [Différences de perception entre le mental matériel et le mental de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-6-1-2-af-st-matthew/) | 1<sup>er</sup> Juin 2019
 St Matthieu | [Votre vérité est plus élevée et plus puissante](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-6-17-2-af-st-matthew/) | 17 Juin 2019
 
-# Croissance et transformation
+#### Croissance et transformation
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
@@ -83,7 +83,7 @@ Flavius Josèphe | [Q&R : La loi de l'attraction et les attachements d'esprits s
 Flavius Josèphe | [Q&R : Les anges Célestes souhaitent encourager et aider l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-14-1-af-josephus/) | 14 Juillet 2019
 Joseph | [Joseph sur le pouvoir de l’engagement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-28-1-af-joseph/) | 28 Mars 2016
 
-# Pour en savoir plus sur l'âme
+#### Pour en savoir plus sur l'âme
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
