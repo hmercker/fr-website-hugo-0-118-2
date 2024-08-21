@@ -9,7 +9,7 @@ weight:
 ---
 ### Suivre la volonté de Dieu et la loi de progression 
 
-Augustin - reçu par Albert Fike le 1er Juillet 2024, Sechelt, Colombie-Britannique, Canada.
+Augustin - reçu par Albert Fike le 5 Juillet 2024, Sechelt, Colombie-Britannique, Canada.
 
 … tout ce que vous faites, mes chers étudiants, si vous le permettez. Je suis votre enseignant, Augustin. La Volonté de Dieu n’est pas une chose rigide et exigeante. C’est la graine, le noyau de l’intention de Dieu manifestée à travers chacun de vous, chaque âme prête à écouter la Volonté de Dieu. En cela, l’expression individuelle de cette Volonté est autorisée et encouragée. Car Dieu a créé des âmes uniques pour exprimer le flux de la vie, pour exprimer les intentions de Dieu dans la vie. Ainsi, cette expression sera unique. Cela évoluera selon les paramètres de la Volonté de Dieu, mais il y a de la flexibilité et il y a une possibilité d’expression.
 

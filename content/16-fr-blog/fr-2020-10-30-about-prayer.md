@@ -43,4 +43,4 @@ Voilà je vous invite à explorer ce sujet entre autres par la lecture des diff�
 
 Une version plus « modernisée » de la prière pour l’Amour Divin, est accessible par [ce lien](https://www.youtube.com/watch?v=d_4NDWQ5glE). Il convient de noter que le texte de la vidéo es uniquement en Anglais.
 
-Je vous invite également à découvrir, par [ce lien](https://www.facebook.com/reel/1454199631862085), la manière dont un prêtre Catholique perçoit la prière.
+Je vous invite également à découvrir, par [ce lien](https://www.facebook.com/reel/1454199631862085), la manière dont un prêtre Catholique perçoit la prière ainsi qu'à visionner [la vidéo](https://www.youtube.com/watch?v=lnTqLVEmzLQ&t=7s) de cette conférence consacrée à la prière.

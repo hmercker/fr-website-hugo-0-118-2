@@ -248,7 +248,9 @@ Seretta kem | [Les interventions de guérison sont accessibles à tous ](/fr-con
 Seretta Kem | [Soyez en paix ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-17-2-af-seretta-kem/) | 17 Juin 2024
 Serreta Kem | [Vous trouverez votre chemin dans ce voyage d’éveil à travers la médiumnité ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-24-5-af-serreta-kem/) | 24 Juin 2024
 Serreta Kem | [La transformation est la clé de votre rassemblement ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-25-3-af-serreta-kem/) | 25 Juin 2024
+Seretta Kem | [Retour pour souligner le processus de développement des dons ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-13-2-af-seretta-kem/) | 13 Juillet 2024
 Marthe et Serreta Kem | [Prière d’ouverture de la grande île d’Hawaï](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-27-2-af-martha-and-serreta-kem/) | 27 Février 2024
+
 
 
 

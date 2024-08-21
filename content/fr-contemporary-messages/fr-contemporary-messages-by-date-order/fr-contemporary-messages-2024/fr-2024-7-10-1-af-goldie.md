@@ -1,0 +1,24 @@
+---
+title: "La paix qui dépasse toute intelligence"
+menu_title: ""
+description: "La paix qui dépasse toute intelligence"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### La paix qui dépasse toute intelligence
+
+Goldie - reçu par Albert Fike le 10 Juillet 2024, Sechelt, Colombie-Britannique, Canada
+
+… des réveils et des bénédictions, des changements et bien d’autres choses qui vous apporteront de la joie. Des surprises arrivent, des changements en vous. Certaines bénédictions qui viendront dans la transformation de vos âmes viendront de telle manière que vous aurez du mal à vous reconnaître vous-même et ce qui est vraiment en vous. Laissez la main de Dieu faire ce qu’elle veut de vous, car Dieu sait et est sage et provoquera les manifestations et les transformations qui vous transformeront en une force formidable et magnifique pour le bien. Chacun de vous subit cette transformation. Chacun de vous sera surpris de ce qui arrivera et de la manière dont cela arrivera. Tant de bénédictions sont alignées devant vous qui se réaliseront et vous seront données que vous n’attendiez pas.
+
+Ne vous sentez pas indignes, âmes bien-aimées. Au lieu de cela, soyez joyeux et très reconnaissants pour la générosité de Dieu. La générosité du toucher de Dieu qui vous apportera l’éveil de votre âme dans toute sa gloire et son émerveillement. Alors que Dieu apporte la transformation à ce monde, vous le saurez en vous et apprécierez comment Dieu vous a préparé pour ce qui est à venir. Dieu vous utilisera de nombreuses façons pour apporter des bénédictions aux autres, pour déclencher une transformation en eux. Vous verrez avec les yeux de votre âme ce qui pourrait vraiment être lorsque Dieu entrera plus pleinement dans votre vie, dans votre conscience, dans votre âme. Vous serez changé pour toujours et ce changement apportera une plus grande harmonie, une plus grande perspicacité et de plus grands dons alors que l’amour imprègne chaque partie de vous et apporte ses bénédictions dans toute la lumière et l’amour que vous pourriez éventuellement recevoir et embrasser.
+
+Tant de choses attendent chacun de vous. Tant de choses sont données librement et abondamment, sans restriction. Sans aucune attente de Dieu, autre que de danser de joie et de ressentir profondément le grand Amour qu’Il ​​a pour vous. Soyez libre dans cet Amour. Soyez fidèle à cet Amour et permettez à tout ce qui est censé être de se manifester en vous et autour de vous. De cette façon, vous serez les anges parfaits de Dieu, des instruments, des annonciateurs de vérité et de lumière. Soyez bénies, mes âmes bien-aimées. Soyez bénies sur le chemin qui vous mènera à devenir un autre ange de Dieu entrant dans le Royaume Céleste et à être une autre lumière au sein de ce Royaume.
+
+Je suis Goldie et je vous aime. Parfois, je trouve vos conversations étranges, voire amusantes. À d’autres moments, je suis touchée par votre comportement aimant les uns envers les autres et par la façon dont vous vous souciez les uns des autres, de ce monde, de vos frères et sœurs. Comme c’est beau et comme c’est vraiment Dieu qui travaille à travers vous. Car lorsque vous avez de la compassion, lorsque vous êtes gracieux et aimants, alors vous reflétez vraiment Dieu. Cette part de Lui qui continue de grandir en vous. Cette Essence qui reflète l’émerveillement de Dieu. Vous êtes vraiment mes frères et sœurs et j’attends avec impatience le jour où je pourrai vous accompagner au Ciel. Nous danserons et chanterons jusqu’à notre entrée, un événement joyeux en reconnaissant l’émerveillement du grand don d’Amour de Dieu. Je serai rejoint par beaucoup d’autres. En effet, le grand Maître, Jésus, sera devant nous, nous montrera le chemin et nous apportera la lumière.
+
+Que Dieu vous bénisse, mes amis bien-aimés. Je vous aime tellement. Je suis si souvent avec vous. Je sais que vous ne me sentez pas ma présence autant. Mais je suis là avec beaucoup d’autres, cherchant à guider et à protéger, à envelopper et à aimer. Nous sommes là, toujours. Nous sommes là parce que nous vous aimons tant et que nous ne vous quitterons jamais. Nous continuerons ensemble le voyage vers l’union avec Dieu. Un voyage qui ne finit jamais. Un voyage qui ne fait que s’améliorer à mesure que nous progressons. Un voyage qui apporte beaucoup, beaucoup de bénédictions, d’ouvertures et de prises de conscience, de vérité et d’amour. Plus profond, plus grand à mesure que nous découvrons à quel point l’océan d’amour de Dieu est profond, à quel point son océan d’amour est large, à quel point son océan d’amour est vraiment, vraiment impressionnant.
+
+Merci d’avoir fait ce voyage avec moi. Je suis tellement bénie de marcher avec vous et de vous aimer, mes magnifiques amis mortels. Je vous aime. Je vous aime. Je vous aime. Que Dieu vous bénisse. Que Dieu vous bénisse tous.

@@ -40,7 +40,7 @@ L’extrait publié ci-dessous est issu du livre « Les terres lointaines du Cie
 
 Robert James Lees fut l’un des plus célèbres médiums britanniques de son temps. Il est né en 1849, dans la petite ville de Hinckley, dans le Leicestershire. Très tôt, à l’âge de 3 ans, il devînt un véhicule pour les messages du monde des esprits. Avant l’âge de douze ans, Robert était un médium en transe profonde et, dans cet état, manifestait un haut degré de culture, une utilisation parfaite de la langue anglaise et un éventail de connaissances philosophiques qui stupéfiaient ses auditeurs. Robert James Lees est mort à son domicile, en 1931 à l’âge de 81 ans.
 
-Robert James Lees a publié une série de cinq livres dont les plus connus sont « Through the Mists (à travers les brumes) qui fut son premier ouvrage et qui, en 1952, en était à sa vingtième édition, « The Life Elysian (la vie Elyséenne) » et « The Gate of Heaven (la porte du Ciel ) ».
+Robert James Lees a publié une série de cinq livres dont les plus connus sont « Through the Mists (à travers les brumes) qui fut son premier ouvrage et qui, en 1952, en était à sa vingtième édition. Ces autres publications les plus connues se nomment : « The Life Elysian (la vie Elyséenne) » et « The Gate of Heaven (la porte du Ciel ) ».
 
 Les troix extraits publiés ci-dessous sont issus des livres « A Travers  les Brumes », de « La Vie Elyséenne » et de « La Porte du Ciel ».
 
