@@ -79,7 +79,7 @@ Mais, en résumé, les discours ne valent pas grand-chose. Je jugerai Monjoronso
 Avec tout mon amour, Geoff.<sup id="a4">[4](#f4)</sup>
 <small>	
 							
-1. <large id="f1"> Nous ne savons pas pourquoi A.J Miller fait référence à l'année 1960 car elle ne correspond à auu=cun évènement connu des adeptes de l'Amour Divin[↩](#a1)
+1. <large id="f1"> Nous ne savons pas pourquoi A.J Miller fait référence à l'année 1960 car elle ne correspond à aucun évènement connu des adeptes de l'Amour Divin.[↩](#a1)
 
 2. <large id="f2"> La question de la fermeture des Cieux Célestes a été évoquée la première fois par Anne Rollins par le message qu'elle a communiqué à James Padgett le [15 Janvier 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-15-1-jep-ann-rollins/). Il a été de nouveau traité dans un message communiqué par Judas à travers le médium H.R le [3 Septembre 2001](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-3-1-hr-judas/) [↩](#a2)
 

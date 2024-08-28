@@ -25,9 +25,7 @@ La transformation d'une âme naturelle en une âme divine est un processus gradu
 
 Au fur et à mesure que l'Amour Divin augmente en quantité, le changement et la transformation deviennent plus grands, jusqu'à ce que, finalement, la transformation devienne si grande que l'âme entière devienne une chose de cette Essence Divine, et participe de sa nature et de sa substance, un être de la Divinité. Jusqu'à ce que l'âme ait expérimenté cette transformation complète, la Nouvelle Naissance, l'Amour Divin et le péché peuvent encore coexister dans l'âme.
 
-[Réconcilier les messages de Padgett avec la Bible](https://new-birth.net/topical-subjects/reconciling-the-padgett-messages-to-the-bible/).
-
-Ce contenu est apparu à l'origine sur le site web de Mark Kramer divine-love.org, mais il y a quelques années il ne l'a pas renouvelé et le site a disparu.
+Les messages ci-dessous nous permettent de mieux appréhender la notion de péché :
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
@@ -43,3 +41,7 @@ Père | [Comment corriger un péché ?](/fr-contemporary-messages/fr-contemporar
 St Luc | [Une intervention sur les péchés des parents](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-4-4-1-af-st-luke/) | 4 Avril 2018
 Seretta Kem | [Sur l'expiation de l'âme et le sentiment d'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-12-2-af-seretta-kem/) | 12 Décembre 2017
 Seretta Kem | [Ouvrir son âme au don de l'Amour Divin apporte l'expiation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-17-2-mc-seretta-kem/) | 17 Février 2019
+
+[Retourner à Réconcilier les messages de James Padgett avec la Bible](/9-fr-topical-subjects/9-9-fr-reconciling-the-padgett-messages-to-the-bible/).
+
+Ce contenu est apparu à l'origine sur le site web de Mark Kramer divine-love.org, mais il y a quelques années il ne l'a pas renouvelé et le site a disparu. Ce contenu a été copié à partir de la machine Way Back, car je crois que ses idées sont uniques. Je n'ai cependant pas essayé de le reproduire dans le même style visuel unique qu'il a créé, mais les mots sont inchangés.

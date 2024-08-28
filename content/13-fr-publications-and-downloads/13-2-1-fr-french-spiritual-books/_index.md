@@ -77,10 +77,10 @@ Robert James Lees a publié une série de cinq livres dont les plus connus sont 
 
 **Titre et page de couverture** | **Résumé** | **Disponible sur**
 ---|---|---
-![Title](/13-fr-publications-and-downloads/13-2-1-fr-french-spiritual-books/fr-through-the-mists.jpg) [A Travers les Brumes](/13-fr-publications-and-downloads/13-2-1-fr-french-spiritual-books/fr-a-travers-les-brumes.pdf)| Le narrateur y explique au début que, vu du monde des esprits, les nouveaux arrivants en provenance de la terre, juste après leur mort, émergent d’un banc de brumes. Pour qu’un esprit puisse retourner sur terre et voir ce qui s’y passe, il doit à nouveau traverser ce banc de brume, dans l’autre sens. Dans ce récit, le narrateur et Cushna sont passés à travers ces brumes à la suite de la femme qui sauta par-dessus la terrasse. La suite a pour objet de nous expliquer que le monde terrestre et le monde spirituel de la première sphère, ne sont pas deux mondes exclusifs l’un de l’autre, mais sont interconnectés. Les esprits des vivants et de ceux qui ne le sont plus, peuvent passer de l’un à l’autre, et même régulièrement. | [Amazon](https://www.amazon.fr/gp/product/0956070302?ref_=dbs_m_mng_rwt_calw_tpbk_0&storeType=ebooks)
+![Title](/13-fr-publications-and-downloads/13-2-1-fr-french-spiritual-books/fr-a-travers-les-brumes.jpg) [A Travers les Brumes](/13-fr-publications-and-downloads/13-2-1-fr-french-spiritual-books/fr-a-travers-les-brumes.pdf)| Le narrateur y explique au début que, vu du monde des esprits, les nouveaux arrivants en provenance de la terre, juste après leur mort, émergent d’un banc de brumes. Pour qu’un esprit puisse retourner sur terre et voir ce qui s’y passe, il doit à nouveau traverser ce banc de brume, dans l’autre sens. Dans ce récit, le narrateur et Cushna sont passés à travers ces brumes à la suite de la femme qui sauta par-dessus la terrasse. La suite a pour objet de nous expliquer que le monde terrestre et le monde spirituel de la première sphère, ne sont pas deux mondes exclusifs l’un de l’autre, mais sont interconnectés. Les esprits des vivants et de ceux qui ne le sont plus, peuvent passer de l’un à l’autre, et même régulièrement. | [Amazon](https://www.amazon.fr/gp/product/0956070302?ref_=dbs_m_mng_rwt_calw_tpbk_0&storeType=ebooks)
 
 <span style="color:red">
-**PUBLICATIONS de DAVID ET TAKEKO HOSE**
+**PUBLICATION de DAVID ET TAKEKO HOSE**
 </span>
 
 **Titre et page de couverture** | **Résumé** | **Disponible sur**
@@ -89,7 +89,7 @@ Robert James Lees a publié une série de cinq livres dont les plus connus sont 
 
 
 <span style="color:red">
-**PUBLICATIONS de RON PAPPALARDO**
+**PUBLICATION de RON PAPPALARDO**
 </span>
 
 **Titre et page de couverture** | **Résumé** | **Disponible sur**
