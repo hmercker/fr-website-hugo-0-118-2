@@ -18,4 +18,3 @@ weight: 90
 7. [Le mental matériel, le mental spirituel et le mental de l'âme](/9-fr-topical-subjects/9-7-fr-the-material-mind-the-spiritual-mind-and-the-soul-mind/)
 8. [Les peuples de l'espace](/9-fr-topical-subjects/9-8-fr-the-peoples-of-outer-space/)
 9. [Réconcilier les messages de James Padgett avec la Bible](/9-fr-topical-subjects/9-9-fr-reconciling-the-pagett-messages-to-the-bible/)
-
