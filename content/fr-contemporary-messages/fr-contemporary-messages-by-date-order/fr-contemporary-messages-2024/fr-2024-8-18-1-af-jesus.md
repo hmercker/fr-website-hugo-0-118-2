@@ -9,7 +9,7 @@ weight:
 ---
 ### Le cadeau extraordinaire de Dieu
 
-Jésus - reçu par Albert Fike le 18 Août 2024, Alaska, États Unis.
+Jésus - reçu par Albert Fike le 18 Août 2024, Sechelt, Colombie-Britannique, Canada.
 
 La puissance de l’Amour de Dieu est impressionnante en profondeur, en ampleur, en puissance et en gloire. Le plus grand don que Dieu puisse vous offrir est à votre disposition à tout moment avec toute prière donnée avec sincérité et désir de recevoir l’Amour Divin de Dieu. Je suis votre frère et ami, je suis Jésus. Je viens vous encourager dans ces prières et je marche avec vous pendant votre voyage vers une plus grande lumière, une plus grande harmonie et une plus grande paix. Je marche avec vous dans l’espoir de vous inspirer la vérité et la compréhension de ce voyage. Je marche avec vous parce que je vous aime, chacun de vous. Frères et sœurs bien-aimés sur cette Terre, je suis avec vous. Je n’ai jamais quitté mes frères qui habitent le plan terrestre. Mes prières continuent d’inclure tous ceux qui vivent sur votre monde, tous ceux qui vivent dans le monde spirituel, tous ceux qui luttent, tous ceux qui ont besoin de réconfort, d’amour et de paix. Mes prières vous accompagnent, mes bien-aimés.
 

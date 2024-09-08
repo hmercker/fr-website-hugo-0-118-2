@@ -30,3 +30,4 @@ Jésus | [Une prière pour nous aider à atteindre la conscience de l’âme ](/
 Jésus | [Vos désirs de vérité ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-4-1-af-jesus/) | 4 Août 2024
 Jésus | [Le cadeau merveilleux de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-18-1-af-jesus/) | 18 Août 2024
 Jésus | [Cause et effet, temporel et spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-19-1-jw-jesus/) | 19 Août 2024
+Jésus | [Approuve et encourage les efforts déployés par le Cercle de Lumière d’Estonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-29-2-af-jesus/) | 29 Août 2024

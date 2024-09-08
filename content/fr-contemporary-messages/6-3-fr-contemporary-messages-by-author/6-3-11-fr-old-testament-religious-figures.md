@@ -117,6 +117,7 @@ Moïse | [Surmonter les exigences du monde](/fr-contemporary-messages/fr-contemp
 Moïse | [Tout est possible en amour ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-13-5-af-moses/) | 13 Octobre 2023
 Moïse | [Votre responsabilité d’indiquer le chemin vers Dieu pour les autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-4-2-af-moses/) | 4 Février 2024
 Moïse | [La loi de l'Amour Divin ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-21-1-em-moses/) | 21 Mars 2024
+Moïse et Jésus | [Nous sommes tous nécessaires comme annonciateurs pour soutenir la tente de la vérité, ajoute sa bénédiction au message de Moïse ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-1-1-af-moses-jesus/) | 1 Septembre 2024
 Noé | [Noé et le déluge](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-2-1-fab-noah/) | 2 Février 2003
 Noé | [L'histoire du déluge](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-10-1-fab-noah/) | 10 Février 2009
 Noé | [Stop à l'obscurité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-17-1-af-noah/) | 17 Novembre 2017

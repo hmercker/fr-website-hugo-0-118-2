@@ -30,4 +30,4 @@ weight: 145
 [Les Dépendances](/16-fr-blog/fr-2024-06-08-addictions/) | 08 Juin 2024
 [La Parabole du Bon Samaritain](/16-fr-blog/fr-2024-06-10-the-good-samaritain/) | 10 Juin 2024
 [Réflexions sur la Résurrection et l'Ascension de Jésus](/16-fr-blog/fr-2024-06-21-reflexions-on-jesus-life/) | 21 Juin 2024
-[Réflexions sur la Lectura de la Bible](/16-fr-blog/fr-2024-07-12-reading-the-bible/) | 12 Juillet 2024
+[Réflexions sur la Lecture de la Bible](/16-fr-blog/fr-2024-07-12-reading-the-bible/) | 12 Juillet 2024

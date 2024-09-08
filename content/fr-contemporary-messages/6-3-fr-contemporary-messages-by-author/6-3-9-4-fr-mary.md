@@ -133,6 +133,7 @@ Marie | [Exprime son amour en se joignant à la prière avec nous](/fr-contempor
 Marie | [Un don de guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-7-1-em-mary/) | 7 Mars 2024
 Marie | [Vous n’êtes jamais seul ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-26-1-af-mary/) | 26 Mai 2024
 Marie | [Vous servez le Ciel et la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-30-3-mc-mary/) | 30 Juin 2024
+Marie | [Gardez votre cœur ouvert](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-25-1-mc-mary/) | 25 Août 2024
 Marie & White Eagle | [Le miracle de Fatima et l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-9-19-2-ar-mary-white-eagle/) | 19 Septembre 1999
 Marie & David | [Faire face à la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-3-19-2-ar-mary-david/) | 19 Mars 2000
 Marie & Jean | [Sur le manque d’amour de soi de M___](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-12-1-ar-mary-john/) | 12 Novembre 1999

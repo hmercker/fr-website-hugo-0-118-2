@@ -1,13 +1,13 @@
 ---
-title: "La paix qui dépasse toute intelligence"
+title: "Dansez et chantez pour entrer au paradis"
 menu_title: ""
-description: "La paix qui dépasse toute intelligence"
+description: "Dansez et chantez pour entrer au paradis "
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### La paix qui dépasse toute intelligence
+### Dansez et chantez pour entrer au paradis 
 
 Goldie - reçu par Albert Fike le 10 Juillet 2024, Sechelt, Colombie-Britannique, Canada
 

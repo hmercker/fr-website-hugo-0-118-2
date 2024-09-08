@@ -52,6 +52,7 @@ James Padgett | [Explorez la vérité avec vos âmes](/fr-contemporary-messages/
 James Padgett | [Comprendre Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-10-1-jw-james-padgett/) | 10 Juin 2021
 James Padgett | [Le monde connaîtra ces vérités à temps](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-4-1-af-james-padgett/) | 4 Octobre 2022
 James Padgett | [L'impact considérable qu'une petite décision peut avoir ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-29-2-af-james-padgett/) | 29 Novembre 2023
+James Padgett | [Vous êtes des liens dans l’héritage ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-29-1-af-james-padgett/) | 29 Août 2024
 James et Hélène Padgett | [Nous bénissent et nous encouragent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-9-1-al-james-helen-padgett/) | 9 Octobre 2022
 Professeur Salyards | [Qui apportera la vérité à ce monde ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-21-3-af-professor-salyards/) | 21 Janvier 2018
 Professeur Salyards | [L’amour naturel contre l’Amour Divin Développement de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-20-3-af-professor-salyards/) | 20 Novembre 2018

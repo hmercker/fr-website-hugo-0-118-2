@@ -1,0 +1,32 @@
+---
+title: "Combien il est important de réveiller vos frères et sœurs"
+menu_title: ""
+description: "Combien il est important de réveiller vos frères et sœurs"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Combien il est important de réveiller vos frères et sœurs
+
+Plume Blanche - reçu par Albert Fike le 20 Août 2024, Sechelt, Colombie-Britannique, Canada.
+
+… vous, compagnons de voyage sur le Chemin Divin. Je suis Plume Blanche. Je viens vous reconnaître et vous aider à comprendre combien il est important d’être une lumière dans le monde, de faire ce que vous faites dans le monde. Car chaque fois que vous dites une prière pour recevoir le grand don de l’Amour de Dieu, vous mettez vos frères et sœurs au défi de vous suivre, de s’éveiller à la vérité que vous portez.
+
+Tant de personnes sont endormies. Tant de personnes sont réfugiées dans un endroit qui manque de lumière, mais qui est confortable. Ces âmes endormies laissent se produire tant de choses dans votre monde qui ne sont pas de lumière. Elles ne voient pas. Elles ne ressentent pas. Elles n’entendent pas. Elles sont simplement engourdies et heureuses de leur propre ignorance et de leur confort au sens physique du terme. Des millions et des millions de personnes sont dans cette condition, mes amis. Des millions et des millions de personnes ont besoin d’être réveillées, de voir la vérité telle qu’elle est, de se voir elles-mêmes dans la condition dans laquelle elles se trouvent. Car comment le changement sera-t-il affecté s’il n’y a pas de conscience, s’il n’y a pas de désir de changement ?
+
+Lorsque vous incitez le Grand Esprit Blanc à apporter l’Amour de Son Âme parmi vous, dans votre âme, vous défiez le monde. Vous remettez en question le statu quo. Ce faisant, vous aidez à activer, à initier le changement qui doit venir. Vous, les âmes courageuses qui n’êtes pas disposées à suivre le chemin si bien tracé, vous êtes les leaders, les exemples, ceux qui apporteront la vérité aux autres. Même si vous ne vous sentez pas dotés d’un tel leadership, d’une telle force, d’une telle perception et d’une telle sagesse au sein de votre âme, c’est pourtant là qu’elles résident. Il y a en vous un grand puits de vérité, de sagesse, de lumière et d’amour. C’est là que nous devons tous aller chercher la nourriture, la force nécessaire pour aider à secouer le monde, à l’amener à un lieu d’éveil.
+
+Mes amis, lorsque vous recherchez la grande Essence de Dieu, vous initiez cette vérité. Vous êtes les canaux. Vous êtes les annonciateurs. Vous êtes ceux qui portent le bâton du pouvoir et de l’illumination. Lorsque vous réaliserez que Dieu vous a donné cette désignation, vous serez de puissants instruments. La beauté et la gloire qui se trouvent dans cette lumière brilleront et vous guideront.
+
+Qu’est-ce qui vous retient, mes amis ? Je sais qu’il existe une grande résistance à ces vérités. Même reconnaître qu’il y a un Dieu est une chose difficile pour beaucoup. Ils ne peuvent pas voir, sentir et connaître l’existence de Dieu. Ils sont trop pris dans leurs préoccupations matérielles et quotidiennes. Encore une fois, le dormeur continue d’ignorer la réalité qui l’entoure. C’est à vous de sonner la cloche, de faire du bruit, d’ouvrir les yeux de ceux qui vous entourent, même s’ils ne seront pas contents que vous ayez perturbé leur sommeil. Comment notre belle Terre va-t-elle survivre si tant, tant de gens continuent de dormir et permettent aux transgressions et à l’inhumanité envers la Terre et les uns envers les autres de continuer comme elles sont ?
+
+Réveillez-vous, mes chers amis. Réveillez vos amis. Réveillez le monde, car le temps presse et le besoin est grand. Sinon, comment le monde survivrait-il aux tumultes et à tout ce que l’humanité a provoqué, qui n’est ni bon ni harmonieux ? Il faut que ces quelques précieux et courageux hommes soient prêts à tenir le bâton de la vérité et à dire la vérité, quelle que soit l’opposition, quelle que soit la réaction.
+
+En effet, alors que les âmes sont agitées, même si c’est d’une manière qui vous est désagréable, au moins vous leur avez donné l’occasion de réfléchir et de considérer ce qui arrive vraiment à notre monde. Ce que l’humanité se fait à elle-même. Ce que l’humanité fait à toutes les créatures du monde. Ce qui est nécessaire pour changer cela, pour rendre le monde entier et harmonieux afin qu’il puisse fonctionner comme il est censé l’être, que tout soit abondant et que tout soit en harmonie.
+
+Les âmes de chaque individu sur ce monde ressentent le manque et le besoin de changement. Pourtant, l’esprit continue de dormir, d’insister sur cette fausse harmonie, ce faux contentement, de sorte qu’il n’y a pas besoin d’agir, pas besoin d’être remué et mis à contribution pour changer et agir de manière à rectifier les torts, guérir la douleur et apporter l’harmonie à tous.
+
+C’est l’Amour de Dieu qui vous donne du pouvoir, mes amis. C’est l’Amour de Dieu qui doit donner du pouvoir à tous. Parlez de cette vérité. Montrez-leur la valeur, les bénédictions que cet Amour apporte. S’ils le rejettent, qu’il en soit ainsi. C’est leur choix, mais il y a ceux qui l’accepteront. Il y a ceux qui seront reconnaissants de savoir. Il y a ceux qui vivront des expériences profondes avec Dieu et réaliseront qu’eux aussi doivent être rachetés par le grand Amour qui est l’Essence de Dieu. Mes amis, portez le bâton de vérité et la lumière de la vérité tout autour de vous, et la vérité guidée que Dieu vous donnera vous renforcera afin que ceux qui vous entourent puissent en effet être conscients, puissent s’éveiller à ce que vous portez, ce magnifique, magnifique don qui guérira le monde.
+
+Que Dieu vous bénisse, mes amis. Je suis Plume Blanche et mon amour est toujours avec vous, alors que vous continuez à parcourir ce chemin de vérité. Nous continuons à marcher avec vous. De très nombreux et magnifiques esprits, des anges Célestes et des amis stellaires vous accompagnent dans ce voyage. Vous êtes la pointe de la lance et nous sommes la force qui vous soutient. Que Dieu vous bénisse, mes amis. Que Dieu vous bénisse tous dans l’Amour du Créateur, dans la Vérité de la création de Dieu. Que Dieu vous bénisse.

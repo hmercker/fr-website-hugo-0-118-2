@@ -9,7 +9,7 @@ weight:
 ---
 ### Cause et effet, temporel et spirituel
 
-Jésus - reçu par Jimbeau walsh le 19 Août 2024, Alaska, États Unis.
+Jésus - reçu par Jimbeau walsh le 19 Août 2024, Sechelt, Colombie-Britannique, Canada.
 
 Que l’esprit de l’Amour de Dieu soit avec vous. Que Sa sainte présence remplisse vos âmes et apporte la lumière de l’Amour Divin dans ce cercle. Chacun ici désire la compagnie des anges, leur guidance et la compréhension de la vérité. Chacun souhaite être libéré du doute et de la peur. Chacun aspire à marcher dans la lumière, dans l’amour, dans la foi.
 

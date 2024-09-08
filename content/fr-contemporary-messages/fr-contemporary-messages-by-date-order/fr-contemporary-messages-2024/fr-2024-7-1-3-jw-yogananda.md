@@ -9,7 +9,7 @@ weight:
 ---
 ### Créer un sanctuaire dans une communauté de cœur
 
-Yogananda - reçu par Jimbeau Walsh le 1<sup>er</sup> 2024, Nashville, Tennesse, USA.
+Yogananda - reçu par Jimbeau Walsh le 1<sup>er</sup> Juillet 2024, Nashville, Tennesse, USA.
 
 C’est moi, votre frère et ami dans le grand Amour de Dieu, Yogananda.
 

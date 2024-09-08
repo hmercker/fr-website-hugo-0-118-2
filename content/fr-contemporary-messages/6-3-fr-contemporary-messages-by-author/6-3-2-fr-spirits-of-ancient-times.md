@@ -60,6 +60,7 @@ Leytergus | [Ce que signifie vraiment la co-création avec Dieu. (Retraite Q&A G
 Leytergus | [Embrasser la diversité et l’autre dans l’acceptation et l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-23-1-af-leytergus/) | 23 Juillet 2020
 Leytergus | [Prier avec intention](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-2-23-1-af-leytergus/) | 23 Février 2021
 Mala | [La spiritualité des premiers Amérindiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-9-11-1-fab-mala/) | 11 Septembre 2005
+Melchizédek | [Un travail important est nécessaire pour rectifier les conditions non harmonieuses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-8-2-af-melchizedek/) | 8 Novembre 2019
 Nuage Blanc | [Vous devez chercher et vous préparer à recevoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-72-1969-anonymous-white-cloud/) |   1969
 Nuage Blanc et Eau de Chrystal | [Nuage blanc et eau de Chrystal](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-111-1969-anonymous-white-cloud-crystal-water/) |   1969
 Nuage Blanc | [Aidez les autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-114-1969-anonymous-white-cloud/) |   1969
@@ -75,7 +76,7 @@ Nuage Blanc | [Demander les bénédictions et les dons de Dieu](/fr-contemporary
 Nuage Blanc | [Priez avec nous pour plus d'équilibre et d'harmonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-3-1-af-white-cloud/) | 3 Décembre 2021
 Nuage Blanc | [Guérison de la Terre Mère ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-3-2-af-white-cloud/) | 3 Mai 2024
 Plume Blanche | [Être un agent de changement pour la Terre ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-9-1-1-af-white-feather/) | 1 Septembre 2023
-Melchizédek | [Un travail important est nécessaire pour rectifier les conditions non harmonieuses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-8-2-af-melchizedek/) | 8 Novembre 2019
+Plume Blanche | [Combien il est important de réveiller vos frères et sœurs ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-20-1-af-whte-feather/) | 20 Août 2024
 Salomon | [Laissez les esprits de votre âme prendre le dessus (Salomon de l'Ancien Testament)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-36-1969-11-20-anonymous-solomon/) | 20 Novembre 1969
 Salomon | [L'Amour de Dieu a un pouvoir illimité - Shalom - Solomon](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-175-1969-anonymous-solomon/) |   1969
 Salomon | [Bouclez votre ceinture](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-6-30-2-cc-solomon/) | 30 Juin 2003

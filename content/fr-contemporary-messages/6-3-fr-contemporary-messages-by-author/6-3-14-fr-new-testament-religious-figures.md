@@ -195,6 +195,8 @@ St François d'Assise | [Calme dans la tempête](/fr-contemporary-messages/fr-co
 St François d'Assise | [Foi et Persévérance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-1-2-jw-st-francis-of-assisi/) | 1 Décembre 2023
 St François d'Assise | [Puissions-nous être transformés par le don de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-6-1-af-st-francis-of-assisi/) | 6 Janvier 2024
 St François d'Assise | [Restez en grâce](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-8-1-jw-st-francis-of-assisi/) | 8 Janvier 2024
+St François d'Assise | [Nourrir d'amour les âmes affamées ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-17-1-jw-st-francis-of-assisi/) | 17 Mars 2024
+St françois  d'Assise | [Ayez foi et confiance en votre instrumentalité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-5-1-mc-st-francis-of-assisi/) | 5 Août 2024
 St. George | [Notre nation, Guernesey, a grand besoin de s’élever](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-15-4-af-st-george/) | 15 Mai 2022
 Thérèse | [Cherchez l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-12-1969-7-14-anonymous-therese/) | 14 Juillet 1969
 Thérèse | [Chaque prière crée un sanctuaire invisible (Cercle de Prière de Gibsons)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-11-2-jw-therese/) | 11 Octobre 2021

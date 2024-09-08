@@ -329,4 +329,5 @@ Augustin | [Les opportunités abondent pour vous](/fr-contemporary-messages/fr-c
 Augustin | [Suivre la Volonté de Dieu et la loi de progression ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-5-1-af-augustine/) | 5 Juillet 2024
 Augustin | [Une leçon importante pour développer la médiumnité de l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-9-1-af-augustine/) | 9 Juillet 2024
 Augustin | [Vivez une vie de prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-23-1-af-augustine/) | 23 Juillet 2024
+Augustin | [Rappelle aux administrateurs de travailler ensemble dans la douce harmonie de la volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-26-1-af-augustine/) | 26 Août 2024
 

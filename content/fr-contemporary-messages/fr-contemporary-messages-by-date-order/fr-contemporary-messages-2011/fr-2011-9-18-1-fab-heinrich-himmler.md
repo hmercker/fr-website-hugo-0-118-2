@@ -9,6 +9,8 @@ weight:
 ---
 ### Les expériences d’un Nazi dans le monde des esprits
 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/heinrich-himmler.webp)
+
 Heinrich Himmler <sup id="a1">[1](#f1)</sup> - reçu par FAB le 18 Septembre 2011, Santa Cruz, Californie, USA.
 
 C’est moi, Heinrich Himmler.

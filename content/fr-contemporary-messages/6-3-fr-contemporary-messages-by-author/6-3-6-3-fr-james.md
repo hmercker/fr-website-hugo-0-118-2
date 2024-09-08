@@ -52,3 +52,4 @@ Jacques | [Le seul moyen d’obtenir la lumière et la protection est de s’ali
 Jacques | [Soyez fidèle à vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-2-1-af-james/) | 2 Février 2023
 Jacques | [La lumière de vos âmes enflamme de nombreuses âmes sur cette île ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-12-4-em-james/) | 12 Janvier 2024
 Jacques | [Vous devez comprendre le pouvoir de votre libre arbitre ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-20-1-af-james/) | 20 Février 2024
+Jacques | [L’Amour de Dieu agit à travers nous tous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-16-1-af-james/) | 16 Août 2024

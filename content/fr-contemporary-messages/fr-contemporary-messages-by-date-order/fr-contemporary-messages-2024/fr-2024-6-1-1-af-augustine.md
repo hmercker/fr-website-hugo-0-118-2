@@ -9,7 +9,7 @@ weight:
 ---
 ### Leçon profonde sur la conscience de l'âme 
 
-Augustin -  reçu par Albert Fike le 22 Mai 2024, Sechelt, Colombie-Britannique, Canada.
+Augustin - reçu par Albert Fike le 1<sup>er</sup> Juin 2024, Sechelt, Colombie-Britannique, Canada.
 
 Étudiants bien-aimés, c’est votre enseignant Augustin. La manière dont vous exprimerez la vérité et vivrez la vérité évoluera et changera à mesure que vous grandissez dans l’Amour du Père. Le plus souvent, ceux qui aspirent à enseigner la vérité le font à partir de cette conscience centrée sur le mental qui est si courante dans votre monde. Il a une éloquence, une verbosité qui satisfait l’esprit et satisfait ceux qui écoutent. Car vous accordez une grande crédibilité aux mots et à l’esprit. C’est la voie de votre monde.
 

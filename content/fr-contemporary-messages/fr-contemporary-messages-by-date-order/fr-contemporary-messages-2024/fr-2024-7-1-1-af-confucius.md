@@ -9,7 +9,7 @@ weight:
 ---
 ### Poursuivre le voyage
 
-Confucius - reçu par Albert Fike le 01 Juillet 2024, Sechelt, Colombie-Britannique, Canada.
+Confucius - reçu par Albert Fike le 1<sup>er</sup> Juillet 2024, Sechelt, Colombie-Britannique, Canada.
 
 En effet, nous T’honorons, bien-aimé Créateur de tous. Je suis Confucius. Je viens encore une fois vers vous pour vous parler et vous encourager, âmes bien-aimées. Vos âmes sont comme des embryons, pas encore complètement formés. Mais au fur et à mesure que vous vous êtes réunis de cette manière, l’embryon a formé des yeux pour voir et des oreilles pour entendre et chacun de vous aura ses moments de vision et d’audition, nous reconnaissant près de vous. Recherchez ces moments. Ne laissez pas le monde matériel vous engloutir et vous éloigner de ce lieu de l’âme. Ces yeux ont besoin de voir et ces oreilles ont besoin d’entendre et vous devez vous donner le temps de vous adapter et de vous ouvrir à ces cadeaux qui vous ont été offerts. Comme l’a indiqué ce cher instrument, le développement et l’ouverture en tant que médium comme moyen de communication avec nous prennent du temps. Cela prend du temps. Il faut être patient mais aussi impatient en même temps. Cela peut paraître quelque peu contradictoire. En effet, ces sentiments au sein de l’âme aspirent et cherchent à s’ouvrir, les dons, les bénédictions affluant, les dons étant nourris. Il faut avoir un empressement, un empressement, âmes bien-aimées, pour que Dieu vous touche. C’est la loi, la loi du désir. Vous devez vouloir ces choses et les faire venir à vous avec un cœur ouvert, une âme ouverte, un esprit ouvert et leur permettre de vraiment faire partie de vous.
 
