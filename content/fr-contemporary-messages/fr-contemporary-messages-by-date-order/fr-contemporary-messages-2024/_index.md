@@ -245,7 +245,7 @@ Goldie | [Dansez et chantez pour entrer au paradis ](/fr-contemporary-messages/f
 Mylora | [La paix qui dépasse toute intelligence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-12-1-af-mylora/) | 12 Juillet 2024
 Orion | [Nous supplie d'être dans la Conscience de l'Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-13-1-af-orion/) | 13 Juillet 2024
 Seretta Kem | [Retour pour souligner le processus de développement des dons ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-13-2-af-seretta-kem/) | 13 Juillet 2024
-St Pierre | [La lumière qui vous entoure continue de briller](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-14-1-af-peter/) | 14 Juillet 2024
+St Pierre | [La lumière qui vous entoure continue de briller](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-14-1-af-st-peter/) | 14 Juillet 2024
 Elizabeth| [Laissez l'Amour de Dieu vous guider](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-15-1-jw-elizabeth/) | 15 Juillet 2024
 Orion | [L'accent continu sur l'atteinte de la conscience de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-20-1-af-orion/) | 20 Juillet 2024
 Vicky Forest | [Ayant progressé jusqu'à la 5ème sphère, professe son amour pour Allan et les Etats-Unis](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-20-2-af-vicky-forest/) | 20 Juillet 2024
@@ -253,7 +253,7 @@ Jésus | [Nous oblige à être des lumières dans le monde](/fr-contemporary-mes
 Khalil Gibran | [Le cadeau de l'amour intemporel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-22-1-jw-khalil-gibran/) | 22 Juillet 2024
 Augustin | [Vivez une vie de prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-23-1-af-augustine/) | 23 Juillet 2024
 Orion | [Affirme son dévouement à notre progression ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-23-2-af-orion/) | 23 Juillet 2024
-St Pierre | [Atteindre la conscience de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-25-1-af-peter/) | 25 Juillet 2024
+St Pierre | [Atteindre la conscience de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-25-1-af-st-peter/) | 25 Juillet 2024
 Jésus | [Une prière pour nous aider à atteindre la conscience de l’âme ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-26-1-af-jesus/) | 26 Juillet 2024
 Copernic | [S'élancer dans la gloire de la conscience de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-28-1-af-copernicus/) | 28 Juillet 2024
 Zoroastre | [Le fondateur de la religion zoroastrienne affirme le chemin de l'Amour Divin vers l'expiation avec Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-30-1-af-zoroaster/) | 30 Juillet 2024
@@ -262,7 +262,7 @@ St françois  d'Assise | [Ayez foi et confiance en votre instrumentalité](/fr-c
 Orion | [Nos amis stellaires nous fourniront tout ce dont nous avons besoin au bon moment](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-6-1-af-orion/) | 6 Août 2024
 Keea Atta Kem | [Vous ne dormez pas ! Les âmes s'éveillent ! (Croisière Love Boat 2024)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-10-1-af-keea-atta-kem/) | 10 Août 2024
 Luc | [La foi au-delà de l’échec](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-12-1-jw-luke/) | 12 Août 2024
-St Pierre | [Message de Clôture de la croisème 2024 de l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-13-1-af-peter/) | 13 Août 2024
+St Pierre | [Message de Clôture de la croisème 2024 de l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-13-1-af-st-peter/) | 13 Août 2024
 Jacques | [L’Amour de Dieu agit à travers nous tous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-16-1-af-james/) | 16 Août 2024
 Jésus | [Le cadeau merveilleux de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-18-1-af-jesus/) | 18 Août 2024
 Jésus | [Cause et effet, temporel et spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-19-1-jw-jesus/) | 19 Août 2024
@@ -271,11 +271,12 @@ Barbara | [Conseils à ceux qui luttent pour établir une connexion plus forte a
 Orion | [Poursuivez vos progrès afin d'être prêt en cas de besoin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-24-1-af-orion/) | 24 Août 2024
 Marie | [Gardez votre cœur ouvert](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-25-1-mc-mary/) | 25 Août 2024
 Augustin | [Rappelle aux administrateurs de travailler ensemble dans la douce harmonie de la volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-26-1-af-augustine/) | 26 Août 2024
+Alec Gaunt | [Nous encourage à agir ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-27-1-af-alec-gaunt/) | 27 Août 2024
 James Padgett | [Vous êtes des liens dans l’héritage ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-29-1-af-james-padgett/) | 29 Août 2024
 Jésus | [Approuve et encourage les efforts déployés par le Cercle de Lumière d’Estonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-29-2-af-jesus/) | 29 Août 2024
 Yogananda | [L’Amour de Dieu imprègne l’univers ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-30-1-af-yogananda/) | 30 Août 2024
 Moïse et Jésus | [Nous sommes tous nécessaires comme annonciateurs pour soutenir la tente de la vérité, ajoute sa bénédiction au message de Moïse ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-1-1-af-moses-jesus/) | 1 Septembre 2024
-Confucius | [Bénissez les voyageurs qui répandent les vérités de l’amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-3--af-confucius/) | 3 Septembre 2024
+Confucius | [Bénissez les voyageurs qui répandent les vérités de l’amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-3-1-af-confucius/) | 3 Septembre 2024
 
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

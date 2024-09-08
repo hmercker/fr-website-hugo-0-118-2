@@ -47,3 +47,7 @@ Avec mon amour et mes bénédictions,
 
 Votre ami et frère aîné, Jésus.
 
+[Retour à Réconcilier les messages de Padgett avec la Bible](/9-fr-topical-subjects/9-9-fr-reconciling-the-padgett-messages-to-the-bible/)
+
+Ce contenu est apparu à l’origine sur le site Web de Mark Kramer "divine-love.org", mais il y a quelques années, il ne l’a pas renouvelé et le site a disparu. Ce contenu a été copié à partir de la Way Back machine, car je crois que ses idées sont uniques. Je n’ai cependant pas essayé de reproduire cela dans le même style visuel unique qu’il a créé, mais les mots sont inchangés.
+
