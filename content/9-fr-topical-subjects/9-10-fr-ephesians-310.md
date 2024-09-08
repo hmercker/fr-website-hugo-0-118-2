@@ -13,5 +13,4 @@ Ephésiens 3:10 désigne les « lieux Célestes » comme étant la sphère d'act
 
 [Retourner à Réconcilier les messages de James  Padgett avec la Bible](/9-fr-topical-subjects/9-9-fr-reconciling-the-padgett-messages-to-the-bible/)
 
-Ce contenu est apparu à l'origine sur le site web de Mark Kramer "divine-love.org", mais il y a quelques années il ne l'a pas renouvelé et le site a disparu. Ce contenu a été copié à partir de la machine Way Back, car je crois que ses idées sont uniques. Je n'ai cependant pas essayé de le reproduire dans le même style visuel unique qu'il a créé, mais les mots sont inchangés.
-
+Ce contenu est apparu à l'origine sur le site web de Mark Kramer divine-love.org, mais il y a quelques années il ne l'a pas renouvelé et le site a disparu. Ce contenu a été copié à partir de la machine Way Back, car je crois que ses idées sont uniques. Je n'ai cependant pas essayé de le reproduire dans le même style visuel unique qu'il a créé, mais les mots sont inchangés.

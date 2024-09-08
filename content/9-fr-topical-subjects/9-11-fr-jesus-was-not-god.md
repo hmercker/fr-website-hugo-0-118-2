@@ -15,4 +15,4 @@ Les trinitaires affirment que Jésus a prétendu être Dieu lorsqu'ils le citent
 
 [Retourner à Réconcilier les messages de Padgett avec la Bible](/9-fr-topical-subjects/9-9-fr-reconciling-the-padgett-messages-to-the-bible/)
 
-Ce contenu a été publié à l'origine sur le site web de Mark Kramer "divine-love.org", mais il y a quelques années il ne l'a pas renouvelé et le site a disparu. Ce contenu a été copié à partir de la machine Way Back, car je crois que ses idées sont uniques. Je n'ai cependant pas essayé de le reproduire dans le même style visuel unique qu'il a créé, mais les mots sont inchangés.
+Ce contenu a été publié à l'origine sur le site web de Mark Kramer divine-love.org, mais il y a quelques années il ne l'a pas renouvelé et le site a disparu. Ce contenu a été copié à partir de la machine Way Back, car je crois que ses idées sont uniques. Je n'ai cependant pas essayé de le reproduire dans le même style visuel unique qu'il a créé, mais les mots sont inchangés.
