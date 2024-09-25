@@ -1,1 +1,0 @@
-https://new-birth.net/mediumship/dr-samuels-medium/
