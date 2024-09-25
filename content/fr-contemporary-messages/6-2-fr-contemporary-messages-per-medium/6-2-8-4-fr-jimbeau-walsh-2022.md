@@ -70,7 +70,7 @@ Jean le Bien Aimé | [Nous sommes tous aimés de Dieu](/fr-contemporary-messages
 Judas | [Les deux frères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-10-3-jw-judas/) | 10 Août 2022
 Care Darby Walsh | [De nombreuses façons de donner de l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-22-2-jw-care-derby-walsh/) | 22 Août 2022
 Judas | [Chaque crise est une opportunité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-23-1-jw-judas/) | 23 Août 2022
-Judas | [Les deux frères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-23-2-jw-judas/) | 23 Août 2022
+Judas | [Les deux frères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-23-1-jw-judas/) | 23 Août 2022
 Inayat Khan | [Amants et bien-aimés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-9-2-jw-inayat-khan/) | 9 Septembre 2022
 Yogananda | [Permettez à vos âmes d'informer vos esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-18-1-jw-yogananda/) | 18 Septembre 2022
 Eileen Caddy | [Comment être dans le monde et non pas du monde ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-19-1-jw-eileen-caddy/) | 19 Septembre 2022

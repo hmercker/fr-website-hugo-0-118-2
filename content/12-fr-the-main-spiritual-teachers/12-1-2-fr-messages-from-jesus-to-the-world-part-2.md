@@ -11,11 +11,11 @@ weight:
 
 Nous vous informons de la disponibilité du second volume des messages de Jésus au monde. Ce volume st intitulé : « Notre Chemin de retour ».
 
-![title](/13-fr-publications-and-downloads/fr-notre-monde-en-transition-cover.webp)
+![title](/13-fr-publications-and-downloads/13-2-1-fr-french-spiritual-books/fr-notre-monde-en-transition-cover.webp)
 
 Pour découvrir le pouvoir de ce que Jésus appelle l’Amour Divin, nous devons comprendre ce qu’il est et comment nous pouvons vivre dans l’énergie de cet Amour. Les vingt-deux leçons contenues dans ce livre sont un guide pour ce voyage. Chacune d’entre elles est empreinte de sagesse, de perspicacité et de vérité, ce qui peut nécessiter un certain nombre de lectures afin d’absorber tout ce qui est offert. Ce n’est pas une lecture légère, mais en contemplant et en parvenant à une compréhension personnelle de ces mots, vous obtiendrez très probablement un sentiment de paix et une réalisation plus proche de la véritable compréhension de l’âme de ce qu’est et peut être la vie.
 
-Ce livre peut-être téléchargé par ce lien : [Notre Chemin de Retour.](/13-fr-publications-and-downloads/fr-notre-chemin-de-retour.pdf)
+Ce livre peut-être téléchargé par ce lien : [Notre Chemin de Retour.](/13-fr-publications-and-downloads/13-2-1-fr-french-spiritual-books/fr-notre-chemin-de-retour.pdf)
 
 Ce livre est également disponible à la vente sur [Amazon.](https://www.amazon.fr/Notre-Chemin-Retour-Albert-Fike/dp/B0BL31BZY1/ref=sr_1_1?crid=3NPEYCBILD1S5&keywords=christian+blandin&qid=1667966679&qu=eyJxc2MiOiIwLjc0IiwicXNhIjoiMC4wMCIsInFzcCI6IjAuMDAifQ%3D%3D&sprefix=%2Caps%2C89&sr=8-1)
 

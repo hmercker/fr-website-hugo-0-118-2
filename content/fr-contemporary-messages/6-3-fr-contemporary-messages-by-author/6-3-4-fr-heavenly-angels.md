@@ -141,7 +141,7 @@ Michael Collier | [Également engagé envers des liens d’äme](/fr-contemporar
 Michael Collier | [L'importance de la cohérence, du dévouement et de la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-4-1-af-michael-collier/) | 4 Juillet 2023
 Michael Collier | [Préparation de la retraite de Laurelville](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-29-1-af-michael-collier/) | 29 Août 2023
 Michael Collier | [Vos désirs et attentes pour une bénédiction spéciale](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-11-5-af-michael-collier/) | 11 Octobre 2023
-Michael Collier | [L’intensité de la prière nous rapproche de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-8-1-af-michael-collier/) | 8 Décembre 2023	
+Michael Collier | [L’intensité de la prière nous rapproche de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-8-1-af-michael-collier/) | 8 Décembre 2023
 Mylora | [Votre lumière est très attirante dans le monde spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-3-2-af-mylora/) | 3 Décembre 2019
 Mylora | [Je suis avec vous dans vos efforts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-2-3-af-mylora/) | 2 Octobre 2020
 Mylora | [Prier avec une intention et une motivation aimantes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-16-1-af-mylora/) | 16 Mai 2021
@@ -178,7 +178,5 @@ Sam | [Retraite spirituelle - Hawaii](/fr-contemporary-messages/fr-contemporary-
 Sam | [Retraite spirituelle - Hawaii_2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-6-7-1-fab-sam/) | 7 Juin 2002
 Sarah Elizabeth Egelburg | [Nous rencontrons Sarah](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-10-11-1-ks-sarah-elizabeth-egelburg/) | 11 Octobre 2004
 Sashaquaha | [Honorer la Terre Mère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-2-4-1-af-sashaquaha/) | 4 Février 2022
-[Les enseignements de Kea Atta Kem](/12-fr-the-main-spiritual-teachers/12-7-fr-the-teachings-of-kea-atta-kem/)
-</br>
+[Les enseignements de Kea Atta Kem](/12-fr-the-main-spiritual-teachers/12-7-fr-the-teachings-of-keea-atta-kem/)
 [Les enseignements de Seretta Kem](/12-fr-the-main-spiritual-teachers/12-6-fr-the-teachings-of-seretta-kem/)
-

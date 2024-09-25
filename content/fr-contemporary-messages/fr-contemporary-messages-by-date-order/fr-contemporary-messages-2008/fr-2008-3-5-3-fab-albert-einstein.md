@@ -31,7 +31,6 @@ Vu sous cet angle, ce qui semblait sans espoir devient un processus compréhensi
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Albert Einstein | [L'humanité est au bord du précipice](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-19-4-af-albert-einstein/) | 19 Novembre 2017
-Albert Einstein | [L'Amour universel est une force](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-8-2-ae-albert-einstein/) | 08 Janvier 2019
 Albert Einstein | [De nombreux scientifiques en esprit travaillent à l'établissement de meilleures communications entre les mondes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-25-1-af-albert-einstein/) | 25 Janvier 2019
 Albert Einstein | [Comment pouvons-nous aider à approcher les scientifiques ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-28-4-af-albert-einstein/) | 28 Janvier 2019
 Albert Einstein | [Vos efforts sont nécessaires pour apporter le changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-9-4-af-albert-einstein/) | 9 Juillet 2019

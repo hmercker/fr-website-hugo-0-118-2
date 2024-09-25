@@ -94,7 +94,7 @@ Le jugement est réel, et les hommes doivent y faire face, et le manque de croya
 
 Cependant, il existe un chemin par lequel les hommes peuvent transformer le jugement de la mort en jugement de la vie et la disharmonie en harmonie – la souffrance en bonheur – et le jugement lui-même en une chose désirable. Ailleurs, nous avons parlé de ce chemin ouvert à tous les hommes, et je n’essayerai pas de le décrire ici.
 
-*[Jésus - 25 Février 1918](/fr-james-padgett-messages/fr-padgett-messages-date-orde/fr-padgett-messages-1918/fr-1918-2-25-1-jep-jesus/)*
+*[Jésus - 25 Février 1918](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-2-25-1-jep-jesus/)*
 
 #### Christ peut être en vous
 

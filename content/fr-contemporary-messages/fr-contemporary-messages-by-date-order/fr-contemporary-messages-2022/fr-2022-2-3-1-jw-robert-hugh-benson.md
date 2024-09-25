@@ -34,6 +34,6 @@ Robert Hugh Benson | [Merci pour votre considération](/fr-contemporary-messages
 Robert Hugh Benson | [Croyance mentale et perception de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-18-2-jw-robert-hugh-benson/) | 18 Avril 2022
 Robert Hugh Benson | [Les royaumes de l’esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-19-1-jw-robert-hugh-benson/) | 19 Avril 2022
 
-### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-20222/)
+### [**Lien vers les messages des années 2022**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

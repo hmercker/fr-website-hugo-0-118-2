@@ -7,9 +7,9 @@ draft: False
 hidden: True
 weight:
 ---
-###  Le libre arbitre et les lois spirituelles
+### Le libre arbitre et les lois spirituelles
 
-Les messages suivants nous permettent de mieux comprendre le pouvoir du libre arbitre et la manière dont il influence notre destin et notre vie sur terre et au-delà. Spirituelles. Nous abordons également brièvement les lois spirituelles, mais nous vous recommandons de visiter [ce lien](10-fr-spiritual-subjects\10-1-fr-spiritual-laws) pour explorer d'autres informations que nous avons reçues sur ce sujet.
+Les messages suivants nous permettent de mieux comprendre le pouvoir du libre arbitre et la manière dont il influence notre destin et notre vie sur terre et au-delà. Spirituelles. Nous abordons également brièvement les lois spirituelles, mais nous vous recommandons de visiter [ce lien](/10-fr-spiritual-subjects/10-1-fr-spiritual-laws/) pour explorer d'autres informations que nous avons reçues sur ce sujet.
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---

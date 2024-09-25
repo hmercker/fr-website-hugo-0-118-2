@@ -46,7 +46,6 @@ Flavius Josèphe | [La créativité est la source de l'âme](/fr-contemporary-me
 Flavius Josèphe | [Les merveilles de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-18-2-af-josephus/) | 18 Août 2020
 Flavius Josèphe | [Les couches de conscience dans l’âme, le mental et le matériel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-6-1-af-josephus/) | 6 Décembre 2020
 Flavius Josèphe | [Avertissement et réassurance pour des changements terrestres de plus en plus intenses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-29-1-af-josephus/) | 29 Mars 2022
-Flavius Josèphe | [Apporte une plus grande comprehension de qui nous sommes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-6-1-af-josephus/) | 8 Janvier 2023
 Flavius Josèphe | [Connaître son âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-21-1-af-josephus/) | 21 Avril 2023
 Flavius Josèphe | [L'intention est la clé de la prière ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-6-11-1-af-josephus/) | 11 Juin 2023
 Flavius Josèphe | [Dieu nous utilise pour renforcer le réseau de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-27-1-af-josephus/) | 27 Août 2023

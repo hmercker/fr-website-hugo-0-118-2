@@ -22,7 +22,7 @@ La liste des messages communiqués par Judas est accessible par [ce lien](/3-fr-
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Judas | [L'amour vous donne un Socle et un Fondement tellement Puissants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-50-1970-1-15-anonymous-judas/) | 15 Janvier 1970
-Judas | [L’Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-19-1-hr-anonymous/) | 19 Août 2001
+Judas | [L’Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-19-1-hr-anonyme/) | 19 Août 2001
 Judas | [Judas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-20-1-hr-judas/) | 20 Août 2001
 Judas | [Communication et médiumnité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-20-2-hr-judas/) | 20 Août 2001
 Judas | [L’Incident du Temple](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-8-21-1-hr-judas/) | 21 Août 2001
@@ -233,7 +233,7 @@ Judas | [La solitude est un état béni](/fr-contemporary-messages/fr-contempora
 Judas | [La faim de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-4-1-jw-judas/) | 4 Juillet 2022
 Judas | [Avoir la Foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-19-2-jw-judas/) | 19 Juillet 2022
 Judas | [Chaque crise est une opportunité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-23-1-jw-judas/) | 23 Août 2022
-Judas | [Les deux frères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-23-2-jw-judas/) | 23 Août 2022
+Judas | [Les deux frères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-23-1-jw-judas/) | 23 Août 2022
 Judas | [Foi, responsabilité et dévouement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-20-1-jw-judas/) | 20 Septembre 2022
 Judas | [Discute des exigences de la médiumnité Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-6-1-af-judas/) | 6 Octobre 2022
 Judas | [La foi au delà de la peur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-2-1-jw-judas/) | 2 Janvier 2023

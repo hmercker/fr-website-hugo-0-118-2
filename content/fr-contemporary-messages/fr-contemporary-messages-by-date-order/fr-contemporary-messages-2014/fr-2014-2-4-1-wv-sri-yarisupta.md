@@ -45,6 +45,6 @@ Sri Yukteswar | [La dualité de l'âme et de l'esprit](/fr-contemporary-messages
 Sri Yukteswar | [Sri Yukteswar rend hommage à Yogananda](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-18-1-jw-sri-yukteswar/) | 18 Septembre 2020
 Sri Yukteswar | [L'instrumentalité de Lorraine se manifeste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-15-3-af-sri-yuktesar/) | 15 Octobre 2022
 
-### [**Lien vers les messages des années 2014**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-20143/)
+### [**Lien vers les messages des années 2014**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

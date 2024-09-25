@@ -33,7 +33,7 @@ Barbara Davies | [Exprimez vos émotions](/fr-contemporary-messages/fr-contempor
 Barbara Davies | [Désir de servir et d’être dans l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-6-1-af-barbara-davies/) | 6 Avril 2021
 Barbara Davies | [Progression de la cinquième à la septième sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-26-1-af-barbara-davies/) | 26 Mai 2021
 Barbara Davies | [Amitié et voyage similaire avec Grace Jordan](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-28-1-af-barbara-davies/) | 28 Janvier 2023
-Barbara Davis  | [Votre famille bénéficie de vos efforts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-21-1-af-barbara-davis/) | 21 Février 2023
+Barbara Davis  | [Votre famille bénéficie de vos efforts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-21-1-af-barbara-davies/) | 21 Février 2023
 Barbara Davies | [N'ayez pas peur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-6-23-3-af-barbara-davies/) | 23 Juin 2023
 Barbara Davies | [Faire la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-14-1-af-barbara-davies/) | 14 Juillet 2023
 

@@ -11,11 +11,11 @@ weight:
 
 Nous vous informons de la disponibilité de l’édition française des messages de Jésus au monde.
 
-![title](/13-fr-publications-and-downloads/fr-notre-chemin-de-retour-cover.webp)
+![title](/13-fr-publications-and-downloads/13-2-1-fr-french-spiritual-books/fr-notre-chemin-de-retour-cover.webp)
 
 C’est un livre d’espoir, d’espoir pour l’avenir de l’humanité. C’est l’espoir d’une plus grande harmonie et d’une plus grande lumière dans notre monde. C’est l’espoir que l’amour remplacera et guérira les ténèbres de la condition humaine. L’espoir est ce dont nous avons besoin aujourd’hui dans un monde qui continue de dégénérer et d’amener beaucoup d’entre nous à un endroit de confusion et de désespoir. Ce livre offre de la clarté et incite le lecteur à entrer dans un lieu de contemplation et de considération profondes. Il y parvient grâce aux leçons simples de Jésus, Maître des Cieux Célestes, qui partage avec nous, dans cette série d’enseignements et d’observations spirituels, la voie à suivre.
 
-Ce livre peut-être téléchargé par ce lien : [Messages de Jésus au Monde](/13-fr-publications-and-downloads/fr-notre-monde-en-transition-messages-de-jesus.pdf).
+Ce livre peut-être téléchargé par ce lien : [Messages de Jésus au Monde](/13-fr-publications-and-downloads/13-2-1-fr-french-spiritual-books/fr-notre-monde-en-transition.pdf).
 
 Ce livre est également disponible à la vente sur [Amazon](https://www.amazon.fr/Notre-Monde-Transition-Messages-Jesus/dp/B09S64MT54/ref=sr_1_1?__mk_fr_FR=%C3%85M%C3%85%C5%BD%C3%95%C3%91&crid=2V9ZLLN2ZRE5G&keywords=notre+monde+en+transition&qid=1644946773&sprefix=notre+mode+en+transition%2Caps%2C99&sr=8-1).
 

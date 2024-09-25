@@ -22,6 +22,6 @@ Bénédictions à vous mes chers enfants bien-aimés. Confucius vous aime. Je vo
 
 1. <large id="f1"> Les différents messages communiqués  par Confucius sont accessibles par l'intermédiaire de [ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-2-fr-spirits-of-ancient-times/)[↩](#a1)
 
-### [**Lien vers les messages des années 2014**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-20143/)
+### [**Lien vers les messages des années 2014**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
