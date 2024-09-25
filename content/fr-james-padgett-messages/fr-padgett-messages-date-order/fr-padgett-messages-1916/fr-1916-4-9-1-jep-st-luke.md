@@ -11,6 +11,8 @@ weight:
 
 St Luc - reçu par James Padgett le 9 Avril 1916, Washington, USA.
 
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-spiritualite-12.webp)
+
 C’est moi Luc.
 
 Je désire ce soir vous entretenir un court instant sur le texte: [*Les péchés des parents sont transmis aux enfants jusqu’à la troisième et la quatrième génération.*](https://saintebible.com/exodus/20-5.htm)

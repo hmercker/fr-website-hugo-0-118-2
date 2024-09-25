@@ -11,6 +11,8 @@ weight:
 
 Charles Russell - reçu par James Padgett le 31 Juillet 1918, Washington, USA.
 
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-spiritualite-30.jpg)
+
 C’est moi, Pasteur Russel. <sup id="a1">[1](#f1)</sup>
 
 Permettez-moi de dire un mot, puisque j’ai été avec vous aujourd’hui alors que vous lisiez le livre <sup id="a2">[2](#f2)</sup> dont je fus l’auteur. Je vois que vous êtes au courant des interprétations erronées du testament qu’il contient, des fausses constructions qui sont tirées des citations de la Bible et aussi que vous sentez qu’une grande blessure est causée à ceux qui lisent et croient en mes enseignements. Eh bien, je me rends compte de la fausseté de mes enseignements et du mal et des blessures qui ont été causées parmi ceux qui ont été mes disciples. Ils seront très surpris quand la mort viendra à eux, et quand ils réaliseront la vérité au sujet de ce que j’ai déclaré être impossible – qu’ils sont plus vivants que jamais par rapport à leur vie dans la chair.

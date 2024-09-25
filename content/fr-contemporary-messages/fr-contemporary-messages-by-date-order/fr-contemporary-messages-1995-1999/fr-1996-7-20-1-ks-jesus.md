@@ -11,6 +11,8 @@ weight:
 
 Jésus - reçu par Kathryn Stokes le 20 Juillet 1996, Santa Cruz, Californie, USA.
 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-argent-et-spiritualite.webp)
+
 Je suis ton ami et ton frère en esprit – l’Esprit Christ manifesté dans mon âme – Jésus de la Bible et Maître des Cieux Célestes.
 
 Je suis conscient des idées que vous et D____ avez partagées sur la raison pour laquelle je n’apparais pas aux gens sur terre en ces jours, et de nombreuses pensées vous ont été données par vos gardiens célestes et par la sagesse de votre propre âme.

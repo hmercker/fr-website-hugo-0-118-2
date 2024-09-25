@@ -55,4 +55,5 @@ Flavius Josèphe | [Aller au-delà de la conscience mentale et spirituelle jusqu
 Flavius Josèphe | [Des vêtements sont tissés pour chacun de nous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-10-1-af-josephus/) | 10 Novembre 2023
 Flavius Josèphe | [Sera honoré de venir demain pour répondre à la question de Geoff ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-19-1-af-josephus/) | 19 Mars 2024
 Flavius Josèphe | [Répond à la question de Geoff Cutler](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-19-1-af-josephus/) | 19 Mars 2024
+Flavius Josèphe | [Parle sur nos dons et nos destinées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-7-1-af-josephus/) | 7 Septembre 2024
 

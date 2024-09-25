@@ -11,6 +11,8 @@ weight:
 
 Orion - reçu par Albert Fike le 27 Janvier 2024, Sechelt, Colombie-Britannique, Canada.
 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-spiritualite-2.webp)
+
 Que Dieu vous bénisse, mes amis. C’est votre vieil ami, Orion. Oui, je pourrais m’appeler votre vieil ami puisque nous nous connaissons depuis un moment maintenant et avons communiqué de cette manière à de nombreuses reprises. Je souhaite aborder certaines communications et idées qui circulent dans la conscience des hommes en ce moment concernant la transition et la transgression des âmes dans diverses dimensions. Je n’entrerai pas dans les détails pour décrire ces idées mais je souhaite les commenter.
 
 Il n’y a rien dans l’univers qui crée une transformation instantanée. Il n’existe aucune force, aucun corps Céleste, aucune énergie comme vous l’appelleriez qui puisse accomplir cela. Il existe très certainement des énergies et des forces dans l’univers qui encouragent et dirigent les âmes de l’humanité. Quand je parle des âmes de l’humanité, je veux dire toute l’humanité dans l’univers, vers la transformation et les changements de conscience et toutes sortes de changements qui peuvent survenir, un changement potentiel au sein de l’univers. **Ces choses ne se produisent pas instantanément.** Ils ne sont pas réalisés par un geste de la main de Dieu qui dit : *« vous serez cela maintenant et vous progresserez de votre condition actuelle vers quelque chose que moi, en tant que Dieu, j’ai jugé nécessaire et important. »*

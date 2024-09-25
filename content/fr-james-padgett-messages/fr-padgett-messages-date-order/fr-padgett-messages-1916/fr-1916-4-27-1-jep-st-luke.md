@@ -11,6 +11,8 @@ weight:
 
 St Luc - reçu par James Padgett le 27 Avril 1916, Washington, USA.
 
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-nepal7.webp)
+
 Je suis là, Luc.
 
 Je ne vous ai pas écrit [depuis un certain temps](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-2-16-1-jep-st-luke/) et j’ai le désir d’écrire un court message ce soir sur le sujet : *« Ce qu’un homme doit faire pour retrouver la pureté d’âme et d’amour que possédaient les premiers parents – je veux dire en tant qu’homme ne possédant que l’amour naturel. »*

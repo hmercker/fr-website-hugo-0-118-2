@@ -11,6 +11,8 @@ weight:
 
 Marie - reçu par Amada Reza le 6 Août 1999, Aptos, Californie, USA.
 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-spiritualite-34.webp)
+
 *[Cher Père Céleste, je vais essayer de voir comment cela fonctionne avec les anges. Je prie pour que Ton Amour Divin vienne dans mon âme afin que je puisse établir un rapport avec mon guide Céleste, Marie. Je veux aider à répondre à des questions spirituelles et la première qui me vient à l’esprit est la suivante : pourquoi laissez-vous de mauvaises choses se produire ? S’il Te plaît, entoure-moi de Ton influence aimante et aide-moi à mettre de côté mes sentiments personnels et à m’ouvrir à Ta volonté à cet égard. Je T’aime.]*
 
 Je suis Marie, la mère de Jésus et ton guide qui est avec toi malgré les bizarreries du plan terrestre. Tu dois comprendre que rien de la nature matérielle ne peut constituer un obstacle aussi important qu’il nous empêcherait de passer à travers toi de quelque façon que ce soit. Il est plus facile de ne pas avoir à se soucier de l’orthographe et de la grammaire, mais vous déciderez de ce que vous êtes prêt à faire. Nous constatons que la plus forte influence qui nous empêche de communiquer avec les mortels est leur libre arbitre et c’est l’objet de mon message en ce moment.

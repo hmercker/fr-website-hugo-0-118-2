@@ -11,6 +11,8 @@ weight:
 
 Saelish - reçu par James Padgett le 3 Novembre 1915, Washington, USA.
 
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-2-spiritualite-14.webp)
+
 Je suis, Saelish.
 
 Je fus, lors de ma vie terrestre, un habitant du grand Empire d’Assyrie dont Ninive était la capitale. Je n’étais pas un roi, mais l’un des magiciens ou des sages d’un grand roi, et, durant ma vie, je fus un homme d’une grande influence et d’un grand pouvoir dans le royaume.

@@ -11,6 +11,8 @@ weight:
 
 Saul - reçu par James Padgett le 31 Janvier 1917, Washington, USA.
 
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-nepal4.jpg)
+
 Je suis Saul.
 
 Je ne vous ai pas écrit [depuis un certain temps](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-4-15-3-jep-saul/) et je voudrais seulement dire quelques mots relativement au fait que jamais, dans toutes les batailles avec les Amalécites, Dieu ne m’a aidé, ou ne m’a apporté la victoire, comme il est énoncé dans l’Ancien Testament. Bien que certains prophètes, comme Samuel à l’époque, aient pu le penser, je sais maintenant que ce n’était pas vrai. Dieu n’était pas le patron particulier et personnel des Juifs, et pour Lui il était tout aussi odieux, pour les Juifs, de commettre le meurtre, et les autres crimes horribles qui sont mentionnés dans le livre en rapport avec ma vie de Roi, qu’il l’aurait été pour les Païens de commettre les mêmes actes.

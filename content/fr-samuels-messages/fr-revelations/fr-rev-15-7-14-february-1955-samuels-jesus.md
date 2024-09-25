@@ -11,6 +11,8 @@ weight:
 
 Jésus - reçu par Dr Samuels le 7 et 14 Février 1955, Washington, USA.
 
+![](/fr-samuel-messages/fr-revelations/fr-rev15-reve-de-joseph.webp)
+
 C’est moi, Jésus.
 
 Ce soir je vais communiquer certaines informations pour votre profit et celui l’humanité au sujet de certaines prophéties et déclarations de l’Ancien Testament. La première d’entre elles est la prophétie de Joël traitant les rêves et les visions des fils de Juda, mais aussi des manifestations de troubles et de destructions dans le monde dans les derniers jours de la nation Juive. Je n’avais pas l’intention d’écrire sur ce chapitre de Joël, mais, dans la mesure où j’ai vu que vous l’aviez examiné jeudi dernier et aviez déclaré qu’il était non-messianique, je viens maintenant pour vous informer que vous étiez dans l’erreur et que le passage en question est l’un des plus beaux passages du genre traitant de la Nouvelle Alliance de grâce et préfigurant l’âge de destruction à l’époque de la chute de Jérusalem.

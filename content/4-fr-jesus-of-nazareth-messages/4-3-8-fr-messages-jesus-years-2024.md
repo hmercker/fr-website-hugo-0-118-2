@@ -23,7 +23,7 @@ Jésus | [Honorer la vieille tradition de prière](/fr-contemporary-messages/fr-
 Jésus | [Le Sacré-Cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-11-1-jw-jesus/) | 11 Mars 2024
 Jésus | [Que chaque âme individuelle parvienne à connaître l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-13-1-af-jesus/) | 13 Mars 2024
 jésus | [Les anges parcourent un long chemin pour être avec vous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-21-1-af-jesus/) | 21 Mai 2024
-Jésus | [La grâce de l'essence de Dieu s'accompagne de responsabilité ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-13-1-af-jesus/) | 13 Juin 2024
+Jésus | [La grâce de l'essence de Dieu s'accompagne de responsabilité ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-13-1-mc-jesus/) | 13 Juin 2024
 Jésus | [Jésus encourage Cliff](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-30-2-af-jesus/) | 30 Juin 2024
 Jésus | [Nous oblige à être des lumières dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-21-1-af-jesus/) | 21 Juillet 2024
 Jésus | [Une prière pour nous aider à atteindre la conscience de l’âme ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-26-1-af-jesus/) | 26 Juillet 2024
@@ -31,3 +31,6 @@ Jésus | [Vos désirs de vérité ](/fr-contemporary-messages/fr-contemporary-me
 Jésus | [Le cadeau merveilleux de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-18-1-af-jesus/) | 18 Août 2024
 Jésus | [Cause et effet, temporel et spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-19-1-jw-jesus/) | 19 Août 2024
 Jésus | [Approuve et encourage les efforts déployés par le Cercle de Lumière d’Estonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-29-2-af-jesus/) | 29 Août 2024
+Jésus | [Nous venons partager la lumièr](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-12-1-af-jesus/) | 12 Septembre 2024
+Jésus | [Brisez les chaînes de l’obscurité et libérez vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-14-1-af-jesus/) | 14 Septembre 2024
+

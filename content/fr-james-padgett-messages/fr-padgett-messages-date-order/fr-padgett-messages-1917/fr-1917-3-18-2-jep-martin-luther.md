@@ -11,6 +11,8 @@ weight:
 
 Martin Luther - reçu par James Padgett le 18 Mars 1917, Washington, USA.
 
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-elie.webp)
+
 C’est moi, Luther.
 
 J’ai eu quelques difficultés à écrire mon nom, mais je n’ai pas laissé cette difficulté me dissuader ou m’empêcher d’écrire.

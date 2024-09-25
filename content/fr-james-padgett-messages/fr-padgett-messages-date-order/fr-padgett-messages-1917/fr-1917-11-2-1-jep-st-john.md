@@ -11,6 +11,8 @@ weight:
 
 St Jean - reçu par James Padgett le 2 Novembre 1917, Washington, USA.
 
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-eveil-spirituel2.webp)
+
 C’est moi, Saint Jean, frère de Jacques – Apôtre de Jésus.
 
 Je viens à vous aujourd’hui parce que je vois votre condition et votre besoin d’encouragements. Comme je suis votre protecteur privilégié, je ne pouvais pas m’abstenir de vous écrire comme je le fais. Je dis donc, faites confiance au Père et à notre aide et vous ne serez pas déçu. Cela fait longtemps que je ne vous ai pas écrit en ce qui concerne les choses spirituelles, et je désire ardemment le faire, car j’ai des messages importants à communiquer, comme beaucoup d’autres esprits qui ont l’habitude de vous écrire.

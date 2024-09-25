@@ -11,6 +11,8 @@ weight:
 
 John Comeys - reçu par James Padgett le 22 Décembre 1915, Washington, USA.
 
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-2-lumière-spirituelle.jpg)
+
 Je désire vous écrire un court instant pour vous informer de certaines vérités, concernant la vie spirituelle, que vous devriez connaître et de ce que à quoi les mortels, qui mènent la vie des hommes bons et purs, peuvent s’attendre et être assurés de réaliser.
 
 Je vis dans les Sphères Célestes, mais je ne parlerai pas de ces sphères, mais seulement des sphères spirituelles, où les hommes, une fois désincarnés, peuvent vivre et faire l’expérience d’un bonheur dont ils n’ont aucune conception sur terre.

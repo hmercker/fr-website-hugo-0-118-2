@@ -11,6 +11,8 @@ weight:
 
 Thomas Jefferson - reçu par FAB le 30 Décembre 2008, Santa Cruz, Californie, USA.
 
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-thomas_jefferson.jpg)
+
 C'est moi, Thomas Jefferson.<sup id="a1">[1](#f1)</sup>
 
 Je sais que vous étiez incrédule tout à l'heure lorsque vous avez lu ma canalisation du 1er Janvier 2008 où je vous ai dit que je m'intéresse toujours à mon pays. Comment cela peut-il être, pensez-vous, si j'habite les Cieux Célestes ?

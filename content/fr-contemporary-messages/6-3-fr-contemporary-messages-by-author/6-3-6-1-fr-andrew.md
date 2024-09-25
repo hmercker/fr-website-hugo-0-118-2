@@ -141,3 +141,4 @@ André | [Nous sommes tous appelés à servir Dieu](/fr-contemporary-messages/fr
 André | [Les anges viennent sur Terre pour enseigner les vérités de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-13-1-af-andrew/) | 13 Février 2024
 André | [Continuez à prier, à renforcer, à étendre les portails et le réseau de lumière ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-1-1-af-andrew/) | 1 Mars 2024
 André | [Pour l'instant, apprenez grâce à vos capacités mentales, aimez grâce à vos capacités d'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-26-1-em-andrew/) | 26 Juin 2024
+André | [Vous avez un impact ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-18-1-af-andrew/) | 18 Septembre 2024

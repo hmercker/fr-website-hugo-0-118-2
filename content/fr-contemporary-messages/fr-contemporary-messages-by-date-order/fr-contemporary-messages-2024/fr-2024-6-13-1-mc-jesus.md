@@ -9,7 +9,9 @@ weight:
 ---
 ### La grâce de l'essence de Dieu s'accompagne de responsabilité 
 
-Jésus - reçu par Albert Fike le 13 Juin 2024, Sechelt, Colombie-Britannique, Canada.
+Jésus - reçu par Maureen Cardoso le 13 Juin 2024, Abbotsford, Colombie-Britannique, Canada.
+
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr_living_waters_spiritual_healings.png)
 
 Je me tiens devant mes disciples, dont les âmes grandissent à la lumière de Dieu, dont les âmes sont illuminées par l’éclat de l’essence du Créateur, dont les âmes aspirent à être en union avec leur Créateur. Vous êtes mes disciples. Rappelez-vous, âmes bien-aimées, que vous êtes créés à l’image de Dieu. L’origine même de votre âme est créée avec les attributs de Dieu. Vous êtes purifié, nettoyé et transformé. Ces attributs originels d’amour et de paix, de puissance, de joie et de sagesse, font partie de ce dont vous êtes fait. Ainsi, lorsque vous priez pour la paix, c’est à vous d’être la paix. Pour que la paix qui est en vous soit activée et renforcée, pour que l’amour qui est en vous soit renforcé et également activé. La même chose que la joie.
 

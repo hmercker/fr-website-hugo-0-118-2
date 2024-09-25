@@ -11,6 +11,8 @@ weight:
 
 Martin Luther - reçu par James Padgett le 31 Janvier 1917, Washington, USA.
 
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-paysage-des-alpes.jpg)
+
 C’est moi, Luther.
 
 Je suis venu simplement pour vous rappeler que j’attends de pouvoir continuer mon discours à mon peuple. Je suis très impatient de le faire, et dès que votre condition sera appropriée, j’espère que vous me donnerez l’occasion de le faire. Eh bien, nous allons arranger ça, et tout ce que nous désirons, c’est que vous vous mettiez en condition. Nous sommes avec vous et nous essayons de vous aider de toutes les manières possibles.

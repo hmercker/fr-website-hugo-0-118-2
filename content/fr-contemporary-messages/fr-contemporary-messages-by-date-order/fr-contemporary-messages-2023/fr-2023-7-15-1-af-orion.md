@@ -11,7 +11,7 @@ weight:
 
 Orion - reçu par Albert Fike le 15 Juillet 2023, Sechelt, Colombie-Britannique, Canada.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/noe4.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-noe4.jpg)
 
 Mes amis, je suis Orion. Chacun de vous trouve sa voie à travers les chemins enchevêtrés et tortueux de la vie, envoyant tous ses défis, toutes ses résistances à la lumière, à la vérité. Pourtant vous persistez, mes amis bien-aimés, vous persistez et vous avez hâte de continuer à grandir dans l’amour et à grandir dans la vérité et la lumière, toutes bonnes choses, toutes choses du grand Créateur de cet univers.
 

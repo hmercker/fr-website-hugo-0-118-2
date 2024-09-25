@@ -9,7 +9,7 @@ weight:
 ---
 ### Être un agent de changement pour la Terre 
 
-Plume Blanche - reçu par Albert Fike le 1er Septembre 2023, Sechelt, Colombie-Britannique, Canada.
+Plume Blanche - reçu par Albert Fike le 1<sup>er</sup> Septembre 2023, Sechelt, Colombie-Britannique, Canada.
 
 Que le Grand Esprit Blanc apporte ses bénédictions à votre âme. Amis bien-aimés, je suis Plume Blanche et je viens vous parler de pureté et d’intention. Car à quoi bon boire de l’eau pure et respirer de l’air pur si en vous-même, vous n’êtes pas pur, si en vous-même, il y a beaucoup de jugement, de peur et de projection de pensées sombres sur votre monde. Mes amis bien-aimés, vous devez avant tout être purs dans votre cœur, vous devez porter en vous l’intention, le désir d’être dans la lumière. Car lorsqu’une âme est en alignement avec Dieu, alors cet alignement apporte une grande bénédiction de la pureté de l’Âme de Dieu, que vous appelez l’Amour Divin, alors vous êtes sur le chemin de vous purifier, d’être changé par le grand agent de changement de Dieu.
 

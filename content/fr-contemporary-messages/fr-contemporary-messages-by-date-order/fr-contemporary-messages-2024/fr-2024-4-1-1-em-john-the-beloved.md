@@ -9,7 +9,7 @@ weight:
 ---
 ### Prière continue
 
-Jean le Bien Aimé - reçu par Elizabeth Mack le 17 Mars 2024, Liverpool, New York, USA.
+Jean le Bien Aimé - reçu par Elizabeth Mack le 1<sup>er</sup> Avril 2024, Liverpool, New York, USA.
 
 Je suis Jean le Bien-Aimé et oui, il y en a beaucoup qui voudraient parler mais ils ne sont pas autorisés pour le moment. J'ai un message pour mes frères et sœurs bien-aimés qui sont sur ce chemin de l'Amour Divin. Je suis votre frère en Christ, celui qui a suivi son Maître sur la Terre et qui continue à le suivre dans les sphères Célestes, et nous le faisons en priant.
 

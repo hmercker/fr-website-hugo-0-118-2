@@ -11,6 +11,8 @@ weight:
 
 Seretta Kem - reçu par Al Fike le 30 Décembre 2018, Gibsons, Colombie-Britannique, Canada.
 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2018-nepal5.jpeg)
+
 Oui, les conditions de votre monde sont en train de changer et pour certains d’entre vous, vous sentez l’affaiblissement de ce que l’on pourrait considérer comme l’atmosphère joyeuse de la fête de la naissance du Maître. Pourtant, tant de personnes ne ressentent aujourd’hui aucune joie ou reconnaissance de ce temps de gratitude et cela nous attriste de voir que le monde continue à être aveuglé et volontairement éloigné de sa propre nature spirituelle.
 
 Oui, le monde change et le changement est inévitable. Pourtant, Dieu continue à répandre Son Amour et Sa Lumière sur votre monde et pour ceux d’entre vous qui sont prêts à s’ouvrir et à recevoir ces dons et bénédictions de Dieu, vous serez élevés et vous serez bénis. Souvent, les attentes, les schémas, les confusions et les déceptions de votre esprit agissent comme une barrière envers Dieu. C’est la condition humaine avec laquelle vous luttez tous et par laquelle vous vous sentez parfois quelque peu vaincus, et pourtant vous savez dans votre cœur que vous arriverez à un lieu de joie, de sentiment proche de Dieu. Dans ces cycles et rythmes de vie, ces interactions entre votre esprit et votre âme, votre âme et Dieu, votre être et votre expérience de la vie, il y a des hauts et des bas. Il y a la lumière et il y a les ténèbres. C’est la route de la vie.

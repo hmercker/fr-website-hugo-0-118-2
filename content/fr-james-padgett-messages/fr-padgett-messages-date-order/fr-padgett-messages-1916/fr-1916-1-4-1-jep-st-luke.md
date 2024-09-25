@@ -13,6 +13,8 @@ St Luc - reçu par James Padgett le 4 Janvier 1916, Washington, USA.
 
 C’est moi, St Luc.
 
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-spiritualite-28.webp)
+
 Je souhaite [continuer mon discours](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-12-30-1-jep-luke/) sur l’expiation.
 
 Comme je disais, à moins qu’un homme soit en harmonie avec Dieu dans l’amour naturel que Dieu lui a décerné et devienne de ce fait exempt de péché et d’erreur, il ne peut y avoir aucune rédemption pour lui, et la mort de Jésus et son sang ne permettront pas la restauration de cette harmonie.

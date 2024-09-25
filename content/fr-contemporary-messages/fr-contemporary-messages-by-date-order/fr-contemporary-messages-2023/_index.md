@@ -127,7 +127,7 @@ Care Derby Walsh | [Parler vrai sans regrets](/fr-contemporary-messages/fr-conte
 Augustin | [Parle clairement de ce qui est requis pour les manifestations vocales directes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-18-1-af-augustine/) | 18 Avril 2023
 Samuel | [Deux parcours spirituels distincts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-18-2-af-samuel/) | 18 Avril 2023
 Professeur Salyards | [Opportunité de croissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-20-1-af-professor-salyards/) | 20 Avril 2023
-Jean le Bien Aimé | [Prièes de l'Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-20-2-af-john-the-beloved/) | 20 Avril 2023
+Jean le Bien Aimé | [Prières de l'Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-20-2-af-john-the-beloved/) | 20 Avril 2023
 Jeanne d'Arc | [L'Amour Divin favorise l'unité et l'harmonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-20-3-em-joan-of-arc) | 20 Avril 2023
 Flavius Josèphe | [Connaître son âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-21-1-af-josephus/) | 21 Avril 2023
 Jésus | [Je vous accueillerai dans le Royaume quand le temps sera venu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-22-1-em-jésus/) | 22 Avril 2023

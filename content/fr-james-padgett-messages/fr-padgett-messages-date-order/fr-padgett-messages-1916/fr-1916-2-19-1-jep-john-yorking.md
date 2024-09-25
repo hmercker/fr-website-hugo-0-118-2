@@ -11,6 +11,8 @@ weight:
 
 John Yorking - reçu par James Padgett le 19 Février 1916, Washington, USA.
 
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-le-soutien-de-dieu.jpg)
+
 Je suis l’esprit de quelqu’un qui est mort il y a de nombreuses années dans un pays lointain, lorsque les vérités du Christianisme étaient connues et pratiquées par les disciples du Maître avec la pureté avec laquelle il les enseignait. Je fus son disciple, mais je ne suis pas un personnage connu de l’histoire, mais, comme beaucoup d’autres qui ont vécu à cette époque, j’ai travaillé humblement parmi les pauvres et les simples de la terre. J’ai surtout travaillé dans le pays périphérique, mais proche de la Palestine, et j’ai reçu du monde des esprits les communications des esprits qui avaient vécu sur terre en tant que Chrétiens. Ces communications étaient reçues dans notre culte public et interprétées ou rendues claires et compréhensibles aux gens du peuple par ces enseignants qui avaient le don d’interprétation.
 
 Ce sont ces communications auxquelles Jean se référait lorsqu’il nous conseillait de mettre les esprits à l’épreuve pour savoir s’ils étaient de Dieu ou, en d’autres termes, pour savoir s’ils étaient des esprits qui avaient une connaissance des doctrines du Christ, qui étaient venus pour nous enseigner la vérité comme ils l’avaient vue dans le monde spirituel, et qui étaient disciples du Maître.

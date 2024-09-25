@@ -13,6 +13,8 @@ Jésus - reçu par FAB le 19 Décembre 2006, Santa Cruz, Californie, USA.
 
 C'est moi, Jésus.
 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-spiritualite-15.webp)
+
 Je vois que vous êtes confus. D'une part, vous croyez que ma mort sur la croix était une erreur tragique et non le plan de Dieu pour la rédemption, et d'autre part, vous avez observé que la plupart des grands chefs spirituels de l'histoire ont souffert à cause de leurs missions respectives.
 
 Vous savez que dans votre tradition Juive, il y a eu une forte tendance vers le concept de la souffrance rédemptrice. Où est donc la vérité ?

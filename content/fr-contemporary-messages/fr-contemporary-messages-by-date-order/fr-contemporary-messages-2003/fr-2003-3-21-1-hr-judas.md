@@ -13,6 +13,8 @@ Judas - reçu par H____ le 21 Mars 2003, Cuenca, Équateur.
 
 Mon cher frère;
 
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-spiritualite-24.webp)
+
 Ce matin, comme c’est si souvent le cas, j’étais avec toi. Avec beaucoup d’intérêt je t’ai observé lorsque tu as traduit le message de David. D’une certaine façon, il t’a surpris. Tu n’as pas perçu dans le message une forte levée de boucliers contre la guerre, bien qu’il laisse très peu de doute qu’il ne l’approuvait pas, déclarant : *« Ne croyez pas que le Père abandonne simplement Ses enfants parce que la guerre est une mauvaise chose. »*
 
 Je ne veux pas analyser avec toi le contenu intégral du [message de David d'hier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-3-20-1-pjr-king-david/), mais j’aimerais plutôt jeter un coup œil à une autre phrase qui t’a surpris : *«… que (commencer une guerre) est un acte relativement courant. »* Pourquoi David a-t-il dit cela ?

@@ -13,6 +13,8 @@ Jésus - reçu par Dr Samuels le 22 Octobre 1957, Washington, USA.
 
 C’est moi, Jésus.
 
+![](/fr-samuel-messages/fr-sermons/fr-sermon6-spiritualite-10.webp)
+
 Ce soir, je veux écrire pourquoi aucun sang, qu’il s’agisse de celui de l’homme ou de l’animal, n’a un effet rédempteur sur le péché de l’humanité, tel que cela est enseigné dans certaines églises.
 
 Cette pensée est le point culminant de ce qu’on appelle la messe, telle qu’elle est pratiquée dans l’église Catholique et constitue le fondement de ce qu’on appelle la communion dans d’autres églises. Ce rite n’a aucun fondement dans le Judaïsme et il est écrit, faussement, que c’est moi qui ait institué la cérémonie lors de la dernière Cène. L’église aime pointer vers quelques incidents sans importance dans les écritures anciennes comme étant indicatives d’un rite futur. J’expliquerai comment  cela n’a aucun rapport avec la messe et n’est simplement qu’une grave distorsion de faits afin de s’accorder avec les vues de l’église.

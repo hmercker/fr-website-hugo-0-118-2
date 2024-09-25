@@ -11,6 +11,8 @@ weight:
 
 Jésus - reçu par James Padgett le 25 Décembre 1915, Washington, USA.
 
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-2-spiritualité-21.jpg)
+
 C’est moi, Jésus.
 
 Je viens ce soir, parce que je vois que vous êtes solitaire et que vous ressentez le besoin de compagnie, et je viens à vous en tant que frère et ami pour vous encourager et vous faire sentir, que même si vous n’avez pas la compagnie d’amis mortels, vous avez un ami, dans l’esprit, qui est plus proche qu’un frère mortel et qui vous aime avec un amour profond et respectueux.

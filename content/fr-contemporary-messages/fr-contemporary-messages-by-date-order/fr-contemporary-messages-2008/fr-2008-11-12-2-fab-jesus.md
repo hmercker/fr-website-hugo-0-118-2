@@ -13,6 +13,8 @@ Jésus - reçu par FAB le 12 Novembre 2008, Santa Cruz, Californie, USA.
 
 C'est moi, Jésus.
 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-spiritualite-15.webp)
+
 Oui, mon programme politique était basé sur l'amour. En outre, je ne croyais pas au type de politique qui, dans votre pays [les États-Unis], semble fonctionner à travers de graves conflits. Je voulais des dirigeants politiques qui aient à cœur les meilleurs intérêts de leurs électeurs et qui fassent de leur mieux pour aimer leurs adversaires.
 
 J'étais parfaitement conscient des imperfections humaines, mais je préconisais de dépasser la faiblesse et la nature animale. Je pensais que les politiciens devaient s'efforcer de s'aimer les uns les autres, sans renoncer à leurs convictions. Sachant parfaitement comment la politique évolue habituellement, je présentais une vision plus élevée, que les gens pourraient obtenir s'ils croyaient en la bonté de la nature humaine.

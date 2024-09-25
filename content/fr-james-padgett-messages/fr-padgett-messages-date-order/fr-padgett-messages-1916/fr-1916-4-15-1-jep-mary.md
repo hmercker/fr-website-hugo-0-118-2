@@ -11,6 +11,8 @@ weight:
 
 Marie - reçu par James Padgett le 15 Avril 1916, Washington, USA.
 
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-marie-mere-de-jesus.webp)
+
 Je suis Marie, la Mère de Jésus.
 
 Je viens à vous avec tout l’amour maternel d’une mère qui a tant aimé son fils bien-aimé sur terre et qui a profondément souffert, dans son cœur, de la mort cruelle de son bien-aimé. Je viens à vous aussi avec l’amour qui a été purifié par l’expérience et la proximité du Père béni.

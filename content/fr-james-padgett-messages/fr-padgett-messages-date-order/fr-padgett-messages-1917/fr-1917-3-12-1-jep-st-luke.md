@@ -11,6 +11,8 @@ weight:
 
 St Luc - reçu par James Padgett le 12 Mars 1917, Washington, USA.
 
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-nepal5.jpg)
+
 C’est moi, Luc.
 
 Ce soir, je désire écrire sur le sujet de *« Quels sont les faits qui prouvent l’authenticité de la Bible ? »* J’étais avec vous lors du sermon du prédicateur sur ce sujet et je fus surpris qu’il puisse  affirmer avec autant de confiance qu’il est évident que la Bible est la parole authentique de Dieu, écrite par les hommes dont les noms sont cités. Le fait qu’il ait retracé l’existence de certains manuscrits et versions à cent cinquante ans après le temps des enseignements de Jésus n’établit pas la véracité de sa déclaration quant à l’authenticité de la Bible, ou que les manuscrits, tels qu’ils existent maintenant, contiennent les véritables écrits des apôtres, ou des personnes qui sont censées être les auteurs, par le simple fait que leurs noms sont associés à ces manuscrits.

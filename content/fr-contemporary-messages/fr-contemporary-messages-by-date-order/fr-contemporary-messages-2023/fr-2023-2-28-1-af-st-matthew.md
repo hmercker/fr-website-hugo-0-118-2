@@ -11,6 +11,8 @@ weight:
 
 St Matthieu - reçu par Al Fike le 28 Février 2023, Sechelt, Colombie-Britannique, Canada.
 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-spiritualite-31.webp)
+
 Frères et sœurs, je suis Matthieu. Vous avez reçu le don de la vie. Une âme résidant dans le ventre de Dieu entreprend un voyage qui lui permettra d’acquérir une identité, de vivre une vie différente de celle qui est séquestrée dans le ventre de Dieu, de faire l’expérience de la vie physique, d’avoir un corps et, à l’intérieur de ce corps, un esprit et une âme. Tous ces éléments sont un don de Dieu qui permet à l’individu de connaître l’univers de Dieu du point de vue des nombreuses perceptions et expériences que la vie peut apporter.
 
 Il y a des âmes qui parcourent le chemin de la vie, rassemblant leurs souvenirs et les choses qui, dans une vie, causent joie et douleur et tout le spectre d’un corps expérimentant le plan physique, mais souvent elles ne vont pas plus loin que cette expérience. EIles sont piégées dans un esprit et une perspective qui sont limités et pourtant elles remplissent le mandat principal de la vie qui est l’identité, et elles peuvent en effet favoriser d’autres personnes qui peuvent venir dans ce monde. Mais la vie est plus que cela, âmes bien-aimées. La vie est l’opportunité de venir à Dieu d’une perspective différente, de venir à Dieu avec les sensations, les expériences et les compréhensions qui accompagnent une âme incarnée et, de cette manière, la profondeur et l’étendue de ces expériences grandiront, en particulier lorsqu’elles chercheront à étendre leurs âmes dans l’Amour Divin.

@@ -11,6 +11,8 @@ weight:
 
 Robert Ingersoll - reçu par James Padgett le 24 Avril 1916, Washington, USA.
 
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-paysage-de-montagne3.jpg)
+
 C’est moi, Robert G. Ingersoll.
 
 Je suis venu ce soir pour vous faire part de mes progrès [depuis la dernière fois que je vous ai écrit](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-3-4-3-jep-robert-ingersoll/). Vous vous souviendrez que je vous avais déclaré ma conversion au Christianisme – je veux dire au vrai Christianisme de Jésus et à la foi en l’Amour Divin du Père. Depuis lors, j’ai prié et cherché cet amour et la foi qui l’accompagne, et maintenant j’ai progressé de telle sorte que je me trouve dans la troisième sphère, où je trouve une beauté et un bonheur que je n’avais jamais imaginés sur terre ou depuis mon arrivée dans le monde des esprits.

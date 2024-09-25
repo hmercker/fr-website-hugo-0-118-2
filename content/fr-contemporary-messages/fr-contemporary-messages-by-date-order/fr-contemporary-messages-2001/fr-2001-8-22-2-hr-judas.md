@@ -11,6 +11,8 @@ weight:
 
 Judas - reçu par H____ le 22 Août 2001, Cuenca, Équateur.
 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-judas-spiritualite-35.webp)
+
 Bonjour H____ ! Tu m’as appelé, mais je vois que notre lien n’est pas très bon. Tu peux sentir cela, aussi, parce que tu ne me voies pas clairement. Tu es somnolent; ce n’est peut-être pas le bon moment.
 
 Eh bien, si tu insistes, nous pouvons essayer. Mais il faut choisir un sujet facile.

@@ -11,6 +11,8 @@ weight:
 
 St Luc - reçu par James Padgett le 25 Juin 1917, Washington, USA.
 
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-spiritualite-27.jpg)
+
 C’est moi, Luc.
 
 J’ai écouté votre conversation et j’ai apprécié la connaissance que vous possédez tous les deux de ces vérités qui vous ont été transmises par les différents messages et les intuitions si je puis me permettre de les décrire, dont je tiens à dire que je vous ai également impressionnés. Et je tiens à vous dire que dans notre travail pour vous faire comprendre ces vérités par nos impressions ou, comme certains médiums pourraient dire, par nos inspirations, nous ne vous laissons pas dépendre entièrement du simple langage du message mais nous essayons de vous donner une compréhension précise du véritable sens de ces messages.

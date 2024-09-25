@@ -11,6 +11,8 @@ weight:
 
 Los Trenos - reçu par James Padgett le 12 Janvier 1917, Washington, USA.
 
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-spiritualite-15.webp)
+
 Je suis là, Los Trenos.
 
 Je suis l’esprit d’un homme qui a été assassiné lors de l’Inquisition Espagnole parce que je ne déclarerais pas croire aux doctrines fausses et condamnables de l’Église Romanche. J’étais un étudiant de la Bible, et j’avais appris que l’église n’enseignait pas et n’appliquait pas les vraies doctrines de Jésus, et je n’ai pas abandonné mes croyances, même pour sauver ma vie. Les prêtres et les persécuteurs impies et diaboliques ont assailli mon corps et torturé mon esprit, et m’ont finalement déchiré (dans le texte originel « tore me asunder »). Cependant mon âme a conservé sa foi, et est venue dans le monde spirituel dans la plénitude de sa foi, tout cela sans se soucier des faux enseignements de l’Église. Beaucoup ont été torturés et tués comme je l’ai été, parce qu’ils ne voulaient pas se rétracter.

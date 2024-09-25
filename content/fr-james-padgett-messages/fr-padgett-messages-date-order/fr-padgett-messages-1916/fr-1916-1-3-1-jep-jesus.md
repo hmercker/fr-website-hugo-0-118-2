@@ -11,6 +11,8 @@ weight:
 
 Jésus - reçu par James Padgett le 3 Janvier 1916, Washington, USA.
 
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-spiritualite-15.webp)
+
 C’est moi, Jésus.
 
 Je suis avec vous ce soir pour vous mettre en garde contre le fait de laisser un quelconque doute entrer dans votre esprit ou votre cœur, quant au fait que nous vous avons écrit, car nous seuls et personne d’autre n’est en communication avec vous.

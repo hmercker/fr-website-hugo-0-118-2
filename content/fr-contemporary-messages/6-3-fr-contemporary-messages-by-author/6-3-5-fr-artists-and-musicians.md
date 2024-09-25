@@ -36,6 +36,7 @@ Charlie Chaplin | [Même Atlas ne pouvait pas faire ce que Dieu peut faire !](/f
 Charlie Chaplin | [Agir avec Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-21-1-jw-charlie-chaplin/) | 21 Novembre 2022
 Charlie Chaplin | [Un cœur ouvert est le chemin de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-22-1-jw-charlie-chaplin/) | 22 Février 2023
 Charlie Chaplin | [L'humour restauré dans l'Amour ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-20-1-jw-charlie-chaplin/) | 20 Mai 2024
+Charlie Chaplin | [Utiliser l'humour pour dénoncer la cupidité, l'injustice et l'inégalité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-13-1-jw-charlie-chaplin/) | 13 Septembre 2024
 Dame Nellie Melba | [Le monde a besoin de vous maintenant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-21-6-af-dame-nellie-melba/) | 21 Novembre 2017
 Elizabeth Taylor | [Nous souhaitons partager ces vérités de belles manières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-21-8-af-elizabeth-taylor/) | 21 Novembre 2017
 Franz Joseph Haydn | [Le compositeur Haydn connaît, comme esprit, la joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-4-1-fab-franz-joseph-haydn/) | 4 Janvier 2003
@@ -43,6 +44,7 @@ Fred Rogers | [Rappelez-vous l’importance de guider les enfants](/fr-contempor
 Fred Rogers | [Travailler avec les petits enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-12-1-jw-fred-rogers/) | 12 Octobre 2021
 Fred Rogers | [Amis imaginaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-29-1-jw-fred-rogers/) | 29 Septembre 2022
 Fred Rogers | [Nous sommes tous des enfants de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-5-1-1-jw-fred-rogers/) | 1 Mai 2023
+Fred Rogers | [Aime son travail en esprit comme il l'a aimé sur terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-14-2-jw-fred-rogers/) | 14 Septembre 2024
 Frédéric Chopin | [Comment recevoir l'inspiration](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-107-1970-anonymous-frederick-chopin/) |   1970
 Frédéric Chopin | [Je souhaite apporter ma musique à l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-21-4-af-frederick-chopin/) | 21 Novembre 2017
 Gene Kelly | [Que votre cœur chante](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-23-2-af-gene-kelly/) | 23 Novembre 2017

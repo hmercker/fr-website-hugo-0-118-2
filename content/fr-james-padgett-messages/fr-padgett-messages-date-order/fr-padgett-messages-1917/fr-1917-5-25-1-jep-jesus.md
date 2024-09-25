@@ -11,6 +11,8 @@ weight:
 
 Jésus - reçu par James Padgett le 25 Mai 1917, Washington, USA.
 
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-spiritualite-27.jpg)
+
 C’est moi, Jésus.
 
 J’étais avec vous alors que vous priiez et je me suis joint à votre prière au Père pour l’arrivée, en grande abondance, de Son Grand Amour dans votre âme; et je sais que Son Esprit est présent et que Son Amour coule dans votre âme et que vous devenez un avec le Père. Son Amour viendra toujours à vous quand vous priez comme vous l’avez fait ce soir, et Son oreille attentive est toujours ouverte aux aspirations sincères de Ses Enfants qui viennent à lui avec les vrais désirs de l’âme. Vous avez le secret pour atteindre l’Amour du Père et, en toutes occasions, lorsque vous sentez que vous avez besoin de cet Amour ou lorsque vous désirez une proximité avec le Père, utilisez le secret et vous ne serez pas déçu.

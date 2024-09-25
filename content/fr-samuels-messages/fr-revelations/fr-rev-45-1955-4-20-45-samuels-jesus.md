@@ -11,6 +11,8 @@ weight:
 
 Jésus - reçu par Dr Samuels le 20 Avril 1955, Washington, USA.
 
+![](/fr-samuel-messages/fr-revelations/fr-rev45-spiritualite-11.webp)
+
 C’est moi, Jésus.
 
 Je suis heureux de vous entendre dire que vous n’auriez pas été en mesure de recevoir le message sur les attributs de Dieu et l’homme sans posséder un peu de l’Amour Divin dans votre âme. Et, vous avez parfaitement raison d’affirmer qu’un tel message ne pourrait pas être reçu par le biais du cerveau d’un médium dans lequel l’Amour Divin laisserait à désirer. Je suis donc heureux que vous vous rendiez compte de la puissance que l’Amour vous a donné dans votre âme, vous permettant de recevoir, de ma part, des messages de cet ordre élevé. Et c’est une preuve supplémentaire que ce que vous recevez n’est pas la création de votre propre esprit, même si vous le pensez, mais que son origine se trouve dans le monde spirituel, et, en fait, en moi, Jésus et, alors que je signe moi-même, Maître des Cieux Célestes.

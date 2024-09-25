@@ -11,6 +11,8 @@ weight:
 
 Jésus - reçu par Dr Samuels le 28 Juillet 1955 et 13 Mars 1959, Washington, USA.
 
+![](/fr-samuel-messages/fr-revelations/fr-rev53-spiritualite-31.webp)
+
 C’est moi, Jésus.
 
 Oui, je suis ici ce soir et je tiens à vous remercier pour l’opportunité de vous écrire une fois de plus. Je me rends compte qu’il fait très chaud, et que votre désir de recevoir des messages du monde des esprits a, en conséquence, sensiblement diminué, plutôt à cause des  conditions matérielles que de l’épuisement spirituel de vos pouvoirs.

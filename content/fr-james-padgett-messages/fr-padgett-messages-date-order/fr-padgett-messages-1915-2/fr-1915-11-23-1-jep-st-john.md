@@ -11,6 +11,8 @@ weight:
 
 St Jean - reçu par James Padgett le 23 Novembre 1915, Washington, USA.
 
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-2-le-soutien-de-dieu.jpg)
+
 C’est moi, Saint-Jean, Apôtre de Jésus.
 
 Je veux vous parler ce soir des choses que les esprits qui n’ont pas reçu l’Amour Divin du Père font, ou ont bénéficié, comme vous pouvez le dire, pour sortir de leurs ténèbres et souffrances et passer à une condition plus heureuse.

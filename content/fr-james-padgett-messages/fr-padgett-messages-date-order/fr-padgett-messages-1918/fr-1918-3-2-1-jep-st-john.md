@@ -11,6 +11,8 @@ weight:
 
 St Jean - reçu par James Padgett le 2 Mars 1918, Washington, USA.
 
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1918/fr-1918-le-soutien-de-dieu.webp)
+
 C’est moi, Jean.
 
 Je n’écrirai pas maintenant, sauf pour dire que votre condition spirituelle s’est beaucoup améliorée et que vous avancez dans votre âme dans la perception de la vérité et de la réalité du Père et de Son Amour.

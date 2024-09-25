@@ -9,7 +9,7 @@ weight:
 ---
 ### Un chercheur reçoit une invitation 
 
-Moïse - reçu par Albert Fike le 30 Juin 2024, Sechelt, Colombie-Britannique, Canada.
+Moïse - reçu par Elizabeth Mack le 30 Juin 2024, Sechelt, Colombie-Britannique, Canada.
 
 Cet Amour Divin, je le cherche partout et pourtant, je le trouve ici, dans cet humble cercle. Je regarde vers les cieux pour chercher cet amour. Je vois, depuis le Créateur, la source de cet Amour et je suis ici, Créateur. Je suis ici. Je cherche votre amour. Je cherche votre amour.
 

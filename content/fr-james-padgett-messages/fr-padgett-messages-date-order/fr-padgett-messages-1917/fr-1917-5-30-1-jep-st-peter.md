@@ -11,6 +11,8 @@ weight:
 
 St Pierre - reçu par James Padgett le 30 Mai 1917, Washington, USA.
 
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-nepal7.jpg)
+
 C’est moi, Saint Pierre, Apôtre de Jésus.
 
 J’ai vu ce que vous lisiez (l’Évangile de Luc). Je dois vous informer que bon nombre de soi-disant miracles de guérison, d’élévations des morts, du contrôle des lois, ou des expressions de la nature, n’ont jamais eu lieu.

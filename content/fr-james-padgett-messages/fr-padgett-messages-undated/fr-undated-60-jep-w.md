@@ -11,6 +11,8 @@ weight:
 
 W - reçu par James Padgett, Washington, USA.
 
+![](/fr-james-padgett-messages/fr-padgett-messages-undated/fr-undated-spiritualite-8.jpg)
+
 Je suis , W____ (Un membre du clergé de l’église Orthodoxe).
 
 Permettez-moi écrire un peu. J’ai besoin de votre aide et je crois que vous pouvez m’aider, car on m’a dit que vous avez aidé d’autres avant moi.

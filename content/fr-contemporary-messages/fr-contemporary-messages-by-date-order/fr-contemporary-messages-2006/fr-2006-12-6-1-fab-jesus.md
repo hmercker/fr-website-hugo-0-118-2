@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par FAB le 6 Décembre 2006, Santa Cruz, Californie, USA.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/Livre de JOB.webp)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-livre-de-job.webp)
 
 C'est moi, Jésus.
 

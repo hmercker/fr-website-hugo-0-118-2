@@ -11,6 +11,8 @@ weight:
 
 Hafiz <sup id="a1">[1](#f1)</sup> - reçu par FAB le 3 Mars 2011, Santa Cruz, Californie, USA.
 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-hafiz.jpg)
+
 C’est moi, le poète Hafiz, et je viens en réponse au désir sincère de J____ de connaître la vérité au sujet des esprits Musulmans. Mais d’abord, laissez-moi vous dire que j’ai trouvé mon chemin vers la Nouvelle Naissance. Les enseignements de Jésus n’ont rien de l’infidélité. Ils ont eu l’anneau de la vérité.
 
 J____ a pensé que ceux qui parmi nous étaient des Soufis éclairés pourraient influencer nos frères et sœurs musulmans et leur montrer la voie. Eh bien, je dois décevoir J____ en disant que, presque toujours, nous avons rencontré un mur en pierre, parce que les Musulmans sont très stricts au sujet de leur religion, et l’histoire hostile des Chrétiens et des Musulmans n’a laissé qu’une très petite place pour l’influence. Naturellement, nous désirons apporter à nos coreligionnaires Musulmans la voie Divine, mais nous ne le pouvons pas, et beaucoup d’entre eux conservent leurs croyances en tant qu’esprits. Ils ont une aversion profonde pour la pensée de se convertir à l’idée Chrétienne à cause de ceux qui ont soutenu le manteau des enseignements de Jésus, mais ont fait exactement le contraire.

@@ -13,6 +13,8 @@ Jésus - reçu par FAB le 12 Novembre 2010, Berkeley, Californie, USA.
 
 C'est moi, Jésus.
 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-spiritualite-12.jpg)
+
 Je voudrais canaliser un message qui vous a troublé pendant longtemps, et nous avons estimé que ce soir est le bon moment pour le clarifier. Vous avez appris que le militarisme est une mauvaise chose. C'est un véritable enseignement. Les personnes qui se sont engagées dans la violence de la guerre constatent que leurs expériences non seulement ne les aident pas, mais qu'elles entravent leur développement spirituel ici-bas.
 
 Vous avez pensé que votre pays, les États-Unis, est né de la guerre et qu'à la suite de ce conflit, la nouvelle nation a pu créer un pays dans lequel la liberté était inscrite. Vous avez raisonné que sans la guerre révolutionnaire, il n'y aurait pas eu de premier amendement. Et puis, quelqu'un vous a dit un jour que *« la guerre fait le travail »*.

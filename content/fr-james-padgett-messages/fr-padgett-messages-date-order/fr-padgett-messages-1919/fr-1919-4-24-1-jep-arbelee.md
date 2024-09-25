@@ -11,6 +11,8 @@ weight:
 
 Arbelee - reçu par James Padgett le 24 Avril 1919, Washington, USA.
 
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1919/fr-1919-spiritualite-22.jpg)
+
 C’est moi, ton père.
 
 Permettez-moi d’écrire car je désire dire à mon fils que je suis avec lui dans sa maladie et que j’essaie de l’aider et de lui faire sentir qu’il y a plus dans la vie qu’une simple vie physique.

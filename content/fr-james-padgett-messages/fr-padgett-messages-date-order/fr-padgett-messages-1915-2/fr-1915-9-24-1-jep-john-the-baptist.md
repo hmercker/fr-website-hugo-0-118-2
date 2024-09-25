@@ -11,6 +11,8 @@ weight:
 
 Jean le Baptiste - reçu par James Padgett le 24 Septembre 1915, Washington, USA.
 
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-2-Jean-le-Baptiste.jpg)
+
 C’est moi, Jean-Baptiste.
 
 Je désire vous écrire ce soir à propos d’une certaine vérité que vous devez connaître, afin de pouvoir enseigner aux autres l’importance d’étudier le plan de Dieu pour le salut de l’homme – je veux dire que pour que les hommes soient sauvés de leurs péchés, ils doivent croire en la manière que le Maître vous enseignera dans ses messages. Je n’ai pas l’intention de m’étendre sur la Nouvelle Naissance, car cela a déjà été fait à plusieurs reprises. Mais je veux maintenant aborder la vérité qui est la seule chose qui perfectionne l’humanité, et les esprits aussi, et qui leur permet d’obtenir les qualités de l’âme qui sont absolument nécessaires avant qu’un homme puisse devenir un avec le Père.

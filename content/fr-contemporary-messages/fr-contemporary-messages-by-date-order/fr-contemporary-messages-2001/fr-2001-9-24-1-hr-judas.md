@@ -11,6 +11,8 @@ weight:
 
 Judas - reçu par H____ le 24 Septembre 2001, Cuenca, Équateur.
 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-judas-spiritualite-24.webp)
+
 Mon cher frère H____ , le moment est venu d’approfondir un peu plus le sujet des âmes sœurs. Je ferai cela dans un seul message, mais il y aura certainement beaucoup de questions parce que la plupart d’entre vous ne pouvez pas tout comprendre.
 
 Tout d’abord, je tiens à répéter que l’amour entre deux âmes sœurs n’a rien à voir avec la sexualité, c’est un fait que beaucoup peuvent accepter, bien qu’ils ne puissent pas le comprendre. Deuxièmement, afin qu’il ne puisse y avoir aucune confusion ou ambiguïté, je tiens à répéter que l’âme ne possède pas de sexe, elle n’a pas de genre. L’âme n’est ni féminine ni masculine. Et cette affirmation, comme tu le sais, est en contradiction avec plusieurs déclarations faites dans les messages de James Padgett.

@@ -11,6 +11,9 @@ weight:
 
 St Jean - reçu par James Padgett le 18 Mars 1916, Washington, USA.
 
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-spiritualite-23.webp)
+
+
 C’est moi, Saint-Jean, Apôtre de Jésus.
 
 Je souhaite écrire, ce soir, sur un sujet qui est très important pour les membres des églises orthodoxes quant à la conviction de l’efficacité de l’expiation de Jésus par sa mort et sa crucifixion.

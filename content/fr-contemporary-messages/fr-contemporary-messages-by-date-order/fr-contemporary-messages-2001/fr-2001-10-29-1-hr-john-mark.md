@@ -11,6 +11,8 @@ weight:
 
 Jean Marc - reçu par H____ le 29 Octobre 2001, Cuenca, Équateur.
 
+![title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-eveil-spirituel2.jpg)
+
 *[Judas :]*
 
 S’il te plaît, calme-toi, H____ , tout va bien. Oui, je sais, tu as vu un autre esprit, un garçon et un homme adulte. Oui, ils sont un seul et même esprit. Nous avons essayé de projeter ces images dans ton esprit, et il est ici maintenant. Je sais aussi que tu n’as pas bien reçu l’image de l’adulte, mais tu vas la recevoir. Il est ici maintenant et souhaite transmettre un message, pas directement pour toi, mais pour l’un de tes amis. Mais c’est un message précieux pour toi et pour tout le monde. Laisse-le parler. Tu ne seras pas déçu.

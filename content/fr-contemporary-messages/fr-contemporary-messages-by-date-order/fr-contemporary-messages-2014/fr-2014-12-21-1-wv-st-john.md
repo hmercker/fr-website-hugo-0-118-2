@@ -11,6 +11,8 @@ weight:
 
 St Jean - reçu par WV le 21 Décembre 2014, Anvers, Belgique
 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-spiritualite-15.webp)
+
 Rebonjour, mon ami. Je suis très heureux de voir que tu profites de moments comme celui-ci, de façon à ce que nous puissions aider à clarifier les choses dont nous parlons et que tu as appris à voir comme des occasions (de croître et de progresser), et non comme une nuisance ; aussi dans l’espoir que d’autres en bénéficieront eux aussi.
 
 Tu savais, au moment où nous avons commencé à expliquer la notion de « libre arbitre », que (certaines) personnes ne seraient pas en accord avec ce que nous vous avons dit ; tu n’étais même pas sûr à 100 % de vraiment croire à ce que nous vous avons dit. C’est seulement quand, par la suite, je t’ai dit que cette (phrase précédente) était la raison pour laquelle tu devais croire (parce que ce que tu « crois » n’était pas conforme à 100 % à ce que nous avons écrit), que tu as commencé à l’accepter ; et puis nous avons pu te transférer une grande quantité d’informations afin que tu puisses voir l’image plus grande derrière elle.

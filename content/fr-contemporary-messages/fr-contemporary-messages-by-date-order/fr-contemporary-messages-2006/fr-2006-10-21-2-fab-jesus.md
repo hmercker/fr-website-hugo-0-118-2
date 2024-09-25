@@ -13,6 +13,8 @@ Jésus - reçu par FAB le 21 Octobre 2006, Santa Cruz, Californie, USA.
 
 C'est moi, Jésus.
 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-spiritualite-27.webp)
+
 Vous avez lu, dans [mon deuxième message](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-1-31-1-jep-jesus/) officiel à M. Padgett, ce qui suit : *« Il [Dieu] n'est pas dans un lieu particulier, ni assis sur un trône dans Ses Cieux. »*
 
 [Ailleurs dans les messages de Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-5-25-1-jep-jesus/), je dis : *« Non, comme l'a dit Moïse autrefois, et comme je l'ai dit moi-même quand j'étais sur terre, Dieu est dans Ses Cieux. Et bien que cela puisse être surprenant et étonnant à entendre pour les mortels, Dieu a Son Habitation ; et Dieu, la Substance, la Forme d'Âme Auto-Existante, a Sa Localité. »*

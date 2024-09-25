@@ -11,6 +11,8 @@ weight:
 
 St Luc - reçu par James Padgett le 16 Octobre 1916, Washington, USA.
 
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/lumière-spirituelle1.jpg)
+
 C’est moi, Saint Luc, du Nouveau Testament. Je désire écrire mon message promis, et si vous pensez que vous pouvez le recevoir, je vais essayer d’écrire. Eh bien, je désire déclarer certaines vérités en référence à la nécessité pour les hommes de tourner leurs pensées vers les sujets spirituels et de consacrer moins de temps et pensées aux choses matérielles de la vie.
 
 En premier lieu, ce qui est éternel a plus d’importance que ce qui est temporel et n’a donc d’existence que pour une courte période, même si ces choses temporelles sont nécessaires pour soutenir et préserver l’homme durant sa vie sur terre.

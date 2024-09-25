@@ -11,6 +11,8 @@ weight:
 
 Jean le Bien Aimé - reçu par Al Fike le 20 Avril 2023, Sechelt, Colombie-Britannique, Canada.
 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/priere-universelle.webp)
+
 Chacun de vous a un ange avec lui, âmes bien-aimées. Je suis Jean, Jean le Bien-Aimé, et je viens prier avec vous alors que vous continuez à implorer Dieu de vous bénir, en ouvrant la voie à la lumière et à l’amour, à l’élévation, à l’éveil de votre âme avec l’Essence de Dieu.  C’est ainsi que vous nous attirez à vous, ceux du Royaume céleste qui viennent prier avec vous et vous servir. C’est la loi en action. Ce que vous désirez, vous le recevrez.
 
 Il y a ceux qui ne se sentent pas dignes ou qui pensent qu’ils ne veulent pas susciter le toucher ou la bénédiction de Dieu sur eux parce que leur esprit érige une barrière, pensant que Dieu ne s’intéresse pas à eux. Et ceux qui utilisent leur mental pour discerner ce que la prière accomplit passent à côté de l’essentiel et ne comprennent pas la vérité. Car la conscience de Dieu est si multiforme qu’il est impossible de comprendre Dieu dans toute Sa gloire, Sa beauté et Ses capacités. Même nous, dans le Royaume Céleste, n’en avons qu’un aperçu et vous, sur le plan terrestre, ne pouvez pas le comprendre car vos âmes ne sont pas assez développées pour avoir cette perception. Cela vient de l’âme, pas du mental, mais de l’âme. Mais vous sentez le contact de Dieu, vous êtes conscients que vos prières ont un effet et c’est ce qui est important et c’est l’expression de la foi, n’est-ce pas ?

@@ -11,6 +11,8 @@ weight:
 
 Jésus - reçu par FAB le 14 Mars 2008, Santa Cruz, Californie, USA.
 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2008-eveil-spirituel7.jpg)
+
 C’est moi, Jésus.
 
 Vous êtes perplexe parce que vos canalisations ont dit que les esprits ont souffert ou n’ont pas souffert en fonction des intentions ou des motifs de leur cœur. Puis, vous réalisez que les nazis voulaient un monde meilleur. Où est donc la vérité ?

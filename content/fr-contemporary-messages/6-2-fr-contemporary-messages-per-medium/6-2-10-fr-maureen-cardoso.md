@@ -108,9 +108,11 @@ Goldie | [La substance de la JOIE ! ](/fr-contemporary-messages/fr-contemporary-
 Barbara Davies | [Apportez vos obstacles à Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-15-2-mc-barbara-davies/) | 15 Février 2024
 Augustin | [Nous accueille et ouvre le cercle de développement en ligne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-9-2-mc-augustine/) | 9 Mars 2024
 Seretta Kem | [Découverte des attributs de l'âme ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-13-1-mc-seretta-kem/) | 13 Avril 2024
+Jésus | [La grâce de l'essence de Dieu s'accompagne de responsabilité ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-13-1-mc-jesus/) | 13 Juin 2024
 Marie | [Vous servez le Ciel et la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-30-3-mc-mary/) | 30 Juin 2024
 Fleur de Lotus | [Transformez votre perception du monde (Retraite 2024 de l’Amour Divin))](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-2-1-mc-lotus-blossom/) | 2 Juillet 2024
 St françois  d'Assise | [Ayez foi et confiance en votre instrumentalité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-5-1-mc-st-francis-of-assisi/) | 5 Août 2024
-Marie | [Gardez votre cœur ouvert](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-25-1-mc-mary/) | 25 Août 2024
+Marie | [Gardez votre cœur ouvert](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-25-1-mc-mary/) | 25 Août 2024
+Mylora | [Respectez les dispositions de la Terre Mère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-6-1-mc-mylora/) | 6 Septembre 2024
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

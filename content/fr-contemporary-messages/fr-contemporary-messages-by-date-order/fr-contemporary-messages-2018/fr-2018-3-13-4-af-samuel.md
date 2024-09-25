@@ -11,6 +11,9 @@ weight:
 
 Samuel - reçu par Al Fike le 13 Mars 2018, Hawaii Kai, Oahu, HI, USA.
 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-nepal7.webp)
+
+
 Je m’appelle Samuel. Je suis venu vous parler aujourd’hui des changements dans votre vie et des changements qui arrivent dans ce monde. Il y a une constante dans l’univers de Dieu et c’est le changement.
 
 Vos perceptions et vos perspectives changent, âmes bien-aimées, à mesure que vous grandissez spirituellement. Ainsi, vous vous voyez et vous voyez le monde différemment. Alors que vos âmes grandissent dans l’Amour, ces changements deviennent plus aigus, ces perceptions plus raffinées. Vos connaissances sont ajustées en fonction de la Lumière dans votre âme. Dans ces moments ensemble en prière, vous êtes en train de changer votre pensée et de changer vos perspectives et vos perceptions. Le pouvoir de ce cercle vous apporte de nombreux cadeaux, de nombreuses ouvertures, vous révélant les possibilités présentées par Dieu concernant votre condition actuelle, la lumière spirituelle et les possibilités futures. Alors que vous devenez plus aigus dans vos perspectives et vos perceptions, plus sensibles et plus alignés avec Dieu, ces choses se révèlent d’elles-mêmes. Vous devez être réceptifs, âmes bien-aimées, capables et désireux de prendre dans votre conscience ces nouvelles perceptions de la réalité.

@@ -11,6 +11,8 @@ weight:
 
 Jésus - reçu par Dr Samuels le 20 Janvier 1955, Washington, USA.
 
+![](/fr-samuel-messages/fr-revelations/fr-rev42-tresors-caches-dans-la-bible.webp)
+
 C’est moi, Jésus.
 
 Une fois de plus, pour continuer mes messages sur le Nouveau Testament, qui doit être purgé de ses erreurs, sur la vérité au sujet de mon véritable enseignement et le sens de la mission du Messie. Et la première chose que je voudrais faire, ce soir, est de montrer la relation entre l’Ancien Testament et la façon dont l’orientation et la révélation du Père Céleste m’ont montré la voie vers la Messianité.

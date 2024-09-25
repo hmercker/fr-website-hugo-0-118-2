@@ -13,6 +13,8 @@ Mme Horner - reçu par James Padgett le 16 Décembre 1917, Washington, USA.
 
 Je suis Mme Horner. <sup id="a1">[1](#f1)</sup>
 
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-mme-horner.webp)
+
 Permettez-moi de ne dire que quelques mots, car j’ai tellement hâte d’écrire quelques lignes, et ce depuis un certain temps. J’ai souvent été avec vous (Dr. Stone) et mon mari lorsque vous parliez de choses concernant le monde spirituel et j’avais grand espoir qu’il croirait ce que vous lui disiez et qu’il tournerait ses pensées vers une enquête sur les vérités qu’il trouverait sûrement, et me donnerait ainsi l’occasion de venir à lui oralement, au moins, et de lui dire que je ne suis pas morte, mais très heureuse et de veiller toujours sur lui pour le réconforter.
 
 Je sais que j’ai été loin de lui, comme il l’a pensé, pendant longtemps, et que d’autres choses sont intervenues dans sa vie pour que, plus ou moins, il m’oublie, et qu’il pense que c’était toute la vie de vivre sur terre et d’y trouver son bonheur. Cela, bien sûr, était tout à fait naturel, et je n’ai pas été blessée, comme vous le dites, vous les mortels, par le fait qu’il avait, comme il le pensait, donné son affection à une autre ; car je connaissais les conditions de son cœur mieux que lui-même ne le connaissait et je voyais que j’étais son véritable amour, et qu’aucun autre ne pouvait me le prendre ou, comme il peut être surpris de l’entendre, il ne pouvait pas le donner à un autre.
