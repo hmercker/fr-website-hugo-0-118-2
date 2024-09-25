@@ -120,7 +120,7 @@ Oliver Cromwell | [Souffrances d’un souverain Anglais](/fr-contemporary-messag
 Oscar Romero | [Lutter pour la justice](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-13-2-fab-oscar-romero/) | 13 Mars 2008
 Oscar Romero | [Le réconfort d’un martyr de la Vvérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-29-1-fab-oscar-romero/) | 29 Mars 2013
 La princesse Diana Windsor | [Vous connaissez cet amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-16-2-af-princess-diana-windsor/) | 16 Novembre 2017
-Rachel Carson | [Chaque voyage commence par un pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-6-2-jw-rachel-carson/) | 6 Janvier 2023
+Rachel Carson | [Chaque voyage commence par un pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-6-1-jw-rachel-carson/) | 6 Janvier 2023
 Ramsès II | [Pharaon a trouvé la Nouvelle Naissance.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-12-1-fab-rameses-ii/) | 12 Avril 2006
 Ramsès II | [Apprenez à connaître l’humilité et la joie qui accompagnent le service](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-26-2-af-ramses-ii/) | 26 Juin 2020
 Reine Liliuokalani | [Un message de réconfort d’une Reine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-9-1-fab-queen-liliuokalani/) | 9 Avril 2013

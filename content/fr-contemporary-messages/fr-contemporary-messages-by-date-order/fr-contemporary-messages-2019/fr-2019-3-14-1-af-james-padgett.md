@@ -24,9 +24,9 @@ C’est l’amour et la compassion de Dieu pour chaque âme qui se manifestent d
 Merci, mes amis bien-aimés. Je suis James Padgett <sup id="a2">[2](#f2)</sup> et je suis impatient que chacun d’entre vous parvienne à connaître la Vérité de l’Amour de Dieu. Que Dieu vous bénisse, mes amis. Dieu vous bénisse tendrement.
 <small>
 
-1. <large id="f1"> Ces livres ont été publiés sous le titre « Nouvelles Révélations de Jésus de Nazareth ». Ils peuvent être lus par l’intermédiaire [de ce lien](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/) ou téléchargés par l'intermédiaire [de ce lien](13-fr-publications-and-downloads\13-2-1-fr-french-spiritual-books).[↩](#a1)
+1. <large id="f1"> Ces livres ont été publiés sous le titre « Nouvelles Révélations de Jésus de Nazareth ». Ils peuvent être lus par l’intermédiaire [de ce lien](/fr-james-padgett-messages/fr-according-publication-volume-tgrbj/) ou téléchargés par l'intermédiaire [de ce lien](/13-fr-publications-and-downloads/13-2-1-fr-french-spiritual-books/).[↩](#a1)
 
-2. <large id="f2"> L'ensemble des messages communiqués par James Padgett  est disponible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-12-fr-family-and-friends-of-james-padgett/)[↩](#a2) 
+2. <large id="f2"> L'ensemble des messages communiqués par James Padgett  est disponible par l'intermédiaire [de ce lien](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-12-fr-family-and-friends-of-james-padgett/)[↩](#a2)
 
 ### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
 

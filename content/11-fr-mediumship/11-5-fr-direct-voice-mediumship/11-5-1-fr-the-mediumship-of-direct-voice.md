@@ -9,13 +9,13 @@ weight:
 ---
 ### La médiumnité de la Voix Directe
 
-<u>Ce qu'est la médiumnité de la Voix Directe</u> 
+<u>Ce qu'est la médiumnité de la Voix Directe</u>
 
 Cette médiumnité particulière concerne les médiums qui possèdent des dons supplémentaires en ce sens qu’il était capable de faire en sorte que les esprits se matérialisent physiquement, qu’ils soient vus dans une certaine mesure et qu’ils parlent de leur propre voix. Ce fut le acs notamment de [Leslie Flint](https://en.wikipedia.org/wiki/Leslie_Flint).
 
-<u>Le projet de médiumnité à Voix Directe</u> 
+<u>Le projet de médiumnité à Voix Directe</u>
 
-L'un des aspects les plus stimulants mais fascinants de notre entreprise dans la médiumnité a été l'invitation de nos guides spirituels à nous rendre disponibles pour le développement de ce que nous appelons la « Voix directe ». Nous avons commencé à le faire à l'automne 2017 et nous le poursuivons encore aujourd'hui. Pour une explication plus détaillée de ce qu'est la Voix Directe (une forme de médiumnité physique), pourquoi nous en sommes si enthousiastes et comment cela s'est produit, cet essai a été [écrit par Geoff Cutler](/11-fr-mediumship/11-4-fr-direct-voice-mediumship/11-4-2-fr-the-context-of-the-direct-voice-project/) pour l'introduction du volume 2 des « Messages sur le projet de Voix Directe ».
+L'un des aspects les plus stimulants mais fascinants de notre entreprise dans la médiumnité a été l'invitation de nos guides spirituels à nous rendre disponibles pour le développement de ce que nous appelons la « Voix directe ». Nous avons commencé à le faire à l'automne 2017 et nous le poursuivons encore aujourd'hui. Pour une explication plus détaillée de ce qu'est la Voix Directe (une forme de médiumnité physique), pourquoi nous en sommes si enthousiastes et comment cela s'est produit, cet essai a été [écrit par Geoff Cutler](/11-fr-mediumship/11-4-fr-direct-voice-mediumship/11-5-2-fr-the-context-of-the-direct-voice-project/) pour l'introduction du volume 2 des « Messages sur le projet de Voix Directe ».
 
 Un cercle de sept personnes (Cercle des Sept) a été formé à cet effet. Chacune d'entre elles s'est jointe au groupe en comprenant qu'il faudrait beaucoup d'efforts et d'engagement pour réaliser la matérialisation des êtres spirituels Célestes à la lumière du jour. Bien qu'il soit connu que des êtres spirituels de haut niveau se matérialisent à la lumière du jour, ces faits sont en fait très rares. La Transfiguration sur la montagne, au cours de laquelle Jésus est entouré d’Élie et de Moïse en esprit, est l'événement le plus célèbre. Les matérialisations permanentes et nombreuses sont rares, à l'exception de ces êtres spirituels qui habitent des sphères beaucoup plus basses. Nous nous sommes donc réunis périodiquement en un même lieu, à plusieurs reprises, pour des sessions intenses de deux semaines à deux mois, à la fois dans une pièce obscurcie et en dehors de celle-ci.
 

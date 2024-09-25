@@ -83,7 +83,7 @@ IV | Daniel G Samuels | [Introduction au volume II](/fr-james-padgett-messages/f
 47 | W | [Aide donnée à un esprit](/fr-james-padgett-messages/fr-padgett-messages-undated/fr-undated-60-jep-w/) | non daté
 49 | Jésus | [Message personnel. L’Esprit Saint pas Dieu. Jésus continue à faire le travail du Père](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-4-9-1-jep-jesus/) | 9 Avril 1915
 50 | Professeur Salyards | [Lois du monde spirituel](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-4-13-1-jep-joseph-salyards/) | 13 Avril 1915
-56 | Hélène Padgett | [Helène Padgett commente la fatigue de M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-4-13-1-jep-helen-padgett/) | 13 Avril 1915
+56 | Hélène Padgett | [Helène Padgett commente la fatigue de M. Padgett](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-4-13-2-jep-helen-padgett/) | 13 Avril 1915
 56 | Professeur Salyards | [Lois du monde spirituel (Suite)](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-3-1-jep-joseph-salyards/) | 3 Mai 1915
 60 | Anne Rollins | [La grand-mère de M. Padgett décrit sa maison dans la seconde sphère Céleste](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-4-27-1-jep-ann-rollins/) | 27 Avril 1915
 61 | Anne Rollins | [L’expérience d’Anne Rollins dans sa recherche de l’Amour Divin de Dieu](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-5-13-1-jep-ann-rollins/) | 13 Mai 1915

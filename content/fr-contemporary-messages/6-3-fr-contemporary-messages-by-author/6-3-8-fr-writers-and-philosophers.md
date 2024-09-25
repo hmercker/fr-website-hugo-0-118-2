@@ -134,5 +134,4 @@ William Shakespeare | [Shakespeare - religion](/fr-contemporary-messages/fr-cont
 William Shakespeare | [Shakespeare - Adolescence - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-22-1-fab-william-shakespeare/) | 22 Août 2007
 William Shakespeare | [La mort de sa sœur et Macbeth](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-11-15-2-fab-william-shakespeare/) | 15 Novembre 2007
 William Tyndale | [La grâce de la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-1-28-2-fab-william-tyndale/) | 28 Janvier 2011
-[Les enseignements de Flavius Josèphe](/12-fr-the-main-spiritual-teachers/12-3-fr-the-teachings-of-flavius-joseph/)
-
+[Les enseignements de Flavius Josèphe](/12-fr-the-main-spiritual-teachers/12-3-fr-the-teachings-of-josephus/)

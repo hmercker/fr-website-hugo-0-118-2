@@ -19,10 +19,9 @@ Ces êtres ne sont pas des êtres spirituels mais des êtres qui vivent actuelle
 ---|---|---
 Judas | [Autres êtres et le but de ces messages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-1-7-1-hr-judas/) | 7 Janvier 2002
 Christine | [Se présente](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-16-1-af-christine/) | 16 Mars 2024
-Christine | [Conseils pour Matt partagés avec autorisation ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-18-3-af-christine/) | 18 Mars 2024
-Christine | [De grandes chaussures à remplir - Personnel pour Matt](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-1-2-af-christine/) | 1 Juillet 2024
-George | [Se connecter avec Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-11-2-em-george/) | 11 Mars 2024
-George et Will | [Une offre d’assistance/de confiance ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-2-2-em-georges-and-will/) | 2 Janvier 2024
+Christine | [Conseils pour Matt partagés avec autorisation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-18-3-af-christine/) | 18 Mars 2024
+George | [Se connecter avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-11-2-em-george/) | 11 Mars 2024
+George et Will | [Une offre d’assistance/de confiance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-2-2-em-georges-and-will/) | 2 Janvier 2024
 Goldie & Visiteurs autres Galaxies | [Goldie et les visiteurs d’une autre galaxie.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-40-1969-12-3-anonymous-goldie-visitors-from-another-galaxy/) | 3 Décembre 1969
 Kentor d'une autre galaxie | [Kentor – Visiteur d’une autre galaxie.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-41-1969-12-8-anonymous-kentor-of-another-galaxy/) | 8 Décembre 1969
 Orion | [Introduction d’une autre planète (Retraite Voix Directe 2021)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-7-2-af-orion/) | 7 Septembre 2021
@@ -72,7 +71,7 @@ Orion | [S’émerveiller de la diversité que Dieu a créée sur Terre](/fr-con
 Orion | [Écrira, à travers Al, un livre sur la vie sur sa planète](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-19-3-af-orion/) | 19 Juillet 2022
 Orion | [Méfiez-vous de vos peurs et affrontez vos barrières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-6-2-af-orion/) | 6 Août 2022
 Orion | [C’est le moment d’être libre !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-13-1-af-orion/) | 13 Août 2022
-Orion | [Lever tous les obstacles à une plus grande lumière.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-16-3-af-orion/) | 16 Août 2022
+Orion | [Lever tous les obstacles à une plus grande lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-16-3-af-orion/) | 16 Août 2022
 Orion | [Transformation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-20-2-af-orion/) | 20 Août 2022
 Orion | [Il y a beaucoup à faire pour apporter une plus grande lumière dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-23-3-af-orion/) | 23 Août 2022
 Orion | [L'importance du discernement de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-14-1-af-orion/) | 14 Septembre 2022
@@ -94,11 +93,11 @@ Orion | [Le chemin deviendra plus facile avec l'Amour Divin (2023 groupe des dou
 Orion | [Transmet sa profonde compassion et son engagement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-11-1-af-orion/) | 11 Mars 2023
 Orion | [Technologie et soutien interstellaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-26-1-af-orion/) | 26 Mars 2023
 Orion | [Dieu nous a rassemblés tous ensemble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-31-1-af-orion/) | 31 Mars 2023
-Orion | [Il faut une armée d’anges pour nous faire avancer.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-1-1-af-orion/) | 1 Avril 2023
+Orion | [Il faut une armée d’anges pour nous faire avancer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-1-1-af-orion/) | 1 Avril 2023
 Orion | [De nombreux anges, esprits brillants et amis stellaires sont là pour aider à la transformation du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-28-1-af-orion/) | 28 Avril 2023
 Orion | [Nous progressons dans l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-5-9-1-af-orion/) | 9 Mai 2023
 Orion | [Amour Magnifique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-5-16-1-af-orion/) | 16 Mai 2023
-Orion | [Soyez en harmonie avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-5-18-2-af-orion/) | 18 Mai 2023 
+Orion | [Soyez en harmonie avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-5-18-2-af-orion/) | 18 Mai 2023
 Orion | [Passage de la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-5-20-1-af-orion/) | 20 Mai 2023
 Orion | [A de la compassion pour les conditions dans lesquelles nous vivons sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-5-23-2-af-orion/) | 23 Mai 2023
 Orion | [Conseils pour rapprocher le mental de l'âme et le mental matériel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-5-27-1-af-orion/) | 27 Mai 2023
@@ -106,33 +105,33 @@ Orion | [La domination de l'esprit spirituel cédera la place à la simplicité 
 Orion | [Parle de la protection et du pouvoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-6-17-1-AF-orion/) | 17 Juin 2023
 Orion | [Les anges vous servent et vous protègent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-6-23-2-af-orion/) | 23 Juin 2023
 Orion | [La foi opposée à la peur pendant le nettoyage du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-19-1-af-orion/) | 19 Août 2023
-Orion | [Tendez la main dans l’Amour de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-22-2-af-orion/) | 22 Août 2023
-Orion | [Contrastes entre les chemins de l’amour naturel et de l’Amour Divin ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-9-30-1-af-orion/) | 30 Septembre 2023
+Orion | [Tendez la main dans l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-22-2-af-orion/) | 22 Août 2023
+Orion | [Contrastes entre les chemins de l’amour naturel et de l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-9-30-1-af-orion/) | 30 Septembre 2023
 Orion | [Conseils pour le groupe des douze à Laurelville](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-6-1-af-orion/) | 6 Octobre 2023
-Orion | [Vous êtes changé ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-20-1-af-orion/) | 20 Octobre 2023
+Orion | [Vous êtes changé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-20-1-af-orion/) | 20 Octobre 2023
 Orion | [Nous sommes des âmes comme vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-1-1-af-orion/) | 1 Décembre 2023
 Orion | [Famille, gouvernement, économie et vie sur la planète d'Orion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-7-1-af-orion/) | 7 Décembre 2023
-Orion | [Bénédictions à l’approche de Noël et du Nouvel An](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-19-1-af-orion/) | 19 Décembre 2023 
+Orion | [Bénédictions à l’approche de Noël et du Nouvel An](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-19-1-af-orion/) | 19 Décembre 2023
 Orion | [Goutte à goutte, l’Amour de Dieu touche les âmes de l’humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-14-1-af-orion/) | 14 Janvier 2024
 Orion | [Alignement avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-19-3-af-orion/) | 19 Janvier 2024
 Orion | [Loi de la progression ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-27-1-af-orion/) | 27 Janvier 2024
-Orion | [Nous aimerons, un seul amour pour toujours et à jamais ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-30-1-af-orion/) | 30 Janvier 2024
-Orion | [Renforcez la lumière et l'amour en vous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-6-1-af-orion/) | 6 Février 2024
+Orion | [Nous aimerons, un seul amour pour toujours et à jamais](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-30-1-af-orion/) | 30 Janvier 2024
+Orion | [Renforcez la lumière et l'amour en vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-6-1-af-orion/) | 6 Février 2024
 Orion | [La nature consciente de l’homme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-13-2-af-orion/) | 13 Février 2024
 Orion | [Se présente et présente les intentions de ses amis stellaires pour nous aider à travers la transformation du monde ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-4-2-af-orion/) | 4 Mars 2024
-Orion | [Se présente à Pierre et Claire ainsi que son objectif sur Terre, questions et réponses ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-9-1-af-orion/) | 9 Mars 2024
-Orion | [Décrit son apparence et son âme ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-10-2-af-orion/) | 10 Mars 2024
+Orion | [Se présente à Pierre et Claire ainsi que son objectif sur Terre, questions et réponses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-9-1-af-orion/) | 9 Mars 2024
+Orion | [Décrit son apparence et son âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-10-2-af-orion/) | 10 Mars 2024
 Orion | [Il y a beaucoup à préparer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-13-2-af-orion/) | 13 Mars 2024
-Orion | [La prière est l'outil essentiel de transformation ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-29-1-em-orion/) | 29 Mars 2024
+Orion | [La prière est l'outil essentiel de transformation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-29-1-em-orion/) | 29 Mars 2024
 Orion | [Assumez la responsabilité de vos pensées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-4-1-af-orion/) | 4 Mai 2024
-Orion | [Du temps et de l’absence de temps ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-7-1-af-orion/) | 7 Mai 2024
+Orion | [Du temps et de l’absence de temps](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-7-1-af-orion/) | 7 Mai 2024
 Orion | [Les changements terrestres à venir auront leurs effets](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-11-2-af-orion/) | 11 Mai 2024
-Orion | [Développer et partager vos dons ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-14-3-af-orion/) | 14 Mai 2024
+Orion | [Développer et partager vos dons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-14-3-af-orion/) | 14 Mai 2024
 Orion | [Le voyage et la lutte vers la conscience de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-8-1-af-orion/) | 8 Juin 2024
 Orion | [S'adapter aux changements de la Terre et recevoir des conseils sur les changements à venir x](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-6-1-af-orion/) | 6 Juillet 2024
 Orion | [Nous supplie d'être dans la Conscience de l'Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-13-1-af-orion/) | 13 Juillet 2024
 Orion | [L'accent continu sur l'atteinte de la conscience de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-20-1-af-orion/) | 20 Juillet 2024
-Orion | [Affirme son dévouement à notre progression ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-23-2-af-orion/) | 23 Juillet 2024
+Orion | [Affirme son dévouement à notre progression](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-23-2-af-orion/) | 23 Juillet 2024
 Orion | [Nos amis stellaires nous fourniront tout ce dont nous avons besoin au bon moment](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-6-1-af-orion/) | 6 Août 2024
 Orion | [Poursuivez vos progrès afin d'être prêt en cas de besoin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-24-1-af-orion/) | 24 Août 2024
 Orion & Augustin | [Décrit plus en détail son travail avec ce projet Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-13-1-af-orion-augustine/) | 13 Septembre 2021

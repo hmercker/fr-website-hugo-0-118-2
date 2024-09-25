@@ -25,6 +25,6 @@ Ludwig van Beethoven | [La relation entre l’artistique et le spirituel](/fr-co
 Ludwig van Beethoven | [La musique dans le s Cieux Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-13-1-fab-ludwig-van-beethoven/) | 13 Janvier 2003
 Ludwig van Beethoven | [La passion musicale dans les Cieux Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-27-2-fab-ludwig-van-beethoven/) | 27 Janvier 2003
 
-### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-20217/)
+### [**Lien vers les messages des années 2017**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

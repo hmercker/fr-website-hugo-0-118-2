@@ -23,6 +23,6 @@ En attendant, je vous propose de découvrir en même temps que nous les messages
 
 > Je suis Jésus. Je suis venu comme je l’ai promis, pour vous parler des vérités de Dieu, des vérités de l’univers, des vérités qui peuvent vous aider, vous et les autres, dans votre voyage. Car tel est notre désir, de continuer à éduquer tout le monde sur ce chemin d’Amour. Avant tout, nous sommes ici pour vous encourager à prier et à recevoir la bénédiction de l’Amour Divin de Dieu. C’est le message principal de mon ministère et c’est la vérité principale que Dieu doit donner à ses enfants..
 
-1. [Messages de Jésus au Monde - 1ère partie](/12-the-main-spiritual-teachers/12-1-1-fr-messages-from-jesus-to-the-world-part-1/)
-2. [Messages de Jésus au Monde - 2ème partie](/12-the-main-spiritual-teachers/12-1-2-fr-messages-from-jesus-to-the-world-part-2/)
-3. [Messages de Jésus au Monde - 3ème partie](/12-the-main-spiritual-teachers/12-1-3-fr-messages-from-jesus-to-the-world-part-3/)
+1. [Messages de Jésus au Monde - 1ère partie](/12-fr-the-main-spiritual-teachers/12-1-1-fr-messages-from-jesus-to-the-world-part-1/)
+2. [Messages de Jésus au Monde - 2ème partie](/12-fr-the-main-spiritual-teachers/12-1-2-fr-messages-from-jesus-to-the-world-part-2/)
+3. [Messages de Jésus au Monde - 3ème partie](/12-fr-the-main-spiritual-teachers/12-1-3-fr-messages-from-jesus-to-the-world-part-3/)

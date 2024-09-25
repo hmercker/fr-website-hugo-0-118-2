@@ -229,7 +229,7 @@ Serreta Kem | [La transformation est la clé de votre rassemblement ](/fr-contem
 André | [Pour l'instant, apprenez grâce à vos capacités mentales, aimez grâce à vos capacités d'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-26-1-em-andrew/) | 26 Juin 2024
 Bartholomée | [Vous connaîtrez le but et la raison de ce cercle ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-27-1-em-bartholomew/) | 27 Juin 2024
 Confucius | [Soyez fidèle à vous-même et à votre Créateur ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-28-1-af-confucius/) | 28 Juin 2024
-Grace Jordan | [ Grace dit la vérité à son fils ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-29-1-af-grace-jordan/) | 29 Juin 2024
+Grace Jordan | [Grace dit la vérité à son fils ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-29-1-af-grace-jordan/) | 29 Juin 2024
 Luc | [Communion spirituelle et communauté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-30-1-jw-luke/) | 30 Juin 2024
 Jésus | [Jésus encourage Cliff](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-30-2-af-jesus/) | 30 Juin 2024
 Marie | [Vous servez le Ciel et la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-30-3-mc-mary/) | 30 Juin 2024

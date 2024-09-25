@@ -27,7 +27,7 @@ Comme à l’époque je croyais que Dieu était courroucé, je lui en ai parlé.
 
 Finalement, après que cela se soit produit plusieurs fois, il y eut, pendant notre entretien, un coup de tonnerre si fort que même Pharaon eut peur, et dans ce moment de faiblesse, il céda et consentit à libérer les esclaves. Nous, les Hébreux, avons naturellement tous pensé qu’un miracle s’était produit, et c’était le cas. Bien sûr, le Pharaon était en émoi, car il n’avait jamais connu ce genre de peur auparavant. Je sais maintenant que les esprits ont intensifié cette peur, de sorte qu’elle était aussi puissante que le coup de tonnerre qui l’avait inspirée. En ce temps-là, les dieux, ou Dieu, étaient généralement reconnus pour faire connaître leur présence de manière assez claire.
 
-Je vais terminer ici. Je continuerai mon récit [ultérieurement](Moïse | [Le récit de l’Exode - Suite](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-11-1-fab-moses/)| 11 Janvier 2003). Je suis heureux de la réception de mes pensées.
+Je vais terminer ici. Je continuerai mon récit [ultérieurement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-11-1-fab-moses/). Je suis heureux de la réception de mes pensées.
 
 Amour, Moïse.
 
@@ -80,6 +80,3 @@ Moïse | [Surmonter les exigences du monde](/fr-contemporary-messages/fr-contemp
 ### [**Lien vers les messages des années 2003**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/)
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
-
-
-

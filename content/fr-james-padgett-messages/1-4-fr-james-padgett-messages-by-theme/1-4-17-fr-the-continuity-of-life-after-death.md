@@ -21,6 +21,6 @@ Francis Bacon | [La continuité de la vie après la mort](/fr-james-padgett-mess
 
 | **Thème**
 |---
-| [Les sphères de progression](/fr-james-padgett-messages/fr-james-padgett-messages-by-theme/1-4-17-1-fr-the-spheres-of-progression/) |
-| [La progression Individuelle](/fr-james-padgett-messages/fr-james-padgett-messages-by-theme/1-4-17-2-fr-individual-progression/) |
-| [Les Enfers](/fr-james-padgett-messages/fr-james-padgett-messages-by-theme/1-4-17-3-fr-the-hells/) |
+| [Les sphères de progression](/fr-james-padgett-messages/fr-1-4-17-james-padgett-messages-by-theme/1-4-17-1-fr-the-spheres-of-progression/)
+| [La progression Individuelle](/fr-james-padgett-messages/fr-1-4-17-james-padgett-messages-by-theme/1-4-17-2-fr-individual-progression/)
+| [Les Enfers](/fr-james-padgett-messages/fr-1-4-17-james-padgett-messages-by-theme/1-4-17-3-fr-the-hells/)
