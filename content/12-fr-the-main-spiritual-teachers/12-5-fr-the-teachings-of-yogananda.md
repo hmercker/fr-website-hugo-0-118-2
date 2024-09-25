@@ -125,3 +125,4 @@ Yogananda | [Suivez vos rêves](/fr-contemporary-messages/fr-contemporary-messag
 Yogananda | [Une leçon sur la Vérité ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-22-1-af-yogananda/) | 22 Mai 2024
 Yogananda | [Créer un sanctuaire dans une communauté de cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-1-3-jw-yogananda/) | 1 Juillet 2024
 Yogananda | [Vous êtes tous des êtres saints !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-13-2-af-yogananda/) | 13 Septembre 2024
+Yogananda | [Jésus est  mon Yogi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-20-1-af-yogananda/) | 20 Septembre 2024

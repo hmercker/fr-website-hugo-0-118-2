@@ -1,13 +1,13 @@
 ---
-title: "Nous sommes tous nécessaires comme annonciateurs pour soutenir la tente de la vérité"
+title: "Brisez les chaînes de l’obscurité et libérez vos âmes"
 menu_title: ""
-description: "Nous sommes tous nécessaires comme annonciateurs pour soutenir la tente de la vérité"
+description: "Brisez les chaînes de l’obscurité et libérez vos âmes"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### Nous sommes tous nécessaires comme annonciateurs pour soutenir la tente de la vérité 
+### Brisez les chaînes de l’obscurité et libérez vos âmes
 
 Jésus - reçu par Albert Fike le 14 Septembre 2024, Nashville, Tennesse, USA.
 

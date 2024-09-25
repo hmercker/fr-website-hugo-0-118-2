@@ -1,13 +1,13 @@
 ---
-title: "Nous sommes tous nécessaires comme annonciateurs pour soutenir la tente de la vérité"
+title: "Nous venons partager la lumière"
 menu_title: ""
-description: "Nous sommes tous nécessaires comme annonciateurs pour soutenir la tente de la vérité"
+description: "Nous venons partager la lumière"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### Nous sommes tous nécessaires comme annonciateurs pour soutenir la tente de la vérité 
+### Nous venons partager la lumière 
 
 Jésus - reçu par Albert Fike le 12 Septembre 2024, Nashville, Tennesse, USA.
 

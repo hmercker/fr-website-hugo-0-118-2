@@ -33,4 +33,5 @@ Jésus | [Cause et effet, temporel et spirituel](/fr-contemporary-messages/fr-co
 Jésus | [Approuve et encourage les efforts déployés par le Cercle de Lumière d’Estonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-29-2-af-jesus/) | 29 Août 2024
 Jésus | [Nous venons partager la lumièr](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-12-1-af-jesus/) | 12 Septembre 2024
 Jésus | [Brisez les chaînes de l’obscurité et libérez vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-14-1-af-jesus/) | 14 Septembre 2024
+Jésus | [Expiation avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-21-1-af-jesus/) | 21 Septembre 2024
 

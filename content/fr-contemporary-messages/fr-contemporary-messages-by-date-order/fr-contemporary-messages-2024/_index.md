@@ -282,7 +282,7 @@ Mylora | [Respectez les dispositions de la Terre Mère](/fr-contemporary-message
 Jeanne d'Arc | [Nous vous avons réunis dans un but précis, ne faites qu'un avec Dieu, ouvre et bénit la retraite de Lansing.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-6-2-em-joan-of-arc/) | 6 Septembre 2024
 Flavius Josèphe | [Parle sur nos dons et nos destinées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-7-1-af-josephus/) | 7 Septembre 2024
 Isaïe | [Guerriers de la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-9-1-af-isaiah/) | 9 Septembre 2024
-Jésus | [Nous venons partager la lumièr](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-12-1-af-jesus/) | 12 Septembre 2024
+Jésus | [Nous venons partager la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-12-1-af-jesus/) | 12 Septembre 2024
 Luc | [Force de la substance du Créateur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-12-2-mc-luke/) | 12 Septembre 2024
 Care Darby Walsh | [Vos trésors sont gardés au Ciel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-12-3-jw-care-darby-walsh/) | 12 Septembre 2024
 Matthieu | [Je viendrai renforcer une bénédiction avec chacun de vous pour revigorer le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-12-4-em-matthew/) | 12 Septembre 2024
@@ -293,6 +293,8 @@ fred Rogers | [Aime son travail en esprit comme il l'a aimé sur terre](/fr-cont
 Aaron | [Les anges ne peuvent pas faire leur travail sans l'aide d'instruments sur terre qui peuvent être vus et entendus ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-14-3-af-aaron/) | 14 Septembre 2024
 Plume Blanche | [Concentrez-vous sur Dieu et mettez toutes les distractions de côté ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-17-1-af-white-feather/) | 17 Septembre 2024
 André | [Vous avez un impact ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-18-1-af-andrew/) | 18 Septembre 2024
+Yogananda | [Jésus est  mon Yogi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-20-1-af-yogananda/) | 20 Septembre 2024
+Jésus | [Expiation avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-21-1-af-jesus/) | 21 Septembre 2024
 
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
