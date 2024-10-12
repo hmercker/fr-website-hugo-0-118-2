@@ -11,7 +11,7 @@ weight:
 
 John G Carlisle - reçu par James Padgett le 20 Novembre 1915, Washington, USA.
 
-![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-2-eveilspirituel8.jpg)
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-2-eveil-spirituel8.jpg)
 
 Laissez-moi écrire, John G. Carlisle. <sup id="a1">[1](#f1)</sup>
 

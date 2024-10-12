@@ -20,6 +20,7 @@ Aaron | [Nous supplie de faire notre part pour être intégrés](/fr-contemporar
 Aaron | [Le plus grand obstacle à la lumière dans votre monde est l’ignorance et l’apathie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-11-1-af-aaron/) | 11 Juillet 2021
 Aaron | [Nous rappelle nos engagements et ce qu'il faut faire pour surmonter nos difficultés (2021 Groupe des douze)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-9-1-af-aaron/) | 9 Octobre 2021
 Aaron | [Conseils en matière de communication interpersonnelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-11-1-af-aaron/) | 11 Juin 2024
+Aaron | [Les anges ne peuvent pas faire leur travail sans l'aide d'instruments sur terre qui peuvent être vus et entendus ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-14-3-af-aaron/) | 14 Septembre 2024
 Abraham   | [Abraham a toujours été proche de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-4-24-2-fab-abraham/) | 24 Avril 2003
 Abraham   | [La profession d’Abraham](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-6-11-1-fab-abraham/) | 11 Juin 2010
 Abraham   | [Abraham et la Chaldée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-2-19-1-fab-abraham/) | 19 Février 2011
@@ -49,6 +50,7 @@ Isaïe | [Soyez en sainte communion avec Dieu ](/fr-contemporary-messages/fr-con
 Isaïe | [Nouveaux départs en République Dominicaine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-3-2-af-isaiah/) | 3 Janvier 2024
 Isaïe | [La puissante essence de Dieu sera donnée à chacun de vous avec force ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-20-2-af-isaiah/) | 21 Février 2024
 Ïsaïe | [Imprégnez-vous de la gloire de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-14-3-af-isaiah/) | 14 Mars 2024
+Isaïe | [Guerriers de la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-9-1-af-isaiah/) | 9 Septembre 2024
 Jacob | [La foi de Jacob en Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-4-1-fab-jacob/) | 4 Février 2003
 Jacob | [Sur la Foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-6-1-hm-jacob/) | 6 Mai 2020
 Jérémie | [Indignation vertueuse_3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-16-2-fab-jeremiah/) | 16 Mai 2008
@@ -117,6 +119,7 @@ Moïse | [Surmonter les exigences du monde](/fr-contemporary-messages/fr-contemp
 Moïse | [Tout est possible en amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-13-5-af-moses/) | 13 Octobre 2023
 Moïse | [Votre responsabilité d’indiquer le chemin vers Dieu pour les autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-4-2-af-moses/) | 4 Février 2024
 Moïse | [La loi de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-21-1-em-moses/) | 21 Mars 2024
+Moïse | [Tellement de personnes dans ce monde ont besoin que l'Amour Divin leur soit apporté ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-27-2-em-moses/) | 27 Septembre 2024
 Moïse et Jésus | [Nous sommes tous nécessaires comme annonciateurs pour soutenir la tente de la vérité, ajoute sa bénédiction au message de Moïse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-1-1-af-moses-jesus/) | 1 Septembre 2024
 Noé | [Noé et le déluge](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-2-1-fab-noah/) | 2 Février 2003
 Noé | [L'histoire du déluge](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-10-1-fab-noah/) | 10 Février 2009

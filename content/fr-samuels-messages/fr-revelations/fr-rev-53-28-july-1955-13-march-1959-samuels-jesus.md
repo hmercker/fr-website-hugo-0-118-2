@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Dr Samuels le 28 Juillet 1955 et 13 Mars 1959, Washington, USA.
 
-![](/fr-samuel-messages/fr-revelations/fr-rev53-spiritualite-31.webp)
+![](/fr-samuels-messages/fr-revelations/fr-rev53-spiritualite-31.webp)
 
 C’est moi, Jésus.
 

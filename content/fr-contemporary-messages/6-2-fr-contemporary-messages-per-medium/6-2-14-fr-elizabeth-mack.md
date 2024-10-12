@@ -88,6 +88,11 @@ Jean le Baptiste | [Confirme le message de Jésus pour le fête des pères](/fr-
 Jeanne d'Arc | [Permettez à Dieu d'être connecté à vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-23-1-em-joan-of-arc/) | 23 Juin 2024
 Bartholomée | [Vous connaîtrez le but et la raison de ce cercle ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-27-1-em-bartholomew/) | 27 Juin 2024
 Moïse | [Un chercheur reçoit une invitation ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-30-4-em-moses/) | 30 Juin 2024
+Jeanne d'Arc | [Nous vous avons réunis dans un but précis, ne faites qu'un avec Dieu, ouvre et bénit la retraite de Lansing.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-6-2-em-joan-of-arc/) | 6 Septembre 2024
+St Matthieu | [Je viendrai renforcer une bénédiction avec chacun de vous pour revigorer le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-12-4-em-st-matthew/) | 12 Septembre 2024
+Jean le Bien Aimé | [Les amis de Marmora cherchent. Aimez-les. Priez pour eux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-26-1-em-john-the-beloved/) | 26 Septembre 2024
+Moïse | [Tellement de personnes dans ce monde ont besoin que l'Amour Divin leur soit apporté ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-27-2-em-moses/) | 27 Septembre 2024
+Marie | [Veille sur Parkin House](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-29-1-em-mary/) | 29 Septembre 2024
 
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

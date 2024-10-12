@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Dr Samuels le 20 Avril 1955, Washington, USA.
 
-![](/fr-samuel-messages/fr-revelations/fr-rev45-spiritualite-11.webp)
+![](/fr-samuels-messages/fr-revelations/fr-rev45-spiritualite-11.webp)
 
 C’est moi, Jésus.
 

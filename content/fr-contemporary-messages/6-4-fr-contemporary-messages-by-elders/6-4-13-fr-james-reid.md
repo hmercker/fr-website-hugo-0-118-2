@@ -19,4 +19,5 @@ James Reid | [La valeur de la connaissance de vos âmes](/fr-contemporary-messag
 James Reid | [Nous travaillons ensemble au service de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-15-2-af-james-reid/) | 15 Novembre 2018
 James Reid | [Le voyage de l'âme vers Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-5-1-af-james-reid/) | 5 Novembre 2019
 James Reid | [Entrerai bientôt dans les Cieux Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-24-1-af-james-reid/) | 24 Juin 2021
-James Reid | [Décrit son voyage à travers les sphères ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-12-2-af-james-reid/) | 12 Mars 2024
+James Reid | [Décrit son voyage à travers les sphères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-12-2-af-james-reid/) | 12 Mars 2024
+James Reid | [Le chemin vers le Royaume](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-24-1-af-james-reid/) | 24 Septembre 2024

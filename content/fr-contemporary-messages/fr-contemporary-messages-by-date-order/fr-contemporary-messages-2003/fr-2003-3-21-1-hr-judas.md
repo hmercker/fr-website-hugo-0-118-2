@@ -13,7 +13,7 @@ Judas - reçu par H____ le 21 Mars 2003, Cuenca, Équateur.
 
 Mon cher frère;
 
-![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-spiritualite-24.webp)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-judas-spiritualite-24.webp)
 
 Ce matin, comme c’est si souvent le cas, j’étais avec toi. Avec beaucoup d’intérêt je t’ai observé lorsque tu as traduit le message de David. D’une certaine façon, il t’a surpris. Tu n’as pas perçu dans le message une forte levée de boucliers contre la guerre, bien qu’il laisse très peu de doute qu’il ne l’approuvait pas, déclarant : *« Ne croyez pas que le Père abandonne simplement Ses enfants parce que la guerre est une mauvaise chose. »*
 

@@ -56,6 +56,7 @@ Fleur de Lotus | [Vos pensées ont un grand pouvoir](/fr-contemporary-messages/f
 Fleur de Lotus | [La foi est un instrument pour que la guérison se produise](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-3-3-mc-lotus-blossom/) | 3 Décembre 2019
 Fleur de Lotus  | [Comparaison des expiations entre les voies de l'Amour Divin et naturel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-20-2-af-lotus-blossom/) | 20 Mai 2020
 Fleur de Lotus | [Nous sommes à la fois récepteurs et donneurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-4-2-af-lotus-blossom/) | 4 Septembre 2020
+Fleur de Lotus | [Ouvre la retraite de Marmora pour les canaux de lumière dans le monde ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-27-1-af-lotus-blossom/) | 27 Septembre 2024
 Goldie | [S'exprimer en tant qu'enseignant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-7-1969-3-25-anonymous-goldie/) | 25 Mars 1969
 Goldie | [Vous ne pouvez grandir que pas à pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-34-1969-11-1-anonymous-goldie/) | 1 Novembre 1969
 Goldie | [Une mission spéciale de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-108-1969-anonymous-goldie/) |   1969
@@ -179,5 +180,5 @@ Sam | [Retraite spirituelle - Hawaii](/fr-contemporary-messages/fr-contemporary-
 Sam | [Retraite spirituelle - Hawaii_2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-6-7-1-fab-sam/) | 7 Juin 2002
 Sarah Elizabeth Egelburg | [Nous rencontrons Sarah](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-10-11-1-ks-sarah-elizabeth-egelburg/) | 11 Octobre 2004
 Sashaquaha | [Honorer la Terre Mère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-2-4-1-af-sashaquaha/) | 4 Février 2022
-[Les enseignements de Kea Atta Kem](/12-fr-the-main-spiritual-teachers/12-7-fr-the-teachings-of-keea-atta-kem/)
+[Les enseignements de Keea Atta Kem](/12-fr-the-main-spiritual-teachers/12-7-fr-the-teachings-of-keea-atta-kem/)
 [Les enseignements de Seretta Kem](/12-fr-the-main-spiritual-teachers/12-6-fr-the-teachings-of-seretta-kem/)

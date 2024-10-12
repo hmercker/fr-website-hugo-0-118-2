@@ -11,7 +11,7 @@ weight:
 
 Seretta Kem - reçu par Al Fike le 30 Décembre 2018, Gibsons, Colombie-Britannique, Canada.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2018-nepal5.jpeg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-nepal5.jpeg)
 
 Oui, les conditions de votre monde sont en train de changer et pour certains d’entre vous, vous sentez l’affaiblissement de ce que l’on pourrait considérer comme l’atmosphère joyeuse de la fête de la naissance du Maître. Pourtant, tant de personnes ne ressentent aujourd’hui aucune joie ou reconnaissance de ce temps de gratitude et cela nous attriste de voir que le monde continue à être aveuglé et volontairement éloigné de sa propre nature spirituelle.
 

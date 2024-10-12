@@ -1,13 +1,13 @@
 ---
-title: "Discussions sur nos dons et nos destinées"
+title: "Parle sur nos dons et nos destinées"
 menu_title: ""
-description: "Discussions sur nos dons et nos destinées"
+description: "Parle sur nos dons et nos destinées"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### Discussions sur nos dons et nos destinées
+### Parle sur nos dons et nos destinées
 
 Flavius Josèphe - reçu par Albert Fike le 07 Septembre 2024, Lansing, Michigan, États Unis
 

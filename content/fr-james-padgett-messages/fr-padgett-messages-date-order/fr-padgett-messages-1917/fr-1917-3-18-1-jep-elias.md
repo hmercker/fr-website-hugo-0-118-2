@@ -11,6 +11,8 @@ weight:
 
 Élie - reçu par James Padgett le 18 Mars 1917, Washington, USA.
 
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-spiritualite-27.jpg)
+
 C’est moi, Élie.
 
 Je viens ce soir pour écrire un court message sur le sujet de *« La vérité de la Bible quant aux choses qui sont contenues dans l’Ancien Testament »*. Par cela, je ne veux pas dire que je vais développer l’ensemble de cette partie de la Bible, mais seulement de la partie qui est relative à la période dans laquelle je suis supposé avoir vécu.

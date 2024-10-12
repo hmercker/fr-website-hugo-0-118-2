@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### DGuerriers de la lumière 
+### Guerriers de la lumière 
 
 Isaïe - reçu par Albert Fike le 09 Septembre 2024, Indianapolis, Indiana, États Unis
 

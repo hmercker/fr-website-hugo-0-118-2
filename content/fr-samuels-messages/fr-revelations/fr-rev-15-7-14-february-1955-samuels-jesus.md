@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Dr Samuels le 7 et 14 Février 1955, Washington, USA.
 
-![](/fr-samuel-messages/fr-revelations/fr-rev15-reve-de-joseph.webp)
+![](/fr-samuels-messages/fr-revelations/fr-rev15-reve-de-joseph.webp)
 
 C’est moi, Jésus.
 

@@ -42,3 +42,4 @@ St Pierre | [Cherchez la vérité](/fr-contemporary-messages/fr-contemporary-mes
 St Pierre | [La lumière qui vous entoure continue de briller](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-14-1-af-st-peter/) | 14 Juillet 2024
 St Pierre | [Atteindre la conscience de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-25-1-af-st-peter/) | 25 Juillet 2024
 St Pierre | [Message de Clôture de la croisème de l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-13-1-af-st-peter/) | 13 Août 2024
+St Pierre | [Vos bénédictions ne seront pas oubliées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-22-1-af-st-peter/) | 22 Septembre 2024

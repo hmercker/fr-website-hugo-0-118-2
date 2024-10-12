@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Dr Samuels le 20 Janvier 1955, Washington, USA.
 
-![](/fr-samuel-messages/fr-revelations/fr-rev42-tresors-caches-dans-la-bible.webp)
+![](/fr-samuels-messages/fr-revelations/fr-rev42-tresors-caches-dans-la-bible.webp)
 
 C’est moi, Jésus.
 

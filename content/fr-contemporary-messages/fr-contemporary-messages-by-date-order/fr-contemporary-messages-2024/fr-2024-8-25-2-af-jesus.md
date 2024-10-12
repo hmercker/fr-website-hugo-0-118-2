@@ -1,0 +1,24 @@
+---
+title: "Apporte des bénédictions d'amour"
+menu_title: ""
+description: "Apporte des bénédictions d'amour"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Apporte des bénédictions d'amour
+
+Jésus - reçu par Albert Fike le 25 Août 2024, Sechelt, Colombie-Britannique, Canada.
+
+Heureux les enfants qui cherchent leur Créateur, qui aspirent, désirent cette connexion et cette bénédiction de Dieu. Ne sommes-nous pas bénis, mes frères et sœurs bien-aimés ? Je suis votre frère et ami, Jésus. Je viens prier avec vous aujourd’hui. Pour être avec vous, mes frères sur cette Terre, pour marcher avec vous un moment et vous parler de Dieu et de Son amour, de la grâce de Dieu qui nous enveloppe tous, de l’Amour de Dieu désireux d’entrer dans nos âmes. Je vous exhorte à ouvrir grand vos âmes à un grand afflux de cet amour. Car c’est la clé du Royaume, du Royaume de Dieu.
+
+J’ai enseigné cela pendant de très nombreuses années et je continuerai à l’enseigner jusqu’au jour où mon ministère sera terminé. Je serai avec vous dans ce voyage vers Dieu, car Dieu m’a donné ce grand privilège et cette bénédiction de conduire Ses enfants dans le Royaume. Je le fais à chaque instant. Je viens vers ces âmes qui aspirent à cela et je fais tout ce que je peux pour les élever et les inspirer, pour les aider à voir la magnificence de ce voyage, pour les inspirer à avoir la vision et la révélation de combien Dieu les aime. Je viens vers elles quand je le peux afin qu’elles me connaissent comme leur frère. Car je marche sur le chemin qui vous attend tous. Je suis le serviteur de Dieu pour le voyage de la vérité, un voyage d’éveil de l’âme dans l’amour. Je suis votre frère et votre ami sur ce voyage.
+
+Ceux qui souhaitent me suivre seront grandement bénis et apprendront à me connaître comme leur véritable frère. Ils apprendront à connaître Dieu comme leur véritable créateur et celui qui les aime au-delà de toute imagination. Ils seront libérés par la puissance de cet amour, guéris, transformés et se retrouveront dans un grand élan de joie. Une joie qui vient de l’âme qui a trouvé la véritable source de l’amour. L’élixir d’amour qui nourrira, en effet, l’âme pour l’éternité.
+
+Mes bien-aimés, chacun de vous a trouvé sa voie. J’honore chacun de vous dans votre voyage et désir de progresser davantage dans l’âme et vers Dieu. Je marche avec vous. Je suis avec vous et serai avec vous pour toute l’éternité. Vous ne serez abandonnés, mais toujours soutenus sur le chemin de la vérité. Vous ne serez pas perdus, mes bien-aimés, mais trouvés dans l’amour et la vérité. Vous ne serez pas négligés, mais trouverez votre chemin vers la source de tout soin et de tout amour. Vous ne serez pas seuls, car Dieu est toujours là. Dans Sa bienfaisance et Son souci de vous, il assigne des anges pour être avec vous. Vous ne connaîtrez pas l’obscurité, mais la lumière de l’Amour de Dieu dissipera toute obscurité. Vous ne connaîtrez pas la douleur et l’angoisse d’une âme perdue, car vous trouverez la joie et la vérité qui viennent avec Son amour.
+
+Nous sommes ensemble sur un chemin si magnifique, si généreux, si riche, si beau que Sa grâce éclairera notre chemin pour toujours. Les clés du Royaume nous ont été données. Chacun d’entre vous y entrera, à condition de continuer à rechercher et à recevoir le grand don de Son Amour. Lorsque vous entrerez dans les Cieux, je serai là pour vous accueillir, vous embrasser et affirmer que nous sommes vraiment une famille au sein de cette belle existence d’amour. Bien-aimés et beaux enfants de Dieu, sachez que ce que vous faites, les efforts que vous faites et la concentration que vous avez sur cette vérité mèneront à des récompenses inimaginables et à des bénédictions pures, profondes et larges. Lorsque vous recherchez l’Amour de Dieu, toutes les bénédictions viendront et tout ce qui n’est pas de l’amour disparaîtra.
+
+Vous êtes vraiment sur le chemin, mes bien-aimés. En cela, vous avez mon attention particulière, mes prières et mon amour. Que Dieu vous bénisse au cours de ces voyages et que vos choix soient toujours pour la lumière et vos efforts toujours pour Dieu. Tout le reste viendra dans ce voyage. Toutes les bénédictions, toutes les opportunités de servir dans l’amour vous seront données. Vous, mes bien-aimées et belles âmes naissantes de Dieu, deviendrez fortes et éveillées, matures et belles dans les bénédictions de l’Amour du Père pour transformer votre âme. Que Dieu vous bénisse, mes bien-aimés. Mon amour est toujours avec vous. Dieu est toujours prêt à déverser Son Amour dans votre âme. Recherchez-le par-dessus tout et sachez qu’il s’agit de votre véritable grâce salvatrice sur le chemin de la vie. Que Dieu vous bénisse. Je suis Jésus et je vous aime. Que Dieu vous bénisse.

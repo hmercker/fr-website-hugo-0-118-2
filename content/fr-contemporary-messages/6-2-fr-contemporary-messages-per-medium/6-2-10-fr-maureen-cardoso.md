@@ -114,5 +114,6 @@ Fleur de Lotus | [Transformez votre perception du monde (Retraite 2024 de l’Am
 St françois  d'Assise | [Ayez foi et confiance en votre instrumentalité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-5-1-mc-st-francis-of-assisi/) | 5 Août 2024
 Marie | [Gardez votre cœur ouvert](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-25-1-mc-mary/) | 25 Août 2024
 Mylora | [Respectez les dispositions de la Terre Mère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-6-1-mc-mylora/) | 6 Septembre 2024
+St Luc | [Force de la substance du Créateur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-12-2-mc-st-luke/) | 12 Septembre 2024
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

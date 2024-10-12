@@ -11,6 +11,8 @@ weight:
 
 Judas - reçu par H____ le 21 Mars 2002, Cuenca, Équateur.
 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-spiritualite-35.webp)
+
 Mon cher frère, conformément à ce que j’ai mentionné la dernière fois, aujourd’hui, nous allons mettre l’accent sur le grand scénario politique autour de l’histoire de Jésus. Ceci est un message tout à fait général, et cela n’a rien à voir avec la religion, mais je pense qu’il est important pour toi de connaître cela afin d’être en mesure de mieux comprendre la raison pour laquelle certains événements se sont produits.
 
 Comme tu le sais, Jésus est né pendant le règne de l’empereur romain Auguste. Cependant, il a vécu sa vie publique et il est mort alors que Tibère occupait le trône à Rome. Eh bien, en fait, ce n’est pas 100% correct, et je vais t’expliquer pourquoi. Quoi qu’il en soit, je pense qu’il est important de consacrer quelques mots à la situation à Rome, parce qu’elle a beaucoup à voir avec le destin du Maître.

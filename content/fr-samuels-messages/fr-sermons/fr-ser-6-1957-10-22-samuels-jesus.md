@@ -13,7 +13,7 @@ Jésus - reçu par Dr Samuels le 22 Octobre 1957, Washington, USA.
 
 C’est moi, Jésus.
 
-![](/fr-samuel-messages/fr-sermons/fr-sermon6-spiritualite-10.webp)
+![](/fr-samuels-messages/fr-sermons/fr-sermon6-spiritualite-10.webp)
 
 Ce soir, je veux écrire pourquoi aucun sang, qu’il s’agisse de celui de l’homme ou de l’animal, n’a un effet rédempteur sur le péché de l’humanité, tel que cela est enseigné dans certaines églises.
 

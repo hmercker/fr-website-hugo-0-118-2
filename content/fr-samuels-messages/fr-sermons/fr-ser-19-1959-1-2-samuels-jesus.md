@@ -13,7 +13,7 @@ Jésus - reçu par Dr Samuels le 2 Janvier 1959, Washington, USA.
 
 C’est moi, Jésus.
 
-![](/fr-samuel-messages/fr-sermons/fr-sermon19-spiritualite-15.webp)
+![](/fr-samuels-messages/fr-sermons/fr-sermon19-spiritualite-15.webp)
 
 Les Psaumes de David et ceux écrits sous son inspiration, sont des chants d’humeurs différentes – de joie et d’exultation, de tristesse, de pénitence et de désespoir. Ce sont des chants de louange à Dieu, d’espoir et de foi en sa Grâce et sa Miséricorde, dans la connaissance de l’âme que seulement la foi en Dieu peut donner à l’homme la force intérieure pour faire face aux circonstances et aux manifestations hostiles et compter sur la délivrance ultime. Ils sont la connaissance que l’âme a que Dieu est le rocher pour le salut de l’homme, et qu’en obéissant à la Loi de Dieu pour éviter le péché, la place de l’homme avec Dieu sera sécurisée, et ultérieurement, Dieu délivrera l’homme des maux du monde matériel à cause de cette foi. 
 

@@ -37,8 +37,9 @@ Judas | [Venez au banquet de la vérité](/fr-contemporary-messages/fr-contempor
 Care Darby  Walsh | [La transformation de l’âme dans l’Amour de Dieu est réelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-3-1-jw-care-darby-walsh/) | 3 Mai 2024
 Khalil Gibran | [Le réveil d'un rêve](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-13-1-jw-khalil-gibran/) | 13 Mai 2024
 Care Darby Walsh | [Dites une simple prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-27-1-jw-care-darby-walsh/) | 27 Mai 2024
-Luc | [L’Essence de Dieu (Amour Divin) dans l’âme de chacun est le fondement du Royaume de Dieu sur terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-2-1-jw-luke/) | 2 Juin 2024
+St Luc | [L’Essence de Dieu (Amour Divin) dans l’âme de chacun est le fondement du Royaume de Dieu sur terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-2-1-jw-st-luke/) | 2 Juin 2024
 Eileen  Caddy | [Création d'un sanctuaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-7-1-jw-eileen-caddy/) | 7 Juin 2024
+St Luc | [Communion spirituelle et communauté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-30-1-jw-st-luke/) | 30 Juin 2024
 Yogananda | [Créer un sanctuaire dans une communauté de cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-1-3-jw-yogananda/) | 1 Juillet 2024
 Care Darby Walsh | [Détente spirituelle, sanctuaire et responsabilité personnelle ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-8-1-jw-care-darby-walsh/) | 8 Juillet 2024
 Elizabeth | [Laissez l'Amour de Dieu vous guider](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-15-1-jw-elizabeth/) | 15 Juillet 2024
@@ -48,5 +49,7 @@ Jésus | [Cause et effet, temporel et spirituel](/fr-contemporary-messages/fr-co
 Care Darby Walsh | [Vos trésors sont gardés au Ciel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-12-3-jw-care-darby-walsh/) | 12 Septembre 2024
 Charlie Chaplin | [Utiliser l'humour pour dénoncer la cupidité, l'injustice et l'inégalité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-13-1-jw-charlie-chaplin/) | 13 Septembre 2024
 Fred Rogers | [Aime son travail en esprit comme il l'a aimé sur terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-14-2-jw-fred-rogers/) | 14 Septembre 2024
+Claire d'Assise | [Le silence est d'or ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-16-1-jw-clare-of-assisi/) | 16 Septembre 2024
+Claire d'Assise | [La forme la plus haute de la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-23-1-jw-clare-of-assisi/) | 23 Septembre 2024
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

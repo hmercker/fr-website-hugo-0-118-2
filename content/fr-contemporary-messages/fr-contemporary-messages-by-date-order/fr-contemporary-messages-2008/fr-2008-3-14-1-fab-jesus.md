@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par FAB le 14 Mars 2008, Santa Cruz, Californie, USA.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2008-eveil-spirituel7.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-eveil-spirituel7.jpg)
 
 C’est moi, Jésus.
 

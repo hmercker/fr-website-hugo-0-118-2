@@ -57,10 +57,11 @@ St Luc | [Marcher à cœur ouvert](/fr-contemporary-messages/fr-contemporary-mes
 St Luc | [La vie spirituelle est un combat](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-10-2-jw-st-luke/) | 10 Mars 2022
 St Luc | [Il y a de nombreux chemins pour la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-27-1-jw-st-luke/) | 27 Mars 2023
 St Luc | [Être en phase avec la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-7-2-af-st-luke/) | 7 Avril 2023
-St Luc | [Faites d’être dans le moment présent de l’Amour de Dieu, votre priorité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-10-2-jw-luke/) | 10 Octobre 2023
+St Luc | [Faites d’être dans le moment présent de l’Amour de Dieu, votre priorité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-10-2-jw-st-luke/) | 10 Octobre 2023
 St Luc | [Les anges nous aident à passer de la conscience de l'esprit à la conscience de l'âme ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-22-2-af-st-luke/) | 22 Octobre 2023
 St Luc | [Celui qui vous a créé ne vous abandonnera pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-22-1-jw-st-luke/) | 22 Janvier 2024
-Luc | [Prières magnétiques](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-25-2-jw-luke/) | 25 Juin 2024
-Luc | [Communion spirituelle et communauté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-30-1-jw-luke/) | 30 Juin 2024
-Luc | [Force de la substance du Créateur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-12-2-mc-luke/) | 12 Septembre 2024
+St Luc | [Prières magnétiques](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-25-2-jw-st-luke/) | 25 Juin 2024
+St Luc | [Communion spirituelle et communauté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-30-1-jw-st-luke/) | 30 Juin 2024
+St Luc | [Force de la substance du Créateur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-12-2-mc-st-luke/) | 12 Septembre 2024
+St Luc | [Répandez le message loin et largement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-24-2-af-st-luke/) | 24 Septembre 2024
 St Luc & Seretta Kem | [Orientation Voix Directe (Seretta Kem) et être au service (Luc)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-5-1-af-st-luke-seretta-kem/) | 5 Août 2018

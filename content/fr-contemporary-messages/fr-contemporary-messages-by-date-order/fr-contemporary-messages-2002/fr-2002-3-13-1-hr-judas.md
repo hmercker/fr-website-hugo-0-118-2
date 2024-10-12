@@ -11,7 +11,7 @@ weight:
 
 Judas - reçu par H____ le 13 Mars 2002, Cuenca, Équateur.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-spiritualité-35.webp)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-spiritualite-35.webp)
 
 Hier, j’ai annoncé que je voulais parler de certains événements importants qui se sont produits au cours de l’année 26. Cependant, aujourd’hui, pour une certaine raison, j’ai changé d’avis et je veux aborder le sujet du « nom de Dieu ».
 

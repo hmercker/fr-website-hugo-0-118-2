@@ -11,7 +11,7 @@ weight:
 
 St Luc - reçu par James Padgett le 12 Mars 1917, Washington, USA.
 
-![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-nepal5.jpg)
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-nepal5.jpeg)
 
 C’est moi, Luc.
 
