@@ -13,7 +13,7 @@ Hafiz - reçu par Jimbeau Walsh le 7 Décembre 2020, Punalu’u, Oahu, Hawaii, U
 
 Je suis Hafiz le poète.<sup id="a1">[1](#f1)</sup>
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-spiritualite-15.webp)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-spiritualite-15.jpg)
 
 Je viens dans l’Amour de Dieu, mes frères et sœurs dans le cercle d’amour alors que chacun ouvre son cœur. Alors que le monde tourne et que les planètes tournent, vous pouvez vous reposer dans la magnificence de la création en toute sécurité et en sachant que vous n’allez pas vous écraser contre le soleil. Laissez le contact du Créateur être sur vous afin que vous soyez une étoile au firmament, illuminant le ciel. Que votre âme soit un vaisseau d’amour déversant un vin qui transforme et guérit chaque âme assoiffée sur ce chemin. Laissez le Grand Maître vous remplir de l’Amour Divin afin que votre cœur vulnérable soit soulevé sur les ailes de Son Amour.
 

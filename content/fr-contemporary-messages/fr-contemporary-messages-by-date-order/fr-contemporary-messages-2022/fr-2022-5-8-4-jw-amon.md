@@ -11,7 +11,7 @@ weight:
 
 Amon - reçu par Jimbeau Walsh le 8 Mai 2022, Boscobel, WI, USA.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-spiritualite31.webp)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-spiritualite-31.webp)
 
 C’est moi, Amon,<sup id="a1">[1](#f1)</sup> la première mère de l’humanité et depuis longtemps une âme rachetée dans le royaume Céleste du Père. Je vous salue en cette fête des mères avec tout l’amour de mon âme, car chacun d’entre vous a eu un éveil de l’âme, vos perceptions s’étendant au-delà de ce qui est considéré comme la gamme normale dans les domaines de l’esprit et influencées par l’Amour Divin.
 

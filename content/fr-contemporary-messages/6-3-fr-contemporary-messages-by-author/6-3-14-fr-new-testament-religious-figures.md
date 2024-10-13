@@ -75,8 +75,6 @@ Guru Ram Das | [Embrasser d'autres cultures](/fr-contemporary-messages/fr-contem
 Hazrat Inayat Khan | [Gardez un chant dans votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-9-1-jw-hazrat-inayat-khan/) | 9 Novembre 2021
 Hildegard of Bingen | [Une mystique médiévale exulte dans le monde spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-7-1-fab-hildegard-of-bingen/) | 7 Août 2008
 Jacobus Arminius | [Un théologien Néerlandais découvre la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-3-21-1-fab-jacobus-arminius/) | 21 Mars 2007
-Jean Paul II | [L'Amour de Dieu et le pape](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-3-1-fab-john-paul-ii/) | 3 Janvier 2007
-Jean Paul II | [Un pape appelle à la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-1-1-fab-john-paul-ii/) | 1 Janvier 2007
 Jérôme | [Vous êtes soutenu dans vos luttes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-12-1-af-jerome/) | 12 Septembre 2016
 Jerry Falwell | [La tristesse de Jerry Falwell](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-4-5-1-fab-jerry-falwell/) | 5 Avril 2009
 John Wesley | [Le rôle de la Voix Directe dans l'éveil de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-5-20-1-af-john-wesley/) | 20 Mai 2018
@@ -95,6 +93,8 @@ Mère Teresa | [Les possibilités du service](/fr-contemporary-messages/fr-conte
 Osho Bhagwan | [L'Amour de Dieu est la véritable voie de la libération](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-12-1-af-osho-bhagwan/) | 12 Février 2019
 Pape Jean XXIII | [L'humilité d'un pape bien-aimé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-11-1-fab-pope-john-xxiii/) | 11 Mai 2008
 Pape Jean XXIII | [Confirmation par un pape (Jean XXIII)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-20-1-fab-pope-john-xxiii/) | 20 Mai 2008
+Pape Jean Paul II | [Un pape appelle à la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-1-1-fab-john-paul-ii/) | 1 Janvier 2007
+Pape Jean Paul II | [L'Amour de Dieu et le pape](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-3-1-fab-john-paul-ii/) | 3 Janvier 2007
 Pape Jean-Paul II | [Le pape Jean Paul II est dans le Royaume des Cieux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-3-4-mc-pope-john-paul-ii/) | 3 Décembre 2019
 Pape Pie XII | [L’erreur d’un pape](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-26-1-fab-pope-pius-xii/) | 26 Janvier 2014
 Pape Urbain II | [Les expériences du Pape urbain II](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-8-17-1-fab-pope-urban-ii/) | 17 Août 2010
@@ -199,7 +199,7 @@ St François d'Assise | [Puissions-nous être transformés par le don de l’Amo
 St François d'Assise | [Restez en grâce](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-8-1-jw-st-francis-of-assisi/) | 8 Janvier 2024
 St François d'Assise | [Nourrir d'amour les âmes affamées ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-17-1-jw-st-francis-of-assisi/) | 17 Mars 2024
 St François  d'Assise | [Ayez foi et confiance en votre instrumentalité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-5-1-mc-st-francis-of-assisi/) | 5 Août 2024
-St François d'Assise | [L'Amour de Dieu apportera les changements nécessaires au monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-4-1-af-francis-of-assisi/) | 4 Octobre 2024
+St François d'Assise | [L'Amour de Dieu apportera les changements nécessaires au monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-4-1-af-st-francis-of-assisi/) | 4 Octobre 2024
 St. George | [Notre nation, Guernesey, a grand besoin de s’élever](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-15-4-af-st-george/) | 15 Mai 2022
 Thérèse | [Cherchez l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-12-1969-7-14-anonymous-therese/) | 14 Juillet 1969
 Thérèse | [Chaque prière crée un sanctuaire invisible (Cercle de Prière de Gibsons)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-11-2-jw-therese/) | 11 Octobre 2021

@@ -11,7 +11,7 @@ weight:
 
 Judas - reçu par H____ le 21 Mars 2003, Cuenca, Équateur.
 
-![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-judas-spiritualite-25.webp)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-judas-spiritualite-25.jpg)
 
 Je voudrais continuer [mon message d’hier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-3-21-1-hr-judas/).
 
