@@ -11,7 +11,7 @@ weight:
 
 Ronald Reagan <sup id="a1">[1](#f1)</sup> - reçu par FAB le 1<sup>er</sup> Janvier 2007, Santa Cruz, Californie, USA.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-eveil-spirituel-2.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-ronald-reagan-2.jpg)
 
 Je suis Ronald Reagan. <sup id="a2">[2](#f2)</sup>
 

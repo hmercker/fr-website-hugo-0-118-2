@@ -255,3 +255,6 @@ Judas | [Les Trois Naissances](/fr-contemporary-messages/fr-contemporary-message
 Judas | [Venez au banquet de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-29-1-jw-judas/) | 29 Avril 2024
 Judas | [Amour de soi et Amour Divin ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-18-4-af-judas/) | 18 Mars 2024
 Judas | [L'Amour deDieu adéjà conquis l Monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-17-1-jw-judas/) | 17 Juin 2024
+Judas | [Les conseils pratiques sont dans la demande](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-15-1-jw-judas/) | 15 Septembre 2024
+Judas | [L’humilité est la clé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-30-1-jw-judas/) | 30 Septembre 2024
+Judas | [Sanctuaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-14-1-jw-judas/) | 14 Octobre 2024

@@ -53,6 +53,7 @@ Hafiz | [Cette Attente, ce Désir](/fr-contemporary-messages/fr-contemporary-mes
 Hafiz | [Océan infini](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-2-2-jw-hafiz/) | 2 Juin 2021
 Hafiz | [Poèmes de Haffiz](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-27-1-jw-hafiz/) | 27 Juin 2021
 Hafiz | [Soyez la vraie vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-25-1-jw-hafiz/) | 25 Octobre 2021
+Hafiz | [Que pensera le monde de vous ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-8-1-jw-hafiz/) | 8 Septembre 2024
 Ida Tarbell | [Quelque chose de merveilleux à attendre avec impatience](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-24-1-fab-ida-tarbell/) | 24 Décembre 2009
 Jack Kerouac | [Le voyage d'un écrivain de l'époque](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-16-1-fab-jack-kerouac/) | 16 Avril 2008
 Jack Kerouac | [Un écrivain de l’époque trouve l'Amour Divin_2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-18-2-fab-jack-kerouac/) | 18 Avril 2008
@@ -103,6 +104,7 @@ Robert James Lees | [Le monde bénéficiera de ce que j'ai reçu](/fr-contempora
 Robert James Lees | [Une chose à la fois](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-10-1-jw-robert-james-lees/) | 10 Novembre 2021
 Robert James Lees | [Tous sont dignes de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-11-2-jw-robert-james-lees/) | 11 Novembre 2021
 Robert James Lees | [Une synchronicite de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-1-1-jw-robert-james-lee/) | 1 Décembre 2022
+Robert J. Lees | [Prière et Expiation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-7-1-jw-robert-j-lees/) | 7 Octobre 2024
 Robert Louis Stevenson | [Un auteur sur la nature du soi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-11-2-fab-robert-louis-stevenson/) | 11 Août 2008
 Rumi | [Rumi parle de la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-15-3-af-rumi/) | 15 Novembre 2017
 Rumi | [La loi de Dieu est progressive](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-11-3-jw-rumi/) | 11 Septembre 2019

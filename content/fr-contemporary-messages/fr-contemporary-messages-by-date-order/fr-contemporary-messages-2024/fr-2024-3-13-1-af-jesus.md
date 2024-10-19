@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Albert Fike le 13 Mars 2024, Queensland, Australie.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-spiritualite-15.webp)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-spiritualite-15.jpg)
 
 Je viens. Je suis votre frère et votre ami. Je suis Jésus. Ne doutez pas de moi, mais approchez-vous, car nous sommes vraiment frères et sœurs dans l'Amour de Dieu. Pour ceux qui voudraient me dénigrer, ayez de la compassion. Pour ceux qui ont le défi de croire et de comprendre que je pourrais venir à vous, soyez doux et aimant.
 

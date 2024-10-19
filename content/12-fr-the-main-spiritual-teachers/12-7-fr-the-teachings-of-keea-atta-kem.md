@@ -111,3 +111,4 @@ Keea ata Kem | [Avec les bénédictions de Jésus. Encourage les expressions de 
 Keea Atta Kem | [L'harmonisation de vos prières crée une grande lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-11-1-af-keea-atta-kem/) | 11 Février 2024
 Keea Atta Kem | [Vous êtes des sages-femmes pour la conscience de l'âme à l'accouchement ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-6-1-af-keea-atta-kem/) | 6 Juin 2024
 Keea Atta Kem | [Vous ne dormez pas ! Les âmes s'éveillent ! (Croisière Love Boat 2024)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-10-1-af-keea-atta-kem/) | 10 Août 2024
+Kea Atta Kem | [L'importance de la communion de l’Amour Divin ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-15-1-af-keea-atta-kem/) | 15 Août 2024

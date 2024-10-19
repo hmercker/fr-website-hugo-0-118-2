@@ -1,7 +1,7 @@
 ---
 title: "Message de clôture de la Croisière 2024 de l’Amour"
 menu_title: ""
-description: Message de clôture de la Croisière 2024 de l’Amour"
+description: "Message de clôture de la Croisière 2024 de l’Amour"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
