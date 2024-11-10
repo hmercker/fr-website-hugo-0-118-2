@@ -47,5 +47,6 @@ Alec Gaunt | [Questions et réponses d'un esprit Céleste](/fr-contemporary-mess
 Alec Gaunt | [L'esprit construit un pont entre les plans de l'esprit et de la terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-21-3-af-alec-gaunt/) | 21 Juin 2022
 Alec Gaunt | [Invite le groupe des douze à se réunir à nouveau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-25-1-af-alec-gaunt/) | 25 Avril 2023
 Alec Gaunt | [Parle clairement de la progression du groupe ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-5-13-1-af-alec-gaunt/) | 13 Mai 2023
+Alec Gaunt | [Bénédiction pour le 48e anniversaire de mariage d’Al et Jeanne Fike ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-24-1-af-alec-gaunt/) | 24 Juillet 2024
 Alec Gaunt | [Nous encourage à agir ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-27-1-af-alec-gaunt/) | 27 Août 2024
 Alec & Elsie | [Bénédictions de mentors qui sont des âmes sœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-26-2-af-alec-elsie/) | 26 Mai 2021

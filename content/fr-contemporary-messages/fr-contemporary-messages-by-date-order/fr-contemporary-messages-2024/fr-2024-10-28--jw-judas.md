@@ -1,0 +1,24 @@
+---
+title: "Pardon et prières"
+menu_title: ""
+description: "Pardon et prières"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Pardon et prières
+
+Judas - reçu par Jimbeau Walsh le 28 Octobre 2024, Nashville, Tennesse, Etats Unis
+
+C’est moi, votre frère, Judas. Que l’Amour de Dieu soit sur tous et que sa sainte présence remplisse ce cercle. Dans les jours à venir, tu seras appelé à être réconfort, refuge et guide pour tous ceux qui cherchent un abri.
+
+L’un des défis les plus difficiles auxquels sont confrontés ceux qui souhaitent progresser sur ce chemin est la capacité de pardonner. Le pardon et le vrai pardon ne peuvent venir qu’avec un cœur qui repose en Dieu et une âme éclairée. Car les frondes et les flèches de ce monde peuvent être difficiles à dévier, mais le bouclier et l’armure de l’Amour Divin permettent à chacun, avec un cœur ouvert, de voir clairement que ce qui nous arrive avec négativité, désharmonie ou colère, est un type de frustration et d’aveuglement spirituels. Ainsi, lorsque vous voyez la souffrance de ceux qui sont troublés, dans la tourmente, cherchant peut-être à se venger, vous ne pouvez que réagir avec empathie. Vous pouvez considérer le Maître pardonnant à ceux qui l’ont agressé physiquement et lui ont ôté la vie, sa vie corporelle, et pourtant, si absorbé par son âme, en disant : *« Père, pardonne-leur, car ils ne savent pas ce qu’ils font. »* En des termes très contemporains, je vous rappellerai l’adage : *« L’erreur est humaine, pardonner, Divin. »*
+
+Dans le contexte du chemin de l’Amour Divin, ces mots disent une grande vérité, et nous rappellent que nous avons tous commis des erreurs. Les crises imminentes engendreront le besoin d’une prière profonde ; prière pour être guidé, prière pour pardonner, prière pour embrasser, prière pour avoir la clarté, pour trouver refuge, et en les embrassant toutes, cette prière :
+
+*« Cher Dieu, je viens à toi avec les désirs de mon cœur et de mon âme pour recevoir le don de ton amour et demander à ton esprit très saint de m’en remplir. Je suis ouvert à la guidance et dans le silence de Ta présence, je Te remercie humblement avec un cœur très reconnaissant, joyeux et allégé pour la merveille de Ton Amour.
+
+Que tous les êtres soient bénis. Que tous soient guéris. Que tous trouvent la vérité du grand don de votre amour. Nous vous remercions. Nous vous louons et nous vous aimons. Amen. »*
+
+Mes chers frères et sœurs, vous avez été servis par de nombreux anges qui sont au service du Créateur. Puissiez-vous réaliser, chacun, à quel point vous êtes béni et à quel point nous nous réjouissons de notre communion, de notre unité dans l’amour de Dieu. Je vais prendre du recul et je vous remercie, ainsi que mon frère ici présent. Que Dieu vous bénisse. Je suis Judas. Allez en paix.

@@ -258,3 +258,4 @@ Judas | [L'Amour deDieu adéjà conquis l Monde](/fr-contemporary-messages/fr-co
 Judas | [Les conseils pratiques sont dans la demande](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-15-1-jw-judas/) | 15 Septembre 2024
 Judas | [L’humilité est la clé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-30-1-jw-judas/) | 30 Septembre 2024
 Judas | [Sanctuaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-14-1-jw-judas/) | 14 Octobre 2024
+Judas | [Pardon et prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-28--jw-judas/) | 28 Octobre 2024

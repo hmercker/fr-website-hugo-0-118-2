@@ -14,4 +14,4 @@ Vicky Forest souffrait énormément à la fin de sa vie. Elle s'est alors inscri
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Kea - Vicky Forest | [Premier message de l'esprit de Vicky Forest](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-24-1-af-vicky-forest/) | 24 Septembre 2018
-Vicky Forest | [Ayant progressé jusqu'à la 5ème sphère, professe son amour pour Allan et les Etats-Unis](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-20-2-af-vicky-forest/) | 20 Juillet 2024
+Vicky Forest | [Ayant progressé jusqu'à la 5ème sphère, professe son amour pour son mari Allan](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-20-2-af-vicky-forest/) | 20 Juillet 2024
