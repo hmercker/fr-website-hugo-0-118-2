@@ -142,3 +142,4 @@ André | [Les anges viennent sur Terre pour enseigner les vérités de l’Amour
 André | [Continuez à prier, à renforcer, à étendre les portails et le réseau de lumière ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-1-1-af-andrew/) | 1 Mars 2024
 André | [Pour l'instant, apprenez grâce à vos capacités mentales, aimez grâce à vos capacités d'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-26-1-em-andrew/) | 26 Juin 2024
 André | [Vous avez un impact ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-18-1-af-andrew/) | 18 Septembre 2024
+André | [Dieu ouvre la porte à la communication d’en haut](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-12-1-af-andrew/) | 12 Octobre 2024

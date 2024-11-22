@@ -36,4 +36,5 @@ Jésus | [Nous venons partager la lumièr](/fr-contemporary-messages/fr-contempo
 Jésus | [Brisez les chaînes de l’obscurité et libérez vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-14-1-af-jesus/) | 14 Septembre 2024
 Jésus | [Expiation avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-21-1-af-jesus/) | 21 Septembre 2024
 Jésus | [Votre lumière peut aider Dieu à briser des générations de ténèbres dans le monde ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-6-1-af-jesus/) | 6 Octobre 2024
+Jésus | [Jésus nous emmène dans la salle de la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-27-2-af-jesus/) | 27 Octobre 2024
 

@@ -332,6 +332,8 @@ Augustin | [Vivez une vie de prière](/fr-contemporary-messages/fr-contemporary-
 Augustin | [Rappelle aux administrateurs de travailler ensemble dans la douce harmonie de la volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-26-1-af-augustine/) | 26 Août 2024
 Augustin | [Il faut notre puissance de prière pour rapprocher Dieu et les anges](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-7-2-af-augustine/) | 7 Septembre 2024
 Augustin | [Comment fonctionne le flux de la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-9-2-af-augustine/) | 9 Septembre 2024
-Augustin - Jésus | [Une leçon sur la prise de décision harmonieuse, continue de bénir nos voyages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-11-1-af-augustine---jesus/) | 11 Septembre 2024
+Augustin-Jésus | [Une leçon sur la prise de décision harmonieuse, continue de bénir nos voyages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-11-1-af-augustine-jesus/) | 11 Septembre 2024
 Augustin | [La conscience de Dieu est consciente de tout dans sa création ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-1-1-af-augustine/) | 1 Octobre 2024
+Augustin | [Les obstacles à la vie avec Dieu sont en vous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-27-1-af-augustine/) | 27 Octobre 2024
+
 

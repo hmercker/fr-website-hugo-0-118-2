@@ -21,6 +21,7 @@ Abdullah Latif | [L’importance du treillis de lumière pour percer les ténèb
 Aldous Huxley | [Briser les chaînes de l'erreur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-19-3-af-aldous-huxley/) | 19 Novembre 2017
 Aristote | [Sur la réincarnation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-19-2-Alfredo-aristotle/) | 19 Novembre 1999
 Aristote | [La progression d'Aristote, et l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-7-1-fab-aristotle/) | 7 Mai 2009
+Aristote | [L’âme a une capacité bien supérieure à celle de l’esprit matériel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-17-1-af-aristotle/) | 17 Novembre 2024
 Arthur Conan Doyle | [J'ai ressenti la grâce de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-15-1-jw-arthur-conan-doyle/) | 15 Décembre 2019
 Arthur Conan Doyle | [Deux spiritualistes britanniques sont sur le chemin de l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-18-1-jw-arthur-conan-doyle/) | 18 Juillet 2020
 Arthur Conan Doyle | [Il y a beaucoup de travail à faire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-22-1-jw-arthur-conan-doyle/) | 22 Octobre 2021

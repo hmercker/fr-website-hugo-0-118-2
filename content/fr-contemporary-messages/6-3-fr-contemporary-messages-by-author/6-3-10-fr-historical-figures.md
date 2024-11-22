@@ -13,6 +13,7 @@ Cette catégorie de messages regroupe des auteurs très divers, certains très c
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
+Caligula | [Décrit son voyage des enfers les plus profonds aux Cieux Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-29-1-af-caligula/) | 29 Octobre 2024
 Cecil Rhodes | [Les inconvénients de la poursuite de l’empire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-1-23-1-fab-cecil-rhodes/) | 23 Janvier 2011
 Cecil Rhodes | [Confirmation d’un bâtisseur d’empire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-31-1-fab-cecil-rhodes/) | 31 Mai 2012
 Cesar Chavez | [Activité spirituelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-13-1-fab-cesar-chavez/) | 13 Mars 2008

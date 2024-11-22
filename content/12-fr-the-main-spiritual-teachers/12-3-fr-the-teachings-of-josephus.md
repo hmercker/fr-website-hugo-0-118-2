@@ -55,4 +55,5 @@ Flavius Josèphe | [Des vêtements sont tissés pour chacun de nous ](/fr-contem
 Flavius Josèphe | [Sera honoré de venir demain pour répondre à la question de Geoff ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-19-1-af-josephus/) | 19 Mars 2024
 Flavius Josèphe | [Répond à la question de Geoff Cutler](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-19-1-af-josephus/) | 19 Mars 2024
 Flavius Josèphe | [Parle sur nos dons et nos destinées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-7-1-af-josephus/) | 7 Septembre 2024
+Flavius Josèphe | [Un monde harmonieux basé sur l’honnêteté, la vérité et l’amour des autres arrive !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-26-2-af-josephus/) | 26 Octobre 2024
 

@@ -1,0 +1,30 @@
+---
+title: "Les bénédictions de Dieu sont partout !"
+menu_title: ""
+description: "Les bénédictions de Dieu sont partout !"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Les bénédictions de Dieu sont partout ! 
+
+Keea atta Kem - reçu par Albert Fike le 25 Octobre 2024, Sechelt, Colombie-Britannique, Canada
+
+Que Dieu vous bénisse, âmes bien-aimées. Je suis Keea atta Kem. Nous continuons à vous soutenir et à vous servir, âmes bien-aimées. Alors que vous recherchez l’amour du Père, vous attirez vos amis anges près de vous, afin que nous puissions vous faire bénéficier de nos dons et des bénédictions qui viendront de nos dons de Dieu pour vous.
+
+Vous voyez, Dieu veille à ce qu’il y ait une chaîne de lumière qui voyage de Lui vers toutes choses dans l’univers, à travers de nombreux conduits et instruments différents, afin que vous puissiez bénéficier et que même la Terre puisse bénéficier des bénédictions de Dieu. L’expression de Dieu, l’Esprit de Dieu continue de se manifester à travers de nombreuses voies différentes. Lorsque vous recevez le grand don de l’amour de Dieu, Dieu utilise ce que vous appelez le Saint-Esprit pour que vous le receviez. Mais il existe de nombreux autres canaux par lesquels les bénédictions de Dieu parviennent à tous les canaux et récepteurs appropriés dans l’univers. Il ne s’agit pas seulement de l’humanité et de ce qu’est l’humanité répandue dans l’univers, mais aussi de vos animaux, de vos amis à quatre pattes, des créatures de votre monde et d’autres mondes, de la Terre elle-même et de toutes les planètes vivantes. Le fonctionnement de l’univers bénéficie du flux des belles bénédictions de Dieu sur lui.
+
+Vous voyez, c’est un système très compliqué et très beau que Dieu a créé. Il est parfait et continue en effet à s’efforcer d’atteindre l’harmonie. Vous et toutes choses en faites partie. Dieu rend possibles les bénédictions qui vous seront bénéfiques et les bénédictions qui profiteront à la création, qui se déversent continuellement et abondamment. Ainsi, la vie est bénie. En effet, la vie existe grâce à ces bénédictions. Vous êtes béni parce que vous faites partie de la vie, mais vous avez aussi quelque chose de très spécial et d’unique qui n’existe pas dans le règne animal. Il existe dans l’âme de l’individu, capable de recevoir ce grand don d’Amour.
+
+Tous les animaux, bien qu’ils aient la vie et aient reçu le don de la vie, toutes les créatures de la création de Dieu ont la vie en elles. Même les roches, le sol et toutes les parties de la création de Dieu ont une mesure de vie en eux, mais vous avez plus que cela. Vous avez une âme qui vous permet d’être transformé et changé en quelque chose de différent. Ainsi, vous bénéficiez de la grande Essence de Dieu qui coule en vous. Cette Essence de Dieu n’est pas la même que l’essence de la vie que Dieu a donnée à l’univers. C’est quelque chose de très spécial, un grand cadeau offert par Dieu à tous Ses enfants, à toute l’humanité et à toute l’humanité à travers l’univers.
+
+Ce don est donné pour que vous puissiez bénéficier de ce grand don et vous le faites, bien-aimés. Vous le faites. Nous continuerons à vous soutenir et à vous porter dans la lumière qui contribue à faciliter votre réception et votre désir de recevoir le grand don de Dieu. Lorsque vous êtes dans cette condition de recherche de Dieu, de recherche de Son Amour, alors vous ouvrez la porte, les vannes sont ouvertes pour que ce don soit donné. Accordez-vous la bénédiction de ce don et cherchez à être dans cet état de désir et d’aspiration à ce don. Utilisez vos prières, vos conversations et votre communion avec Dieu afin de recevoir. Tant de choses sont données gratuitement par Dieu et vous bénéficiez en effet de la plus grande bénédiction de toutes.
+
+Comme c’est merveilleux, âmes bien-aimées ! Nous pouvons tous bénéficier de ce grand don et nous allons tous cheminer sur un chemin éternel qui nous assurera d’être bénis pour toujours. Dieu est plus que généreux. Dieu, dans Son Amour pour nous, nous a donné la clé pour éveiller toutes nos facultés, tous nos potentiels, toute la beauté intérieure, avec l’Essence de notre Créateur, en renforçant et en animant ces choses par Son Amour.
+
+Comme Sa création est glorieuse, de créer une créature comme nous et de doter ensuite cette créature, si elle le souhaite, de la grande bénédiction de Son Essence, de Son Amour, pour nous éveiller toujours plus loin sur le chemin éternel. Nous sommes vraiment bénis et en effet notre amour et notre reconnaissance envers Dieu vont vers Lui chaque jour, à chaque instant. J’espère que vous ferez de même, en envoyant votre amour, votre appréciation et votre gratitude envers Dieu et ce qu’Il ​​a créé. Car lorsque vous ressentez cela, lorsque vous exprimez ces sentiments, vous augmentez la lumière autour de vous et vous augmentez la possibilité de recevoir davantage de Son Essence, créant ainsi une plus grande lumière tout autour.
+
+Mes frères et sœurs bien-aimés, ceux qui recherchent vraiment la plus haute vérité et marchent sur la grande voie de l’amour éternel, nous sommes tous ensemble, connectés, une partie les uns des autres, une famille et nous le resterons pour toute l’éternité. Nous sommes frères et sœurs sur le chemin. Quelle bénédiction, quelle bénédiction, mes bien-aimés. Vous continuerez à être bénis et éveillés et à trouver votre chemin sur le Chemin Divin.
+
+Nous continuons, bien-aimés, à toujours chercher le plus haut. Progressant toujours vers une plus grande gloire, une plus grande sagesse, un plus grand amour, une plus grande joie et une plus grande vérité. Que Dieu vous bénisse, bien-aimés. Je suis et je vous aime. Mes frères, mes sœurs, sur le chemin. Je suis Keea Atta Kem et je vous aime et nous continuerons à voyager ensemble avec de nombreux autres anges, mortels et esprits, tous aspirant, tous recevant, tous enveloppés dans l’Amour de Dieu. Comme c’est merveilleux. Comme le voyage est beau. Que Dieu vous bénisse, bien-aimés. Que Dieu vous bénisse.

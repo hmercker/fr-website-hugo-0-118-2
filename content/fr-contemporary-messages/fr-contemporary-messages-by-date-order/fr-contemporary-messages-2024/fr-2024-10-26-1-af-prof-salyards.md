@@ -1,0 +1,22 @@
+---
+title: "Félicitations pour l'intégration des perceptions métaphysiques (esprit) et de l'âme"
+menu_title: ""
+description: "Félicitations pour l'intégration des perceptions métaphysiques (esprit) et de l'âme"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Félicitations pour l'intégration des perceptions métaphysiques (esprit) et de l'âme 
+
+Professeur Salyards - reçu par Albert Fike le 26 Octobre 2024, Sechelt, Colombie-Britannique, Canada
+
+Que Dieu vous bénisse, mes amis. Je suis le professeur Salyards. Je tiens à vous féliciter pour vos progrès, pour la façon dont chacun d’entre vous a trouvé un moyen de nourrir et de recevoir la communication de nous, vos amis angéliques. Beaucoup d’entre vous combinent la manifestation et le développement métaphysiques dans votre esprit avec l’éveil de l’âme, de sorte que dans cette combinaison et cette intégration. Vous arrivez à un endroit où tout est en harmonie avec votre âme et, dans une certaine mesure, la conscience de la volonté de Dieu dans vos vies. Ces petits signes et signaux, bribes d’informations, mots prononcés, sentiments, énergies comme vous les appelez, sont tous des indications d’une âme qui prend vie, qui s’éveille à son potentiel. Ces manifestations se répandent dans votre conscience, dans votre être et dans vos vies.
+
+Laissez ce flux se poursuivre. Ne l’étouffez pas et ne doutez pas, mais encouragez ces choses. Ayez foi qu’un processus formidable se déroule en votre être et qu’il va tout changer. Vous voyez ces petites choses, ces expériences, se manifester et influencer votre vie. Ce n’est que le début, âmes bien-aimées, enfants de Dieu. Ce n’est que le début. Vous vous surprendrez à vous demander avec étonnement ce qui va se manifester et comment cela va se manifester. Il existe de nombreuses façons dont Dieu manifestera sa volonté dans votre vie, mais chaque façon qui vous est donnée exige que vous la reconnaissiez attentivement. Ne gaspillez pas ce qui vous est donné dans le doute ou la réticence, mais acceptez-le plutôt avec joie. En effet, dans le grand amour de Dieu pour vous, Il vous donne tout ce dont vous avez besoin, les conseils nécessaires, les manifestations requises et les bénédictions qui affluent.
+
+Toutes ces choses arrivent en abondance. Certaines sont si bien filtrées que vous n’en avez absolument pas conscience, tandis que d’autres apportent une expression palpable dans votre vie. Pourtant, tout cela vient de Dieu. Tout cela est une manifestation de l’Amour de Dieu pour chacun de vous. Ainsi, vous constaterez qu’à mesure que vous grandissez dans cet Amour et que vous vous harmonisez davantage avec tout ce qui est de Son Amour et tout ce qui est de Sa Volonté, alors ces manifestations, bénédictions et communications se renforceront et se multiplieront en de grandes et merveilleuses choses qui éclaireront votre vie, voire la changeront.
+
+Beaucoup de choses arrivent à chacun de vous. Le barrage n’a qu’un filet d’Eaux Vives qui coule, la Volonté de Dieu se manifestant. Pourtant, avec le temps, les vannes s’ouvriront et vous serez emportés, non pas dans un déluge de chaos et d’inquiétude, mais dans un flot, une rivière d’amour, d’harmonie et de joie. Ne serait-ce pas merveilleux, mes amis, de connaître cette joie ? Cette joie se manifeste de toutes les différentes manières et moyens dont Dieu dispose pour vous éveiller, vous nourrir et vous guider.
+
+Que vous soyez bénis, mes bien-aimés, dans l’émerveillement de l’Amour de Dieu, dans la vérité de l’Amour de Dieu et dans toutes les manifestations que le fait d’avoir et de connaître l’Amour de Dieu apporte dans votre vie. Tout est là, en attente, et cela viendra dans un flux magnifique, toujours plus fort, toujours plus profond, toujours plus pertinent pour vos vies. Que vous soyez bénis, mes amis bien-aimés. Je suis Saylards, professeur Saylards, et je vous aime. Oui, beaucoup d’entre nous se rassemblent autour de chacun d’entre vous, car vous êtes peu nombreux et éloignés les uns des autres et nous sommes nombreux. Ainsi, nous partageons nos ministères, notre amour, notre présence avec chacun. Que Dieu vous bénisse, mes amis bien-aimés, dans la vérité de l’Amour de Dieu. Puissiez-vous trouver tout ce que vous cherchez, tout ce que vos âmes désirent et tout ce que Dieu souhaite manifester. Que Dieu vous bénisse.

@@ -99,3 +99,4 @@ Professeur Salyards | [L'harmonie prévaudra à la retraite de Laurelville](/fr-
 Professeur Salyards | [Défaire le nœud gordien ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-15-2-af-professor-salyards/) | 15 Août 2023
 Professeur Salyards | [Conseils pour le comité de planification de Laurelville ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-30-1-af-prof-salyards/) | 30 Août 2023
 Professeur Salyards | [Attendez-vous à l'inattendu ! ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-16-1-af-professor-salyards/) | 16 Novembre 2023
+Prof Salyards | [Félicitations pour l'intégration des perceptions métaphysiques (esprit) et de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-26-1-af-prof-salyards/) | 26 Octobre 2024

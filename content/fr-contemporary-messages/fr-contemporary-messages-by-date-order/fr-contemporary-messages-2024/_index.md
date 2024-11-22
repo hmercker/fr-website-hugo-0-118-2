@@ -295,7 +295,7 @@ Hafiz | [Que pensera le monde de vous ?](/fr-contemporary-messages/fr-contempora
 Confucius, Martha, Jesus  | [Félicitations pour une retraite réussie à Lansing](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-8-2-af-confucius-martha-jesus/) | 8 Septembre 2024
 Isaïe | [Guerriers de la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-9-1-af-isaiah/) | 9 Septembre 2024
 Augustin | [Comment fonctionne le flux de la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-9-2-af-augustine/) | 9 Septembre 2024
-Augustin - Jésus | [Une leçon sur la prise de décision harmonieuse, continue de bénir nos voyages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-11-1-af-augustine---jesus/) | 11 Septembre 2024
+Augustin-Jésus | [Une leçon sur la prise de décision harmonieuse, continue de bénir nos voyages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-11-1-af-augustine-jesus/) | 11 Septembre 2024
 Jésus | [Nous venons partager la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-12-1-af-jesus/) | 12 Septembre 2024
 St Luc | [Force de la substance du Créateur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-12-2-mc-st-luke/) | 12 Septembre 2024
 Care Darby Walsh | [Vos trésors sont gardés au Ciel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-12-3-jw-care-darby-walsh/) | 12 Septembre 2024
@@ -326,8 +326,20 @@ St François d'Assise | [L'Amour de Dieu apportera les changements nécessaires 
 Jésus | [Votre lumière peut aider Dieu à briser des générations de ténèbres dans le monde ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-6-1-af-jesus/) | 6 Octobre 2024
 Robert J. Lees | [Prière et Expiation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-7-1-jw-robert-j-lees/) | 7 Octobre 2024
 Rick Minckler | [Message de joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-9-1-af-rick-minckler/) | 9 Octobre 2024
+Plume Blanche | [Toutes les races du monde doivent se rassembler en harmonie ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-9-2-af-white-feather/) | 9 Octobre 2024
+André | [Dieu ouvre la porte à la communication d’en haut](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-12-1-af-andrew/) | 12 Octobre 2024
 Judas | [Sanctuaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-14-1-jw-judas/) | 14 Octobre 2024
-Judas | [Pardon et prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-28--jw-judas/) | 28 Octobre 2024
+Aaron | [Je serai avec vous pendant que vos dons s'ouvrent au service de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-15-1-af-aaron/) | 15 Octobre 2024
+Marie | [Nous sommes tous les enfants de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-15-2-af-mary/) | 15 Octobre 2024
+Barbara | [L'importance de s'aimer soi-même ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-22-1-af-barbara/) | 22 Octobre 2024
+Keea atta Kem | [Les bénédictions de Dieu sont partout ! ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-25-1-af-keea-atta-kem/) | 25 Octobre 2024
+Prof Salyards | [Félicitations pour l'intégration des perceptions métaphysiques (esprit) et de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-26-1-af-prof-salyards/) | 26 Octobre 2024
+Flavius Josèphe | [Un monde harmonieux basé sur l’honnêteté, la vérité et l’amour des autres arrive !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-26-2-af-josephus/) | 26 Octobre 2024
+Augustin | [Les obstacles à la vie avec Dieu sont en vous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-27-1-af-augustine/) | 27 Octobre 2024
+Jésus | [Jésus nous emmène dans la salle de la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-27-2-af-jesus/) | 27 Octobre 2024
+Judas | [Pardon et prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-28-1-jw-judas/) | 28 Octobre 2024
+Caligula | [Décrit son voyage des enfers les plus profonds aux Cieux Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-29-1-af-caligula/) | 29 Octobre 2024
+Aristote | [L’âme a une capacité bien supérieure à celle de l’esprit matériel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-17-1-af-aristotle/) | 17 Novembre 2024
 
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
