@@ -54,6 +54,7 @@ Hafiz | [Cette Attente, ce Désir](/fr-contemporary-messages/fr-contemporary-mes
 Hafiz | [Océan infini](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-2-2-jw-hafiz/) | 2 Juin 2021
 Hafiz | [Poèmes de Haffiz](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-27-1-jw-hafiz/) | 27 Juin 2021
 Hafiz | [Soyez la vraie vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-25-1-jw-hafiz/) | 25 Octobre 2021
+Hafiz | [Une fenêtre de temps](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-13-2-jw-hafiz/) | 13 Avril 2024
 Hafiz | [Que pensera le monde de vous ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-8-1-jw-hafiz/) | 8 Septembre 2024
 Ida Tarbell | [Quelque chose de merveilleux à attendre avec impatience](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-24-1-fab-ida-tarbell/) | 24 Décembre 2009
 Jack Kerouac | [Le voyage d'un écrivain de l'époque](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-16-1-fab-jack-kerouac/) | 16 Avril 2008

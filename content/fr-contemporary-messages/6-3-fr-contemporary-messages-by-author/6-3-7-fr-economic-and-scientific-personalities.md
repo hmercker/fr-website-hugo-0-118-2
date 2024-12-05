@@ -38,6 +38,7 @@ Copernic | [La mesure du temps sur Terre est très différente de celle des Cieu
 Copernic | [L'humanité a été un virus sur la Terre Mère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-7-1-af-copernicus/) | 7 Juillet 2023
 Copernic | [S'élancer dans la gloire de la conscience de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-28-1-af-copernicus/) | 28 Juillet 2024
 Cornelius Vanderbilt | [Un industriel américain est perdu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-1-1-fab-cornelius-vanderbilt/) | 1 Mars 2008
+Galileo | [Le centre de l'univers ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-11-1-jw-galileo/) | 11 Novembre 2024
 Jay Gould | [Un industriel américain est malheureux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-1-2-fab-jay-gould/) | 1 Mars 2008
 John D Rockefeller | [La vie de John D. Rockefeller Senior](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-5-1-fab-john-d-rockefeller/) | 5 Février 2010
 John D Rockefeller | [Une perception différente](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-6-4-1-fab-john-d-rockefeller/) | 4 Juin 2010

@@ -13,28 +13,41 @@ Khalil Gibran- reçu par Jimbeau Walsh le 25 Juin 2024, Nashville, Tennesse, USA
 
 Vous recherchez l’éternité sans savoir ce qu’elle est, mais sans vouloir savoir ce qu’elle n’est pas.
 <br>
+<br>
 Car le déploiement éternel de l’âme est un chef-d’œuvre intemporel…
+<br>
 <br>
 L’œuvre d’un artiste qui continue à créer toutes les choses qui évoluent, toutes les choses qui s’ouvrent.
 <br>
+<br>
 Le nombre de l’infini et la beauté singulière de l’un s’ajoutent à l’Amour.
+<br>
 <br>
 Car ne dit-on pas que Dieu est Amour ?
 <br>
+<br>
 La munificence de l’émerveillement dépasse toujours les attentes les plus folles des anges les plus élevés.
+<br>
 <br>
 Qui ouvrent la voie, qui éclairent le chemin, car sans l’amour, rien n’aurait d’importance.
 <br>
+<br>
 La promesse de réalité qu’un illusionniste projette n’est que le voile sur le réel
+<br>
 <br>
 Et pourtant, Dieu est le grand illusionniste, dévoilant les réalités de son essence à travers la création,
 <br>
+<br>
 tout en l’accordant aux vagabonds qui en sont avides.
+<br>
 <br>
 C’est un spectacle sans fin, une promesse qui s’accomplit toujours, un cadeau qui se déploie.
 <br>
+<br>
 L’amour sans fin, sans fin – le pourquoi et le pourquoi de tout
 <br>
+<br>
 Merci, mon frère.
+<br>
 <br>
 Je suis Kahlil. Je vous aime.

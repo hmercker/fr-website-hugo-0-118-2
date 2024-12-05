@@ -11,7 +11,7 @@ weight:
 
 Caligula - reçu par Albert Fike le 29 Octobre 2024, Sechelt, Colombie-Britannique, Canada
 
-![title](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-2-caligula.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-caligula.jpeg)
 
 Je suis Caligula<sup id="a1">[1](#f1)</sup>. Je suis sûr que vous êtes surpris que je vienne vous parler compte tenu de ma réputation, connue même maintenant. Cependant, cette personne que j’étais il y a tant de centaines d’années n’existe plus. Je suis maintenant dans le Royaume céleste. J’ai lutté et me suis frayé un chemin hors de l’obscurité des enfers vers ces conditions sublimes du paradis, les cieux célestes. J’ai en effet été aidé par beaucoup pour faire cette transition et j’ai eu plusieurs centaines d’années pour le faire. Pourtant, je suis dans les cieux célestes depuis plusieurs centaines d’années. Grâce à la belle âme qu’est Jésus, qui a été persécuté par ceux de mon espèce, j’ai trouvé ma rédemption. J’ai trouvé mon chemin vers la lumière.
 

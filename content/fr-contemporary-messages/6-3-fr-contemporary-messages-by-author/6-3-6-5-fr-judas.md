@@ -259,3 +259,6 @@ Judas | [Les conseils pratiques sont dans la demande](/fr-contemporary-messages/
 Judas | [L’humilité est la clé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-30-1-jw-judas/) | 30 Septembre 2024
 Judas | [Sanctuaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-14-1-jw-judas/) | 14 Octobre 2024
 Judas | [Pardon et prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-28--jw-judas/) | 28 Octobre 2024
+Judas | [La Naissance de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-4-1-jw-judas/) | 4 Novembre 2024
+Judas | [Le pardon et le contact humain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-18-1-jw-judas/) | 18 Novembre 2024
+Judas | [Le plus grand cadeau que vous puissiez offrir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-26-1-jw-judas/) | 26 Novembre 2024

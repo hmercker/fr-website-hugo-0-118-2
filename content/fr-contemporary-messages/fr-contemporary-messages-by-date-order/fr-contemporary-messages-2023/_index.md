@@ -295,6 +295,7 @@ Flavius Josèphe | [Des vêtements sont tissés pour chacun de nous](/fr-contemp
 André | [Bénédictions pour l'anniversaire de Dorothée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-14-1-af-andrew/) | 14 Novembre 2023
 Professeur Salyards | [Attendez-vous à l'inattendu !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-16-1-af-professor-salyards/) | 16 Novembre 2023"
 Jeanne d'Arc | [Vous pouvez rechercher secrètement un véritable désir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-16-2-em-joan-of-arc/) | 16 Novembre 2023
+Lao Tseu | [La Voie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-19-1-jw-lao-tzu/) | 19 Novembre 2023
 Jean le Bien Aimé | [Gardez votre cœur ouvert](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-20-1-jw-john-the-beloved/) | 20 Novembre 2023
 André | [Nous sommes tous appelés à servir Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-24-1-af-andrew/) | 24 Novembre 2023
 Judas | [Qu’emporterez-vous avec vous dans le monde des esprits ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-27-1-jw-judas/) | 27 Novembre 2023

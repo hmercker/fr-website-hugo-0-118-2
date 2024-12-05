@@ -30,6 +30,7 @@ Luc | [La liberté de changement](/fr-contemporary-messages/fr-contemporary-mess
 Claire d'Assise | [C''est le bonheur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-26-1-jw-clare-of-assisi/) | 26 Mars 2024
 Care Darby Walsh | [Survivre à la mort avec les perceptions de l’éternité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-28-1-jw-care-darby-walsh/) | 28 Mars 2024
 Judas | [Les Trois Naissances](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-1-2-jw-judas/) | 1 Avril 2024
+Hafiz | [Une fenêtre de temps](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-13-2-jw-hafiz/) | 13 Avril 2024
 Judas | [Influence spirituelle et boussole morale](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-15-1-jw-judas/) | 15 Avril 2024
 Claire d'Assise | [Nous nous réjouissons en vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-18-1-jw-clare-of-assisi/) | 18 Avril 2024
 Amon | [Pour la Terre et toutes ses créatures](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-22-1-jw-amon/) | 22 Avril 2024
@@ -39,6 +40,7 @@ Khalil Gibran | [Le réveil d'un rêve](/fr-contemporary-messages/fr-contemporar
 Care Darby Walsh | [Dites une simple prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-27-1-jw-care-darby-walsh/) | 27 Mai 2024
 St Luc | [L’Essence de Dieu (Amour Divin) dans l’âme de chacun est le fondement du Royaume de Dieu sur terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-2-1-jw-st-luke/) | 2 Juin 2024
 Eileen  Caddy | [Création d'un sanctuaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-7-1-jw-eileen-caddy/) | 7 Juin 2024
+Saint Luc | [Prières magnétiques](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-25-2-jw-st-luke/) | 25 Juin 2024
 St Luc | [Communion spirituelle et communauté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-30-1-jw-st-luke/) | 30 Juin 2024
 Yogananda | [Créer un sanctuaire dans une communauté de cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-1-3-jw-yogananda/) | 1 Juillet 2024
 Care Darby Walsh | [Détente spirituelle, sanctuaire et responsabilité personnelle ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-8-1-jw-care-darby-walsh/) | 8 Juillet 2024
@@ -56,6 +58,9 @@ Yogananda | [La foi sur la peur](/fr-contemporary-messages/fr-contemporary-messa
 Judas | [L’humilité est la clé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-30-1-jw-judas/) | 30 Septembre 2024
 Robert J. Lees | [Prière et Expiation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-7-1-jw-robert-j-lees/) | 7 Octobre 2024
 Judas | [Sanctuaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-14-1-jw-judas/) | 14 Octobre 2024
-
+Judas | [La Naissance de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-4-1-jw-judas/) | 4 Novembre 2024
+Galileo | [Le centre de l'univers ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-11-1-jw-galileo/) | 11 Novembre 2024
+Judas | [Le pardon et le contact humain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-18-1-jw-judas/) | 18 Novembre 2024
+Judas | [Le plus grand cadeau que vous puissiez offrir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-26-1-jw-judas/) | 26 Novembre 2024
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

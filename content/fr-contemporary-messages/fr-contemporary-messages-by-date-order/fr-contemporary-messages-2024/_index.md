@@ -143,7 +143,7 @@ Augustin | [Atteindre la conscience de l'âme](/fr-contemporary-messages/fr-cont
 James Reid | [Décrit son voyage à travers les sphères ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-12-2-af-james-reid/) | 12 Mars 2024
 Jésus | [Que chaque âme individuelle parvienne à connaître l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-13-1-af-jesus/) | 13 Mars 2024
 Orion | [Il y a beaucoup à préparer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-13-2-af-orion/) | 13 Mars 2024
-Marie Madeleine | [Décrit sa relation avec Jesus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-14-1-af-mary-magdalene/) | 14 Mars 2024
+Marie Madeleine | [Décrit sa relation avec Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-14-1-af-mary-magdalene/) | 14 Mars 2024
 Augustin | [Répond à notre conversation en se demandant pourquoi les humains ne répondent pas aux opportunités d'Amour Divin ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-14-2-af-augustine/) | 14 Mars 2024
 Ïsaïe | [Imprégnez-vous de la gloire de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-14-3-af-isaiah/) | 14 Mars 2024
 Jean Hughes | [Il s'agit d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-15-1-em-john-hughes/) | 15 Mars 2024
@@ -177,6 +177,7 @@ Bouleau Argenté, Elizabeth, Confucius | [Parle au Cercle de Lumière, est heure
 Seretta Kem | [Les prières inébranlables sont essentielles au développement des médiums de l’Amour Divin ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-7-1-af-seretta-kem/) | 7 Avril 2024
 Seretta Kem | [Encouragement personnel pour Al  et Jeanne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-11-1-af-seretta-kem/) | 11 Avril 2024
 Seretta Kem | [Découverte des attributs de l'âme ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-13-1-mc-seretta-kem/) | 13 Avril 2024
+Hafiz | [Une fenêtre de temps](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-13-2-jw-hafiz/) | 13 Avril 2024
 Judas | [Influence spirituelle et boussole morale](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-15-1-jw-judas/) | 15 Avril 2024
 Claire d'Assise | [Nous nous réjouissons en vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-18-1-jw-clare-of-assisi/) | 18 Avril 2024
 Ezéchiel | [Répandez la vérité de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-21-1-af-ezekiel/) | 21 Avril 2024
@@ -224,7 +225,7 @@ Barbara Davies | [Permettez à ce don de faire son œuvre, cette bénédiction d
 Augustin | [Les opportunités abondent pour vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-24-4-af-augustine/) | 24 Juin 2024
 Serreta Kem | [Vous trouverez votre chemin dans ce voyage d’éveil à travers la médiumnité ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-24-5-af-serreta-kem/) | 24 Juin 2024
 Kahlil Gibran | [Amour Infini](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-25-1-jw-kahlil-gibran/) | 25 Juin 2024
-Luc | [Prières magnétiques](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-25-2-jw-luke/) | 25 Juin 2024
+St Luc | [Prières magnétiques](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-25-2-jw-st-luke/) | 25 Juin 2024
 Serreta Kem | [La transformation est la clé de votre rassemblement ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-25-3-af-serreta-kem/) | 25 Juin 2024
 André | [Pour l'instant, apprenez grâce à vos capacités mentales, aimez grâce à vos capacités d'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-26-1-em-andrew/) | 26 Juin 2024
 Bartholomée | [Vous connaîtrez le but et la raison de ce cercle ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-27-1-em-bartholomew/) | 27 Juin 2024
@@ -274,7 +275,7 @@ Jésus | [Le cadeau merveilleux de Dieu](/fr-contemporary-messages/fr-contempora
 Jésus | [Cause et effet, temporel et spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-19-1-jw-jesus/) | 19 Août 2024
 Plume Blanche | [Combien il est important de réveiller vos frères et sœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-20-1-af-white-feather/) | 20 Août 2024
 Seretta Kem | [Vous continuez à progresser ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-20-2-af-seretta-kem/) | 20 Août 2024
-Barbara | [Conseils à ceux qui luttent pour établir une connexion plus forte avec Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-23-1-af-barbara/) | 23 Août 2024
+Barbara Davies| [Conseils à ceux qui luttent pour établir une connexion plus forte avec Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-23-1-af-barbara/) | 23 Août 2024
 Orion | [Poursuivez vos progrès afin d'être prêt en cas de besoin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-24-1-af-orion/) | 24 Août 2024
 Marie | [Gardez votre cœur ouvert](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-25-1-mc-mary/) | 25 Août 2024
 Jésus | [Apporte des bénédictions d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-25-2-af-jesus/) | 25 Août 2024
@@ -331,15 +332,24 @@ André | [Dieu ouvre la porte à la communication d’en haut](/fr-contemporary-
 Judas | [Sanctuaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-14-1-jw-judas/) | 14 Octobre 2024
 Aaron | [Je serai avec vous pendant que vos dons s'ouvrent au service de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-15-1-af-aaron/) | 15 Octobre 2024
 Marie | [Nous sommes tous les enfants de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-15-2-af-mary/) | 15 Octobre 2024
-Barbara | [L'importance de s'aimer soi-même ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-22-1-af-barbara/) | 22 Octobre 2024
+Barbara Davies| [L'importance de s'aimer soi-même ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-22-1-af-barbara/) | 22 Octobre 2024
 Keea atta Kem | [Les bénédictions de Dieu sont partout ! ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-25-1-af-keea-atta-kem/) | 25 Octobre 2024
+Orion | [Embrasser le changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-25-2-af-orion/) | 25 Octobre 2024
 Prof Salyards | [Félicitations pour l'intégration des perceptions métaphysiques (esprit) et de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-26-1-af-prof-salyards/) | 26 Octobre 2024
 Flavius Josèphe | [Un monde harmonieux basé sur l’honnêteté, la vérité et l’amour des autres arrive !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-26-2-af-josephus/) | 26 Octobre 2024
 Augustin | [Les obstacles à la vie avec Dieu sont en vous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-27-1-af-augustine/) | 27 Octobre 2024
 Jésus | [Jésus nous emmène dans la salle de la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-27-2-af-jesus/) | 27 Octobre 2024
 Judas | [Pardon et prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-28-1-jw-judas/) | 28 Octobre 2024
 Caligula | [Décrit son voyage des enfers les plus profonds aux Cieux Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-29-1-af-caligula/) | 29 Octobre 2024
+Orion | [Les multiples dimensions de la création de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-1-1-af-orion/) | 1 Novembre 2024
+Orion | [L'Amour Divin est la clé de la communication interstellaire et permet d'éviter les distorsions et les distractions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-2-1-af-orion/) | 2 Novembre 2024
+Judas | [La Naissance de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-4-1-jw-judas/) | 4 Novembre 2024
+Galileo | [Le centre de l'univers ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-11-1-jw-galileo/) | 11 Novembre 2024
 Aristote | [L’âme a une capacité bien supérieure à celle de l’esprit matériel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-17-1-af-aristotle/) | 17 Novembre 2024
+Judas | [Le pardon et le contact humain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-18-1-jw-judas/) | 18 Novembre 2024
+Orion | [Encouragement et reconnaissance pour votre patience et votre persévérance ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-19-2-af-orion/) | 19 Novembre 2024
+Judas | [Le plus grand cadeau que vous puissiez offrir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-26-1-jw-judas/) | 26 Novembre 2024
+
 
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

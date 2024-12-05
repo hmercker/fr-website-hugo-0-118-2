@@ -11,7 +11,7 @@ weight:
 
 Copernic - reçu par Albert Fike le 28 Juillet 2024, Sechelt, Colombie-Britannique, Canada.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/copernic2.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-copernic2.jpg)
 
 Que de grandes bénédictions vous soient accordées, mes amis. Que le don de l’Amour du Père continue de se déverser dans vos âmes, car c’est la clé de l’éveil et de la vérité. L’amour est ce qui imprègne l’univers et rassemble toutes choses en harmonie. Je suis Copernic<sup id="a1">[1](#f1)</sup>. Je viens parler du manque de compréhension sur votre plan terrestre de nombreuses, nombreuses dynamiques et éléments de la création.
 
