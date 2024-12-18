@@ -1,0 +1,30 @@
+---
+title: "Leçon sur le suivi des directives"
+menu_title: ""
+description: "Leçon sur le suivi des directives"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Leçon sur le suivi des directives
+
+Augustin - reçu par Albert Fike le 18 Novembre 2024, Sechelt, Colombie-Britannique, Canada
+
+Que Dieu vous bénisse, chers étudiants, je suis votre enseignant Augustin. Il y a des moments où nous vous demandons de plier, mais pas de rompre. Nous ne vous emmènerons pas à ce point, mais en effet, lorsqu’on est en service, il y a un sacrifice impliqué. Vous parlez d’harmonie, mais parlez-vous de l’harmonie qui vient avec un sentiment de contentement, de conformité ou de complaisance qui apporte du plaisir ? Il y a des moments où vous êtes en service, où ce n’est pas toujours agréable mais nécessaire. Il y a des moments où vous êtes en service et où vous vous sentez élevé et profondément béni. Mais nous ne vous amenons pas délibérément dans une situation de douleur et d’inconfort. C’est votre résistance et votre condition qui apportent souvent cette douleur, cet inconfort et cette frustration. Ce sont toutes des conditions du plan matériel et de l’esprit matériel. Lorsque vous êtes en harmonie avec Dieu, alors tout le reste coule en harmonie avec vous.
+
+Vous devez donc vous demander, lorsque vous faites la déclaration « ce n’est pas en harmonie », si cela reflète votre propre condition ou si cela reflète la véritable harmonie. N’utilisez pas cette phrase de telle manière qu’elle soit un contrepoids à tout ce que vous faites et qu’elle donne une justification à votre propre inconfort. Vous serez parfois mal à l’aise. Être en harmonie avec les lois de l’Amour de Dieu peut souvent apporter de l’inconfort et peut souvent apporter ses défis. Mais lorsque vous atteignez ce lieu d’harmonie avec ce qui est des lois de l’amour de Dieu, alors même l’inconfort sera accepté et désiré.
+
+Vous avez le libre arbitre, chers étudiants. Vous pouvez choisir à chaque instant. Dieu vous donne ce don. Mais je vous préviens que si vous utilisez les jugements de votre propre esprit sur ce qui est en harmonie et ce qui ne l’est pas, alors vous passez à côté de l’essentiel. Les conseils sont donnés comme une porte ouverte qu’un individu peut franchir dans le service. Il n’y a pas de punition si cet individu refuse de franchir cette porte. Simplement, Dieu présentera d’autres portes à franchir. Pourtant, en effet, la première orientation est souvent la voie la plus claire et la plus directe. Lorsque l’individu utilise son esprit pour améliorer sa situation, en continuant à réformer et à manipuler cette orientation, elle devient moins claire et moins directe.
+
+Il est important que vous honoriez les conseils qui vous sont donnés et que vous trouviez un moyen de les mettre en œuvre de la manière la plus claire et la plus directe possible. Parce que vous vivez sur le plan terrestre, il y a souvent des obstacles et des conditions difficiles à gérer. C’est là que vous avez l’aide de vos amis angéliques pour vous aider à gérer ces conditions. En effet, si vous êtes engagé envers le plan et la Volonté de Dieu, alors une voie sera trouvée et une opportunité vous sera donnée. Ayez foi en cela. Ayez foi en votre capacité à faire ce qui est prévu. Dieu ne vous demandera jamais de faire quelque chose que vous ne pouvez pas faire. Dieu vous aidera simplement à vous soutenir et à vous élever dans ce que vous pouvez faire.
+
+C’est une question de foi, une question de compréhension des inclinations de l’âme, de ses désirs et de sa compréhension de la Volonté de Dieu. Cette collaboration entre vous et Dieu est ce qui permet l’accomplissement du plan de Dieu et de la Volonté de Dieu. Ne doutez pas de vous-mêmes. En effet, vous constaterez qu’il y aura des moments où vous vous demanderez : « Pourquoi, pourquoi ai-je fait cela ? Pourquoi vais-je dans cette direction ? Pourquoi cela n’est-il pas agréable, mais difficile ? » Ce sont les moments où l’esprit résiste et l’âme est en arrière-plan, vous encourageant vers le point final de cet objectif, cette orientation.
+
+Soyez sûrs de votre orientation, âmes bien-aimées. Essayez de ne pas mélanger vos jugements et perceptions conscients avec vos connaissances spirituelles. De cette façon, vous ne pouvez jamais vous tromper. Oui, certains obstacles peuvent se profiler devant vous et des forces négatives travaillent toujours à défaire la Volonté de Dieu. Cependant, lorsque vous avez une grande foi et que vous marchez sur la route prévue, vous serez protégés. Même lorsqu’il y a des obstacles, vous serez guidés autour d’eux et tout sera en harmonie.
+
+Mes belles et bien-aimées lumières, étudiants de la vérité, continuez à faire vos plans. Continuez à avoir vos idées et même vos préoccupations, mais apportez toujours, toujours ces choses à Dieu dans la prière. Car la solution viendra de cette façon. Vous découvrirez que Dieu trouvera une voie pour vous. Vos amis angéliques vous accompagneront sur ce chemin et il y aura harmonie, accomplissement et expression de la volonté de Dieu dans tout ce que vous faites.
+
+Que vous soyez bénies, âmes bien-aimées, dans les voyages que vous entreprenez, dans les relations que vous nouez tout au long de votre vie. Que vous soyez bénies. Votre maître Augustin vous aime. Que l’Amour de Dieu continue à remplir votre âme au point de surpasser tous les doutes, tous les jugements et de vous apporter la paix, la paix qui dépasse toute compréhension. De cette façon, tout ce que vous êtes amenés à faire sera vu clairement et l’exécution en sera faite directement et en harmonie.
+
+Que Dieu vous bénisse, chers étudiants. Votre enseignant Augustin vous aime et je continuerai à vous accompagner dans vos voyages d’éveil de l’âme, de glanage de la sagesse et de la vérité qui accompagnent l’âme en harmonie avec Dieu. Que Dieu vous bénisse. Que Dieu vous bénisse, mes bien-aimés. Je vous aime.

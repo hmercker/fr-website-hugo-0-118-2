@@ -18,7 +18,8 @@ Eva Peck | Universal Spirituality | http://www.universal-spirituality.net
 Zara Borthwick and Nicholas Arnold |  The Padgett Messages | http://www.thepadgettmessages.net
 Ian Nicol | Truth For All People | https://www.truthforallpeople.com/
 Chuck Bloodgood | Lightbringers | https://www.lightbringers.info/
-|Brian Holmes | Divine Love Messages | https://divinelovemessages.blogspot.com/
+Brian Holmes | Divine Love Messages | https://divinelovemessages.blogspot.com/
+Ron Henderson | New Birth Ministry | https://newbirthministry.com/
 Foundation Church of the New Birth | Elizabeth  Morana | http://divinelove.org/
 Foundation Church of Divine Truth | Michael Nebdal | http://www.fcdt.org
 

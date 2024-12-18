@@ -335,5 +335,9 @@ Augustin | [Comment fonctionne le flux de la Volonté de Dieu](/fr-contemporary-
 Augustin-Jésus | [Une leçon sur la prise de décision harmonieuse, continue de bénir nos voyages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-11-1-af-augustine-jesus/) | 11 Septembre 2024
 Augustin | [La conscience de Dieu est consciente de tout dans sa création ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-1-1-af-augustine/) | 1 Octobre 2024
 Augustin | [Les obstacles à la vie avec Dieu sont en vous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-27-1-af-augustine/) | 27 Octobre 2024
+Augustin | [Leçon sur le suivi des directives](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-18-2-af-augustine/) | 18 Novembre 2024
+Augustin | [Les illusions de votre mental se dissoudront avec la progression de l'âme ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-30-1-af-augustine/) | 30 Novembre 2024
+
+
 
 
