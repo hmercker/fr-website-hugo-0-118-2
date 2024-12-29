@@ -17,7 +17,7 @@ Je viens affirmer cette vérité et vous dire que vous êtes, en effet, sur un c
 
 Que la vérité règne en maître en vous. Le pouvoir de l'amour est le marqueur de cette vérité. La lumière qui vient est la grande flamme qui est de cette vérité. Puissiez-vous connaître la paix qui vient avec Dieu proche et vrai dans vos vies. Je suis Zoroastre et je vous aime, chacun. Car quand on aime Dieu, on aime tous ceux qui sont la création de Dieu. Ainsi, nous sommes frères et sœurs dans la vérité de l'amour, dans la gloire de l'amour de Dieu. Je vous remercie. Je vous remercie tous.
 
-<u>Commentaire par Al</i> : 
+<u>Commentaire par Al</u> : 
 
 Après la prière de clôture, Al a décrit son expérience personnelle :
 

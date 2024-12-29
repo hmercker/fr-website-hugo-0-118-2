@@ -65,6 +65,7 @@ Judas | [Le pardon et le contact humain](/fr-contemporary-messages/fr-contempora
 Judas | [Le plus grand cadeau que vous puissiez offrir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-26-1-jw-judas/) | 26 Novembre 2024
 St Luc | [Diversité, unité et généalogie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-2-1-jw-st-luke/) | 2 Décembre 2024
 Galilée | [Fibonacci, Ai et l'intelligence Angélique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-9-1-jw-galileo/) | 9 Décembre 2024
-
+Yogananda | [Parlez à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-16-1-jw-yogananda/) | 16 Décembre 2024
+Judas | [La volonté de Dieu et le libre arbitre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-23-2-jw-judas/) | 23 Décembre 2024
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

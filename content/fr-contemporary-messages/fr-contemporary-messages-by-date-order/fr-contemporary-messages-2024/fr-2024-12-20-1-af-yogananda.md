@@ -1,0 +1,36 @@
+---
+title: "Opportunités d'expériences d'éveil de l'âme"
+menu_title: ""
+description: "Opportunités d'expériences d'éveil de l'âme"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Opportunités d'expériences d'éveil de l'âme
+
+Yogananda - reçu par Albert Fike le 20 Décembre 2024, Sechelt, Colombie-Britannique, Canada
+
+Bénédictions à vous, mes amis. Je suis Yogananda. Ce cher instrument a lu certains de mes messages qui ont été délivrés au cours des dernières années. J’ai été proche de lui en conséquence et j’ai continué à l’observer de près pendant sa journée, qui a été une journée très chargée en effet.
+
+Je veux parler des opportunités qui s’offrent à vous sur le plan terrestre pour l’expérience spirituelle, l’illumination et la croissance. C’est différent du monde spirituel, où les âmes se rassemblent. Elles se regroupent dans diverses conditions, attitudes et énergies qui semblent les maintenir cloîtrées dans cette condition, en particulier dans les plans inférieurs de l’esprit. Dans ce monde qui est le vôtre, vous avez toutes sortes de conditions, des plus élevées aux plus basses.
+
+Si vous savez comment opérer et utiliser les lois de l’attraction, vous pouvez attirer de très hautes bénédictions et des esprits proches de vous par la prière, le désir et la pensée. Vous aurez l’occasion d’avoir des amis qui sont de belles âmes, qui sont là pour vous élever et vous soutenir dans la vérité, qui sont là pour prier avec vous, qui sont là pour renforcer la vérité de différentes manières dans votre vie. Car même s’ils ont un corps spirituel, et que ceux qui sont célestes sont des anges, ils ont un pouvoir en eux, une belle capacité et de nombreux dons qui peuvent vous apporter des bénédictions spirituelles.
+
+Il est important que vous le reconnaissiez, que vous l’admettiez et que vous utilisiez cette connaissance à votre avantage. Bien sûr, rien ne remplace la prière. La prière est le fondement de toute entreprise spirituelle. Mais, avec la prière, vous pouvez aussi demander que vos guides et vos gardiens viennent vous aider et vous bénir, car ils sont vraiment très doués et ils sont très brillants de lumière.
+
+C’est à vous, mes beaux amis, de vous ouvrir à cela, de vous ouvrir à Dieu et de vous ouvrir aux bénédictions de vos amis spirituels. Tout comme vous accueillez un ami sur votre monde, vous pourriez accueillir un ami dans le monde spirituel. Vous pourriez être ouvert à leur amour et à leur influence pour vous aider et vous soutenir. Vous pourriez en tirer de nombreux bénéfices. Vous pourriez ressentir leurs belles énergies aimantes envers vous et être une lumière comme eux, pour vous aider à être protégé et pour vous influencer dans la voie de votre esprit, de votre esprit matériel, de votre esprit spirituel et de votre esprit spirituel. Toutes ces choses, tous ces esprits, peuvent s’aligner avec l’aide de vos amis. Vos désirs, votre état émotionnel et vos perceptions et compréhensions spirituelles peuvent devenir plus précis, plus alignés lorsque vos amis sont proches.
+
+Je veux donc que vous sachiez que nous sommes prêts à vous aider, à vous assister, à apporter la vérité à votre conscience, à être là dans la prière, afin que nous puissions ajouter nos prières aux vôtres, à vous protéger pendant que vous naviguez dans le monde, à influencer les autres autour de vous afin qu’ils se rapprochent. De bien des manières, Dieu et Ses anges peuvent vous utiliser comme un canal, un beau canal de lumière et de bénédictions pour un autre.
+
+Il y a de très nombreuses raisons pour lesquelles il est important que vous soyez conscient et que vous cultiviez cette amitié avec vos amis angéliques, les esprits brillants et même les amis brillants et stellaires qui s’efforcent d’être proches. Chacun porte son but et son don pour vous aider à vous soutenir. Chacun est là pour une raison et un but. Bien que nous ne souhaitions pas que vous soyez obsédé par cela et que vous en fassiez votre objectif principal, ces prises de conscience de vos amis, mais elles sont un complément à vos prières et à vos efforts spirituels pour être proche de Dieu. Il est donc important que l’équilibre soit trouvé et que les prises de conscience viennent et coulent facilement et harmonieusement dans vos vies.
+
+De cette façon, vous ne serez jamais seul. De cette façon, chaque fois que vous êtes dans le besoin, vous avez des amis là pour vous aider, pour vous assister de quelque manière que ce soit, même matériellement. Mais il est important d’exposer vos intentions, vos prières et vos désirs afin d’ouvrir la porte aux bénédictions qui pourraient venir. Vous demandez, mes amis bien-aimés ? Si c’est le cas, que demandez-vous ? Demandez-vous des choses qui sont en harmonie avec les lois de l’amour de Dieu, en harmonie avec les lois de la création de Dieu, en harmonie avec votre voyage, la trajectoire de votre âme dans son désir de rechercher l’unité avec Dieu ?
+
+Lorsque ces choses sont en harmonie, alors vous pouvez demander n’importe quoi. En effet, d’une manière ou d’une autre, vos prières seront exaucées. Les conditions changeront autour de vous, qu’elles soient matérielles ou spirituelles. Il y aura une plus grande harmonie et vos besoins seront satisfaits. Testez cette théorie, mes amis bien-aimés. Faites-en une vérité dans votre vie. Si vous le faites avec foi et confiance, alors vous découvrirez que Dieu répondra à chaque prière. Il ne répondra peut-être pas à ces prières exactement comme vous l’attendez ou le souhaiteriez, mais elles seront exaucées et une plus grande harmonie viendra à vous.
+
+C’est une loi et, en effet, notre désir est qu’il y ait une grande harmonie dans vos vies afin que vous connaissiez la joie d’être en vie. Vous connaîtrez l’accomplissement de votre âme, grandissant, changeant et s’élargissant dans l’Amour, l’Amour de Dieu. Vous aurez la sagesse de l’âme qui viendra facilement à votre conscience. Vous serez en paix et votre vie démontrera une belle harmonie, une belle lumière.
+
+Tout est là pour la demande, mes amis. Est-ce que vous demandez ? Dieu veut que vous demandiez. N’ayez pas peur. Ne jugez pas vos demandes, vos désirs et vos besoins. Au contraire, mettez-les en avant et laissez-les aux Pieds de Dieu et n’y réfléchissez pas une seconde. Attendez et vous verrez que Dieu répondra et Dieu vous donnera ce dont vous avez besoin, pour être en harmonie et pour savoir que vous pouvez compter sur Dieu, Ses amis les anges, les esprits brillants et bien d’autres pour vous assister sur ce plan terrestre et pour vous apporter la lumière, une belle lumière, une lumière glorieuse, vous élever et vous apporter la joie.
+
+Cela vient à chacun d’entre vous, mes amis. Vous êtes dignes, vous êtes beaux et, par-dessus tout, vous êtes aimés. Que Dieu vous bénisse, mes amis, et vous garde dans Son Amour, vous garde dans la lumière, vous garde dans l’harmonie, la paix et la joie. Que Dieu vous bénisse. Je suis Yogananda et je vous aime vraiment. Je vous aime tous, âmes naissantes désireuses de grandir. Puissiez-vous être bénis et grandir un peu plus sur le Chemin de l’Amour. Que Dieu vous bénisse.

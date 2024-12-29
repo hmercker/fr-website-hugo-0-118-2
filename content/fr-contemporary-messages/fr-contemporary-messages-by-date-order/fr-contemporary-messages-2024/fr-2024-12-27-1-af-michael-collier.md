@@ -1,0 +1,34 @@
+---
+title: "Chevauchez le pendule des bénédictions de Dieu vers la lumière"
+menu_title: ""
+description: "Chevauchez le pendule des bénédictions de Dieu vers la lumière"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Chevauchez le pendule des bénédictions de Dieu vers la lumière
+
+Michael Collier - reçu par Albert Fike le 27 Décembre 2024, Sechelt, Colombie-Britannique, Canada
+
+Que les bénédictions de l’Amour du Père se déversent dans votre âme en grande abondance, afin que vous puissiez connaître les effets transformateurs de ce don que Dieu a donné à l’humanité, afin que vous puissiez démontrer la puissance et la beauté de ce don dans votre propre personne et expression. Je suis Michael Collier. Je ne vous ai pas parlé depuis un certain temps, mais j’étais avec cet instrument aujourd’hui. Il a pensé à moi et j’ai établi un rapport.
+
+L’année à venir aura ses défis mais aussi ses opportunités. En effet, le climat continuera de réagir au déséquilibre qui lui est imposé par les niveaux de CO2 et d’autres éléments qui affectent la façon dont le temps est créé et exprimé sur votre Terre. Ce sera un défi pour beaucoup, même si je ne vois personne ici qui sera directement mis au défi au point de subir de grandes difficultés. Chacun d’entre vous devra cependant s’adapter à sa manière.
+
+Il y aura de grands hauts et des bas en ce qui concerne l’ordre social, le désordre social et le désordre économique. De nombreuses choses qui affectent votre vie quotidienne ne resteront pas dans leur mode habituel de navigation sans heurts, mais réagiront aux gouvernements qui mettront en œuvre diverses interventions politiques et économiques pour, dans leur esprit, remédier à la situation. Cela aussi vous affectera tous d’une manière ou d’une autre.
+
+En termes de spiritualité, certains continueront à suivre le pendule vers la lumière et beaucoup d’autres le suivront vers l’obscurité. Ce n’est pas si nouveau pour vous, mais l’intensité de ces conditions continuera à se faire sentir et à s’appliquer à la condition humaine. Dieu continue à vous bénir tous avec de nombreux flux et impressions énergétiques sur la Terre.
+
+Vous ressentirez les bienfaits de ces choses, même si les conditions de la Terre se détériorent. Vous vous accordez à ce qui est contre-productif face à ces conditions sombres, ce dont Dieu bénit chacun d’entre vous, même si beaucoup ne le ressentent pas, ne l’expérimentent pas ou n’en bénéficient même pas parfois. Vous, mes amis bien-aimés, savez comment bénéficier de ces bénédictions, comment être en harmonie avec la Volonté et le plan de Dieu et comment connaître les bénédictions de l’Amour de Dieu et toutes ses merveilles et dons pour vous.
+
+Il vous appartient d’être constants, de ne pas suivre ce mouvement de pendule vers l’obscurité, mais de résister et d’être sur cette pente ascendante vers la lumière, de faire ce choix chaque jour avec chaque pensée et à chaque instant. Il vous appartient d’être en harmonie avec la lumière et l’amour, la grâce de Dieu vous touchant et d’avoir les pieds sûrs et plantés sur le chemin divin. Mettez de côté toutes les distractions, les doutes, les peurs ou les pensées qui ne sont pas en harmonie avec cela, car c’est vous qui avez le contrôle ici. C’est vous qui prenez les décisions. C’est vous qui agissez. C’est votre vie et Dieu vous a donné l’indépendance. Dieu ne vous dit pas quoi faire. Dieu vous donne la volonté de choisir.
+
+Ce sera donc à vous, au cours de cette année à venir, de faire des choix qui seront en harmonie avec la création, avec les Lois de l’Amour, avec votre propre bien-être physique, mental, spirituel, pour être dans cette harmonie qu’est la vie. C’est possible, même si tout autour de vous peut être en désaccord. Vous, âmes bien-aimées qui connaissez les lois et savez comment les mettre en œuvre dans votre propre vie, pouvez choisir l’harmonie, pouvez ressentir, connaître et exprimer l’harmonie. Je vous encourage à marcher sur le chemin de l’harmonie, à marcher sur le chemin de la vérité, à marcher sur le chemin qui exprime l’amour sous toutes ses formes innombrables et toute sa beauté et ses merveilles.
+
+Dieu est toujours là, ne vous abandonne jamais, mais est toujours là pour vous. Il envoie également Ses anges pour être avec vous. Il envoie son Esprit Saint et toutes les bénédictions qui en découlent à votre disposition à tout moment. Il n’y a aucun moment où vous ne puissiez pas vous ouvrir aux bénédictions de la Lumière, de l’Amour et de l’harmonie. Elles sont là pour vous en ce moment même. Elle sont là pour vous à chaque instant. Souvenez-vous de cela dans votre conscience chaque fois que vous êtes dans une situation difficile, chaque fois que vos pensées dérivent vers ce qui n’est pas en harmonie avec l’amour et la lumière, afin que vous puissiez changer cela. Vous avez le pouvoir de le faire. Vous avez la connaissance pour le faire. En effet, vous avez la lumière dans votre âme et nous espérons qu’elle dicte tout ce que vous faites et tout ce que vous pensez.
+
+Mes amis bien-aimés, il est temps d’être responsables et d’être dotés de la vérité, de marcher dans le monde comme une lumière, car le monde a désespérément besoin de votre lumière, de la Lumière de Dieu, de toutes les bénédictions de la lumière qui peuvent venir et circuler à travers vous et circuler à travers beaucoup pour aider à élever le monde. Vous êtes les instruments de Dieu. Vous avez été développés, éveillés, guidés, enseignés, protégés et aimés profondément. Toutes ces choses fonctionnent en votre faveur. Toutes ces choses aideront à renforcer et à consolider le flux d’amour et de lumière à travers vous, de vérité dite et d’actions données en harmonie. C’est à vous de choisir cela et d’être cela.
+
+Je vous confirme donc ce que vous savez déjà : pour être en mesure de vivre et d’aimer, vous devez choisir d’être en phase avec ces choses et d’agir en conséquence avec toute votre délibération, votre désir et vos efforts pour être cette lumière pour Dieu, pour être ce canal d’amour pour Dieu qui profite à vos frères et sœurs. Tant de choses vous attendent pour circuler à travers vous, vers vous et autour de vous. Profitez de chaque instant, chaque jour, pour être dans cette lumière et cette harmonie, pour l’exprimer véritablement et l’être dans toute sa beauté, sous toutes ses formes et dans toutes les bénédictions qui pourraient venir.
+
+Que Dieu vous bénisse, mes amis. Je suis Michael Collier et je suis heureux de vous parler aujourd’hui. En effet, je vous parlerai à l’avenir. Que vos bénédictions continuent de couler. Que votre lumière continue d’être une lumière. Que Dieu vous bénisse, amis bien-aimés. Mon amour est avec vous. Que Dieu vous bénisse.
