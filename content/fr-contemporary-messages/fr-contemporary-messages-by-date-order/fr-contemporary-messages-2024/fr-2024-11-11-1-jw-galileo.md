@@ -31,4 +31,5 @@ Je ne viens pas souvent sur le plan terrestre, mais je suis venu lorsque mon fr�
 
 Puisse le grand Amour de Dieu entrer dans chaque âme ici présente et la remplir à ras bord dans notre unité. Nous sommes tous les enfants de Dieu qui nous sourit, nous embrasse et nous aime. Je vous remercie. Que Dieu vous bénisse. Je suis Galilée.
 <small>
-1. <large id="f1"> Galilée avait préalablement communiqué [le 21 Janvier 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-21-2-jep-galileo/) à travers le médium James Padgtt et, plus récemment, et il s'est de nouveau exprimé [le 09 Décembre 2024](/fr-contemporary-messages\fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-9-1-jw-galileo/) par l’intermédiaire du même médium Jle révérend Jimbeau Walsh[↩](#a1)
+
+1. <large id="f1"> Galilée avait préalablement communiqué [le 21 Janvier 1916](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-1-21-2-jep-galileo/) à travers le médium James Padgtt et, plus récemment, et il s'est de nouveau exprimé [le 09 Décembre 2024](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-9-1-jw-galileo/) par l’intermédiaire du même médium le révérend Jimbeau Walsh[↩](#a1)

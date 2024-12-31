@@ -163,7 +163,7 @@ Moïse | [La loi de l'Amour Divin ](/fr-contemporary-messages/fr-contemporary-me
 Jean le Bien Aimé | [Plongez-vous dans la rivière de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-22-1-em-john-the-beloved/) | 22 Mars 2024
 Thomas et Jeanne d'Arc | [Foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-24-1-em-thomas-joan-of-arc/) | 24 Mars 2024
 James Tudor, Sr. | [Félicitations de James Tudor, Sr ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-24-2-em-james-tudor-sr/) | 24 Mars 2024
-Luc | [La liberté de changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-25-1-jw-luke/) | 25 Mars 2024
+St Luc | [La liberté de changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-25-1-jw-st-luke/) | 25 Mars 2024
 Alec | [Soyez encouragés à ce que le travail continue](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-25-2-em-alec/) | 25 Mars 2024
 Claire d'Assise | [C''est le bonheur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-26-1-jw-clare-of-assisi/) | 26 Mars 2024
 Luc | [Prier pour la guérison de l'humanité ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-28-1-em-luke/) | 28 Mars 2024
@@ -337,13 +337,13 @@ Marie | [Nous sommes tous les enfants de Dieu ](/fr-contemporary-messages/fr-con
 Barbara Davies| [L'importance de s'aimer soi-même ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-22-1-af-barbara/) | 22 Octobre 2024
 Keea atta Kem | [Les bénédictions de Dieu sont partout ! ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-25-1-af-keea-atta-kem/) | 25 Octobre 2024
 Orion | [Embrasser le changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-25-2-af-orion/) | 25 Octobre 2024
-Prof Salyards | [Félicitations pour l'intégration des perceptions métaphysiques (esprit) et de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-26-1-af-prof-salyards/) | 26 Octobre 2024
+Professeur Salyards | [Félicitations pour l'intégration des perceptions métaphysiques (esprit) et de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-26-1-af-prof-salyards/) | 26 Octobre 2024
 Flavius Josèphe | [Un monde harmonieux basé sur l’honnêteté, la vérité et l’amour des autres arrive !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-26-2-af-josephus/) | 26 Octobre 2024
 Augustin | [Les obstacles à la vie avec Dieu sont en vous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-27-1-af-augustine/) | 27 Octobre 2024
 Jésus | [Jésus nous emmène dans la salle de la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-27-2-af-jesus/) | 27 Octobre 2024
 Judas | [Pardon et prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-28-1-jw-judas/) | 28 Octobre 2024
 Caligula | [Décrit son voyage des enfers les plus profonds aux Cieux Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-29-1-af-caligula/) | 29 Octobre 2024
-Orion | [Les multiples dimensions de la création de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-1-1-af-orion/) | 1 Novembre 2024
+Orion | [Les multiples dimensions de la création de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-1-1-af-orion/) | 1er Novembre 2024
 Orion | [L'Amour Divin est la clé de la communication interstellaire et permet d'éviter les distorsions et les distractions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-2-1-af-orion/) | 2 Novembre 2024
 Judas | [La Naissance de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-4-1-jw-judas/) | 4 Novembre 2024
 Galilée | [Le centre de l'univers ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-11-1-jw-galileo/) | 11 Novembre 2024
@@ -364,9 +364,9 @@ Yogananda | [Opportunités d'expériences d'éveil de l'âme](/fr-contemporary-m
 Augustin | [Votre capacité à recevoir des conseils s'approfondit ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-21-1-af-augustine/) | 21 Décembre 2024
 Barbara Davies| [Souvenez-vous des âmes perdues - Un message de Noël ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-23-1-af-barbara/) | 23 Décembre 2024
 Judas | [La volonté de Dieu et le libre arbitre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-23-2-jw-judas/) | 23 Décembre 2024
-Jésus | [Bénédiction de la veille de Noël pour le monde ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-24-1-af-jesus/) | 24 Décembre 2024
-Marie | [Bénédiction de la veille de Noël pour le monde ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-24-2-af-mary/) | 24 Décembre 2024
-St Mathhieu | [Bénédiction de Noël 7](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-24-3-af-st-mathhew/) | 24 Décembre 2024
+Jésus | [Bénédiction de la veille de Noël pour le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-24-1-af-jesus/) | 24 Décembre 2024
+Marie | [Bénédiction de Noël de son Fils au monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-24-2-af-mary/) | 24 Décembre 2024
+St Mathhieu | [Bénédiction de Noël](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-24-3-af-st-mathhew/) | 24 Décembre 2024
 Michael Collier | [Chevauchez le pendule des bénédictions de Dieu vers la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-27-1-af-michael-collier/) | 27 Décembre 2024
 
 

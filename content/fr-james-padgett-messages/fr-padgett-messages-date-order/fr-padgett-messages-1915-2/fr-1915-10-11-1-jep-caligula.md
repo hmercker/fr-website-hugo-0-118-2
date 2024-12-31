@@ -13,7 +13,7 @@ Caligula - reçu par James Padgett le 11 Octobre 1915, Washington, USA.
 
 ![title](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-2-caligula.jpg)
 
-Je suis Caligula.
+Je suis Caligula.<sup id="a1">[1](#f1)</sup>
 
 Je fus un Empereur Romain et l’assassin des Chrétiens, et depuis ce temps, et pour les péchés que j’ai commis, j’ai subi toutes les horreurs d’un enfer que je ne peux décrire. Qu’il suffise de dire que l’enfer de la Bible, ou de ceux qui l’interprètent, n’est pas égal dans ses tourments et ses horreurs à l’enfer que j’ai traversé. Je vous dis ceci afin que vous sachiez que chacun devra payer les pénalités pour les mauvaises actions qu’il commet lorsqu’il est sur terre, et comme mes actions furent tellement malfaisantes, mes pénalités furent en conséquence très grandes.
 
@@ -45,7 +45,11 @@ Oui, c’était Célestia.
 
 Et quel nom approprié ! Mon ami, vous devez aussi remercier Dieu pour sa bonté envers vous, car j’ai vu votre âme-sœur et elle est un très bel esprit.
 
-Ainsi, avec l’amour d’un frère en Christ, je suis vottre ami, Caligula <sup id="a1">[1](#f1)</sup> l’Empereur Romain qui était, et le Chrétien qui est.
+Ainsi, avec l’amour d’un frère en Christ, je suis vottre ami, Caligula <sup id="a2">[2](#f2)</sup> l’Empereur Romain qui était, et le Chrétien qui est.
 <small>
 
-1. <large id="f1"> Un autre empereur Romain, Néron, dans un message communiqué le [16 janvier 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-16-1-jep-nero/), a également témoigné que son âme-sœur l'avait aidé à sortir des enfers.[↩](#a1)
+1. <large id="f1"> Caligula s'est également exprimé [le 25 Octobre 1915](fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-2/fr-1915-10-25-2-jep-caligula/) et il s'est également exprimé environ un siècle plus tard lors d'un message comuniqué travrers un autre médium[le 29 Octobre 2024](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-29-1-af-caligula/)[↩](#a1)
+
+2. <large id="f2"> Un autre empereur Romain, Néron, dans un message communiqué le [16 janvier 1917](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1917/fr-1917-1-16-1-jep-nero/), a également témoigné que son âme-sœur l'avait aidé à sortir des enfers.[↩](#a2)
+
+

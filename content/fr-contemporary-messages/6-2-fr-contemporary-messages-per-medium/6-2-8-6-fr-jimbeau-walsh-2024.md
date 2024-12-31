@@ -26,7 +26,7 @@ Judas | [Orchestrer l’Amour](/fr-contemporary-messages/fr-contemporary-message
 Yogananda | [Suivez vos rêves](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-4-1-jw-yogananda/) | 4 Mars 2024
 Jésus | [Le Sacré-Cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-11-1-jw-jesus/) | 11 Mars 2024
 St François d'Assise | [Nourrir d'amour les âmes affamées ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-17-1-jw-st-francis-of-assisi/) | 17 Mars 2024
-Luc | [La liberté de changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-25-1-jw-luke/) | 25 Mars 2024
+St Luc | [La liberté de changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-25-1-jw-st-luke/) | 25 Mars 2024
 Claire d'Assise | [C''est le bonheur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-26-1-jw-clare-of-assisi/) | 26 Mars 2024
 Care Darby Walsh | [Survivre à la mort avec les perceptions de l’éternité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-28-1-jw-care-darby-walsh/) | 28 Mars 2024
 Judas | [Les Trois Naissances](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-1-2-jw-judas/) | 1 Avril 2024
