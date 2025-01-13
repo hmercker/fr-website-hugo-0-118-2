@@ -1,7 +1,7 @@
 ---
-title: "Messages Contemporains 2025
+title: "Messages Contemporains 2025"
 menu_title: ""
-description: "Messages Contemporains 2025
+description: "Messages Contemporains 2025"
 date: 2020-06-19 02:18:11+11:00
 draft: False
 hidden: True
