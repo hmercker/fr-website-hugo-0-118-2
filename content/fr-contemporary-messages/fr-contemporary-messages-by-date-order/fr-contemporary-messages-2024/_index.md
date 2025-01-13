@@ -369,7 +369,7 @@ Marie | [Bénédiction de Noël de son Fils au monde](/fr-contemporary-messages/
 St Mathhieu | [Bénédiction de Noël](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-24-3-af-st-mathhew/) | 24 Décembre 2024
 Michael Collier | [Chevauchez le pendule des bénédictions de Dieu vers la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-27-1-af-michael-collier/) | 27 Décembre 2024
 Care Daby Walsh | [Rendre le banal spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-30-1-jw-care-daby-walsh/) | 30 Décembre 2024
-Jésus | [Bénédiction de la veille du Nouvel An](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-31-1-af-jeius/) | 31 Décembre 2024
+Jésus | [Bénédiction de la veille du Nouvel An](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-31-1-af-jesus/) | 31 Décembre 2024
 
 ### [**Lien vers les messages des années 2025**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/)
 
