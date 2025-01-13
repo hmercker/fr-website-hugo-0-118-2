@@ -89,3 +89,4 @@ Care Darby Walsh | [La Nouvelle  Naissance](/fr-contemporary-messages/fr-contemp
 Care Darby Walsh | [Détente spirituelle, sanctuaire et responsabilité personnelle ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-8-1-jw-care-darby-walsh/) | 8 Juillet 2024
 Care Darby Walsh | [Le Royaume Angélique souhaite des Sanctuaires Physiques sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-21-2-jw-care-darby-walsh/) | 21 Juillet 2024
 Care Darby Walsh | [Vos trésors sont gardés au Ciel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-12-3-jw-care-darby-walsh/) | 12 Septembre 2024
+Care Daby Walsh | [Rendre le banal spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-30-1-jw-care-daby-walsh/) | 30 Décembre 2024

@@ -26,3 +26,5 @@ Bartholomée | [J'ai rencontré Jésus sur Terre et continue de répandre la vé
 Bartholomée | [L’Esprit Saint touche profondément vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-15-4-af-bartholomew/) | 15 Janvier 2024
 Bartholomée | [Parle sérieusement de l’avenir de l’Amour Divin à la Barbade ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-21-1-af-st-bartholomew/) | 21 Janvier 2024
 Bartholomée | [Vous connaîtrez le but et la raison de ce cercle ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-27-1-em-bartholomew/) | 27 Juin 2024
+Bartholomée | [Notre objectif à la Barbade ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-3-1-af-bartholomew/) | 3 Janvier 2025
+Bartholomée| [Bartholomée continue de nous aider à trouver notre objectif ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-10-1-af-bartholomew/) | 10 Janvier 2025

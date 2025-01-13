@@ -26,3 +26,4 @@ Anne (Grand mère de Jésus) | [Bénédiction d’une rose](/fr-contemporary-mes
 Anne (Grand mère de Jésus) | [Le plus grand nombre possible d’anges tentent d’entrer en relation avec nous tous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-18-1-af-anna-grandmother-of-jesus/) | 18 Mars 2022
 Elizabeth | [Unis dans l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-16-2-jw-elizabeth/) | 16 Juin 2020
 Elizabeth | [Laissez l'Amour de Dieu vous guider](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-15-1-jw-elizabeth/) | 15 Juillet 2024
+Elizabeth | [Apprenez à connaître votre âme comme votre conscience principale pour le vrai bonheur ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-5-1-af-elizabeth/) | 5 Janvier 2025

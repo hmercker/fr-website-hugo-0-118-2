@@ -1,0 +1,30 @@
+---
+title: "Apprenez à connaître votre âme comme votre conscience principale pour le vrai bonheur"
+menu_title: ""
+description: "Apprenez à connaître votre âme comme votre conscience principale pour le vrai bonheur"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Apprenez à connaître votre âme comme votre conscience principale pour le vrai bonheur 
+
+Elizabeth- reçu par Albert Fike le 5 Janvier 2025, Sechelt, Colombie-Britannique, Canada.
+
+Âmes bien-aimées, je suis Elizabeth. Vous me connaissez dans la Bible. Je viens de loin pour être avec vous, car je réside près des Cieux Élus où réside le Maître. Je fais ce voyage pour venir vous parler de la simple vérité de ce qui m’a amené à cet endroit et de ce qui vous amènera avec le temps à cet endroit. Un endroit dans les Cieux Célestes qui est au-delà de toute description et qui est rempli d’une telle joie, d’une telle lumière et d’un tel amour que vous ne pourriez pas en supporter la puissance dans votre état actuel.
+
+C’est là que vous irez tous dans le temps. C’est là que les récompenses de vos efforts deviendront les plus évidentes et les plus merveilleuses, car Dieu récompense ceux qui viennent à Lui avec humilité, simplicité et désir de recevoir ce grand don d’Amour. Ainsi, chacun d’entre vous commence ce voyage tôt dans son existence, alors que vous vous êtes incarné sur le plan terrestre, un endroit difficile pour trouver Dieu. Même si Dieu est toujours là, les conditions de votre monde continuent de vous en détourner.
+
+Mes bien-aimés, vous avez surmonté les barrières. Vous avez cherché la vérité. Vous avez entrepris le voyage de l’âme, trouvant votre relation avec Dieu. Vous devez apprendre à connaître votre âme comme votre meilleur ami et apprendre à connaître votre âme avec une telle profondeur, un tel désir et une telle harmonie qu’elle est en effet le principal moteur, le principal centre d’intérêt et la principale conscience de votre être. De cette façon, vous éviterez de nombreuses leçons, de nombreuses conditions et difficultés et beaucoup de douleur car vous êtes dans la grâce de Dieu et portés dans cette lumière. Vous y trouverez le vrai bonheur et vous trouverez une vérité qui dépasse la compréhension de l’homme mais qui peut être la vôtre parce que vous avez progressé bien au-delà de la condition de ce plan terrestre dans une telle grande lumière que les vérités de l’univers seront vôtres.
+
+Mes bien-aimés, le voyage, bien que lent, est sûr et vous mènera à cet endroit auquel vos âmes aspirent. Le désir de votre âme est de ne faire qu’un avec Dieu et le moyen d’y parvenir est de recevoir le grand don de l’Amour Divin, l’Essence de notre Créateur. Lorsque vous implorez cette bénédiction de venir à vous et que l’Esprit Saint-vous transmet ce don, vous êtes vraiment les bénis, ceux qui savent et ceux qui sont vraiment en alignement avec Dieu. Peu importe les circonstances de votre vie, votre acuité mentale, vos capacités physiques, toutes choses matérielles, vous êtes vraiment ascendants dans l’Amour et vous y trouverez les plus grandes bénédictions et la plus grande joie.
+
+Soyez les instruments de lumière de Dieu, mes bien-aimés. Vous êtes vraiment sur la bonne voie. Je vois parmi vous de nombreuses lumières brillantes, de nombreuses âmes qui indiquent qu’elles ont été profondément bénies par l’Amour du Père. Ensemble, vous formez une force formidable pour la lumière et la vérité. En effet, il est temps que le monde apprenne cela et s’informe de cette vérité, afin qu’eux aussi puissent porter la Lumière de Dieu dans leurs âmes. En cela, les conditions et les expressions de la pensée et de l’effort humains qui ne sont pas en harmonie avec la Vérité de Dieu et les Lois de Dieu seront encore plus érodées et transformées en lumière.
+
+Le monde a besoin de vous tous. Le monde a faim d’amour et pourtant le monde ignore comment il pourrait le recevoir et le connaître. Vous n’êtes pas ignorants. Vous êtes une lumière. Vous portez la flamme de la vérité. Elle brûle dans vos âmes. Mes bien-aimés, soyez forts dans la lumière et ne permettez à aucune condition de vous éloigner de la lumière et de Dieu. Fortifiez-vous dans la lumière. Recherchez avec beaucoup de sérieux les bénédictions de Dieu. Dites vos prières avec beaucoup de sérieux et de désir. Soyez cette lumière dans le monde et n’ayez pas peur de briller dans le monde. Soyez fidèles à vous-mêmes, car à mesure que vous continuez à découvrir qui vous êtes vraiment, vous devez alors honorer cela dans vos vies, en exprimant votre véritable moi dans tout ce que vous faites et tout ce que vous êtes dans le monde.
+
+C’est le plus grand enseignant de tous, cette véritable expression de soi. Ne vous dérobez pas à cette expression ou à la singularité que cette expression apporte à votre visage. Soyez joyeuses, âmes bien-aimées, car Dieu vous a donné la vie et si vous poursuivez son grand don d’amour, vous aurez la vie éternelle. La joie et l’émerveillement que cela procure alors que vous continuez à progresser, sans jamais finir votre voyage, sont un sentiment de joie expansive et sans égal pour l’âme, sachant que vous avez trouvé le secret de la vie éternelle, que vous marchez sur le chemin de la progression éternelle, un don qui dépasse tout autre don, un chemin qui dépasse tout autre chemin. Comme vous êtes bénis, mes bien-aimés. Comme vous êtes bénis en effet.
+
+Alors, nous tournons nos désirs, nos pensées et notre joie vers Dieu, pour recevoir ce grand don d’amour, pour le connaître, pour le ressentir, pour être entourés et vraiment en faire partie. C’est le don de Dieu pour vous et votre don à Dieu est de l’accepter volontairement et avec joie. Allons-nous continuer dans nos prières, le recherchant au-delà de tout le reste et en étant dans le saint contact de l’amour de Dieu ?
+
+Que Dieu vous bénisse, mes bien-aimés. Je m’appelle Elizabeth et je vous aime tous. Je suis heureuse d’être avec vous aujourd’hui dans ce Cercle de Lumière, ce rassemblement de belles âmes en prière. Que Dieu vous bénisse. Que Dieu vous bénisse tous.

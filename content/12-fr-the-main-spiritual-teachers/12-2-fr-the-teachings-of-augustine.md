@@ -338,6 +338,7 @@ Augustin | [Les obstacles à la vie avec Dieu sont en vous ](/fr-contemporary-me
 Augustin | [Leçon sur le suivi des directives](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-18-2-af-augustine/) | 18 Novembre 2024
 Augustin | [Les illusions de votre mental se dissoudront avec la progression de l'âme ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-30-1-af-augustine/) | 30 Novembre 2024
 Augustin | [Votre capacité à recevoir des conseils s'approfondit ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-21-1-af-augustine/) | 21 Décembre 2024
+Augustin | [Écoutez votre propre âme plutôt que les conseils des autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-11-1-af-augustine/) | 11 Janvier 2025
 
 
 

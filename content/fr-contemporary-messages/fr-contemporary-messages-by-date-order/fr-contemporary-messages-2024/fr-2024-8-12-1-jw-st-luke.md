@@ -1,0 +1,25 @@
+---
+title: "La foi au-delà de l’échec"
+menu_title: ""
+description: "La foi au-delà de l’échec"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### La foi au-delà de l’échec
+
+Luc - reçu par Jimbeau Walsh le 22 Juillet 2024, Nashville, Tennesse, USA
+
+Je suis ici, Luc, « Le Médecin ». Puissiez-vous permettre, en ce moment, au grand don de notre Père Céleste, à Son essence même, d’entrer dans vos âmes. Car c’est le désir de Dieu que chacun reçoive le don de l’immortalité. Pour ceux qui ont besoin d’une guérison, nous vous demandons de mettre de côté vos préoccupations et vos inquiétudes, car elles ne vous aident pas. Les vibrations de guérison de l’Amour Divin sont réelles, comme en témoignent la vie du Maître et de bien d’autres après lui. Et vous connaissez ses paroles *« par votre foi, vous serez guéris »*. Lorsque vous êtes en communion directe avec le Père Céleste, vous pouvez recevoir cette guérison dans le corps, dans l’esprit et dans l’âme.
+
+Pour ceux qui ont le sentiment d’avoir échoué ou d’avoir fait un faux pas sur ce chemin de l’amour, sachez que ce que vous percevez comme un échec est quelque chose qui pousse votre âme à tendre la main avec espoir, foi et confiance, sachant que Dieu est le guérisseur, Dieu est l’enseignant. Les paroles des prophètes<sup id="a1">[1](#f1)</sup> et <sup id="a2">[2](#f2)</sup> peuvent vous venir à l’esprit lorsque vous êtes confronté à un monde troublé, car marcher dans l’Amour de Dieu et être oint comme un en Christ, porte en soi une bénédiction si profonde. Votre capacité à répondre ne nécessite qu’un cœur ouvert, sachant que lorsque vous avancez à chaque instant, en restant dans votre cœur, en permettant à l’amour de votre âme de vous guider, en restant dans le flux de la grâce, que toutes choses sont acceptées et que chaque faux pas peut vous propulser dans un désir plus profond. Car même un cœur brisé peut s’ouvrir comme une rose dans les bénédictions de l’Amour du Père.
+
+Je vous dis qu’en tant que frère, votre succès est assuré, votre entrée dans les Cieux Célestes de Dieu est votre avenir, votre destinée. Réjouissez-vous-en cela. Sachez que vous êtes aimé au-delà de toute mesure par le Père Céleste et par nous tous ici dans le Royaume Céleste, qui veillons sur vous et sommes à votre disposition. Alors, n'oubliez pas de demander et nous viendrons.
+
+Que Dieu bénisse chacun dans ce beau cercle. Je suis votre frère en Christ et votre ami dans ce voyage sans fin dans l'Amour de Dieu. Je suis Luc. Soyez en paix.
+<small>
+
+1. <large id="f1"> [2 Corinthiens 3:16 - *« Mais dès que l'on se tourne vers le Seigneur avec un cœur ouvert, le voile se lève et on voit. »*](https://saintebible.com/2_corinthians/3-16.htm)[↩](#a1)
+
+2. <large id="f2"> [Ézéchiel 11:19 - *« Je leur donnerai un cœur sans partage, et je mettrai en eux un esprit nouveau ; j'ôterai d'eux leur cœur de pierre et je leur donnerai un cœur de chair. »*](https://saintebible.com/ezekiel/11-19.htm)[↩](#a2)
