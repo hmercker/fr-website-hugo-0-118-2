@@ -9,7 +9,7 @@ weight:
 ---
 ### Notre objectif à la Barbade
 
-Bartholomée - reçu par Albert Fike le 3 Janvier 2025, Sechelt, Colombie-Britannique, Canada.
+Bartholomée - reçu par Albert Fike le 3 Janvier 2026, Sechelt, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, mes chers amis. C’est Bartholomée. Comme le dit mon cher frère, il n’y a pas de temps à perdre. En effet, lorsque vous vous réunissez, âmes dévouées et douées que vous êtes, vous devez utiliser le temps efficacement et avec beaucoup de soin et de sagesse. Nous prévoyons donc de vous rassembler dans des efforts déterminés pour apporter un développement supplémentaire, pour ajouter davantage de sagesse et, bien sûr, pour que chacun d’entre vous reçoive des portions toujours plus grandes de l’amour de Dieu dans son âme.
 

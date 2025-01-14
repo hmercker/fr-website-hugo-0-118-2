@@ -9,7 +9,7 @@ weight:
 ---
 ### Amusez-vous aussi ! 
 
-Goldie - reçu par Albert Fike le 1<sup>er</sup> Janvier 2025, Sechelt, Colombie-Britannique, Canada.
+Goldie - reçu par Albert Fike le 3 Janvier 2025, Sechelt, Colombie-Britannique, Canada.
 
 La célébration de la vie est importante. Soyez dans le flux du plaisir, du rire et de la célébration. Cela aussi ajoutera à votre travail et à vos capacités à recevoir le don de l’Amour de Dieu.
 
