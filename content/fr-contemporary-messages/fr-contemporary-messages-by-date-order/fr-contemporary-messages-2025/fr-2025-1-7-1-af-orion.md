@@ -1,0 +1,26 @@
+---
+title: "Fortifiez le réseau de lumière avec vos prières"
+menu_title: ""
+description: "Fortifiez le réseau de lumière avec vos prières"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Fortifiez le réseau de lumière avec vos prières
+
+Orion - reçu par Albert Fike le 7 Janvier 2025, Sechelt, Colombie-Britannique, Canada.
+
+Que Dieu vous bénisse, mes amis bien-aimés. Je suis Orion. Vous continuez à contribuer à l’illumination du monde et nous contribuons à cet égard par nos efforts et notre lumière, tout comme vous. Mes amis bien-aimés et magnifiques, lorsque vous vous rassemblez, comme vous le faites de manière constante et fiable, vous contribuez au treillis de lumière dans votre monde. Ce que vous apportez dans vos prières et vos efforts est diffusé à travers ce réseau de lumière. Cela affecte et élève beaucoup, beaucoup de ceux qui sont connectés à vous, beaucoup de ceux qui sont connectés à vous et vous n’êtes même pas conscients de cette connexion.
+
+Ce treillis de lumière est un vaste réseau de connectivité qui apporte les bénédictions. C’est une transmission de nombreuses bénédictions, énergies et dons donnés. En effet, vous contribuez à apporter des bénédictions au don de cristal qui vous a été donné il y a quelques années maintenant et ce réseau est béni par vos efforts. Les transmissions sont recueillies et diffusées dans l’univers comme une bénédiction et une lumière. Bien sûr, il y a beaucoup de personnes qui sont connectées à chacun d’entre vous dans votre vie quotidienne et elles aussi bénéficient de vos efforts.
+
+Vous voyez, lorsque Dieu rassemble de belles âmes comme vous, ce n’est pas seulement pour votre bénéfice. Dans l’univers de Dieu, il y a de nombreux niveaux de bénéfices, de nombreuses personnes qui en bénéficient. Vous faites partie de ce vaste réseau qui se construit et qui a pour but de créer de la lumière et d’apporter des bénédictions aux autres, de disperser l’obscurité, les conditions dans votre monde et de contribuer à l’univers à sa manière et de son propre droit.
+
+Mes amis bien-aimés, à mesure que vous grandissez dans l’Amour du Père, ces connexions grandiront, le treillis sera renforcé et se multipliera dans ses connexions. Ceux dans l’univers qui sont en alignement avec cette grande quête de l’éveil de l’âme seront attirés et feront partie de ce magnifique réseau. Avec le temps, vous apprendrez à connaître ces amis, vos amis stellaires, vos amis spirituels, vos amis célestes, en plus grand nombre et avec plus de détails. Au fur et à mesure que votre capacité à percevoir, à comprendre et à être dans votre âme grandit, ces prises de conscience et cette connexion deviennent plus vivantes, plus détaillées, plus profondes et plus larges. Bien sûr, le plus grand avantage de tout est que vous en venez à connaître votre Créateur plus en profondeur, dans de plus grands sentiments d’amour, de reconnaissance et de perception.
+
+Au fur et à mesure que vous continuez sur ce chemin, ces choses vous attendent, mes amis bien-aimés. Vous en venez à voir le vaste réseau que Dieu a créé. Dieu désire que Sa création soit connectée dans l’harmonie, la grâce, la beauté, la lumière, l’amour et la sagesse. Ces choses se produisent à mesure que vous grandissez dans l’Amour et vous constaterez que vos perceptions s’intensifieront. Les diverses expériences que vous vivez dans vos prières et vos contemplations, même dans vos processus de pensée pendant la journée, vous apporteront davantage d’illumination et de conscience des nombreux auxquels vous êtes connectés et que vous aimez.
+
+Tant de choses se produiront à mesure que vous continuerez à grandir dans votre âme. Vous n’avez pas besoin de forcer ou de vous mettre la pression à cet égard. Cela viendra comme un flux naturel de l’éveil de votre âme. Je vous demande simplement d’être réceptifs et d’avoir la foi et le désir d’avoir ces choses ouvertes à vous. Ainsi, votre vie, votre perception de la vie et votre expérience de la vie seront modifiées par le pouvoir de la grande Essence de Dieu qui y entrera et vous apportera tous les dons et bénédictions qui en découlent. Mes amis bien-aimés, puissiez-vous continuer à grandir dans l’Amour du Père. Puissiez-vous continuer à grandir dans tout ce qui est amour, tout ce qui est lumière et tout ce qui est vous dans la lumière, éclairé par l’amour.
+
+Que Dieu vous bénisse, mes amis bien-aimés. Je suis Orion. Je continue à marcher avec vous et à être avec vous, car je fais partie de votre réseau. Je fais partie de ce grand et beau réseau d’amour et de lumière qui continue de grandir et d’entourer votre monde. Je contribue comme vous. Nous contribuons tous à l’éveil de l’humanité. Que Dieu vous bénisse, mes amis. Que Dieu vous bénisse profondément et pleinement. En effet, je serai aux côtés de ces deux belles âmes alors qu’elles entreprennent leur voyage. Je parlerai à d’autres personnes qui entreront dans leur cercle et chercheront l’illumination, la vérité et l’amour. Que Dieu vous bénisse tous, chers amis. Que Dieu vous bénisse.
