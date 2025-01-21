@@ -25,6 +25,8 @@ Jésus | [Que chaque âme individuelle parvienne à connaître l’Amour de Dieu
 jésus | [Les anges parcourent un long chemin pour être avec vous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-21-1-af-jesus/) | 21 Mai 2024
 Jésus | [La grâce de l'essence de Dieu s'accompagne de responsabilité ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-13-1-mc-jesus/) | 13 Juin 2024
 Jésus | [Jésus encourage Cliff](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-30-2-af-jesus/) | 30 Juin 2024
+Jésus | [Nous sommes satisfaits de vos progrès](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-2-2-af-jesus/) | 2 Juillet 2024
+Jésus et Marie | [Vos prières apportent une plus grande lumière au monde, Marie ajoute ses prières ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-7-1-af-jesus-and-mary/) | 7 Juillet 2024
 Jésus | [Nous oblige à être des lumières dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-21-1-af-jesus/) | 21 Juillet 2024
 Jésus | [Une prière pour nous aider à atteindre la conscience de l’âme ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-26-1-af-jesus/) | 26 Juillet 2024
 Jésus | [Vos désirs de vérité ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-4-1-af-jesus/) | 4 Août 2024

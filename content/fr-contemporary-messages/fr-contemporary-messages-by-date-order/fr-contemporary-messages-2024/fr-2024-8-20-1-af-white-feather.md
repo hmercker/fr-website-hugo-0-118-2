@@ -11,7 +11,7 @@ weight:
 
 Plume Blanche - reçu par Albert Fike le 20 Août 2024, Sechelt, Colombie-Britannique, Canada.
 
-… vous, compagnons de voyage sur le Chemin Divin. Je suis Plume Blanche. Je viens vous reconnaître et vous aider à comprendre combien il est important d’être une lumière dans le monde, de faire ce que vous faites dans le monde. Car chaque fois que vous dites une prière pour recevoir le grand don de l’Amour de Dieu, vous mettez vos frères et sœurs au défi de vous suivre, de s’éveiller à la vérité que vous portez.
+Soyez bénis, chers compagnons de route sur le Chemin Divin. Je suis Plume Blanche. Je viens vous reconnaître et vous aider à comprendre combien il est important d’être une lumière dans le monde, de faire ce que vous faites dans le monde. Car chaque fois que vous dites une prière pour recevoir le grand don de l’Amour de Dieu, vous mettez vos frères et sœurs au défi de vous suivre, de s’éveiller à la vérité que vous portez.
 
 Tant de personnes sont endormies. Tant de personnes sont réfugiées dans un endroit qui manque de lumière, mais qui est confortable. Ces âmes endormies laissent se produire tant de choses dans votre monde qui ne sont pas de lumière. Elles ne voient pas. Elles ne ressentent pas. Elles n’entendent pas. Elles sont simplement engourdies et heureuses de leur propre ignorance et de leur confort au sens physique du terme. Des millions et des millions de personnes sont dans cette condition, mes amis. Des millions et des millions de personnes ont besoin d’être réveillées, de voir la vérité telle qu’elle est, de se voir elles-mêmes dans la condition dans laquelle elles se trouvent. Car comment le changement sera-t-il affecté s’il n’y a pas de conscience, s’il n’y a pas de désir de changement ?
 

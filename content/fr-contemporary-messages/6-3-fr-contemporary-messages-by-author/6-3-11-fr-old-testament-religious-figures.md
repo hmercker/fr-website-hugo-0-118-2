@@ -51,6 +51,7 @@ Isaïe | [Soyez en sainte communion avec Dieu ](/fr-contemporary-messages/fr-con
 Isaïe | [Nouveaux départs en République Dominicaine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-3-2-af-isaiah/) | 3 Janvier 2024
 Isaïe | [La puissante essence de Dieu sera donnée à chacun de vous avec force ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-20-2-af-isaiah/) | 21 Février 2024
 Ïsaïe | [Imprégnez-vous de la gloire de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-14-3-af-isaiah/) | 14 Mars 2024
+Isaïe | [Une puissante leçon sur la prise de responsabilité pour la progression de notre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-8-2-af-isaiah/) | 8 Juillet 2024
 Isaïe | [Guerriers de la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-9-1-af-isaiah/) | 9 Septembre 2024
 Jacob | [La foi de Jacob en Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-4-1-fab-jacob/) | 4 Février 2003
 Jacob | [Sur la Foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-6-1-hm-jacob/) | 6 Mai 2020

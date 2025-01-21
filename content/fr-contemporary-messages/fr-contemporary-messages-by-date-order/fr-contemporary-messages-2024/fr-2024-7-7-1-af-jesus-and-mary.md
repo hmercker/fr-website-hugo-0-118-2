@@ -1,0 +1,30 @@
+---
+title: "Vos prières apportent une plus grande lumière au monde, Marie ajoute ses prières"
+menu_title: ""
+description: "Vos prières apportent une plus grande lumière au monde, Marie ajoute ses prières"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Vos prières apportent une plus grande lumière au monde, Marie ajoute ses prières
+
+Jésus et Marie - reçu par Albert Fike le 6 Juillet 2024, Sechelt, Colombie-Britannique, Canada.
+
+Enfants bien-aimés de Dieu, je viens. Je suis votre frère et ami, Jésus. Je viens prier et être avec vous en ce temps de rassemblement, ce temps de désir, ce temps de supplication à Dieu pour recevoir le grand don de Son Amour. Je vous exhorte tous à sonder vos cœurs, à aller au plus profond de vous-même et à rechercher les motivations et les désirs qui se trouvent en vous. Car c’est là que vous trouverez la puissance et l’intensité de la prière pour recevoir le grand don de l’Amour de Dieu. Sans ce désir, sans ces sentiments qui se trouvent au plus profond de vous, ce désir qui est dans votre âme et dans chaque âme de votre monde, alors je n’aurais pas pu aider Dieu à ouvrir à nouveau la porte à ce don.
+
+Dans mon ministère et au cours de toutes les années qui ont suivi, ce don a été disponible pour chacun d’entre vous et pour toute l’humanité, génération après génération. Pourtant, beaucoup ne connaissaient pas ce don. Certains sont tombés dessus, car ils ont ressenti les désirs de leur âme et ont exprimé ces désirs à Dieu. Bien qu’ils n’aient pas les mots que vous utilisez, ils ont néanmoins pu établir cette connexion, ce rapport d’âme à âme avec notre Père Céleste, et ils ont reçu le don qui s’est déversé en eux. Comment les cieux Célestes ont-ils été peuplés, sinon pour ces individus intrépides qui ont cherché Dieu et recherché les dons et les bénédictions que Dieu a à leur donner ?
+
+Vous cherchez et vous aspirez. Vous avez la foi et vous avez le désir. Nous dirigeons tous ces choses vers la grande Âme de Dieu, recherchant Son Esprit Saint pour répondre à nos prières, recherchant le toucher de Dieu pour nous réveiller, tous les beaux potentiels qui se trouvent dans nos âmes. Quel mystère pour l’humanité que ce qui se trouve au plus profond de nous, ce qui est notre véritable moi. Pourtant, vous avez trouvé la réponse à cette question. Dieu vous a répondu de bien des manières, en vous démontrant et en vous montrant le pouvoir de l’amour, l’Essence de Son Amour qui vous est donné gratuitement et abondamment.
+
+Exprimez les désirs profonds de vos âmes, mes frères bien-aimés, car c’est la clé de tout ce qui pourrait vous venir en connaissance, en compréhension, en joie et en vérité, en paix et en foi. La clé de toutes ces choses vient d’une seule bénédiction qui est donnée encore et encore lorsque vous suppliez Dieu de la recevoir. Ne vous refusez pas à Dieu, mais posez vous à Ses pieds et demandez la grande bénédiction qui donne le pardon, la guérison, la transformation et la joie. De quoi une âme a-t-elle besoin de plus que cela pour être libérée de ses fardeaux, pour connaître son véritable moi et s’éveiller à tous ses dons et à tous ses potentiels ? Car Dieu a mis en vous de très nombreux dons. Ces dons ont leur propre désir d’être réalisés et exprimés à partir de votre véritable moi. Alors que ces dons s’épanouissent dans la grâce de Dieu, vous toucherez les autres et ils ressentiront la puissance de ces dons, la beauté de ces dons, la grâce de ces dons renforcés par le toucher de Dieu.
+
+Cherchez chaque jour la bénédiction de Son Amour, et chaque jour vous apportera ses propres bénédictions, ses propres dons. Réveillez une autre partie de vous qui autrement n’aurait pas été connue et ne prendrait pas vie. Dans votre recherche, dans vos prières, vous vous ouvrez au monde de l’âme et à la réalité de Dieu. Allons-nous prier ensemble maintenant, mes bien-aimés, demandant à Dieu d’ouvrir grand nos âmes, de recevoir abondamment le grand don de Son Amour ? En cela, ce désir sera dans une certaine mesure satisfait. Cet éveil progressera vers des lieux et des royaumes qui ne sont pas connus de beaucoup, mais qui seront connus de vous.
+
+Que Dieu vous bénisse, âmes bien-aimées. Je suis Jésus, Maître des Cieux Célestes, votre frère et votre ami. Je vous aime tous, d’un amour profond et durable. Je vous connais et je suis avec vous. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous bénisse.
+
+Je suis Marie, la mère de Jésus. Je viens renforcer le message de mon fils, apporter mon amour au milieu de vous et à ce monde aussi loin qu’il peut atteindre, alors que chacun de vous contribue au grand canal et au Portail d’Amour et de Lumière qui est créé par vos prières. Vous rendez un grand service au monde, âmes bien-aimées, en priant en de nombreux endroits, de nombreux points le long et à travers ce monde afin que Dieu puisse toucher, à travers vous, beaucoup d’autres. Ce service et cette bénédiction viennent tranquillement et anonymement à travers vous, mais ils aident à soutenir le monde. Pour apporter la lumière, pour apporter la guérison, la paix et le réconfort à beaucoup.
+
+Ne sous-estimez pas le pouvoir de vos prières, le pouvoir de vos rassemblements pour apporter les bénédictions de Dieu à travers vous en tant que Ses instruments, apportant beaucoup à vos frères et sœurs. Nous utilisons le pouvoir de ces instruments sur Terre, comme le fait Dieu, afin d’élever et d’aider à neutraliser les ténèbres. Mes bien-aimés, sachez que nous sommes proches en ces temps de prière et que nous continuerons à utiliser vos désirs pour servir l’humanité et pour servir la Volonté de Dieu afin d’apporter la paix et l’harmonie à votre monde.
+
+Que l’Amour de Dieu vous bénisse profondément. Puissiez-vous connaître le pouvoir de votre propre instrument, le canal d’amour que vous êtes dans le monde. Que Dieu vous bénisse. Je suis Marie et je vous aime. Je vous aime profondément et je vous reconnais comme des lumières dans le monde. Que Dieu vous bénisse. Que Dieu vous bénisse tous dans Son Amour.
