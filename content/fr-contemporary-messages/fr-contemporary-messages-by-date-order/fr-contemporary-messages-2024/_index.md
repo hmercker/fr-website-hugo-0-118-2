@@ -286,6 +286,7 @@ Barbara Davies| [Conseils à ceux qui luttent pour établir une connexion plus f
 Orion | [Poursuivez vos progrès afin d'être prêt en cas de besoin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-24-1-af-orion/) | 24 Août 2024
 Marie | [Gardez votre cœur ouvert](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-25-1-mc-mary/) | 25 Août 2024
 Jésus | [Apporte des bénédictions d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-25-2-af-jesus/) | 25 Août 2024
+Augustin | [Attirer des bénédictions sur le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-25-3-af-augustine/) | 25 Août 2024
 Augustin | [Rappelle aux administrateurs de travailler ensemble dans la douce harmonie de la volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-26-1-af-augustine/) | 26 Août 2024
 Alec Gaunt | [Nous encourage à agir ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-27-1-af-alec-gaunt/) | 27 Août 2024
 Orion | [Continue de nous encourager à la conscience de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-27-2-af-orion/) | 27 Août 2024
@@ -324,6 +325,7 @@ Jésus | [Expiation avec Dieu](/fr-contemporary-messages/fr-contemporary-message
 St Pierre | [Vos bénédictions ne seront pas oubliées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-22-1-af-st-peter/) | 22 Septembre 2024
 Yogananda | [La foi sur la peur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-22-2-jw-yogananda/) | 22 Septembre 20244
 Orion | [Questions et réponses lors de la retraite de Poughkeepsie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-22-3-af-orion/) | 22 Septembre 2024
+Orion et Jésus | [Vous Atteignez les Âmes, Pas les Esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-16-2-af-orion-and-jesus/) | 16 Septembre 2024
 Claire d'Assise | [La forme la plus haute de la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-23-1-jw-clare-of-assisi/) | 23 Septembre 2024
 James Reid | [Le chemin vers le Royaume ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-24-1-af-james-reid/) | 24 Septembre 2024
 St Luc | [Répandez le message loin et largement ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-24-2-af-st-luke/) | 24 Septembre 2024
@@ -344,6 +346,7 @@ André | [Dieu ouvre la porte à la communication d’en haut](/fr-contemporary-
 Judas | [Sanctuaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-14-1-jw-judas/) | 14 Octobre 2024
 Aaron | [Je serai avec vous pendant que vos dons s'ouvrent au service de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-15-1-af-aaron/) | 15 Octobre 2024
 Marie | [Nous sommes tous les enfants de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-15-2-af-mary/) | 15 Octobre 2024
+Jésus | [Bénédiction profonde pour le Treillis de Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-20-2-af-jesus/) | 20 Octobre 2024
 Barbara Davies| [L'importance de s'aimer soi-même ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-22-1-af-barbara/) | 22 Octobre 2024
 Keea atta Kem | [Les bénédictions de Dieu sont partout ! ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-25-1-af-keea-atta-kem/) | 25 Octobre 2024
 Orion | [Embrasser le changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-25-2-af-orion/) | 25 Octobre 2024

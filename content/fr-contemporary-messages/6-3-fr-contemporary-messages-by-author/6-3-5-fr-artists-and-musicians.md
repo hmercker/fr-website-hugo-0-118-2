@@ -50,6 +50,7 @@ Frédéric Chopin | [Je souhaite apporter ma musique à l'humanité](/fr-contemp
 Gene Kelly | [Que votre cœur chante](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-23-2-af-gene-kelly/) | 23 Novembre 2017
 George Harrison | [Un grand musicien revient à la maison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-12-1-fab-george-harrison/) | 12 Juillet 2009
 George Harrison | [George Harrison rentre à la maison - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-14-2-fab-george-harrison/) | 14 Juillet 2009
+Isabelle | [Se présente comme la guide de Sonja pour son anniversaire ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-16-2-af-isabelle/) | 16 Janvier 2025
 Jackie Gleason | [Les expériences d’un grand comédien, Jackie Gleason, comme esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-15-2-fab-jackie-gleason/) | 15 Mars 2013
 Jackie Gleason | [Clarification de Jackie Gleason](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-5-1-fab-jackie-gleason/) | 5 Avril 2013
 Janis Joplin | [Le malheur de Janis Joplin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-1-15-1-fab-janis-joplin/) | 15 Janvier 2009

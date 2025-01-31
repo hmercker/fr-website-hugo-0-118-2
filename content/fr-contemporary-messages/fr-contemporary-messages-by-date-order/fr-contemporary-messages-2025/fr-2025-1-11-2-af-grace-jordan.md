@@ -9,7 +9,7 @@ weight:
 ---
 ### Préparez-vous pour ce temps ensemble
 
-Grace Jordan par Albert Fike le 11 Janvier 2025, St Michael, La Barbade.
+Grace Jordan - reçu par Albert Fike le 11 Janvier 2025, St Michael, La Barbade.
 
 Que l’Amour de Dieu soit sur vous. Je suis votre sœur, Grace. Nous avons beaucoup de travail à faire, mes amis, beaucoup de travail en effet. Si vous vous réunissez et le faites de manière cohérente, avec le bon état d’esprit et la bonne attitude, nous pourrons accomplir beaucoup ensemble. Il y a tant à accomplir. En ces moments précieux où vous réservez votre journée à la prière et au développement de l’âme, il est important que vous considériez ce temps comme un cadeau et une bénédiction.
 

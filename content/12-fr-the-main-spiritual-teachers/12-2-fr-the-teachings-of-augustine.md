@@ -330,6 +330,7 @@ Augustin | [Suivre la Volonté de Dieu et la loi de progression ](/fr-contempora
 Augustin | [La voie est libre ! ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-6-2-af-augustine/) | 6 Juillet 2024
 Augustin | [Une leçon importante pour développer la médiumnité de l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-9-1-af-augustine/) | 9 Juillet 2024
 Augustin | [Vivez une vie de prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-23-1-af-augustine/) | 23 Juillet 2024
+Augustin | [Continue de vous appeler au service](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-14-1-af-augustin/) | 14 Janvier 2025
 Augustin | [Rappelle aux administrateurs de travailler ensemble dans la douce harmonie de la volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-26-1-af-augustine/) | 26 Août 2024
 Augustin | [Il faut notre puissance de prière pour rapprocher Dieu et les anges](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-7-2-af-augustine/) | 7 Septembre 2024
 Augustin | [Comment fonctionne le flux de la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-9-2-af-augustine/) | 9 Septembre 2024

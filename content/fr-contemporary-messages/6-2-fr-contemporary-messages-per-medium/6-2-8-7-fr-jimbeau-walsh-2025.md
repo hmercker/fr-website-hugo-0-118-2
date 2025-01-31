@@ -11,6 +11,9 @@ weight:
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-
+Thomas Morton | [Une once d'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-6-1-jw-thomas-morton/) | 6 Janvier 2025
+Eileen Caddy | [Pour le bien du monde, pour le bien de vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-13-1-jw-eileen-caddy/) | 13 Janvier 2025
+Care darby Walsh | [Ma vie de prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-20-3-af-care-darby-walsh/) | 20 Janvier 2025
+Claire d'Assise | [Prière et sanctuaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-23-3-af-claire-dassise/) | 23 Janvier 2025
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

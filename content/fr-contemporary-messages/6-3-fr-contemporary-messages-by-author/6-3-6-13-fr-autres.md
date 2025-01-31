@@ -21,4 +21,5 @@ Trois disciples sont regroupés sous cette dénomination.
 ---|---|---
 Marthe | [La différenciation entre les sexes n’est pas pertinente dans les Cieux Célestes ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-18-2-af-martha/) | 18 Août 2023
 Philippe | [Faire émerger les lois de l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-28-1-af-philippe/) | 28 Janvier 2024
+Thomas l’Apôtre | [L'âme touchée par Dieu est la vraie preuve](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-25-1-jw-thomas-the-apostle/) | 25 Juillet 2022
 Thomas-Jeanne d'Arc | [Foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-24-1-em-thomas-joan-of-arc/) | 24 Mars 2024

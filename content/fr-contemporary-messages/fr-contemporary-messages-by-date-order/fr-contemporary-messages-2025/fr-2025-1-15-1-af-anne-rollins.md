@@ -1,0 +1,24 @@
+---
+title: "Priez avec nous pour apporter une plus grande lumière au monde"
+menu_title: ""
+description: "Priez avec nous pour apporter une plus grande lumière au monde"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Priez avec nous pour apporter une plus grande lumière au monde
+
+Anne Rollins - reçu par Albert Fike le 15 Janvier 2025, St Michael, La Barbade.
+
+Que l’Amour du Père continue à remplir vos âmes. Je suis Anne Rollins et je viens vous encourager dans la prière. En effet, chaque fois que vous priez, vous apportez une plus grande lumière à vous-même et une plus grande lumière à ce monde qui est le vôtre. Pensez aux milliards de personnes sur votre planète et dans le plan terrestre inférieur qui ne prient pas. Ils ne considèrent pas que la prière est un bienfait et ils ne comprennent pas comment prier.
+
+Vous êtes important. Vous apportez une lumière, car les vastes efforts de l’humanité n’apportent pas de lumière mais souvent une grisaille, une obscurité qui n’est pas en harmonie avec les lois d’amour et de création de Dieu. Votre Terre est un endroit sombre, un endroit qui a besoin de lumière. Vous avez trouvé un chemin, la voie et les moyens d’apporter la lumière. Vous ressentez dans votre cœur et votre âme la puissance de cette lumière, la puissance de l’Amour de Dieu qui vous remplit et qui brûle en vous. L’importance de cela est en effet très grande, car le monde, comme je le dis, a besoin de lumière. Le monde, pour connaître l’harmonie, pour prospérer et pour être dans la grâce que la vie est censée être, a besoin de lumière.
+
+Je vous encourage donc à apporter de la lumière, à penser à la lumière tout autour de vous. À chaque instant, vous devez être une lumière. Vous devez également être un canal d’amour, car Dieu souhaite vous utiliser comme ce canal d’amour. Vous êtes inspiré à faire des choses qui apportent plus de lumière et de bénédictions aux autres. Il y a tellement de choses dans cette responsabilité que vous portez. Ce n’est pas que vous êtes plus responsable qu’un autre, mais parce que vous connaissez la vérité, parce que vous connaissez le chemin de la lumière, vous êtes responsable de l’apporter au monde et de renforcer la lumière dans le monde. Comment faites-vous cela ? Dans toutes les belles façons dont vous vous exprimez, dans toutes les belles prières que vous envoyez à Dieu et dans la belle lumière de votre âme qui s’élargit et grandit toujours dans l’Amour. Ce sont les voies que vous devez soutenir et vous avez la responsabilité de le faire parce que vous connaissez la vérité et que vous vivez la vérité.
+
+Nous sommes donc avec Dieu dans ces moments, apportant une plus grande lumière. Ensemble, vous êtes un grand canal de lumière. Ensemble, cette lumière est utilisée pour bénir beaucoup d’autres, dont beaucoup vous ne connaissez pas et beaucoup dont vous êtes conscients. Mais en effet, alors que ce treillis de lumière continue de grandir et que vous continuez à aider à renforcer et à éclairer ce treillis, tant de personnes sont touchées par vos prières. Car chaque personne qui prie et fait partie de ce grand treillis renforce ce treillis en lumière, en amour et en bénédictions, afin que d’autres qui ne prient pas en ce moment puissent en bénéficier. Lorsque vous ne priez pas, vous pouvez en bénéficier, car partout dans le monde, ces belles âmes qui contribuent continuent à ajouter à la gloire de cette structure, cette bénédiction de Dieu.
+
+Mes amis bien-aimés, il est si important de mettre Dieu en premier, de mettre le bien-être de votre âme en premier. De cette façon, toutes les autres choses, y compris la bénédiction de la lumière, viendront en plus grande abondance, comme vous le savez, ressentez et recevez le grand don de Son Amour. Je vous encourage, mes chers et beaux amis, à être une lumière, à être vraiment une lumière dans le monde. Car c’est le service le plus bénéfique que vous puissiez rendre à l’humanité dans son ensemble, car l’obscurité règne en maître dans votre monde. Pourtant, la lumière continue de pénétrer dans des poches ici et là. Au fur et à mesure que davantage de personnes s’abonneront à la lumière, les endroits où la lumière existe s’intensifieront et, avec le temps, le monde sera converti et transformé de l’obscurité à la lumière. Jouez votre rôle, âmes bien-aimées, et vous serez grandement récompensées pour vos efforts, pour les bénédictions que vous portez. Vous êtes les émissaires de Dieu, les canaux de la lumière.
+
+Que Dieu vous bénisse. Je suis Anne Rollins. Je suis heureuse de vous parler aujourd’hui. Âmes de lumière bien-aimées, poursuivez vos efforts et nous serons avec vous. Car la lumière attire la lumière. La loi de l’attraction fonctionne toujours et, dans ce cas, elle vous sera d’un grand bénéfice. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse.

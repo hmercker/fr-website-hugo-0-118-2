@@ -9,7 +9,7 @@ weight:
 ---
 ### Écoutez votre propre âme plutôt que les conseils des autres
 
-Augustin par Albert Fike le 11 Janvier 2025, St Michael, La Barbade.
+Augustin - reçu par Albert Fike le 11 Janvier 2025, St Michael, La Barbade.
 
 Je vous exhorte à ne pas écouter ni à tenir compte des conseils des autres, mais à vous tourner vers votre propre âme et à écouter la vérité et la sagesse qui en émanent. Trop souvent, sur votre plan terrestre, vous êtes entraîné dans ce que les autres ont à dire. Parce qu’ils parlent avec autorité et confiance, vous croyez et vous en venez à penser qu’ils savent. En effet, beaucoup ont des bribes de vérité en eux et les partageront avec les autres, s’ils le souhaitent. Mais en fait, vous avez aussi des bribes de vérité en vous.
 
