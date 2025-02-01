@@ -117,6 +117,7 @@ Mylora | [Respectez les dispositions de la Terre Mère](/fr-contemporary-message
 St Luc | [Force de la substance du Créateur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-12-2-mc-st-luke/) | 12 Septembre 2024
 Fleur de Lotus | [Votre état spirituel et son effet sur les cercles de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-10-1-mc-lotus-blossom/) | 10 Octobre 2024
 Fleur de Lotus | [L'espoir dans chaque âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-8-2-mc-lotus-blossom/) | 8 Décembre 2024
+Keea-atta-Kem | [Orientation concernant la retraite de développement pour vraiment reconnaître les murmures de Dieu dans vos âmes ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-12-2-mc-keea-atta-kem/) | 12 Janvier 2025
 
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

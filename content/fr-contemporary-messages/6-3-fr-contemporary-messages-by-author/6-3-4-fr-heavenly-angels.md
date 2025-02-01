@@ -105,6 +105,7 @@ Grace Jordan | [Confirmation du message de Barbara_2](/fr-contemporary-messages/
 Grace Jordan | [ Grace dit la vérité à son fils ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-29-1-af-grace-jordan/) | 29 Juin 2024
 Grace Jordan | [La mère de David vient partager son histoire ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-9-2-af-grace-jordan/) | 9 Juillet 2024
 Grace Jordan | [Préparez-vous pour ce temps ensemble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-11-2-af-grace-jordan/) | 11 Janvier 2025
+Isabelle | [Se présente comme la guide de Sonja pour son anniversaire ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-16-2-af-isabel/) | 16 Janvier 2025
 James Tudor Sr. | [Laissez les morts enterrer les morts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-21-2-af-james-tudor-sr/) | 21 Janvier 2024
 Jane | [La route magique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-11-17-1-ks-jane/) | 17 Novembre 2002
 Laila | [Marchez chaque jour dans Sa lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-19-3-af-laila/) | 19 Mai 2017
