@@ -35,7 +35,7 @@ Orion | [Nos efforts au service de Dieu et des anges sont cruciaux en ce moment]
 Leslie Stone | [Nous encourage à poursuivre le travail de James Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-16-1-af-leslie-stone/) | 16 Janvier 2025
 Isabelle | [Se présente comme la guide de Sonja pour son anniversaire ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-16-2-af-isabel/) | 16 Janvier 2025
 James Padgett | [Vient remettre en question notre façon de penser sur la manière d'apporter des vérités divines au monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-16-3-af-james-padgett/) | 16 Janvier 2025
-Care darby Walsh | [Ma vie de prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-20-1-af-care-darby-walsh/) | 20 Janvier 2025
-Claire d'Assise | [Prière et sanctuaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-23-1-af-clare-of-assisi/) | 23 Janvier 2025
+Care Darby Walsh | [Ma vie de prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-20-1-jw-care-darby-walsh/) | 20 Janvier 2025
+Claire d'Assise | [Prière et sanctuaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-23-1-jw-clare-of-assisi/) | 23 Janvier 2025
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

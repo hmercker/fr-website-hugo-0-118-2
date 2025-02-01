@@ -62,7 +62,7 @@ Claire d'Assise | [Toutes choses conspirent pour votre bonheur dans l’Amour de
 Claire d'Assise | [Nous nous réjouissons en vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-18-1-jw-clare-of-assisi/) | 18 Avril 2024
 Claire d'Assise | [Le silence est d'or ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-16-1-jw-clare-of-assisi/) | 16 Septembre 2024
 Claire d'Assise | [La forme la plus haute de la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-23-1-jw-clare-of-assisi/) | 23 Septembre 2024
-Claire d'Assise | [Prière et sanctuaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-23-1-af-clare-of-assisi/) | 23 Janvier 2025
+Claire d'Assise | [Prière et sanctuaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-23-1-jw-clare-of-assisi/) | 23 Janvier 2025
 Elizabeth Ashbridge | [Une quaker de l'Amérique coloniale](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-1-8-2-fab-elizabeth-ashbridge/) | 8 Janvier 2009
 Francis Fenelon | [Instruction pour les débutants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-55-1969-anonymous-francis-fenelon/) |   1969
 Frederick T. Gates | [Un collègue de John D. Rockefeller SR. confirme son channeling](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-16-1-fab-frederick-t-gates/) | 16 Mars 2013
