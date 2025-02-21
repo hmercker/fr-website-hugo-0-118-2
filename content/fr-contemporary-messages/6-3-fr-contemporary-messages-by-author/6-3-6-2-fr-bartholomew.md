@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### Bartholomée
+### Bartholomée (Barthélémy) - Nathanaël
 
 Dans son message du [13 Janvier 2024](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-13-1-af-st-bartholomew/), Bartholomée se présente ainsi *« Je m’appelle Bartholomée et je viens du Royaume Céleste, loin de cet endroit. Je suis Africain d’origine. Ma peau est noire. J’ai eu l’expérience d’un Africain vivant au temps de Jésus. J’ai voyagé et rencontré le Maître alors qu’il était sur Terre. »*
 
@@ -28,3 +28,6 @@ Bartholomée | [Parle sérieusement de l’avenir de l’Amour Divin à la Barba
 Bartholomée | [Vous connaîtrez le but et la raison de ce cercle ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-27-1-em-bartholomew/) | 27 Juin 2024
 Bartholomée | [Notre objectif à la Barbade ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-3-1-af-bartholomew/) | 3 Janvier 2025
 Bartholomée| [Bartholomée continue de nous aider à trouver notre objectif ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-10-1-af-bartholomew/) | 10 Janvier 2025
+Barthélémy | [Nous invite à l'unité avec Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-19-1-af-bartholomew/) | 19 Janvier 2025
+Nathanaêl | [Les Royaumes Spirituels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-27-1-JW-nathanaêl/) | 27 Janvier 2025
+

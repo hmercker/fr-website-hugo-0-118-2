@@ -11,7 +11,7 @@ weight:
 
 Hafiz - reçu par Jimbeau Walsh le 08 Septembre 2024, Nashville, Tennessee, Etats Unis
 
-Oh là là ! Que pensera le monde de vous ? Chacun est enfermé dans sa petite boule d’autolimitation Tournant sans fin sur son propre axe, ignorant la place qui lui revient dans le firmament des corps Célestes.
+Oh là là ! Que pensera le monde de vous ? Chacun est enfermé dans sa petite boule d’autolimitation, tournant sans fin sur son propre axe, ignorant la place qui lui revient dans le firmament des corps Célestes.
 
 Pourquoi perdre son temps en spéculations sans fin, en considérations inutiles sur ce que pense le monde ?
 

@@ -115,3 +115,4 @@ Kea Atta Kem | [L'importance de la communion de l’Amour Divin ](/fr-contempora
 Keea atta Kem | [Les bénédictions de Dieu sont partout ! ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-25-1-af-keea-atta-kem/) | 25 Octobre 2024
 Kea Atta Kem | [Bénédictions spéciales de grande joie ! ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-18-1-af-kea-atta-kem/) | 18 Décembre 2024
 Keea-atta-Kem | [Orientation concernant la retraite de développement pour vraiment reconnaître les murmures de Dieu dans vos âmes ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-12-2-af-keea-atta-kem/) | 12 Janvier 2025
+Kea atta Kem | [Nous invite à l'unité avec Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-19-3-mc-kea-atta-kem/) | 19 Janvier 2025
