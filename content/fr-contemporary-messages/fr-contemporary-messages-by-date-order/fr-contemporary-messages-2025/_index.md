@@ -35,20 +35,24 @@ Orion | [Nos efforts au service de Dieu et des anges sont cruciaux en ce moment]
 Leslie Stone | [Nous encourage à poursuivre le travail de James Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-16-1-af-leslie-stone/) | 16 Janvier 2025
 Isabelle | [Se présente comme la guide de Sonja pour son anniversaire ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-16-2-af-isabel/) | 16 Janvier 2025
 James Padgett | [Vient remettre en question notre façon de penser sur la manière d'apporter des vérités divines au monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-16-3-af-james-padgett/) | 16 Janvier 2025
-Barthélémy | [Nous invite à l'unité avec Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-19-1-af-bartholomee/) | 19 Janvier 2025
+Barthélémy | [Nous invite à l'unité avec Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-19-1-af-bartholomew/) | 19 Janvier 2025
 Jésus | [Bénédiction pour le groupe de développement de la Barbade ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-19-2-af-jesus/) | 19 Janvier 2025
-Kea atta Kem | [Nous invite à l'unité avec Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-19-3-mc-kea-atta-kem/) | 19 Janvier 2025
+Keea atta Kem | [Nous invite à l'unité avec Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-19-3-mc-keea-atta-kem/) | 19 Janvier 2025
 Care Darby Walsh | [Ma vie de prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-20-1-jw-care-darby-walsh/) | 20 Janvier 2025
 Faith Nyquist | [L'humilité et la foi grandissent à mesure que vous recevez l'amour divin dans votre âme ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-22-1-af-faith/) | 22 Janvier 2025
 Claire d'Assise | [Prière et sanctuaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-23-1-jw-clare-of-assisi/) | 23 Janvier 2025
 Judas | [La persévérance au-delà du rituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-24-1-jw-judas/) | 24 Janvier 2025
 Grace Jordan | [Exprime sa gratitude pour la retraite Starpoint ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-26-1-af-grace-jordan/) | 26 Janvier 2025
 Fleur de Lotus | [Décrit la transformation de l'âme avec l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-26-2-mc-lotus-blossom/) | 26 Janvier 2025
-Nathanaël | [Les Royaumes Spirituels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-27-1-JW-nathanaêl/) | 27 Janvier 2025
-St Matthieu | [Il est temps pour vous de trouver votre but et de rencontrer votre destinée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-28-3-af-st-matthew/) | 28 Janvier 2025
-Claire d'Assise | [Le cercle des cœurs ouverts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-12-3-jw-clare-of-assisi/) | 12 Février 2025
+Nathanaël | [Les Royaumes Spirituels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-27-1-jw-nathanael/) | 27 Janvier 2025
+St Matthieu | [Il est temps pour vous de trouver votre but et de rencontrer votre destinée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-28-1-af-st-matthew/) | 28 Janvier 2025
+Jésus | [Souligne l'importance de notre travail pour son ministère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-30-1-af-jesus/) | 30 Janvier 2025
+Barthélémy | [Les prières à utiliser dans le service offrent des opportunités de croissance et d'apprentissage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-5-1-af-bartholomew/) | 5 Février 2025
+Claire d'Assise | [Le cercle des cœurs ouverts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-12-1-jw-clare-of-assisi/) | 12 Février 2025
+Faith | [Désir d'avoir des anges et des guides avec vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-13-1-mc-faith/) | 13 Février 2025
 François d'Assise | [Créer un sanctuaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-15-1-jw-francis-of-assisi/) | 15 Février 2025
 Jésus | [Déposer votre amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-17-1-jw-jesus/) | 17 Février 2025
+Judas | [Ceci est le chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-25-1-jw-judas/) | 25 Février 2025
 
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

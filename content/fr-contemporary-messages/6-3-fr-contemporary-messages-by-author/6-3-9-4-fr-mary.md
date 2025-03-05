@@ -136,6 +136,7 @@ Marie | [Vous servez le Ciel et la Terre](/fr-contemporary-messages/fr-contempor
 Marie | [Gardez votre cœur ouvert](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-25-1-mc-mary/) | 25 Août 2024
 Marie | [Veille sur Parkin House](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-29-1-em-mary/) | 29 Septembre 2024
 Marie | [Nous sommes tous les enfants de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-15-2-af-mary/) | 15 Octobre 2024
+Marie | [Apporte au Cercle de Lumière d’aujourd’hui une bénédiction de paix profonde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-19-2-af-mary/) | 19 Novembre 2024
 Marie | [Bénédiction de la veille de Noël pour le monde ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-24-2-af-mary/) | 24 Décembre 2024
 Marie | [Travaille avec Bartholomée pour apporter un doux équilibre à sa main robuste ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-10-2-af-mary/) | 10 Janvier 2025
 Marie | [Préparez-vous avec diligence afin que les anges qui portent la grâce de Dieu puissent venir plus facilement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-15-2-af-marie/) | 15 Janvier 2025

@@ -64,8 +64,9 @@ Pierre | [La connexion de votre âme avec Dieu est la partie la plus importante 
 Jeanne d'Arc | [Vous ne savez pas à quel point vous êtes bénis, je serai avec vous à chaque étape du chemin ! ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-16-1-em-joan-of-arc/) | 16 Février 2024
 Jeanne d'Arc | [Prier ensemble illumine le monde ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-18-3-em-joan-of-arc/) | 18 Février 2024
 Anna et Jeanne d'Arc | [Cette lumière atteint des coins qu'elle n'a jamais atteints auparavant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-19-1-em-anna-and-joan-of-arc/) | 19 Février 2024
+Pierre | [Ce que vous faites aujourd’hui touchera beaucoup de personnes ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-21-1-em-peter/) | 21 Février 2024
 Jeanne d'Arc | [Instruction sur la façon d’ÊTRE ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-22-1-em-joan-of-arc/) | 22 Février 2024
-Jean Hugues | [Rejoignez la fête de prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-25-2-em-john-hugues/) | 25 Février 2024
+Jean Hugues | [Rejoignez la fête de prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-25-1-em-john-hugues/) | 25 Février 2024
 Archange Michaël et Luc | [Guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-26-2-em-archangel-michael-and-luke/) | 26 Février 2024
 Marie | [Un don de guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-7-1-em-mary/) | 7 Mars 2024
 Jean le Bien Aimé | [Apprenez à connaître vos propres capacités](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-8-2-em-john-the-beloved/) | 8 Mars 2024

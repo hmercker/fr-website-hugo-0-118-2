@@ -40,5 +40,12 @@ Jésus | [Expiation avec Dieu](/fr-contemporary-messages/fr-contemporary-message
 Jésus | [Votre lumière peut aider Dieu à briser des générations de ténèbres dans le monde ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-6-1-af-jesus/) | 6 Octobre 2024
 Jésus | [Bénédiction profonde pour le Treillis de Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-20-2-af-jesus/) | 20 Octobre 2024
 Jésus | [Jésus nous emmène dans la salle de la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-27-2-af-jesus/) | 27 Octobre 2024
+Jésus | [Demandez pour moi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-3-1-af-jesus/) | 3 Novembre 2024
+Jésus | [Vos prières apportent une plus grande lumière au monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-10-1-af-jesus/) | 10 Novembre 2024
+Jésus | [Bénédiction pour le Cercle de Lumière en Ligne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-1-1-af-jesus/) | 1 Décembre 2024
+Jésus | [Exaltez-vous dans l’amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-10-2-af-jesus/) | 10 Décembre 2024
+André et Jésus | [Il y a encore tant à faire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-13-1-af-andrew-and-jesus/) | 13 Décembre 2024
+Jésus, Fleur de Lotus et Aaron | [Bénédictions d’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-15-1-af-jesus-aaron-and-lotus-blossom/) | 15 Décembre 2024
+Augustin, Jeanne d'Arc, Jésus  et Mathieu | [Guidance pour le Cercle de Lumière de l'Amour Divin francophone](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-20-2-af-augustine-joan-of-arc-jesus-and-matthew/) | 20 Décembre 2024
 Jésus | [Bénédiction de la veille de Noël pour le monde ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-24-1-af-jesus/) | 24 Décembre 2024
 Jésus | [Bénédiction de la veille du Nouvel An](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-31-1-af-jesus/) | 31 Décembre 2024

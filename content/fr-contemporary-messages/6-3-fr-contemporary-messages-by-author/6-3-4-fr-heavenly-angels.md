@@ -59,6 +59,7 @@ Fleur de Lotus | [Nous sommes à la fois récepteurs et donneurs](/fr-contempora
 Fleur de Lotus | [Ouvre la retraite de Marmora pour les canaux de lumière dans le monde ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-27-1-af-lotus-blossom/) | 27 Septembre 2024
 Fleur de Lotus | [Votre état spirituel et son effet sur les cercles de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-10-1-mc-lotus-blossom/) | 10 Octobre 2024
 Fleur de Lotus | [L'espoir dans chaque âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-8-2-mc-lotus-blossom/) | 8 Décembre 2024
+Jésus, Fleur de Lotus et Aaron | [Bénédictions d’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-15-1-af-jesus-aaron-and-lotus-blossom/) | 15 Décembre 2024
 Fleur de Lotus | [Décrit la transformation de l'âme avec l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-26-2-mc-lotus-blossom/) | 26 Janvier 2025
 Goldie | [S'exprimer en tant qu'enseignant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-7-1969-3-25-anonymous-goldie/) | 25 Mars 1969
 Goldie | [Vous ne pouvez grandir que pas à pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-34-1969-11-1-anonymous-goldie/) | 1 Novembre 1969
@@ -170,6 +171,7 @@ Mylora | [Commentaires sur les niveaux de guérison ](/fr-contemporary-messages/
 Mylora | [Guérison administrée au Cercle de La Barbade](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-14-3-af-mylora/) | 14 Janvier 2024
 Mylora | [La paix qui dépasse toute intelligence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-12-1-af-mylora/) | 12 Juillet 2024
 Mylora | [Respectez les dispositions de la Terre Mère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-6-1-mc-mylora/) | 6 Septembre 2024
+Mylora |[Bénédiction de guérison pour le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-6-1-af-mylora/) | 6 Décembre 2024
 Mylora | [Bénédiction de guérison pour la Terre ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-3-3-af-mylora/) | 3 Janvier 2025
 Naari et Jésus | [Se présente comme l'un des anges Célestes anonymes qui viennent nous administrer à tous la guérison, la bénédiction de la guérison ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-7-2-af-naari-and-jesus/) | 7 Mai 2024
 Ophélius | [La couleur dans la mosaïque de la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-9-4-1-chris-ophelius/) | 4 Septembre 2011

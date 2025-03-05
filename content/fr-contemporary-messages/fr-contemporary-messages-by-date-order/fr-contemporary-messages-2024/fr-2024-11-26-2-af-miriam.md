@@ -1,0 +1,28 @@
+---
+title: "Continuez à être une lumière dans le monde de Dieu"
+menu_title: ""
+description: "Continuez à être une lumière dans le monde de Dieu"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Continuez à être une lumière dans le monde de Dieu
+
+Miriam - reçu par Albert Fike le 26 Novembre 2024, Sechelt, Colombie-Britannique, Canada
+
+Que les bénédictions de Dieu remplissent vos âmes, afin qu’elles débordent d’Amour. Je m’appelle Miriam. Vous me connaissez sous le nom de Miriam dans la Bible. Je suis une habitante céleste, un ange de Dieu et je suis dans le Royaume depuis très longtemps. Mais cela ne signifie pas que j’ai oublié mes frères et sœurs sur le plan terrestre, car je continue à prier pour vous tous et, parfois, je viens sur la sphère terrestre pour vous aider et vous servir.
+
+Je suis l’un des millions d’anges qui continuent à faire l’œuvre de Dieu, à apporter les bénédictions de Dieu à chacun d’entre vous, à vous élever, à vous protéger, à vous guider, à vous aimer et à vous embrasser. Car vous êtes des âmes tendres et vulnérables qui continuent à marcher sur une route contraire à ce qui est commun dans votre monde. Je vous encourage à suivre cette voie, car comment le changement peut-il être accompli autrement que par les efforts, les pensées, les actes et les prières d’individus déterminés à apporter la lumière et, lorsqu’ils reconnaissent la vérité, déterminés à vivre la vérité ?
+
+Nous l’avons fait sur le plan terrestre lorsque nous y étions, en suivant les enseignements de la vérité, en étant aimants et en étant des lumières dans le monde. Je vous encourage donc à faire de même, car il y a toujours un courant d’obscurité. Il y a toujours des oppresseurs. Il y a toujours un élément qui fomente la colère, la haine et la peur. Telle est la condition humaine et vous la connaissez bien. Il est important que vous soyez en contradiction avec cela. Que vous continuiez à être une lumière, rayonnant pour que le monde entier la voie, afin que ceux qui sont dans le besoin et ceux qui sont perdus puissent trouver du réconfort dans votre lumière, puissent être bénis par votre canal d’amour, tandis que Dieu utilise chacun d’entre vous pour soutenir vos frères et sœurs.
+
+Il y a tant de travail à faire, mes bien-aimés. Avez-vous une idée de l’importance d’affirmer votre dévouement à Dieu, d’être cette lumière et ce phare de vérité dans le monde, d’être aimant envers tous ceux que vous rencontrez et d’être aimant envers vous-mêmes ? Car lorsque vous êtes centrés sur l’amour, lorsque vous êtes vraiment une lumière, solide et en alignement avec Dieu, oh, combien les bénédictions peuvent être puissantes, combien de choses peuvent être accomplies à travers vous pour aider à contredire l’obscurité et apporter une plus grande lumière au monde.
+
+Je vous demande de ne pas faiblir, âmes bien-aimées, mais d’être fidèles à tout ce qui est bon et lumineux. Vous avez autour de vous de nombreux beaux esprits brillants, des anges et même ceux d’autres mondes. Quel grand groupe d’esprits de lumière entoure chacun de vous. Quelle bénédiction vous avez d’avoir cela et d’en bénéficier. Le monde a plus que jamais besoin de vous. C’est pourquoi Dieu vous envoie tant de beaux esprits, afin que vous soyez soutenus, bénis, inspirés et qu’il vous soit donné beaucoup de lumière et d’expansion, vous protégeant et vous inspirant. Je viens vous élever, mes bien-aimés. Je suis souvent avec vous. Même si vous ne me connaissez peut-être pas, je suis l’un des nombreux qui sont avec vous et qui s’efforcent de vous soutenir.
+
+Dieu veille à ce que vous ne soyez jamais seul. Dieu veille à ce que la lumière soit toujours autour de vous. Je vous exhorte à faire ce choix de la lumière à chaque respiration, à chaque pensée, à chaque acte, à tout ce que vous êtes et à tout ce que vous faites. Soyez une lumière. C’est possible pour vous. En faisant ce choix, vous nous rapprochez par la Loi de l’Attraction, par les bienfaits de votre âme rayonnante d’Amour. Vous nous rapprochez et vous ressentez ce sentiment, ce sentiment d’élévation et vous êtes en paix.
+
+Que les bénédictions de Dieu continuent de vous soutenir, âmes bien-aimées. En cela, vous saurez à quel point vous êtes vraiment bénis, que vos vies soient peuplées d’anges, beaux et brillants, d’esprits brillants dont les intentions sont pures et des plus élevées, d’êtres magnifiques qui existent dans d’autres mondes et qui font de grands efforts pour soutenir le vôtre. Dieu donne tant à Ses enfants bien-aimés, car Il vous aime tant. Tout ce qu’Il ​​fait est pour votre bien et une grande bénédiction pour tous ceux qui sont réceptifs. Le monde est en train d’être guéri des ténèbres et de toutes les profanations que l’humanité lui a faites. Le monde est en train de s’élever comme vous, bien-aimés, et il trouvera l’harmonie et la paix avec le temps.
+
+Ayez foi en cela. Ayez foi en votre propre cheminement vers Dieu et vous serez bénis et récompensés par beaucoup de lumière, de joie, d’amour et de paix. Cela vous est donné et vous sera donné dans une plus grande mesure à mesure que vous recherchez cette bénédiction de l’Amour et trouvez votre place auprès de Dieu. Que Dieu vous bénisse. Je suis Miriam et je vous aime, chacun étant précieux pour Dieu, précieux pour les anges et précieux pour beaucoup. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse dans Son Amour, toujours.

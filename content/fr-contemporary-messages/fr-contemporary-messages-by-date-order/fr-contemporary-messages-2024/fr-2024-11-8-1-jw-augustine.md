@@ -1,0 +1,26 @@
+---
+title: "Soyez une lumière et ne vous laissez pas emporter par les ténèbres et les troubles du monde"
+menu_title: ""
+description: "Soyez une lumière et ne vous laissez pas emporter par les ténèbres et les troubles du monde"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Soyez une lumière et ne vous laissez pas emporter par les ténèbres et les troubles du monde
+
+Augustin - reçu par Albert Fike le 08 Novembre 2024, Sechelt, Colombie-Britannique, Canada
+
+Le monde a besoin de vous, âmes bien-aimées. Je suis votre professeur, Augustin. Le monde continue de languir dans l’erreur et dans une obscurité pitoyable où les conditions de l’humanité prospèrent dans des situations et des relations qui manquent d’amour, des relations et des conditions qui sont plus préoccupées par le gain matériel, le pouvoir et le contrôle que par l’amour, l’ouverture et la générosité. Oui, les gens font de leur mieux pour mener une vie harmonieuse, mais en effet, le miasme général des ténèbres autour de la Terre continue d’influencer et de dégrader cette intention au point que beaucoup souffrent.
+
+Il est important que vous priiez pour la lumière, pour votre monde. Que vous continuiez à absorber la lumière de l’Amour du Père dans vos âmes. Que vous puissiez être une lumière. Chacun de vous est nécessaire. Chacun de vous est un important générateur de lumière et peut être un puissant canal d’amour dans le monde. Il vous appartient de rejeter la condition humaine et tout ce qu’elle implique et d’adopter la vérité et tout ce qui est vérité, afin que vous puissiez marcher dans le monde sans les inhibitions et les entraves, comme le suggère notre fils bien-aimé, qui vous éloignent de la lumière et de la vérité. Que vous puissiez connaître une joie jaillissant dans vos âmes qui éclairera chaque instant de votre vie, tout ce que vous vivez, tout ce que vous percevez. Que vous êtes vraiment l’enfant de Dieu dans la vérité de l’Amour de Dieu, une expression de l’Amour touchant chaque partie de votre vie, chaque aspect de votre être, un reflet de ce grand don que Dieu donne à chacun de vous.
+
+N’abandonnez pas votre voyage et ne vous compromettez pas dans le voyage de l’effort humain qui insiste pour que vous abandonniez Dieu et adoptiez la volonté et l’expression de l’homme. C’est un choix de le faire et c’est vraiment un défi de le faire. Car il est plus facile de suivre le courant de la pensée et de la condition humaine que de s’en détacher et d’être dans la vérité, l’harmonie et la grâce qui sont la volonté de Dieu et la création de Dieu. Votre âme sait comment être et agir de cette manière. Je vous demande donc d’écouter cette partie profonde de vous-même, de comprendre ce que cela implique et de travailler, de vous épanouir et de faire de grands efforts pour être dans la vérité, la grâce et l’harmonie qui sont l’amour de Dieu exprimé à travers vous et en vous.
+
+Oui, il y a tant de choses à régler dans votre monde et en lui. Je vous demande de ne pas vous laisser entièrement emporter par la vision des défauts et des conditions qui sont si évidentes et si sombres que cela est bouleversant et très préoccupant. Lorsque vous voyez ces choses et que vous ressentez cela, tournez votre attention vers Dieu et demandez-lui de bénir et d’apporter l’harmonie à tout ce qui est de ténèbres, plutôt que de ressentir, de connaître et d’assumer le fardeau de ces ténèbres. Demandez à Dieu, votre Créateur, de bénir tout ce qui est dans notre monde et d’apporter les ténèbres à la lumière. Demandez à Dieu de vous bénir, afin que vous n’ayez pas de jugements profonds, de souffrances et de préoccupations qui ne soient pas imprégnés de lumière et d’amour, car c’est la lumière et l’amour qui seront l’antidote à ces choses.
+
+Lorsque vous êtes guidés pour être un instrument de changement, pour faire un petit effort pour aider à changer les conditions en une plus grande lumière, alors je vous invite à écouter les conseils de Dieu et à marcher sur le chemin de l’amour avec un dévouement, une foi et une force profonds. Oui, il y a beaucoup de choses qui ont besoin de guérison et d’élévation dans votre monde. Je vous exhorte à vous adresser à Dieu dans la prière pour rechercher les moyens par lesquels Il peut vous utiliser pour la guérison et les efforts pour apporter l’harmonie et la lumière. C’est un acte de foi, un acte de compréhension de la vérité, un acte d’humilité et un acte de grâce.
+
+Lorsque votre esprit est pleinement engagé dans le jugement, alors vous obstruez le flux d’Amour, de grâce et de lumière à travers vous. Permettez au flux d’être sans entrave et soyez dans cette harmonie qui est la vérité, qui est la lumière. Que vous soyez bénis, âmes bien-aimées. Je suis ton professeur, Augustin, et je t’invite à avancer dans la lumière. Je t’invite à être une lumière et à apporter la lumière dans tout ce que tu es et dans tout ce que tu fais.
+
+Que Dieu vous bénisse, âmes bien-aimées. Ton professeur, Augustin, vous aime et est avec vous tous les jours de votre vie. J’ai un rôle à jouer, une prière à faire et un effort à faire. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse.

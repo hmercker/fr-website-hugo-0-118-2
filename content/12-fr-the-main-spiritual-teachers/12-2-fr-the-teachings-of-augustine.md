@@ -339,9 +339,13 @@ Augustin-Jésus | [Une leçon sur la prise de décision harmonieuse, continue de
 Augustin | [Les solutions à vos problèmes viennent avec la foi ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-12-5-af-augustine/) | 12 Septembre 2024
 Augustin | [Questions et réponses lors de la retraite du State College](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-25-1-af-augustine/) | 25 Septembre 2024
 Augustin | [La conscience de Dieu est consciente de tout dans sa création ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-1-1-af-augustine/) | 1 Octobre 2024
+Augustin | [Encourage l’engagement envers la pratique claire de l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-8-1-af-augustine/) | 8 Octobre 2024
+Augustin | [Vous êtes l’espoir du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-14-2-af-augustine/) | 14 Octobre 2024
 Augustin | [Les obstacles à la vie avec Dieu sont en vous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-27-1-af-augustine/) | 27 Octobre 2024
+Augustin | [Soyez une lumière et ne vous laissez pas emporter par les ténèbres et les troubles du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-8-1-jw-augustine/) | 8 Novembre 2024
 Augustin | [Leçon sur le suivi des directives](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-18-2-af-augustine/) | 18 Novembre 2024
 Augustin | [Les illusions de votre mental se dissoudront avec la progression de l'âme ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-30-1-af-augustine/) | 30 Novembre 2024
+Augustin, Jeanne d'Arc, Jésus  et Mathieu | [Guidance pour le Cercle de Lumière de l'Amour Divin francophone](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-20-2-af-augustine-joan-of-arc-jesus-and-matthew/) | 20 Décembre 2024
 Augustin | [Votre capacité à recevoir des conseils s'approfondit ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-21-1-af-augustine/) | 21 Décembre 2024
 Augustin | [Écoutez votre propre âme plutôt que les conseils des autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-11-1-af-augustine/) | 11 Janvier 2025
 

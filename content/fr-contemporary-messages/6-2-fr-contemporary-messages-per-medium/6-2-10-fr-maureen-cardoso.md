@@ -118,6 +118,10 @@ St Luc | [Force de la substance du Créateur](/fr-contemporary-messages/fr-conte
 Fleur de Lotus | [Votre état spirituel et son effet sur les cercles de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-10-1-mc-lotus-blossom/) | 10 Octobre 2024
 Fleur de Lotus | [L'espoir dans chaque âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-8-2-mc-lotus-blossom/) | 8 Décembre 2024
 Keea-atta-Kem | [Orientation concernant la retraite de développement pour vraiment reconnaître les murmures de Dieu dans vos âmes ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-12-2-mc-keea-atta-kem/) | 12 Janvier 2025
+Keea atta Kem | [Nous invite à l'unité avec Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-19-3-mc-keea-atta-kem/) | 19 Janvier 2025
+Fleur de Lotus | [Décrit la transformation de l'âme avec l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-26-2-mc-lotus-blossom/) | 26 Janvier 2025
+
+Faith | [Désir d'avoir des anges et des guides avec vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-13-1-mc-faith/) | 13 Février 2025
 
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

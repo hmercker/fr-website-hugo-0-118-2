@@ -143,4 +143,5 @@ André | [Continuez à prier, à renforcer, à étendre les portails et le rése
 André | [Pour l'instant, apprenez grâce à vos capacités mentales, aimez grâce à vos capacités d'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-26-1-em-andrew/) | 26 Juin 2024
 André | [Vous avez un impact ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-18-1-af-andrew/) | 18 Septembre 2024
 André | [Dieu ouvre la porte à la communication d’en haut](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-12-1-af-andrew/) | 12 Octobre 2024
+André et Jésus | [Il y a encore tant à faire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-13-1-af-andrew-and-jesus/) | 13 Décembre 2024
 André | [Continuez à rechercher les bénédictions de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-12-1-af-andrew/) | 12 Janvier 2025

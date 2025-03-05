@@ -1,0 +1,31 @@
+---
+title: "Le fondateur de la religion sikh apporte inspiration et conseils des Cieux Célestes"
+menu_title: ""
+description: "Le fondateur de la religion sikh apporte inspiration et conseils des Cieux Célestes"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Le fondateur de la religion sikh apporte inspiration et conseils des Cieux Célestes
+
+Guru Nanak - reçu par Albert Fike le 15 Novembre 2024, Sechelt, Colombie-Britannique, Canada
+
+Je suis avec vous. Je suis Guru Nanak. Mon cher ami ici croit que je ne suis pas un esprit Céleste. Malheureusement, il se trompe. Je suis en effet un membre du Royaume Céleste et je continue à progresser dans l’amour de l’âme. En effet, tout esprit progressiste qui recherche le plus grand don, la bénédiction et la croissance spirituelle continue, doit faire ce choix, de marcher sur le chemin de ceux qui sont raffinés dans leur condition humaine et de ceux qui souhaitent progresser davantage grâce à la transformation de l’âme. J’ai donc choisi la voie de l’amour et la voie de l’expansion et de la progression de ma propre âme dans l’amour.
+
+Je vous remercie de m’honorer en ce jour, comme beaucoup le font, même si je ne recherche pas cet honneur. Je souhaite simplement que tous reconnaissent le grand don de l’Amour de Dieu comme la plus grande bénédiction de tout l’univers. En mon temps, j’ai aussi honoré le chemin de Jésus et le chemin de beaucoup d’autres, car il faut des hommes et des femmes spirituels pour parcourir le chemin de la lumière, pour enseigner la sagesse de l’esprit et de l’âme afin d’élever l’humanité.
+
+Je vous exhorte tous à devenir des enseignants, des guérisseurs, des lumières pour Dieu. Car sans vous, le monde reste perdu. En effet, ceux qui suivent des religions strictes et limitées dans leur pensée ont besoin de réformateurs, de ceux qui remettent en question le statu quo, comme je l’ai fait à mon époque. Oui, de nouvelles religions se formeront peut-être, mais plus important encore, les âmes individuelles seront libérées des contraintes d’une pensée et d’une perspective limitées. L’univers est un très grand lieu, rempli de nombreuses vérités. En effet, il est courant que les individus recherchent le réconfort de quelque chose qui est à la fois limitatif et réconfortant dans ses limites. Je vous le dis, cela vient de l’esprit, qui cherche du réconfort dans des idées répétitives et parfois quelque peu archaïques. Pourtant, avec la nature illimitée de l’univers, n’est-il pas compréhensible et même raisonnable de penser que chaque âme peut progresser sans limite ?
+
+Vous avez trouvé le moyen d’y parvenir, mes amis. J’ai trouvé le moyen et beaucoup ont trouvé le moyen. En fait, des millions ont trouvé le moyen et ils habitent le Royaume Céleste. Ils sont mes frères et sœurs. Vous, sur le plan terrestre, avez un peu plus de mal à apporter cette vérité aux autres. Ils n’aiment pas les idées limitées de nombreuses églises Chrétiennes, leur dogme, leur comportement et leur jugement. Vous apportez une solution à cela avec les bras ouverts de l’amour, avec l’acceptation de tous et avec la liberté pour chaque individu de poursuivre son propre chemin vers Dieu. En effet, vous possédez en chacun de vous l’Amour de Dieu qui brille là, une Essence de Lumière éclatante, qui brille au plus profond de votre être. Ce joyau inestimable continue de devenir toujours plus beau, resplendissant de lumière.
+
+Lorsque vous marchez dans la rue, lorsque vous rencontrez d’autres personnes, ne cachez pas cette lumière, mais engagez les autres dans une répartie aimante, en étant un canal de lumière et parfois même en parlant de cette vérité que vous connaissez si bien. Vous ne savez pas quels effets vous pourriez avoir sur les autres. Pensez-vous que l’un d’entre nous qui étions des leaders spirituels a commencé avec de grandes foules désireuses d’entendre nos paroles ? Non, nous avons commencé très petit. Nous avons suivi nos conseils. Nous avons entendu la Voix de Dieu dans notre oreille et nous avons parcouru le chemin le moins fréquenté. Nous étions des enseignants et des guérisseurs. Nous étions des êtres de lumière et d’amour.
+
+C’est ce que je vous demande, mes amis. Soyez ce rayon de lumière, cette âme belle et resplendissante remplie de sagesse, de connaissance et d’amour. Le monde a besoin de vous. Le monde a besoin de chacun d’entre vous et plus encore. Ne mettez pas de côté ce sentiment que Dieu met en vous pour vous aventurer et être Ses instruments et canaux d’amour. Vous constaterez que de nombreuses bénédictions couleront. Beaucoup vous seront données. En effet, vous serez guidés de plus en plus succinctement et puissamment à mesure que vous continuerez à écouter la parole de Dieu murmurée à votre oreille, l’écoute de votre âme.
+
+En avançant, vous commencez le voyage. En continuant à avancer, le voyage s’accélère et le travail s’accélère. Mais ce qu’il faut, c’est cette étape cruciale, cette volonté de suivre la Volonté de Dieu, ce désir d’être un canal d’amour pour les autres et un messager de vérité pour beaucoup. Puissiez-vous trouver votre voie, afin que dans un demi-millénaire, peut-être votre nom soit honoré et que beaucoup aient bénéficié de vos enseignements. C’est possible. Je n’étais pas quelqu’un de spécial. J’étais un homme humble. Pourtant, je savais que j’avais une destinée et Dieu m’a montré la direction de celle-ci.
+
+Vous l’êtes aussi, mes âmes bien-aimées. Belles, humbles et pourtant vous avez quelque chose de très spécial, de beau et de puissant. Vous portez la lumière de la vérité. Chacun de vous est une lanterne dans le monde. Éclairez le chemin, mes amis. Soyez vraiment avec Dieu et Dieu sera avec vous. Que les bénédictions de sa grande âme continuent à remplir votre âme et à illuminer votre lanterne jusqu’à ce que vous ne puissiez plus résister. Dieu vous pousse à aller de l’avant, à enseigner, à guérir, à embrasser dans l’amour et à réconforter beaucoup de gens. Vous êtes tous capables et vous êtes tous beaux.
+
+Que Dieu vous bénisse. Je suis Guru Nanak et mon amour pour vous continue de grandir. Alors que l’Amour de Dieu pour moi grandit, notre amour les uns pour les autres grandit dans la Vérité de l’Amour Divin. Que Dieu vous bénisse, mes amis. Que Dieu vous bénisse.
+

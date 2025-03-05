@@ -1,0 +1,32 @@
+---
+title: "Souligne l'importance de notre travail pour son ministère"
+menu_title: ""
+description: "Souligne l'importance de notre travail pour son ministère"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Souligne l'importance de notre travail pour son ministère
+
+Jésus - reçu par Albert Fike le 30 Janvier 2025,  St Michael, La Barbade.
+
+Je viens. Je suis Jésus. Je viens vous saluer, vous aimer et prier avec vous. Je viens soutenir et guider ces deux beaux frères qui ont l’intention d’apporter la Vérité de l’Amour Divin à l’humanité. Je veux que vous sachiez que je suis proche, que je suis là pour vous aider à vous soutenir, pour vous guider et vous bénir. Bien que chacun de vous ait ses propres voies et son propre chemin à suivre, la Vérité de l’Amour de Dieu transparaît. La Vérité est en vous. Votre bénédiction et votre défi sont de trouver des moyens d’exprimer cet Amour, cette Vérité, aux autres.
+
+Lorsque vous vous sentez obligé de partager, ne vous retenez pas. Si vous vous sentez gêné ou mal préparé à le faire, demandez à Dieu de mettre les mots sur vos lèvres et vous serez inspiré. Je peux venir vous soutenir, âmes bien-aimées, car je m’intéresse à chaque âme qui peut en venir à connaître la Vérité de l’Amour du Père. Je consacre une grande partie de mon temps et de mes efforts à aider l’humanité à trouver la Vérité de cet Amour, à aider les esprits du monde spirituel à trouver cette vérité. Nombreux sont ceux qui ont faim dans leur âme et pourtant il n’y a personne pour les nourrir. Il n’y a rien de définitif à leur dire.
+
+Pourtant, chacun d’entre vous, mes frères bien-aimés, et vous tous, avez cette Vérité fermement en vous. Vous la tenez près de votre poitrine. Vous la vivez chaque jour. Vous êtes les instruments de Dieu de bien des manières. Je vous encourage donc à suivre le chemin du service. Le dévouement et la portée aimante de vos efforts sont importants. Je vous exhorte à être constants. Âmes bien-aimées, Dieu continue de vous bénir. Chaque jour est une confirmation de ces bénédictions. Chaque jour, vous avez reçu beaucoup pour vous soutenir, vous fortifier, vous guider et vous amener à un plus grand alignement avec Dieu.
+
+Nous continuons donc sur ce chemin. Comme vous l’avez compris, vous jouez un rôle important dans le plan de Dieu pour le salut de l’humanité. Vous apportez cette Vérité. Vous en êtes un exemple éclatant. Bien que vous soyez humain, la puissance de votre âme brille et, chaque jour, cette lumière devient plus brillante. Chaque jour, les bénédictions de votre âme, en tant que canaux d’amour de Dieu, augmentent. Mes beaux et bien-aimés frères et sœurs, vous êtes précieux pour moi. Mon amour pour vous est grand. Je ne peux pas vous dire à quel point vous êtes importants et nécessaires à mon ministère, car nous nous engageons tous dans le même travail. Nous suivons tous le Chemin Divin. Nous apportons tous le message.
+
+Nous travaillons ensemble, jour après jour, tous ensemble comme un seul sur le chemin de la vérité, les efforts déployés et les glorieuses bénédictions données à vous et à travers vous. Vous êtes touchés par Dieu, Sa Main fermement sur vous. Vous êtes puissamment bénis et soutenus dans la lumière. Dieu veille à ce que votre ministère continue, que vos efforts s’élargissent et que l’œuvre grandisse. Écoutez vos conseils. Priez pour être utilisés comme les instruments de Dieu. Priez pour continuer à grandir dans votre ministère, dans la Vérité que Dieu vous donne et dans l’Amour qui coule vers vous.
+
+Tout ce qui doit arriver arrivera, à condition que votre foi, votre confiance et votre dévouement envers Dieu continuent de grandir. Ne laissez pas les petits obstacles de la vie vous en empêcher. Sachez que rien ne vous empêchera de faire votre ministère, même s’il y a des tentatives. Même s’il y a des forces obscures qui vous surveillent et essaient de trouver des moyens de vous influencer, vous et ceux qui vous entourent, afin que vous soyez détourné de votre chemin. Sachez que vous êtes bien protégé, que vos familles et vos proches sont bien protégés et que vous continuerez sur ce chemin, ce dévouement au service, cette vie pleine de sens jusqu’au jour où vous passerez dans le monde spirituel. Même alors, vous assumerez de nouvelles tâches et de plus grands efforts.
+
+C’est un flux incessant d’Amour, administrant aux âmes perdues, enseignant la vérité et étant une lumière dans le monde. Vous vous retrouverez à grandir et à vous épanouir dans l’Amour au-delà des limites de votre esprit jusqu’à l’expansion de votre âme. En cela, la sagesse viendra, la vérité viendra et la force viendra. Tout ce dont vous avez besoin viendra pour accomplir le plan de Dieu pour vous et pour le monde. Vous êtes grandement bénies, âmes bien-aimées, et vous connaîtrez ces bénédictions pour l’éternité.
+
+Vous êtes sur la bonne voie pour entrer dans le Royaume Céleste. Vous trouverez votre chemin en étant guidé et montré au fur et à mesure que vous faites vos efforts avec Dieu, donc les récompenses viendront en grandes quantités. Les récompenses seront magnifiques et au-delà de votre imagination. Vous trouverez votre chemin et saurez vraiment combien Dieu vous aime, combien vos amis anges vous aiment et combien je vous aime. Car tout ce que vous faites est fondé sur l’amour et tout ce que Dieu souhaite que vous fassiez est fondé sur l’amour.
+
+Puissiez-vous le savoir à chaque instant, à chaque respiration et à chaque action que vous entreprenez, afin que vous puissiez prier pour être béni par un afflux et une effusion de l’Amour de Dieu dans votre vie quotidienne et dans votre service quotidien. Je suis votre frère et ami, Jésus, Maître du Royaume Céleste. Je dis ces choses pour vous soutenir, âmes bien-aimées, afin que vous soyez rassurées que votre chemin est le chemin que Dieu a désigné pour vous et que votre service est le service que Dieu a béni et vous guidera.
+
+Mes âmes bien-aimées, sachez que je vous aime. Sachez que vous êtes grandement aimées et que vous serez bénies par la paix, la vérité, l’amour et de nombreux dons qui se déverseront à travers vous lorsque Dieu utilisera votre instrument et vous portera sur le chemin de l’amour. Je suis avec vous plus souvent que vous ne le pensez. Je suis avec vous, mes âmes bien-aimées. Que Dieu vous bénisse dans Son Amour. Que Dieu vous bénisse, mes bien-aimés.

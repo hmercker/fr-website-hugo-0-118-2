@@ -63,7 +63,7 @@ Claire d'Assise | [Nous nous réjouissons en vous](/fr-contemporary-messages/fr-
 Claire d'Assise | [Le silence est d'or ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-16-1-jw-clare-of-assisi/) | 16 Septembre 2024
 Claire d'Assise | [La forme la plus haute de la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-23-1-jw-clare-of-assisi/) | 23 Septembre 2024
 Claire d'Assise | [Prière et sanctuaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-23-1-jw-clare-of-assisi/) | 23 Janvier 2025
-Claire d'Assise | [Le cercle des cœurs ouverts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-12-3-jw-clare-of-assisi/) | 12 Février 2025
+Claire d'Assise | [Le cercle des cœurs ouverts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-12-1-jw-clare-of-assisi/) | 12 Février 2025
 Elizabeth Ashbridge | [Une quaker de l'Amérique coloniale](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-1-8-2-fab-elizabeth-ashbridge/) | 8 Janvier 2009
 Francis Fenelon | [Instruction pour les débutants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-55-1969-anonymous-francis-fenelon/) |   1969
 Frederick T. Gates | [Un collègue de John D. Rockefeller SR. confirme son channeling](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-16-1-fab-frederick-t-gates/) | 16 Mars 2013
@@ -72,6 +72,7 @@ Guru Nanak | [Guru Nanak, le fondateur de la religion Sikh](/fr-contemporary-mes
 Guru Nanak | [Chaque âme parcourt son propre chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-8-4-1-mc-guru-nanak/) | 4 Août 2019
 Guru Nanak | [Bénédiction de réconfort et d'amour sur votre parcours](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-19-1-af-guru-nanak/) | 19 Décembre 2019
 Guru Nanak | [Voyage pour apporter l'égalité et l'amour à l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-7-1-mc-guru-nanak/) | 7 Avril 2020
+Guru Nanak | [Le fondateur de la religion sikh apporte inspiration et conseils des Cieux Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-15-1-af-guru-nanak/) | 15 Novembre 2024
 Guru Ram Das | [Une bénédiction de guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-11-3-mc-guru-ram-das/) | 11 Octobre 2018
 Guru Ram Das | [Embrasser d'autres cultures](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-3-17-2-mc-guru-ram-das/) | 17 Mars 2019
 Hazrat Inayat Khan | [Gardez un chant dans votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-9-1-jw-hazrat-inayat-khan/) | 9 Novembre 2021

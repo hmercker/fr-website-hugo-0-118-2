@@ -26,4 +26,4 @@ Je vous le dis, ne vous préoccupez pas du temps. Sachez que tout ce que vous fa
 Je vous remercie. Je vais prendre du recul et me retrouver dans ce magnifique cercle d’âmes si aimées. Vous êtes si choyés par le Père Céleste. Vous êtes si bénis. Soyons dans la sainte présence, dans la grâce et l’amour de notre Créateur. Je vous remercie. Je suis Judas, autrefois de Kerioth, aujourd’hui habitant du royaume Céleste et votre frère et ami éternel, en Christ. Que Dieu vous bénisse. Allez en paix. Allez en paix.
 <small>
 
-1. <large id="f1"> [Fred Rogers](/content/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-14-2-jw-fred-rogers/)[↩](#a1)
+1. <large id="f1"> [Fred Rogers](/content/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-14-2-jw-fred-rogers/)[↩](#a1) 

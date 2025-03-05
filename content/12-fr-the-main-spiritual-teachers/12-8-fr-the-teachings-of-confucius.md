@@ -102,4 +102,5 @@ Confucius | [Soyez fidèle à vous-même et à votre Créateur ](/fr-contemporar
 Confucius | [Poursuivre le voyage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-1-1-af-confucius/) | 1 Juillet 2024
 Confucius | [Bénissez les voyageurs qui répandent les vérités de l’amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-3-1-af-confucius/) | 3 Septembre 2024
 Confucius, Martha, Jesus  | [Félicitations pour une retraite réussie à Lansing](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-8-2-af-confucius-martha-jesus/) | 8 Septembre 2024
+Confucius | [Vous avez un grand potentiel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-15-2-af-confucius/) | 15 Septembre 2024
 
