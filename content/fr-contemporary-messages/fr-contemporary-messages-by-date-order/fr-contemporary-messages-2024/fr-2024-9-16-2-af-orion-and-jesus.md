@@ -1,7 +1,7 @@
 ---
 title: "Vous Atteignez les Âmes et non les Esprits"
 menu_title: ""
-description: "Vous Atteignez les Âmes et non les Esprits3
+description: "Vous Atteignez les Âmes et non les Esprits"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
