@@ -129,3 +129,5 @@ Yogananda | [Jésus est  mon Yogi](/fr-contemporary-messages/fr-contemporary-mes
 Yogananda | [La foi sur la peur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-22-2-jw-yogananda/) | 22 Septembre 2024
 Yogananda | [Parlez à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-16-1-jw-yogananda/) | 16 Décembre 2024
 Yogananda | [Opportunités d'expériences d'éveil de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-20-1-af-yogananda/) | 20 Décembre 2024
+Yogananda | [Les Voies du Monde et la Voie de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-3-1-jw-yogananda/) | 3 Mars 2025 
+Yogananda | [Dieu sert ceux qui Le servent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-17-1-jw-yogananda/) | 17 Mars 2025 

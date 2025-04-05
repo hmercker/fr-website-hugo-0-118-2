@@ -91,4 +91,7 @@ Care Darby Walsh | [Le Royaume Angélique souhaite des Sanctuaires Physiques sur
 Care Darby Walsh | [Vos trésors sont gardés au Ciel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-12-3-jw-care-darby-walsh/) | 12 Septembre 2024
 Care Darby Walsh | [Rendre le banal spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-30-1-jw-care-daby-walsh/) | 30 Décembre 2024
 Care Darby Walsh | [Ma vie de prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-20-1-jw-care-darby-walsh/) | 20 Janvier 2025
+Care Darby Walsh | [Conseils pour que nous puissions nous démarquer en tant qu'instruments au service de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-28-1-af-care-darby-walsh/) | 28 Février 2025
+Care Darby Walsh | [Les bénédictions de la tragédie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-10-1-jw-care-darby-walsh/) | 10 Mars 2025 
+Care Darby Walsh | [Avec Dieu, il n'y a pas de distance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-31-1-jw-care-darby-walsh/) | 31 Mars 2025 
 

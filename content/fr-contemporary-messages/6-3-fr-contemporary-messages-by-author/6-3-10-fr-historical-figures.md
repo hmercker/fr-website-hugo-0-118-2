@@ -97,6 +97,7 @@ Mahatma Gandhi | [Nous serons avec vous au cours de vos défis](/fr-contemporary
 Mahatma Gandhi | [Soyez l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-23-2-jw-mahatma-gandhi/) | 23 Juin 2020
 Mahatma Gandhi | [L'Amour de Dieu apporte la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-30-1-jw-mahatma-gandhi/) | 30 Juin 2020
 Mahatma Gandhi | [Paix et Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-17-1-jw-mahatma-gandhi/) | 17 Mai 2021
+Mahatma Gandhi | [Vivre en paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-17-2-jw-gandhi/) | 17 Mars 2025 
 Malcolm X | [Malcolm X aime toute l’humanité.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-9-13-1-fab-malcolm-x/) | 13 Septembre 2006
 Malcolm X | [Les regrets de Malcolm X](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-11-18-1-fab-malcolm-x/) | 18 Novembre 2006
 Malcolm X | [Semer et récolter pour un leader afro-américain](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-28-1-fab-malcolm-x/) | 28 Juillet 2009

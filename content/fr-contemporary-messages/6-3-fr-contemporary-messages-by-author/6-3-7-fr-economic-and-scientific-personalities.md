@@ -33,6 +33,7 @@ Andrew Carnegie | [Le matérialisme d'un industriel](/fr-contemporary-messages/f
 Antony Sutton | [Dieu et l’économie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-4-6-1-fab-antony-sutton/) | 6 Avril 2012
 Archimède | [La dynamique des cercles de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-24-1-af-archimedes/) | 24 Janvier 2021
 Bertrand Russell | [La simplicité de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-24-2-af-bertrand-russell/) | 24 Novembre 2017
+Charles Darwin | [Confirme le message de Michael Collier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-23-4-af-charles-darwin/) | 23 Janvier 2025 
 Copernic | [Vous avez toute l’éternité pour apprendre les merveilles de la création de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-9-3-af-copernicus/) | 9 Septembre 2019
 Copernic | [La mesure du temps sur Terre est très différente de celle des Cieux Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-2-2-af-copernicus/) | 2 Décembre 2019
 Copernic | [L'humanité a été un virus sur la Terre Mère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-7-1-af-copernicus/) | 7 Juillet 2023

@@ -54,6 +54,7 @@ Isaïe | [La puissante essence de Dieu sera donnée à chacun de vous avec force
 Ïsaïe | [Imprégnez-vous de la gloire de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-14-3-af-isaiah/) | 14 Mars 2024
 Isaïe | [Une puissante leçon sur la prise de responsabilité pour la progression de notre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-8-2-af-isaiah/) | 8 Juillet 2024
 Isaïe | [Guerriers de la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-9-1-af-isaiah/) | 9 Septembre 2024
+Isaie | [Une leçon d'humilité et des conseils pour éviter les pièges](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-29-1-af-isaiah/) | 29 Janvier 2025 
 Jacob | [La foi de Jacob en Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-4-1-fab-jacob/) | 4 Février 2003
 Jacob | [Sur la Foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-6-1-hm-jacob/) | 6 Mai 2020
 Jérémie | [Indignation vertueuse_3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-16-2-fab-jeremiah/) | 16 Mai 2008
@@ -74,6 +75,7 @@ Joseph (AT) | [Le génie musical et créatif en relation avec le monde des espri
 Joseph (AT) | [William Shakespeare dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-12-27-1-fab-joseph-ot/) | 27 Décembre 2002
 Joseph (AT) | [Victor Hugo dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-12-28-1-fab-joseph-ot/) | 28 Décembre 2002
 Joseph (AT) | [Saint François dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-12-29-1-fab-joseph-ot/) | 29 Décembre 2002
+Joseph | [Guérison et santé en relation avec les demandes adressées à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-23-4-em-joseph/) | 23 Janvier 2025
 Josué | [Réduire les différences avec amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-30-2-af-joshua/) | 30 Septembre 2017
 Judah Maccabee | [La sanction de la violence physique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-6-18-1-fab-judah-maccabee/) | 18 Juin 2010
 Le Roi David | [Le roi David et la guerre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-8-1-fab-king-david/) | 8 Février 2003

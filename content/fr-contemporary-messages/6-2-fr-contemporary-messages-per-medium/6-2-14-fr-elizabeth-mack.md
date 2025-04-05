@@ -94,6 +94,11 @@ St Matthieu | [Je viendrai renforcer une bénédiction avec chacun de vous pour 
 Jean le Bien Aimé | [Les amis de Marmora cherchent. Aimez-les. Priez pour eux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-26-1-em-john-the-beloved/) | 26 Septembre 2024
 Moïse | [Tellement de personnes dans ce monde ont besoin que l'Amour Divin leur soit apporté ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-27-2-em-moses/) | 27 Septembre 2024
 Marie | [Veille sur Parkin House](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-29-1-em-mary/) | 29 Septembre 2024
+Pierre le Rocher | [Sachez que vous êtes utilisé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-10-4-af-peter-the-rock/) | 10 Janvier 2025
+George Stokes et Jésus | [Vous qui voulez être des canaux de lumière, vous avez amené beaucoup, beaucoup d'esprits ici pour recevoir l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-12-3-af-george-stokes-and-jesus/) | 12 Janvier 2025
+Jacques | [Sachez qu'il y a beaucoup plus à venir avec vos prières, votre service, votre développement de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-19-4-em-james/) | 19 Janvier 2025 
+Joseph | [Guérison et santé en relation avec les demandes adressées à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-23-4-em-joseph/) | 23 Janvier 2025
+Jean le Bien Aimé et Jésus | [Bénédiction de Dieu délivrée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-26-5-em-john-the-beloved-and-jesus/) | 26 Janvier 2025 
 
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

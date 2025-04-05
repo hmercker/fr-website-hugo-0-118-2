@@ -1,0 +1,36 @@
+---
+title: "Confirme que les messages transmis sont des vérités divines"
+menu_title: ""
+description: "Confirme que les messages transmis sont des vérités divines"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Confirme que les messages transmis sont des vérités divines
+
+Barthélémy - reçu par Albert Fike le 26 Janvier 2025, Christ Church, La Barbade.
+
+Que la gloire de l’Amour du Père pénètre vos âmes en abondance. Puissiez-vous connaître ce don de Dieu comme votre ami et votre Sauveur, car il est bien cela.
+
+Je suis Barthélémy. Je viens vous réconforter et vous rassurer : les paroles prononcées ces derniers jours sont la vérité. N’est-il pas triste que tant de personnes ignorent ces choses ? Les vérités fondamentales de la vie ont été cachées à l’humanité. De ce fait, une grande suspicion règne quant à la vérité de la vie après la mort et à de nombreuses choses qui relèvent de l’esprit. La majeure partie de l’humanité continue de vivre dans l’obscurité et l’ignorance qui caractérisent ce monde terrestre.
+
+C’est pourquoi nous sommes venus. C’est pourquoi nous nous efforçons d’accompagner les gens afin qu’ils puissent connaître la vérité et se libérer des mythes et de l’ignorance qui font partie intégrante du quotidien. Chaque âme aspire à Dieu. Chaque âme connaît Dieu dans une certaine mesure. Mais, dans votre monde, cette connaissance, ce sentiment d’âme et de Dieu, le sentiment qui l’accompagne, est caché. Certains, même conscients, ressentent de la honte. D’autres, même inconscients, habillent cette vérité de nombreuses idées et dogmes religieux qui les éloignent véritablement de Dieu.
+
+Pour quelques privilégiés, il est possible de dépasser ces conditions, ces pensées et ces préjugés et de venir directement à Dieu. Vous faites partie de ces âmes privilégiées. Vous cherchez, vous désirez, et vous trouverez. Dieu vous offrira toutes les opportunités de trouver la vérité. Même si, au sein de l’humanité, subsistent de profonds préjugés, des blessures profondes et des préjugés profonds qui les éloignent de Dieu de la manière la plus pure. Mais, en vérité, à mesure que vous vous rapprocherez de votre Père Céleste, du Créateur de toutes choses, de Dieu, de tout nom que vous souhaitez lui donner, vous connaîtrez un répit face aux rigueurs de ce monde. Vous découvrirez la vérité sous une forme bien plus pure que celle généralement admise. Vous découvrirez une part de vous-même qui aspire à être connue et nourrie.
+
+Âmes bien-aimées, Dieu aime chacun de vous au-delà de toute mesure. Il désire que chacun de vous connaisse les gloires de Son Amour, sonde les profondeurs de son âme et ressente la joie qui naît de la relation avec Dieu. À vous de trouver votre chemin. Pour beaucoup d’entre vous, c’est un chemin tortueux. C’est un labyrinthe dans la forêt. C’est un voyage difficile, car votre esprit, combiné à celui de tous vos frères et sœurs dans le monde, a créé de nombreux obstacles sur le chemin. Pourtant, lorsque vous vous approchez de Dieu en toute pureté et innocence, Dieu est toujours là, sans jamais vous abandonner, sans jamais vous laisser seul, mais toujours votre compagnon.
+
+Nous aussi, qui faisons partie du Royaume Céleste, nous apprendrons à bien vous connaître. Nous espérons que vous apprendrez à nous connaître, qu’ensemble nous forgerons une alliance de lumière, une alliance de vérité qui vous maintiendra fermement dans la lumière tout au long de votre existence, sur ce monde et dans l’au-delà, mais qui vous ouvrira aussi la voie du service, de la transmission de cette vérité, de la démonstration de cette vérité, d’être une belle lumière et un canal d’amour pour le monde.
+
+Car si vous êtes enflammé par cette vérité et que la lumière brille dans votre âme, vous serez poussé à manifester cette lumière dans votre vie quotidienne, à être cette lumière et à être l’instrument de Dieu, connaissant la Volonté de Dieu, l’exprimant, par tous les dons et capacités que vous possédez. Vous vivrez ce que vous appelez une vie enchantée, une vie protégée et guidée, une vie épanouie.
+
+Car vous connaîtrez les secrets, le grand secret, la grande vérité : toute vie est censée être fondée sur l’Amour. En remplissant votre âme d’Amour par la prière, votre amour, votre vie sera en harmonie et bénie par l’Amour. Avec cet Amour viendra la joie, la connaissance, la vérité, la sagesse, tout ce dont vous avez besoin pour vivre en harmonie. Tout cela vous est donné gratuitement, chers frères et sœurs. Ce n’est pas parce que Dieu choisit. C’est parce que vous avez choisi Dieu. En cela, votre choix sera judicieux et bien récompensé. Ne vous arrêtez pas lorsque vous vous sentez mal à l’aise ou que la vérité vous met en difficulté, mais allez de l’avant. Recherchez les explications et les compréhensions qui apaiseront votre esprit et vous apporteront la paix. Laissez-vous guider, car Dieu vous a envoyé un ange, un ange bien disposé à vous aider et à vous guider sur le chemin.
+
+Dans ce monde, trouver sa voie peut être difficile. Dieu vous y aide de telle manière que vous saurez et serez heureux de progresser, que vous connaîtrez Dieu avec une profondeur et une ampleur telles qu’elles constitueront votre fondement et votre vérité dans la vie. Son amour sera ce fondement, car il vous est donné par étapes dans la prière.
+
+Ma prière pour vous, âmes bien-aimées, est que vous trouviez le chemin de la vérité et que, quelle que soit votre approche, quel que soit le chemin que vous empruntiez en premier lieu, ce chemin et cette approche vous mèneront à Dieu. Vous pouvez emprunter un chemin détourné. Vous pouvez suivre un chemin qui ne mène pas en direction de Dieu, mais ailleurs. Mais, si votre âme suit son chemin, elle vous poussera à chercher Dieu, car c’est là l’accomplissement de son désir d’être avec Dieu, de connaître Dieu et de se réunir à Lui.
+
+Suivre cette pratique simple, une prière pour recevoir le don de l’Amour de Dieu, est le chemin le plus sûr et le plus rapide pour ne faire qu’un avec votre Créateur. C’est votre choix, comme toujours. Dieu n’interfère pas avec ce choix, et nous non plus. Mais, une fois que vous l’aurez fait, une fois que vous vous serez consacré à ce chemin, vous disposerez de toutes les ressources. Tout ce qui peut vous être offert vous sera facilement accessible. Vous ressentirez la puissance de l’élévation, la force de l’inspiration et la beauté de votre âme, trouvant sa voie et son chemin vers Dieu.
+
+Soyez bénies, âmes bien-aimées. Je suis Barthélemy. Je suis avec vous depuis tout ce temps. Je m’intéresse particulièrement à vous et à beaucoup d’autres dans votre région pour trouver les vérités de leur existence, qu’il s’agisse de la simple vérité de la continuation de la vie après la mort, ou de la grande et puissante vérité de la connaissance de la grâce de Dieu, à travers Son Amour. Je serai là pour vous aider, vous assister et vous soutenir. Tel est mon dévouement envers vous et envers Dieu. Puissiez-vous trouver la paix qui surpasse toute intelligence, âmes merveilleuses, et marcher sur le Chemin Divin, le chemin qui nourrira votre âme et apportera de l’Amour à l’âme affamée, afin qu’elle puisse être rachetée et savourer l’accomplissement de sa destinée d’être en harmonie avec Dieu. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse.

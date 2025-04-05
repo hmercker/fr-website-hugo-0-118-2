@@ -348,6 +348,9 @@ Augustin | [Les illusions de votre mental se dissoudront avec la progression de 
 Augustin, Jeanne d'Arc, Jésus  et Mathieu | [Guidance pour le Cercle de Lumière de l'Amour Divin francophone](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-20-2-af-augustine-joan-of-arc-jesus-and-matthew/) | 20 Décembre 2024
 Augustin | [Votre capacité à recevoir des conseils s'approfondit ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-21-1-af-augustine/) | 21 Décembre 2024
 Augustin | [Écoutez votre propre âme plutôt que les conseils des autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-11-1-af-augustine/) | 11 Janvier 2025
+Augustin | [Décrit la réceptivité des esprits et des âmes de l'humanité et les conditions de préparation requises pour les manifestations](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-24-3-af-augustine/) | 24 Janvier 2025
+Augustin | [Ouverture de la Retraite Starpoint](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-25-1-af-augustine/) | 25 Janvier 2025 
+Augustin | [Réponses aux question sur l'évolution](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-27-2-af-augustine/) | 27 Janvier 2025 
 
 
 

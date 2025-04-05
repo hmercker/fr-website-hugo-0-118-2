@@ -9,7 +9,7 @@ weight:
 ---
 ### Les illusions de votre mental se dissoudront avec la progression de l'âme 
 
-Augustin - reçu par Albert Fike le 08 Décembre 2024, Sechelt, Colombie-Britannique, Canada
+Flavius Josèphe - reçu par Albert Fike le 08 Décembre 2024, Sechelt, Colombie-Britannique, Canada
 
 Que les profondes bénédictions de l’Esprit Saint touchent votre âme. Mes amis bien-aimés, je suis Flavius Josèphe. Je viens vous parler des grandes bénédictions et des ressources qui sont à votre disposition. Chaque âme sur ce monde n’est pas déconnectée des bénédictions de Dieu mais peut les recevoir quotidiennement. À chaque instant, à chaque souffle de leur vie, ces bénédictions peuvent venir, compte tenu de leur désir de recevoir et de leur réceptivité au toucher de Dieu sur eux.
 

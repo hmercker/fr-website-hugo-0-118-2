@@ -1,0 +1,30 @@
+---
+title: "Élaboration sur le développement et présentation d'ouverture d'Al Fike"
+menu_title: ""
+description: "Élaboration sur le développement et présentation d'ouverture d'Al Fike"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Élaboration sur le développement et présentation d'ouverture d'Al Fike
+
+Seretta Kem - reçu par Albert Fike le 23 Janvier 2025, St Michael, La Barbade
+
+Salutations, mes amis. Je suis Seretta Kem. J’aimerais approfondir ce que ce cher instrument vous a dit sur le développement.
+
+Il a mentionné les facultés du cerveau, dont certaines sont dormantes et d’autres très actives. En effet, les parties inférieures de votre cerveau, ce que vous appelez le « cerveau animal », abritent des facultés hautement intuitives qui permettent la communication de l’esprit de l’individu. Je parle ici de l’humanité, car cette communication est rendue possible par la stimulation de ces parties du cerveau inférieur.
+
+Bien sûr, ce qui domine l’humanité à l’heure actuelle, c’est le cerveau frontal bien développé et les parties qui créent la pensée, déduisent et perçoivent l’expérience. À un moment donné du développement humain, ces éléments étaient tous en équilibre et en harmonie, et fonctionnaient parfaitement ensemble. Il existe aujourd’hui un grand déséquilibre. C’est le reflet de votre culture et de votre mode de vie. Ainsi, les aspects les plus intuitifs sont moins bien reconnus, bien qu’ils soient souvent plus dominants chez les femmes que chez les hommes, car elles sont plus réceptives aux émotions, et l’émotion est un moyen de percevoir les aspects inférieurs de la physiologie cérébrale.
+
+Cela ne signifie pas que les femmes soient moins développées à bien d’autres égards. En effet, il existe de très nombreuses femmes très intelligentes, peut-être plus que les hommes. Mais la façon dont cette intelligence s’exprime est différente. C’est la racine de la pensée qui est différente, car certains aspects du cerveau sont davantage écoutés, disons, entendus. Nous vous aidons à intégrer ces aspects à un état d’esprit conscient. Cela peut vous sembler étrange. Il existe des pressions et des sensations, que vous percevez pour la plupart de manière intuitive plutôt que physique, car le cerveau ne possède pas de capteurs de sensations matérielles.
+
+En créant et en nourrissant cette partie hautement sensible, affinée et réalisée par nos efforts, le système énergétique du corps spirituel peut désormais se connecter plus facilement à l’esprit matériel. Nous alignons ces aspects de votre être pour contribuer également à accroître votre conscience. Le cœur de tout cela, la grande énergie pulsée, l’aspect lumineux de votre être, qu’est votre âme, peut alors envoyer ses signaux à travers votre corps spirituel, plus aligné et doté d’une plus grande sensibilité, vers votre cerveau et votre conscience. Cela stimulera, pour certains, des visions et des couleurs détaillées, pour d’autres, des mots et des voix, pour d’autres encore, une combinaison de ces choses. Pour tous, un sentiment, une perception, une intuition, de ce qui se passe et de ce qui est communiqué apparaîtra. Les sensations, même avec le corps, l’âme, l’esprit et le mental, font tous l’expérience de quelque chose qui n’est pas entièrement physique.
+
+Nous avons étudié ces choses en profondeur, tous ces aspects de votre être, de votre être physique. Bien sûr, nous ne possédons pas de corps physique. Nous devons donc étudier votre corps physique et l’observer. Parfois, nous l’expérimentons, même si souvent vous ne le remarquerez ni ne le ressentirez. Car nous ne ferions jamais rien qui puisse vous nuire, mes chers amis. Mais nous apprenons de nos expériences avec vous, et vous apprenez de vos expériences avec nous. Nous continuons à développer et à perfectionner ces capacités, car elles deviendront très importantes à l’avenir.
+
+Certains d’entre vous commencent au début, une forme de développement rudimentaire. D’autres sont bien avancés. D’autres encore n’exigent que très peu de nous. Pourtant, ces aspects du développement peuvent continuer à être affinés, perfectionnés et ajustés pour atteindre un niveau optimal. Nous sommes ensemble, mes amis, pour être travaillés, pour grandir en nos âmes, grandir en nos esprits et grandir dans nos pensées afin que tous soient en harmonie. Tous peuvent effectivement travailler ensemble et fonctionner ensemble dans cette harmonie, afin que vous puissiez vivre une expérience et une compréhension très satisfaisantes de la plus grande partie de la vie. Car ce que vous connaissez maintenant comme la vie physique n’en est qu’une partie mineure. Vous parviendrez à comprendre cette partie plus grande et plus complexe qu’est votre être spirituel, qui est en grande partie déterminée par l’état de votre âme et, dans une moindre mesure, par l’état de votre esprit.
+
+Nous poursuivons donc ce développement pour vous aider à prendre conscience des potentiels qui existent en chacun de vous, dont beaucoup sont uniques et d’autres similaires. Pourtant, vous êtes tous des êtres humains, frères et sœurs. Je vous exhorte tous à vous aimer et à vous honorer les uns les autres, à être curieux les uns des autres et de vous-même, de ce qui fait de vous ce que vous êtes, de la manière dont vous pouvez comprendre ces choses et non seulement comprendre, mais aussi développer davantage les qualités uniques et magnifiques que vous possédez. Dieu vous a créés pour progresser et continuer à grandir. Vous avez entendu cet appel de Dieu. Vous avez entendu ce désir. Vous connaissez ce désir au plus profond de vous-même et nous progresserons ensemble.
+
+Mes chers amis, je suis Seretta Kem et je suis heureux de vous parler aujourd’hui. Mon amour est avec chacun de vous. Sachez que vous bénéficiez d’un immense soutien. Ensemble, nous accomplirons beaucoup. Que Dieu vous bénisse, mes amis. Que le grand Amour de Dieu pénètre votre âme en abondance, une abondance pour stimuler et guider ce développement. Que Dieu vous bénisse.

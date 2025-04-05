@@ -276,7 +276,7 @@ Keea Atta Kem | [Vous ne dormez pas ! Les âmes s'éveillent ! (Croisière Love 
 St Luc | [La foi au-delà de l’échec](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-12-1-jw-st-luke/) | 12 Août 2024
 Jacques | [Soyez au service du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-12-2-af-james/) | 12 Août 2024
 St Pierre | [Message de Clôture de la croisème 2024 de l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-13-1-af-st-peter/) | 13 Août 2024
-Kea Atta Kem | [L'importance de la communion de l’Amour Divin ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-15-1-af-keea-atta-kem/) | 15 Août 2024
+Keea atta Kem | [L'importance de la communion de l’Amour Divin ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-15-1-af-keea-atta-kem/) | 15 Août 2024
 Jacques | [L’Amour de Dieu agit à travers nous tous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-16-1-af-james/) | 16 Août 2024
 Jésus | [Le cadeau merveilleux de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-18-1-af-jesus/) | 18 Août 2024
 Jésus | [Cause et effet, temporel et spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-19-1-jw-jesus/) | 19 Août 2024
@@ -344,7 +344,7 @@ Augustin | [La conscience de Dieu est consciente de tout dans sa création ](/fr
 St François d'Assise | [L'Amour de Dieu apportera les changements nécessaires au monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-4-1-af-st-francis-of-assisi/) | 4 Octobre 2024
 Jésus | [Votre lumière peut aider Dieu à briser des générations de ténèbres dans le monde ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-6-1-af-jesus/) | 6 Octobre 2024
 Robert J. Lees | [Prière et Expiation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-7-1-jw-robert-j-lees/) | 7 Octobre 2024
-Keaa atta Kem | [Guidance Comes with a Strong Foundation of Divine Love and Practice](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-7-2-af-keea-atta-kem/) | 7 Octobre 2024
+Kee²a atta Kem | [Les conseils s'appuient sur une base solide d'Amour Divin et de pratique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-7-2-af-keea-atta-kem/) | 7 Octobre 2024
 Augustin | [Encourage l’engagement envers la pratique claire de l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-8-1-af-augustine/) | 8 Octobre 2024
 Orion | [Que l’Amour Universel de Dieu remplisse chaque âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-8-2-af-orion/) | 8 Octobre 2024
 Rick Minckler | [Message de joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-9-1-af-rick-minckler/) | 9 Octobre 2024
@@ -356,8 +356,8 @@ Augustin | [Vous êtes l’espoir du monde](/fr-contemporary-messages/fr-contemp
 Aaron | [Je serai avec vous pendant que vos dons s'ouvrent au service de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-15-1-af-aaron/) | 15 Octobre 2024
 Marie | [Nous sommes tous les enfants de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-15-2-af-mary/) | 15 Octobre 2024
 Orion | [Les changements terrestres et l'impact de l'augmentation du méthane autour de la planète](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-15-3-af-orion/) | 15 Octobre 2024
-Orion | [Nous travaillons dans les coulisses pour aider à réveiller l’humanité pour les changements à venir dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-18-1-af-orion/) | 18 Octobre 2024
-Orion | [Il est maintenant temps de recevoir vos propres conseil](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-19-1-af-orion/) | 19 Octobre 2024
+Orion | [Nous travaillons dans les coulisses pour aider à réveiller l’humanité en vue des changements à venir dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-18-1-af-orion/) | 18 Octobre 2024
+Orion | [Il est maintenant temps de recevoir vos propres conseils](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-19-1-af-orion/) | 19 Octobre 2024
 Jésus | [Bénédiction profonde pour le Treillis de Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-20-1-af-jesus/) | 20 Octobre 2024
 Barbara Davies| [L'importance de s'aimer soi-même ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-22-1-af-barbara/) | 22 Octobre 2024
 Keea atta Kem | [Les bénédictions de Dieu sont partout ! ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-25-1-af-keea-atta-kem/) | 25 Octobre 2024

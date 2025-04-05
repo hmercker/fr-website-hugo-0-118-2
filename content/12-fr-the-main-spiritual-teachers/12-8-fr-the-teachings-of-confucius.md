@@ -103,4 +103,5 @@ Confucius | [Poursuivre le voyage](/fr-contemporary-messages/fr-contemporary-mes
 Confucius | [Bénissez les voyageurs qui répandent les vérités de l’amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-3-1-af-confucius/) | 3 Septembre 2024
 Confucius, Martha, Jesus  | [Félicitations pour une retraite réussie à Lansing](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-8-2-af-confucius-martha-jesus/) | 8 Septembre 2024
 Confucius | [Vous avez un grand potentiel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-15-2-af-confucius/) | 15 Septembre 2024
+Confucius | [Bénédiction pour la tribu Trini ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-2-1-af-confucius/) | 2 Février 2025 
 

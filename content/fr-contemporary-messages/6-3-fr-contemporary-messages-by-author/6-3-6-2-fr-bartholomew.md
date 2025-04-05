@@ -29,6 +29,8 @@ Barthélémy | [Vous connaîtrez le but et la raison de ce cercle ](/fr-contempo
 Barthélémy | [Notre objectif à la Barbade ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-3-1-af-bartholomew/) | 3 Janvier 2025
 Barthélémy| [Bartholomée continue de nous aider à trouver notre objectif ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-10-1-af-bartholomew/) | 10 Janvier 2025
 Barthélémy | [Nous invite à l'unité avec Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-19-1-af-bartholomew/) | 19 Janvier 2025
+Jésus et Barthélémy | [Auspicious Blessings of God’s Love for a Great Number of Souls on Both Sides of the Veil](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-21-1-af-jesus-and-bartholomew/) | 21 Janvier 2025
+Nathanael (Barthélémy)| [Les Royaumes Spirituels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-27-1-jw-nathanael/) | 27 Janvier 2025
 Barthélémy | [Les prières à utiliser dans le service offrent des opportunités de croissance et d'apprentissage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-5-1-af-bartholomew/) | 5 Février 2025
-Nathanaêl | [Les Royaumes Spirituels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-27-1-jw-nathanael/) | 27 Janvier 2025
+
 

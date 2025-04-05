@@ -9,7 +9,7 @@ weight:
 ---
 ### Orientation concernant la retraite de développement pour vraiment reconnaître les murmures de Dieu dans vos âmes 
 
-Kea-atta-Kem - reçu par Maureen Cardoso le 12 Janvier 2025, St Michael, La Barbade.
+Keae-atta-Kem - reçu par Maureen Cardoso le 12 Janvier 2025, St Michael, La Barbade.
 
 Je suis Keea-atta-Kem. Bien que votre cercle ne soit pas complet, c’est-à-dire ceux qui doivent encore arriver et se joindre à nous dans notre prière mais aussi, plus spécifiquement, dans notre temps de développement, je souhaite venir vous encourager à vraiment chercher en vous-même, ce lieu profond de votre âme, pour commencer à vraiment reconnaître les murmures qui sont retenus dans l’âme et qui viennent de Dieu, le but qui réside en vous, les façons dont votre instrumentation a le potentiel de changer à partir de ce temps que nous passerons avec vous dans votre développement. Nous honorerons ce que notre rôle contient dans ce temps passé ensemble. Plus que jamais, vous devez vraiment considérer comment vous permettrez au plan de Dieu de se déplacer à travers vous qui est pour vous.
 

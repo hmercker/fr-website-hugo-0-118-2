@@ -1,7 +1,7 @@
 ---
 title: "Exprime sa déception face aux changements culturels à la Barbade"
 menu_title: ""
-description: "Exprime sa déception face aux changements culturels à la Barbade "
+description: "Exprime sa déception face aux changements culturels à la Barbad"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

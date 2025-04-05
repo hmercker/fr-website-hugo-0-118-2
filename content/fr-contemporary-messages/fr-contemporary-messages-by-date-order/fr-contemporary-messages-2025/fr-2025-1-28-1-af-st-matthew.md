@@ -1,7 +1,7 @@
 ---
 title: "Il est temps pour vous de trouver votre but et de rencontrer votre destinée"
 menu_title: ""
-description: "Il est temps pour vous de trouver votre but et de rencontrer votre destinée "
+description: "Il est temps pour vous de trouver votre but et de rencontrer votre destinée"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
@@ -9,7 +9,7 @@ weight:
 ---
 ### Il est temps pour vous de trouver votre but et de rencontrer votre destinée 
 
-St Matthieu - reçu par Albert Fike le 26 Janvier 2025,  St Michael, La Barbade.
+St Matthieu - reçu par Albert Fike le 28 Janvier 2025,  St Michael, La Barbade.
 
 Je suis Matthieu. Il est très important en ce moment que vous trouviez votre chemin vers votre but. En effet, Dieu a imprégné dans votre âme une destinée, un don, quelque chose que vous devez faire dans votre vie, l’expression de la Volonté Divine à travers vous comme un don au monde. Pour beaucoup, c’est une tâche difficile de discerner ces choses, de trouver leur chemin vers un endroit qui est une expression, un aspect que Dieu a mis en eux qui reflète le plan de Dieu dans le monde. Lorsque ce but est trouvé, alors il y a une joie profonde dans l’âme. Car avec l’expression du but, cette expérience profonde et significative, un aspect de votre vie, apportera satisfaction, contentement et une augmentation de la joie.
 

@@ -44,3 +44,4 @@ St Pierre | [Atteindre la conscience de l’âme](/fr-contemporary-messages/fr-c
 St Pierre | [Message de Clôture de la croisème de l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-13-1-af-st-peter/) | 13 Août 2024
 Pierre | [Ce que vous faites aujourd’hui touchera beaucoup de personnes ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-21-1-em-peter/) | 21 Février 2024
 St Pierre | [Vos bénédictions ne seront pas oubliées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-22-1-af-st-peter/) | 22 Septembre 2024
+Pierre le Rocher | [Sachez que vous êtes utilisé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-10-4-em-peter-the-rock/) | 10 Janvier 2025 

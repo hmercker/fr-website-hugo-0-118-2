@@ -1,0 +1,34 @@
+---
+title: "Du sein de Dieu aux portes du Paradis"
+menu_title: ""
+description: "Du sein de Dieu aux portes du Paradis"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Du sein de Dieu aux portes du Paradis 
+
+Luc - reçu par Albert Fike le 16 Janvier 2025, St Michael, La Barbade
+
+Mes amis, je suis Luc. Le chemin vers Dieu est à la fois difficile et très enrichissant. Comme vous le savez, les difficultés viennent de la condition humaine et de vos propres préjugés et états d’esprit qui entravent votre expérience avec Dieu. Car chaque âme peut faire l’expérience de Dieu dans la plénitude de Son amour. Chaque âme sait instinctivement comment être avec Dieu et communier avec Lui. C’est cette part de vous qui était avec Dieu à un moment donné, dans cette magnifique extase de l’existence avant la matière, avant votre naissance.
+
+Mais, lorsque l’enfant entre dans le monde matériel, si sensible et ouvert, alors cette belle âme est polluée par les conditions matérielles, les peurs et les pensées. Finalement, sa sensibilité est affaiblie par la dureté de votre monde. Cela ne veut pas dire que l’enfant est dépourvu d’amour ou que ses parents l’éloignent volontairement de Dieu, mais c’est la nature de votre monde et les conditions que les générations ont instaurées qui en sont la cause. Cela pousse l’enfant à se replier sur lui-même et à se défendre pour se sentir en sécurité.
+
+Vous avez surmonté ces restrictions et ces peurs. Vous vous êtes à nouveau aventurés sur le chemin de Dieu pour reconquérir votre droit de naissance, pour reconquérir l’amour cet amour auquel vous aspirez tant, auquel votre âme aspire si profondément. Alors, vous venez prier Dieu. Vous vous unissez dans la prière pour être avec Lui. Vous ouvrez la voie, le Portail de Lumière, les bénédictions, l’Esprit Saint qui vous accompagne tous. Ainsi, vous contredisez les voies du monde et réalisez en vous qu’il existe une voie meilleure, une voie plus élevée. Alors, mes chers amis, vous devez vivre ainsi du mieux que vous pouvez et affirmer la vérité du mieux que vous pouvez, afin que ceux qui vous entourent puissent également bénéficier de la lumière que vous portez, de la vérité que vous connaissez et des efforts que vous faites.
+
+Le monde continue de dormir dans les ténèbres de l’ignorance, ignorant qu’il est privé d’une belle relation avec Dieu. Vous luttez pour surmonter tout obstacle qui vous en empêche. Car chacun de vous a ressenti le toucher de Dieu à sa manière. Chacun de vous connaît cette bénédiction particulière de Son Amour. Vous aspirez à cela, vous aspirez à cela et vous continuez à le rechercher. Ainsi, vous êtes fidèles à votre nature, à votre nature profonde. Vous êtes fidèles à ce lieu profond en vous qui a longtemps désiré être à nouveau proche de Dieu.
+
+Alors, vous vous frayez un chemin vers la source de l’Amour. Vous cherchez les moyens de faire en sorte que ce chemin puisse être parcouru facilement et aisément, à votre guise. Vous, mes bien-aimés, êtes les annonciateurs. Vous êtes l’exemple de la lumière, le chemin et le passage vers la réunion avec Dieu. Mais ce temps de réunion ne sera pas le même qu’avant votre naissance. Au contraire, vous avez déjà été transformés. Vous devenez immortels et, avec le temps, vous serez un esprit. Ainsi, votre expérience de Dieu et vos perceptions de Lui seront irrévocablement transformées par les expériences et le don que Dieu vous a fait de cette vie matérielle.
+
+Il n’y aura pas de retour possible à cette époque où vous erriez dans le sein de Dieu, baigné dans l’extase de Son Amour, de Son attention et de Sa chaleur. Au contraire, en tant qu’individu unique, vous trouverez votre chemin en tant que créature de Dieu, possédant une âme, parvenant à la réalisation de la relation, de la connexion, de l’amour avec votre Créateur. Cela ajoutera quelque chose d’encore plus puissant à ce que vous aviez auparavant. Car vous êtes devenu un individu. Vous êtes devenu cet être magnifique que Dieu vous a créé pour être. Vous trouverez tout au long du chemin de la vie, que ce soit ici-bas ou en esprit, davantage qui consolidera et révélera votre être unique, votre être magnifique.
+
+En faisant de l’Amour de Dieu votre fondement, vous deviendrez plus pleinement un être, un enfant de Dieu, avec Son Amour qui vous guide, purifiant et transformant votre âme en quelque chose de plus proche du Divin. Les dons et les qualités uniques que vous possédez seront mis en valeur et amplifiés au cours de ce voyage. En effet, un émerveillement d’expériences, de réalisations, d’accomplissements, d’expressions et d’ouvertures vous attendra sur ce chemin. Vous connaîtrez une joie au-delà de votre imagination, un sentiment de plénitude si profond, un sentiment d’éveil et de transformation au-delà de vos espérances, un voyage merveilleux, plein de surprises et d’ouvertures qui seront accueillies avec joie.
+
+Mes chers et magnifiques frères et sœurs, vous empruntez un chemin d’une envergure et d’une nature exceptionnelles. Vous recherchez la plus grande bénédiction dans l’Amour de Dieu et, par conséquent, tout ce qui est possible dans votre expérience, votre être et votre réalisation vous sera donné et vous appartiendra en vertu du don que Dieu vous a fait dans Son Amour.
+
+Souvenez-vous de ceci, mes chers et beaux amis, lorsque vous ressentez le poids de la condition humaine, lorsque la vie vous présente une situation douloureuse et difficile, que ce n’est qu’un état passager. En effet, le chemin que vous empruntez, le chemin que vous suivez, vous assurera que les bénédictions et les dons dont je parle vous seront accordés. La douleur momentanée se dissipera grâce à la puissance de l’Amour de Dieu et à la puissance de la transformation de cet Amour qui fait de vous quelqu’un de différent, de beau, de plus proche de Dieu.
+
+Mes chers et beaux amis, vous êtes en chemin. Je vois vos pieds fermement sur ce chemin. En effet, alors que vous naviguez dans le monde matériel, il est nécessaire que nous venions renforcer vos efforts et votre compréhension de la direction et du chemin que vous suivez, pour vous rappeler ce qui est important, ce qui vous attend et ce vers quoi vous vous dirigez. Mes chers amis, soyez en paix et sachez que vous êtes aimés. Ma chère fille, je vous honore en ce jour. Puissiez-vous connaître profondément les bénédictions de Dieu en ce jour, car vous êtes entourées d’anges et il y en a un qui souhaite vous parler maintenant.
+
+Alors, je prends congé. Sache que je vous aime. Je suis Luc. Je continuerai à vous parler et à vous parler du chemin de la vérité, de l’amour et de la lumière, de sa beauté et de son émerveillement. Que Dieu vous bénisse. Que Dieu vous bénisse.

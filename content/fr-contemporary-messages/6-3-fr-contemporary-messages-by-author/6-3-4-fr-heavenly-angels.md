@@ -107,9 +107,11 @@ Grace Jordan | [Confirmation du message de Barbara_2](/fr-contemporary-messages/
 Grace Jordan | [ Grace dit la vérité à son fils ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-29-1-af-grace-jordan/) | 29 Juin 2024
 Grace Jordan | [La mère de David vient partager son histoire ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-9-2-af-grace-jordan/) | 9 Juillet 2024
 Grace Jordan | [Préparez-vous pour ce temps ensemble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-11-2-af-grace-jordan/) | 11 Janvier 2025
+Grace Jordan | [Décrit comment Barbara et elle ont suivi des chemins parallèles sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-22-4-af-grace-jordan/) | 22 Janvier 2025
 Grace Jordan | [Exprime sa gratitude pour la retraite Starpoint ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-26-1-af-grace-jordan/) | 26 Janvier 2025
 Isabelle | [Se présente comme la guide de Sonja pour son anniversaire ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-16-2-af-isabel/) | 16 Janvier 2025
 James Tudor Sr. | [Laissez les morts enterrer les morts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-21-2-af-james-tudor-sr/) | 21 Janvier 2024
+James Tudor Sr | [Exprime sa déception face aux changements culturels à la Barbade ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-22-2-af-james-tudor-sr/) | 22 Janvier 2025
 Jane | [La route magique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-11-17-1-ks-jane/) | 17 Novembre 2002
 Laila | [Marchez chaque jour dans Sa lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-19-3-af-laila/) | 19 Mai 2017
 La Joya | [Éléments utilisés dans la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-8-2-mc-la-joya/) | 8 Octobre 2020
@@ -152,6 +154,7 @@ Michael Collier | [Préparation de la retraite de Laurelville](/fr-contemporary-
 Michael Collier | [Vos désirs et attentes pour une bénédiction spéciale](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-11-5-af-michael-collier/) | 11 Octobre 2023
 Michael Collier | [L’intensité de la prière nous rapproche de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-8-1-af-michael-collier/) | 8 Décembre 2023
 Michael Collier | [Chevauchez le pendule des bénédictions de Dieu vers la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-27-1-af-michael-collier/) | 27 Décembre 2024
+Michael Collier | [Autres vérités sur l'évolution](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-23-3-af-michael-collier/) | 23 Janvier 2025
 Mylora | [Votre lumière est très attirante dans le monde spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-3-2-af-mylora/) | 3 Décembre 2019
 Mylora | [Je suis avec vous dans vos efforts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-2-3-af-mylora/) | 2 Octobre 2020
 Mylora | [Prier avec une intention et une motivation aimantes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-16-1-af-mylora/) | 16 Mai 2021
@@ -191,6 +194,7 @@ Sam | [Retraite spirituelle - Hawaii](/fr-contemporary-messages/fr-contemporary-
 Sam | [Retraite spirituelle - Hawaii_2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-6-7-1-fab-sam/) | 7 Juin 2002
 Sarah Elizabeth Egelburg | [Nous rencontrons Sarah](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-10-11-1-ks-sarah-elizabeth-egelburg/) | 11 Octobre 2004
 Sashaquaha | [Honorer la Terre Mère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-2-4-1-af-sashaquaha/) | 4 Février 2022
+Shelayis | [La Création Unique des Archanges et le Rôle des Anges Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-13-2-af-shelayis/) | 13 Janvier 2025
 Tahlia | [Demandez-moi des énergies de guérison ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-3-4-af-tahlia/) | 3 Janvier 2025
 [Les enseignements de Keea Atta Kem](/12-fr-the-main-spiritual-teachers/12-7-fr-the-teachings-of-keea-atta-kem/)
 [Les enseignements de Seretta Kem](/12-fr-the-main-spiritual-teachers/12-6-fr-the-teachings-of-seretta-kem/)
