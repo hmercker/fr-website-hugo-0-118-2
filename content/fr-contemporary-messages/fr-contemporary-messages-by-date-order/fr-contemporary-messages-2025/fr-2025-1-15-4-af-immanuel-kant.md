@@ -11,6 +11,8 @@ weight:
 
 Emmanuel Kant - reçu par Albert Fike le 15 Janvier 2025, St Michael, La Barbade
 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-emmanuel_kant.jpg)
+
 Je m’appelle Emmanuel Kant.<sup id="a1">[1](#f1)</sup> Je pense que vous serez surpris que je vienne vous parler, étant donné ma réputation d’intellectuel et de philosophe dans ce que l’on pourrait appeler les temps modernes. J’en suis venu à désavouer une grande partie de ce que j’ai dit, comme d’autres, car l’existentialisme n’est pas la voie à suivre. C’est la voie vers l’enfer, et non vers le paradis. Car lorsque l’on n’assume pas la responsabilité de ses actes, comme l’existentialisme nous encourage à être dans l’instant présent et à vivre l’instant présent, alors, bien sûr, il manque un élément essentiel à notre progression dans la vie.
 
 En effet, après cette vie matérielle, il y a une autre vie, plus importante encore. Il est nécessaire que chaque individu prenne conscience que ses actes dans le monde matériel se répercuteront sur son expérience dans le monde spirituel. Il y a donc une responsabilité ultime et une réaction ultime à ce qui est fait, tant en pensée qu’en acte.

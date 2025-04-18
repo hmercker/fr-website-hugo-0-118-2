@@ -32,3 +32,4 @@ Jean le Baptiste | [Vous êtes l'accomplissement de la mission des Maîtres sur 
 Jean le Baptiste | [Concentrez-vous sur l'Amour du Père](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-11-2-em-john-the-baptist/) | 11 Février 2024
 Jean le Baptiste | [Faire chaque pas prudemment, complètement, pleinement dans la grâce de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-18-1-em-john-the-baptist/) | 18 Mars 2024
 Jean le Baptiste | [Confirme le message de Jésus pour le fête des pères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-16-1-em-john-the-baptist/) | 16 Juin 2024
+Jean le baptiste | [L'humanité a une grande œuvre à accomplir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-1-3-em-john-the-baptist/) | 1 Février 2025 

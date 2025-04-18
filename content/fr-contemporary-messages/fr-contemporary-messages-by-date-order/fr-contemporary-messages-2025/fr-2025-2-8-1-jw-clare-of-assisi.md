@@ -9,9 +9,9 @@ weight:
 ---
 ### Le cercle des cœurs ouverts 
 
-Claire d'Assise - reçu par Jimbeau Walsh le 12 Février 2025, Nashville, Tennesse, USA.
+Claire d'Assise - reçu par Jimbeau Walsh le 8 Février 2025, Nashville, Tennesse, USA.
 
- C’est moi, Claire. Je viens à ce cercle pour vous honorer, vous les cœurs ouverts, vous qui avez permis à l’âme de Dieu d’ouvrir vos âmes dans l’amour. Lorsque vous priez et que votre œil devient unique, que votre volonté s’aligne sur la grande volonté du Père céleste, vous commencez à percevoir le flux de la grâce qui englobe non seulement le monde dans lequel vous vivez, mais tous les mondes, même ceux qui ne sont pas en harmonie, qui ne sont pas conscients.
+C’est moi, Claire. Je viens à ce cercle pour vous honorer, vous les cœurs ouverts, vous qui avez permis à l’âme de Dieu d’ouvrir vos âmes dans l’amour. Lorsque vous priez et que votre œil devient unique, que votre volonté s’aligne sur la grande volonté du Père céleste, vous commencez à percevoir le flux de la grâce qui englobe non seulement le monde dans lequel vous vivez, mais tous les mondes, même ceux qui ne sont pas en harmonie, qui ne sont pas conscients.
 
 L’Amour de Dieu est une substance si fine et pourtant si réelle qu’une fois ressentie, une fois reçue, on sait que c’est le chemin. Tel est mon désir. C’est ma félicité, ma joie, mon salut.
 

@@ -351,7 +351,12 @@ Augustin | [Écoutez votre propre âme plutôt que les conseils des autres](/fr-
 Augustin | [Décrit la réceptivité des esprits et des âmes de l'humanité et les conditions de préparation requises pour les manifestations](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-24-3-af-augustine/) | 24 Janvier 2025
 Augustin | [Ouverture de la Retraite Starpoint](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-25-1-af-augustine/) | 25 Janvier 2025 
 Augustin | [Réponses aux question sur l'évolution](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-27-2-af-augustine/) | 27 Janvier 2025 
-
+Augustin | [Trouver notre chemin vers l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-2-2-af-augustine/) | 2 Février 2025
+Augustin | [Ne dénigrez pas vos âmes : il existe une hiérarchie au Ciel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-3-1-af-augustine/) | 3 Février 2025
+Augustin | [Soyez forts, confiants et impatients d'embrasser un monde nouveau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-8-5-af-augustine/) | 8 Février 2025
+Augustin | [Message de la Saint-Valentin pour tous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-14-1-af-augustine/) | 14 Février 2025
+Augustin | [Seul votre esprit peut vous séparer de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-21-2-af-augustine/) | 21 Février 2025
+Augustin | [Vous êtes des anges sur Terre accomplissant l'œuvre de Dieu pour l'éternité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-27-3-af-augustine/) | 27 Février 2025
 
 
 

@@ -1,0 +1,32 @@
+---
+title: "Soyez forts, confiants et impatients d'embrasser un monde nouveau"
+menu_title: ""
+description: "Soyez forts, confiants et impatients d'embrasser un monde nouveau"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Soyez forts, confiants et impatients d'embrasser un monde nouveau
+
+Augustin - reçu par Albert Fike le 08 Février 2025, Sechelt, Colombie-Britannique, Canada.
+
+Le monde est sur le point de s’ouvrir à vous, âmes bien-aimées. Je suis votre maître, Augustin. Vous êtes bien informés et conscients du monde matériel. C’est votre réalité depuis de nombreuses années. Maintenant, un monde différent est sur le point de s’ouvrir, un monde qui n’a pas les mêmes repères que le monde matériel, un monde plus fluide, un monde qui offre de grandes possibilités de croissance spirituelle, d’apprentissage et de conscience.
+
+Une part de vous, chacun de vous, est un peu réticente à ouvrir cette porte. Une part de vous est impatiente de l’ouvrir. Une part de vous se sent plus en sécurité dans les limites d’un monde qui vous est très familier. Nous vous aidons à être forts, confiants et impatients. Car vous seuls pouvez ouvrir cette porte, âmes bien-aimées. Vous seuls êtes capables d’accueillir, d’absorber et d’embrasser un monde différent, une conscience et une réalité dont votre monde a besoin.
+
+À travers les âges, à travers les éons de l’existence humaine, chacun a œuvré à cristalliser et à consolider la réalité que vous vivez aujourd’hui au quotidien. Mais cette cristallisation, cette création du monde matériel, n’est que le fruit de vos réflexions conscientes, combinées à vos expériences et sensations matérielles. L’esprit a construit une réalité élaborée. Vous la partagez tous, car l’humanité a créé une longueur d’onde très puissante, une existence de réalité. Vous y participez chaque jour, en continuant à recevoir et à diffuser les pensées et les impulsions des mortels sur le monde matériel.
+
+Il est temps maintenant de briser cette perception mythologique de la réalité. Car cette perception de la réalité et tout ce qui l’accompagne conspirent à épuiser l’harmonie, la paix et la vitalité du monde. Il existe certes une perception et une réalité absolues que Dieu a créées, qui sont votre monde, mais vous ne les entrevoyez qu’à travers les yeux et les filtres du mental. Nous espérons que vous percevrez au-delà de ces filtres et de ce mental, vers l’esprit de l’âme et son ouverture. En pratiquant ces exercices et en vous efforçant de vous éveiller à une réalité différente, vous contribuerez à la révolution à venir, celle de la compréhension et du rééquilibrage de la réalité que chaque individu doit accomplir sur votre planète.
+
+Dans les temps à venir, les conditions forceront vos frères et sœurs à regarder au-delà de ces choses. Il est bien plus facile de le faire maintenant, par votre propre volonté, que sous les pressions et les circonstances qui s’annoncent dans le monde matériel. Lorsque ce moment viendra, nous espérons que vous serez prêts. Vous serez ouverts et attentifs à ces choses. Grâce à cette ouverture et à cette considération, vous aurez la sagesse et la force de partager avec vos frères et sœurs ce qui se passe réellement dans votre monde.
+
+Nous sommes là pour vous aider. Nous souhaitons communiquer avec vous de manière complète et riche afin que nous ne fassions qu’un, vous sur Terre et nous dans les Sphères Célestes, les esprits brillants des sphères supérieures et même vos amis stellaires, collaborant tous ensemble pour aider l’humanité à naître dans une nouvelle réalité, un changement de conscience, un changement de perception. Alors, vous essayez, vous aspirez, vous priez et vous vous efforcez de voir, de regarder, d’accepter, sans crainte, sans jugement ni scepticisme, mais d’encourager cette innocence de l’âme à être véritablement consciente et ouverte à ce que Dieu souhaite donner à chacun de vous, afin qu’avec le temps, l’humanité entière trouve son chemin vers un monde nouveau, une nouvelle perception de ce monde et une nouvelle façon d’être en son sein.
+
+C’est un plan grandiose et complexe. Il est important pour chacun de vous d’y trouver sa voie, d’y être véritablement vivant et d’être un agent actif de Dieu, afin d’apporter les changements nécessaires. Alors, vous continuez à tâtonner. Souvent, vous vous sentez mal préparé et peu confiant dans vos expériences et vos perceptions. Pourtant, plus vous pénétrerez cet espace, ce lieu, cette perception, cette grâce de Dieu, plus il vous sera facile de l’accepter et de l’accueillir. Mettre en pratique votre désir d’ouverture et de conscience de ces communications et expériences est primordial en ce moment.
+
+Âmes bien-aimées, nous vous donnons, Dieu vous donne tout ce dont vous avez besoin pour vous ouvrir ainsi. En effet, les vieilles habitudes renforcent la longueur d’onde, la perception de l’ancienne réalité. Vous devez remettre cela en question. Vous devez vous efforcer de ne pas alimenter et renforcer ces vieilles habitudes. Ayez plutôt foi et ardeur d’être avec Dieu, avec votre âme et avec nous dans cette nouvelle voie, cette nouvelle réalité, ce nouveau monde. Vous y trouverez épanouissement et joie. Vous y trouverez des expériences, des perceptions et une sagesse extraordinaires.
+
+Vous apprendrez à aimer la nouvelle voie, car elle est pleine d’amour, pleine d’amour et de la grâce de Dieu. Elle s’adresse à toute l’humanité, mais pour vous, elle s’offre avec plus de force et de beauté. La puissance du toucher de Dieu sur vous est immense, mes chères âmes. Ressentez-la, absorbez-la, accueillez-la et vous trouverez votre chemin sur le chemin que je vous ai décrit. Vous vous reconnaîtrez dans la réalité de ce chemin du monde nouveau de Dieu. Ce sera glorieux, beau et épanouissant.
+
+Que Dieu vous bénisse, mes chères âmes. Je suis votre maître, Augustin. Je vous encourage à aller de l’avant, vous, magnifiques étudiants de la vérité, belles âmes douées de la grande création de Dieu. Nous cheminons ensemble, chaque jour une nouvelle bénédiction et un nouveau défi. Puissiez-vous, en effet, trouver la joie et l’émerveillement que Dieu vous a accordés dans son amour. Que Dieu vous bénisse, mes chères âmes. Je suis votre maître, Augustin. Je suis encouragé par vos efforts. Je vous encourage à poursuivre sur ce chemin. Que Dieu vous bénisse. Que Dieu vous bénisse dans son amour.

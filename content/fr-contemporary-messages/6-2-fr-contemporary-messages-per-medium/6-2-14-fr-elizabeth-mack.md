@@ -99,6 +99,7 @@ George Stokes et Jésus | [Vous qui voulez être des canaux de lumière, vous av
 Jacques | [Sachez qu'il y a beaucoup plus à venir avec vos prières, votre service, votre développement de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-19-4-em-james/) | 19 Janvier 2025 
 Joseph | [Guérison et santé en relation avec les demandes adressées à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-23-4-em-joseph/) | 23 Janvier 2025
 Jean le Bien Aimé et Jésus | [Bénédiction de Dieu délivrée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-26-5-em-john-the-beloved-and-jesus/) | 26 Janvier 2025 
-
+Jean le baptiste | [L'humanité a une grande œuvre à accomplir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-1-3-em-john-the-baptist/) | 1 Février 2025 
+Jésus | [Bénédiction pour le Cercle de Lumière en ligne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-25-3-em-jesus/) | 25 Février 2025
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

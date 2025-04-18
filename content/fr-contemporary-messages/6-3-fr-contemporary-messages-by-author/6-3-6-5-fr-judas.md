@@ -264,5 +264,7 @@ Judas | [Le pardon et le contact humain](/fr-contemporary-messages/fr-contempora
 Judas | [Le plus grand cadeau que vous puissiez offrir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-26-1-jw-judas/) | 26 Novembre 2024
 Judas | [La volonté de Dieu et le libre arbitre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-23-2-jw-judas/) | 23 Décembre 2024
 Judas | [La persévérance au-delà du rituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-24-1-jw-judas/) | 24 Janvier 2025
+Judas | [Encourage la révision des messages de Judas pour renforcer la connaissance des vérités supérieures](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-8-3-jw-judas/) | 8 Février 2025 
+Judas | [Réalisez la puissance du don divin du libre arbitre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-11-2-af-judas/) | 11 Février 2025 
 Judas | [Ceci est le chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-25-1-jw-judas/) | 25 Février 2025
 

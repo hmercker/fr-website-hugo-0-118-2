@@ -9,7 +9,7 @@ weight:
 ---
 ### Désir d'avoir des anges et des guides avec vous
 
-Faith - reçu par Maureen Cardoso le 13 Février 2025, Abbotsford, Colombie-Britannique, Canada.
+Faith Nyquist - reçu par Maureen Cardoso le 13 Février 2025, Abbotsford, Colombie-Britannique, Canada.
 
 Mes chers amis, bonsoir. Je suis Faith, et j’aime venir vous parler lorsque vous vous réunissez dans ce cercle particulier. Je suis attirée par votre rassemblement, et alors que j’établissais un rapport avec cet instrument, je lui fortement suggéré le désir qu’ont vos amis anges et guides spirituels d’être proches de vous.
 

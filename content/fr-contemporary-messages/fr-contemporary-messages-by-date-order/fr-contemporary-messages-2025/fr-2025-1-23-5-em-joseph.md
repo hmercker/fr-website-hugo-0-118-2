@@ -1,5 +1,5 @@
 ---
-title: "ÉGuérison et santé en relation avec les demandes adressées à Dieu"
+title: "Guérison et santé en relation avec les demandes adressées à Dieu"
 menu_title: ""
 description: "Guérison et santé en relation avec les demandes adressées à Dieu"
 date: 2023-09-01 06:00:01+00:01

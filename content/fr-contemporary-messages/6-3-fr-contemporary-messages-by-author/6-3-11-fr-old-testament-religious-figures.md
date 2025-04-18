@@ -38,6 +38,7 @@ Daniel | [Expérience de Daniel avec l’Amour Divin](/fr-contemporary-messages/
 Élie | [Vous devez vraiment connaître votre propre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-7-1-af-elijah/) | 7 Août 2021
 Élie | [Les vents du changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-30-1-af-elijah/) | 30 Novembre 2023
 Élie | [ Priez Dieu de racheter votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-14-1-af-elijah/) | 14 Juin 2024
+Élie | [Vient affirmer la vie et renforcer la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-7-1-af-elijah/) | 7 Février 2025 
 Élie & Isaïe | [Les âmes que vous attirerez pour travailler ensemble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-16-1-af-elijah-isaiah/) | 16 Décembre 2017
 Ezéchiel | [Heureux ceux qui sont prêts à aimer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-20-1-af-ezekiel/) | 20 Mai 2014
 Ézéchiel | [Dieu rassemble des lumières du monde entier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-16-1-af-ezekiel/) | 16 Mars 2021

@@ -9,7 +9,7 @@ weight:
 ---
 ### Demande une révision des volumes de messages qu'il a reçus de Jésus pour renforcer le rapport et la connaissance des lois spirituelles
 
-James Padgett - reçu par Albert Fike le 05 Février 2025, Christ Church, La Barbade.
+James Padgett - reçu par Albert Fike le 08 Février 2025, Sechelt, Colombie-Britannique, Canada.
 
 Bénédictions à vous, chers amis qui séjournez sur le Chemin Divin, à la recherche des plus hautes et plus grandes bénédictions de toutes. Je suis venu vous encourager à lire des passages dans les livres qui ont été créés grâce à mes efforts en tant que médium, grâce aux efforts des esprits Célestes et à travers Jésus lui-même, pour expliquer le chemin de l’amour, pour expliquer le nouveau monde qui est le reflet de ce chemin.
 

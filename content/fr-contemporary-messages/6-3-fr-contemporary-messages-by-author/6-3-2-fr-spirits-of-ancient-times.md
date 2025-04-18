@@ -93,6 +93,8 @@ Tahlia | [Semer les graines de la vérité](/fr-contemporary-messages/fr-contemp
 Tahlia | [Marcher dans la lumière à travers les bouleversements à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-2-1-af-tahlia/) | 2 Octobre 2017
 Tahlia | [Connaître Dieu dans son grand fleuve d'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-17-2-af-tahlia/) | 17 Mars 2018
 Tahlia | [Ce qui n'est pas en harmonie avec la création de Dieu s'écroulera](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-3-10-1-af-tahlia/) | 10 Mars 2019
+Tahlia | [Demandez-moi des énergies de guérison ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-3-4-af-tahlia/) | 3 Janvier 2025
+Tahlia | [Examinez vos distorsions conscientes avant de prétendre être des instruments de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-27-4-af-tahlia/) | 27 Février 2025 
 Uharu | [Un point de vue Amérindien sur la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-11-2-fab-uharu/) | 11 Avril 2006
 Uharu | [Valeurs amérindiennes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-18-1-fab-uharu/) | 18 Juillet 2006
 Uharu | [Une discussion sur l'environnement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-10-1-fab-uharu/) | 10 Janvier 2007
