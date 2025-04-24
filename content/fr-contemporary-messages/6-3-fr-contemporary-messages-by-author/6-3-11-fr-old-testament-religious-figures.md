@@ -22,6 +22,7 @@ Aaron | [Nous rappelle nos engagements et ce qu'il faut faire pour surmonter nos
 Aaron | [Conseils en matière de communication interpersonnelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-11-1-af-aaron/) | 11 Juin 2024
 Aaron | [Les anges ne peuvent pas faire leur travail sans l'aide d'instruments sur terre qui peuvent être vus et entendus ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-14-3-af-aaron/) | 14 Septembre 2024
 Aaron | [Je serai avec vous pendant que vos dons s'ouvrent au service de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-15-1-af-aaron/) | 15 Octobre 2024
+Aaron | [Soyez clairs dans vos désirs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-4-1-af-aaron/) | 4 Mars 2025
 Jésus, Fleur de Lotus et Aaron | [Bénédictions d’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-15-1-af-jesus-aaron-and-lotus-blossom/) | 15 Décembre 2024
 Abraham   | [Abraham a toujours été proche de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-4-24-2-fab-abraham/) | 24 Avril 2003
 Abraham   | [La profession d’Abraham](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-6-11-1-fab-abraham/) | 11 Juin 2010

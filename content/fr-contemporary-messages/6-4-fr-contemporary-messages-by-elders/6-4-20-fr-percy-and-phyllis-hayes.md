@@ -27,3 +27,4 @@ Percy Hayes fut donc un des pionniers du mouvement de l’Amour Divin au Canada 
 ---|---|---
 Percy Hayes | [Salutations de Percy depuis le Royaume d'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-12-1-af-percy-hayes/) | 12 Octobre 2017
 Percy Hayes | [Percy Hayes annonce son entrée dans le Royaume Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-27-2-af-percy-hayes/) | 27 Janvier 2021
+Percy Hayes | [Percy partage des aspects de son travail d'ange Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-23-1-af-percy-hayes/) | 23 Mars 2025 

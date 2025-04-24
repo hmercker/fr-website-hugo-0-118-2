@@ -1,0 +1,34 @@
+---
+title: "Être dans le monde, mais pas du monde"
+menu_title: ""
+description: "Être dans le monde, mais pas du monde"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Être dans le monde, mais pas du monde
+
+Augustin - reçu par Albert Fike le 14 Mars, Sechelt, Colombie-Britannique, Canada.
+
+Que Dieu vous bénisse, âmes bien-aimées. C’est votre maître, Augustin. Je vous demande de ne pas vous focaliser sur la situation et les opinions des enfants perdus de votre monde, ni d’y accorder foi. Il y en a beaucoup dans votre monde. Ils peuvent avoir une position élevée ou basse dans vos pays, votre politique, votre religion, etc. Ils sont avides d’exprimer leurs opinions, d’attirer l’attention et le pouvoir. Pourtant, ils ne savent pas ce qu’ils disent. Ils ne connaissent pas bien la vérité. Ils sont perdus.
+
+Lorsque vous regardez ces personnes, en particulier celles qui attirent l’attention, et que vous les considérez comme des guides et des sages conseils, je vous dis que vous suivez un chemin qui ne mène nulle part. Le chemin que vous devez suivre est celui que Dieu met devant vous, où votre âme puise conseil, avis et perception de Dieu. Dans vos prières et vos désirs, les intuitions de votre âme continueront de vous guider et de vous montrer la voie.
+
+Oui, il est bon d’avoir de la compassion et de prier pour ces personnes si perdues, mais il est encore plus puissant et efficace d’être un exemple dans le monde, de vivre dans le monde sans être du monde. Car être du monde en ce moment, c’est faire partie de la condition humaine, si sombre et si égarée. Vous devez plutôt être dans le monde comme un canal et un bel instrument pour Dieu, pour y cheminer dans la paix, l’harmonie et l’amour.
+
+Lorsque vous réagissez à ceux qui provoquent des troubles et à des conditions défavorables et sans amour, vous vous joignez à la mêlée et participez à cette situation. Priez plutôt pour vos frères et sœurs. Priez pour vos familles. Priez pour vos pays. Priez pour les dirigeants de ce monde, car tout est en ébullition et continuera de l’être. Cela se reflète souvent dans des efforts malavisés pour corriger ces conditions auxquelles beaucoup réagissent. Pourtant, ils agissent ainsi sans véritable connaissance, sans véritable compassion et sans véritable harmonie avec Dieu. Il s’agit plutôt d’un jeu de la condition humaine qui se répète sans cesse. Nombre d’entre nous, dans le Royaume Céleste, qui y sommes depuis très longtemps, voyons ces drames humains se répéter sans cesse. Comme l’indique ce célèbre adage, l’histoire se répète bel et bien. À mesure que l’humanité grandit, la répétition et la puissance de ce jeu humain s’intensifient et deviennent plus destructrices.
+
+Ainsi, vous êtes nécessaires, âmes bien-aimées, pour être des exemples, des canaux d’amour et de lumière dans le monde. Si vous vous préoccupez de jugement, de peur et de réactivité face aux comportements de ces enfants égarés, vous ne contribuez guère à améliorer la situation. Vous ne contribuez guère à vous corriger et à vivre ensemble en harmonie et en paix. Je vous demande de mettre de côté vos jugements et vos inquiétudes, car l’humanité continuera à jouer ces rôles jusqu’à ce qu’un moment vienne où une intervention et une véritable réaction à ces conditions interviennent, de telle sorte que chacun doive réagir, non pas par des jeux de politique ou de pouvoir entre vous, mais en s’adressant à Dieu.
+
+Car, lorsqu’une crise frappe la vie d’un individu, où va-t-il souvent ? Il crie avec angoisse : « Oh mon Dieu, aidez-moi ! Oh mon Dieu ! » dans un profond désespoir. C’est un appel de l’âme, car cette âme continue d’agir en lui, malgré tout le désordre de la pensée consciente. Vous devez écouter votre âme. Tous les habitants de la terre doivent écouter la leur. Lorsque la situation atteint son paroxysme, nombreux sont ceux qui se tourneront vers cet espace spirituel, cherchant le réconfort auprès de Dieu. Ce sera votre porte d’entrée, votre opportunité de dire la vérité à beaucoup, non pas avec condescendance ou supériorité, mais avec humilité, bienveillance et générosité, emplie de vérité, d’amour et de compassion.
+
+Mes enfants bien-aimés, étudiants de la vérité, ne laissez pas ces conditions nuire à votre pensée et à vos actions. C’est plutôt un nouvel avertissement : tout est bouleversé et en plein changement. Ayez foi dans le plan de Dieu pour le salut de l’humanité. Ayez foi en votre âme, en vos dons spirituels, en toutes les richesses que Dieu utilisera en vous pour aider l’humanité à traverser ces crises.
+
+Vous gagnerez en force, mes chères âmes. Grandirez en perception et en sagesse. Grandirez en amour et en compassion. Cela doit se produire en continuant à prier et à demander à Dieu le grand don de son amour. À mesure que cet amour continue de circuler en vous, vous transformant et vous changeant, vous vous retrouverez dans un lieu de paix, un lieu de force et de sagesse, un lieu où l’amour jaillira, où la guidance divine sera évidente et où la présence de vos amis angéliques vous entourera, vous enveloppant d’amour, de lumière et de protection.
+
+Vos grandes préoccupations et inquiétudes n’ont aucun sens. Elles ne vous serviront à rien. Elles n’apporteront pas ce que vous désirez tant dans le monde. Elles n’apporteront aucune solution. Pourtant, lorsque vous vous concentrerez sur la prière, pour être avec Dieu, pour recevoir Son Amour, le réconfort viendra, et votre âme grandira et s’éveillera toujours plus profondément dans la vérité. Les dons que vous possédez se manifesteront de manières surprenantes et merveilleuses.
+
+Recherchez ces choses, âmes bien-aimées. Concentrez-vous sur elles. Concentrez-vous sur elles. Dieu répondra à vos prières chaque jour, à chaque respiration. Vous serez utilisés comme serviteurs de Dieu, ses canaux d’amour dans le monde. Voilà ce qui est important. Voilà ce qui est nécessaire. La condition humaine vous met au défi chaque jour. Pourtant, chaque jour, vous devenez plus forts, plus polyvalents, plus aimants et plus sages. Ainsi en sera-t-il. Le temps viendra où beaucoup se tourneront vers vous, âmes bien-aimées, pour trouver les réponses. La vérité sera exprimée par vos lèvres, l’amour rayonnera en vous et vous rayonnerez de paix. Ainsi, vous devenez les instruments de Dieu.
+
+Âmes merveilleuses, puissions-nous rechercher l’Amour maintenant, l’inspirer, l’abreuver. Cette grande Substance de l’Âme de Dieu, offerte à vous en abondance, coule vers vous comme un fleuve puissant. Que Dieu vous bénisse, âmes bien-aimées. Je suis votre maître, Augustin. Je continuerai à vous guider, à vous enseigner et à vous soutenir. À travers tout ce qui arrive, nous serons là, inébranlables et inébranlables. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse. Augustin vous aime tendrement.

@@ -88,6 +88,7 @@ Salomon | [Il n'y a pas de différences entre nous](/fr-contemporary-messages/fr
 Salomon | [La confiance dans la sagesse de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-6-1-af-solomon/) | 6 Août 2018
 Salomon | [La sagesse de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-17-4-af-solomon/) | 17 Octobre 2018
 Salomon | [Salomon parle de la sagesse de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-14-1-af-solomon/) | 14 Février 2019
+Salomon | [Conseils pour vivre votre vie!](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-11-1-af-solomon/) | 11 Mars 2025 
 Socrate | [Notre boussole intérieure supérieure.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-19-1-fab-socrates/) | 19 Juillet 2006
 Tahlia | [Semer les graines de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-1-1-af-tahlia/) | 1 Décembre 2016
 Tahlia | [Marcher dans la lumière à travers les bouleversements à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-2-1-af-tahlia/) | 2 Octobre 2017

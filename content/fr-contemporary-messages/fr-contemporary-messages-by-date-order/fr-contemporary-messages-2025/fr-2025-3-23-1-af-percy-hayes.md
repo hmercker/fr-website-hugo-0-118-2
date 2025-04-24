@@ -1,0 +1,30 @@
+---
+title: "Percy partage des aspects de son travail d'ange Céleste"
+menu_title: ""
+description: "Percy partage des aspects de son travail d'ange Céleste"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Percy partage des aspects de son travail d'ange Céleste
+
+Percy Hayes - reçu par Albert Fike le 23 Mars, Sechelt, Colombie-Britannique, Canada.
+
+Mes chers amis, je suis Percy Hayes. Quel bonheur d’avoir l’occasion de m’adresser à chacun d’entre vous et d’être entendu par la communauté. Mes chers amis, que je connais, beaucoup d’entre vous, sachez que je prie avec vous. Je prie pour vous. Je continue de veiller sur vous.
+
+Quelle joie immense de parler par l’intermédiaire de cette chère âme ! J’ai eu le grand plaisir de lui faire découvrir les enseignements que Jésus a transmis il y a des milliers d’années, de lui transmettre la connaissance de l’Amour de Dieu, de lui apprendre à le recevoir et d’observer avec douceur son cheminement, alors qu’elle grandit dans l’Amour Divin. C’est la première fois que je parle par son intermédiaire depuis ma transition spirituelle. Je viens vous faire part de l’immense joie que je ressens en tant qu’Ange Céleste, de l’Amour qui habite mon âme, de son développement, des nombreuses façons dont j’ai pu continuer à progresser dans les enseignements de la vérité et explorer ma raison d’être maintenant que je suis dans le monde spirituel.
+
+Je peux vous dire que j’aide les âmes dans certains enfers. J’ai toujours été attiré par l’aide aux plus démunis, et dans le monde spirituel, les plus démunis sont ceux qui ne sont pas conscients de leur chance dans l’Amour de Dieu. Je me joins à d’autres dans ce groupe de travail, où nous visitons ceux qui vivent dans les royaumes inférieurs, apportant notre lumière dans l’espoir de les aider à sortir de leurs ténèbres et de leur apporter de l’espoir, afin qu’ils gravitent autour de notre lumière et soient disposés à être guidés. Je visite ces âmes chères qui ont le potentiel de devenir de véritables enfants de Dieu. En tant qu’enfant de Dieu, j’aspire à pouvoir aider tous les enfants de Dieu. Ils sont mes frères et sœurs, tout comme vous l’êtes.
+
+Cela fait partie de mon objectif et du travail que je mène, mais je participe également à ce que l’on appelle votre expérience de guérison globale, où vous vous rassemblez dans les sphères de la guérison, vous ouvrant collectivement et invitant à cette bénédiction de l’amour de Dieu et à la présence des anges pour venir soigner ce qui, en vous, votre condition humaine, est en désaccord. Je suis très heureuse d’y participer, car je connais beaucoup d’entre vous. Lorsque vous venez ici avec l’intention de réellement permettre à Dieu de vous bénir par la guérison, la guérison de l’âme par Son Amour, la guérison des énergies qui vous entourent et en vous, dans votre corps spirituel et votre corps physique, nombreux sont ceux qui se joignent à vous et qui vous servent, tandis que vous vous rassemblez ainsi.
+
+Il me semblait important de vous faire savoir à quel point je suis investie dans chacune de vos guérisons et de votre progression. Je fais tout mon possible pour vous accompagner. J’offre également des services à ma compagne, ma chère Phyllis, où elle et moi travaillons ensemble en esprit, car nous sommes des âmes sœurs et notre but est d’aider d’autres âmes sœurs à se rencontrer. C’est un travail magnifique. C’est une merveilleuse opportunité d’être béni, car en connaissant ma compagne comme je l’ai connue sur Terre, nous avons été profondément bénis, car il y avait dans notre âme un amour profond, pur, qui dépasse ce que l’on appelle l’amour humain et qui a un but unique.
+
+Nous avons eu la chance de nous connaître depuis très longtemps. Certes, lorsqu’elle a évolué avant moi, elle a poursuivi son cheminement, mais je suis heureuse de dire que j’ai atteint un niveau de développement personnel où nous sommes ensemble et qui dépasse l’expression de la joie. Il n’y a vraiment pas de mots pour vous aider à comprendre cela. Je lisais cela dans les messages de Padgett, où ils nous disaient qu’il était impossible de décrire avec des mots ce qui pourrait décrire les Sphères Célestes. Et voilà que je vous dis cela, car c’est vrai. Le langage n’est pas assez cohérent pour vous faire partager la véritable réalité de cette sphère où nous vivons, dans les Cieux Célestes.
+
+Continuez à prier, mes chers, car c’est ainsi que vous progresserez et renforcerez votre capacité à prier profondément, avec sincérité et ardeur. Ce faisant, vous serez abondamment bénis, car tout désir profond et intense de l’Amour de Dieu sera exaucé. Les jours et les moments où vos aspirations sont un peu tièdes sont également exaucés, mais en fonction de ce que vous pouvez recevoir et de ce que vous désirez vraiment. Dieu ne coule pas avec plus ou moins de puissance. L’Amour de Dieu est constant. Ce qui détermine la quantité d’Amour qui peut affluer, c’est vous, mes bien-aimés, toujours vous. Que cela soit une excellente nouvelle, car vous savez que vous êtes capable d’ouvrir le robinet, de vous ouvrir à ce grand afflux.
+
+Je suis heureux d’être avec vous. Je suis dans un endroit magnifique, un endroit que chacun de vous attend pour continuer à progresser spirituellement. J’espère pouvoir vous inspirer à continuer à laisser votre âme grandir, se développer et s’illuminer dans l’Amour de Dieu. Je salue tout particulièrement tous ceux que j’ai connus sur Terre. Mon amour est pour vous tous, car je suis maintenant dans un lieu où il n’y a absolument aucun jugement. Je ne peux qu’aimer. Je ne peux qu’aider. Je veux vous dire qu’être libéré de l’amour conditionné par l’humain, oh, c’est tellement merveilleux. Car c’est la liberté que mon âme désire depuis longtemps : être un amour pur et rayonnant pour tous. Voilà, chers amis, ce que je suis et ce qui vous attend tous.
+
+Je suis Percy. Percy Hayes, si heureux de venir passer un peu de temps avec chacun de vous pour prier pour l’afflux de l’Amour de Dieu. Que Dieu vous bénisse tous.

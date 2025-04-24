@@ -149,3 +149,4 @@ André et Jésus | [Il y a encore tant à faire](/fr-contemporary-messages/fr-co
 André | [Continuez à rechercher les bénédictions de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-12-1-af-andrew/) | 12 Janvier 2025
 André | [Recevoir l'Amour de Dieu commence comme un filet et peut se transformer en torrent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-1-1-af-andrew/) | 1 Février 2025
 André | [Félicitez-nous pour notre force, notre persévérance et nos choix au service de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-18-2-af-andrew/) | 18 Février 2025 
+André et Goldie | [Conseils pour la réunion du conseil d'administration de la DLSF](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-10-2-af-andrew-goldie/) | 10 Mars 2025 

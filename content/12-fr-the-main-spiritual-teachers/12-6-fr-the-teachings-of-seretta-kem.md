@@ -253,7 +253,7 @@ Seretta Kem | [Le chemin du voyage de l’âme](/fr-contemporary-messages/fr-con
 Seretta Kem | [Vous continuez à progresser ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-20-2-af-seretta-kem/) | 20 Août 2024
 Marthe et Serreta Kem | [Prière d’ouverture de la grande île d’Hawaï](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-27-2-af-martha-and-serreta-kem/) | 27 Février 2024
 Serreta Kem | [Élaboration sur le développement et présentation d'ouverture d'Al Fike](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-23-2-af-serreta-kem/) | 23 Janvier 2025 
-
+Seretta Kem | [S'harmoniser avec vos désirs profonds](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-15-1-af-seretta-kem/) | 15 Mars 2025
 
 
 

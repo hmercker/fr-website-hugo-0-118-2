@@ -121,6 +121,7 @@ Keea-atta-Kem | [Orientation concernant la retraite de développement pour vraim
 Keea atta Kem | [Nous invite à l'unité avec Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-19-3-mc-keea-atta-kem/) | 19 Janvier 2025
 Fleur de Lotus | [Décrit la transformation de l'âme avec l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-26-2-mc-lotus-blossom/) | 26 Janvier 2025
 Faith | [Désir d'avoir des anges et des guides avec vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-13-1-mc-faith/) | 13 Février 2025
+Keea Atta Kem | [La puissance de l'Amour Divin est la réponse à tout](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-3-2-mc-keea-atta-kem/) |3 Mars 2025
 Alec Gaunt | [Créer le paradis intérieur et la loi de progression](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-21-1-mc-alec/) | 21 Mars 2025 
 
 

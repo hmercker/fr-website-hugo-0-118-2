@@ -11,6 +11,8 @@ weight:
 
 St Paul - reçu par James Padgett le 4 Octobre 1916, Washington, USA.
 
+![](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1916/fr-1916-saint-paul-apotre.jpg)
+
 C’est moi, Paul.
 
 Oui, je viens ce soir pour vous écrire sur un sujet qui pourrait vous intéresser et être important pour toute l’humanité. Si vous êtes en état de recevoir mon message, j’écrirai. Eh bien, le sujet est : *« Quel est le corps réel qui est ressuscité au moment de la mort physique ? »*

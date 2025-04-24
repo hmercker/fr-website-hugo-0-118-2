@@ -25,4 +25,8 @@ Jésus | [Jésus connaît chacun de nous par son nom](/fr-contemporary-messages/
 Jésus | [Désire démontrer la puissance de l'amour de Dieu à tous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-23-1-af-jesus/) | 23 Février 2025 
 Jésus | [Bénédiction pour le Cercle de Lumière en ligne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-25-3-em-jesus/) | 25 Février 2025 
 Jésus | [Affirme l'Amour Divin. Les médiums construisent une fondation essentielle selon la volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-27-1-af-jesus/) | 27 Février 2025
-
+Jésus | [Nous implore d'être des canaux de lumière au service de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-9-3-af-jesus/) | 9 Mars 2025
+Jésus | [Prend chacun de nous pour une bénédiction dans le Hall de la Paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-16-1-af-jesus/) | 16 Mars 2025
+Jésus | [Est-ce aujourd'hui le jour ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-18-1-af-jesus/) | 18 Mars 2025
+Jésus | [Que Dieu nous bénisse tous, reliés par le réseau mondial croissant de Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-23-2-af-jesus/) | 23 Mars 2025
+Jésus | [Que Dieu bénisse chacun de nous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-26-1-af-jesus/) | 26 Mars 2025

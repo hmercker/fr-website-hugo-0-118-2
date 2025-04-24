@@ -1,0 +1,32 @@
+---
+title: "Nous implore d'être des canaux de lumière au service de Dieu"
+menu_title: ""
+description: "Nous implore d'être des canaux de lumière au service de Dieu"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Nous implore d'être des canaux de lumière au service de Dieu
+
+Jésus - reçu par Albert Fike le 9 Mars, Sechelt, Colombie-Britannique, Canada.
+
+Que l’Amour de Dieu soit avec vous, mes bien-aimés. Je suis votre frère et ami, Jésus. Je viens prier avec vous en ce jour, ce jour que vous avez consacré à votre Père céleste, ce jour qui regorge de possibilités et d’opportunités pour chacun de vous de grandir dans l’amour, d’être dans la grâce de Dieu, de servir Dieu de la manière qu’il a rendue possible dans votre vie et d’être une lumière. Être une lumière dans votre monde est si important, car il y a tant d’obscurité et la lumière dissipe l’obscurité. Si vous êtes une lumière qui brille à travers les brumes et les cavernes de la condition humaine, alors vous êtes au service de Dieu pour dissiper ces ténèbres et apporter la lumière.
+
+Bien-aimés, Dieu a besoin que vous soyez ses serviteurs et que vous soyez des canaux de lumière dans le monde, des canaux d’amour. Dieu a besoin que vous accomplissiez Sa Volonté, que vous soyez un instrument de Sa Volonté, que vous exauciez ses prières et que vous soyez des anges sur Terre. Êtes-vous prêts à parcourir ce chemin, bien-aimés, à être ces belles lumières, à être fidèles à la Vérité de l’Amour ?
+
+Mes bien-aimés, l’Amour de Dieu pour vous continue de vous nourrir et de vous soutenir. Ses anges continuent de vous entourer et de vous guider. Vous êtes bel et bien au seuil d’un grand changement dans le monde et d’un grand changement en vous-même. Soyez ouverts à ce que Dieu a à donner et à ce qu’Il a prévu pour ce monde. Lorsque vous êtes en harmonie avec ces choses, alors vous êtes véritablement les instruments de Dieu. Vous découvrez avec clarté, force et grâce les intentions de Dieu pour chacun de vous.
+
+Vous êtes constamment soutenus. Dieu vous envoie Son Amour et Ses bénédictions à chaque respiration. Il vous manque peu, âmes bien-aimées, pour poursuivre votre chemin de croissance et de développement de l’âme, en vous éveillant à mesure que l’Amour vous imprègne, vous enflamme et vous purifie. Vous devenez des lumières plus brillantes, de magnifiques canaux d’amour. Tu m’attires plus près de toi à mesure que ta lumière grandit. Les Lois de l’Amour régissent notre relation, ma proximité avec toi et le sentiment de ma présence auprès de toi. Laisse le grand Amour de Dieu dissiper le brouillard des états mentaux qui vous habitent tous, pour allumer, clarifier et mettre en lumière les facultés de l’âme qui perçoivent ma présence, la présence de Dieu et celle de tes amis angéliques.
+
+À mesure que tu grandiras dans l’Amour du Père et que tu travailleras avec diligence à dissiper toutes les conditions qui entravent ta vision, alors nous nous connaîtrons comme tu le souhaites : que nous soyons proches, que je te parle et te guide, que je te bénisse de telle manière que tu ressentes et connaisses ma présence et ma bénédiction. Il en est de même pour Dieu : être proche de Dieu, être proche de Son Amour, être proche de Sa Présence et des bénédictions qui en découlent.
+
+Votre âme aspire à ces choses. Ces choses vous parviennent lorsque vous aspirez et priez pour qu’elles vous accompagnent : ces bénédictions de Dieu, le Saint-Esprit qui vous touche et vous réveille, la conscience que ces manifestations de Dieu sont vraies, réelles et palpables, et que vous les ressentirez et les connaîtrez sans l’ombre d’un doute. Laissez-vous porter par la foi et l’attente. Car, par le désir, lorsque vous vous ouvrez et exercez votre foi, alors la Touche de Dieu devient réelle. Son influence vous portera et vous conduira vers une lumière plus grande, au-delà des conditions de ce monde et vers ce qui est véritablement spirituel.
+
+Mes bien-aimés, vous êtes précieux aux yeux de Dieu, chacun de vous. Dieu vous connaît, mieux que vous ne vous connaissez vous-même. L’Amour de Dieu pour vous est incommensurable. Soyez toujours dans cette grâce. Malgré toute la tourmente de votre monde, lorsque vous êtes dans la grâce de Dieu, ces choses ne vous touchent pas et ne vous empêchent pas d’être et de ressentir la joie dans votre vie. Tant que cette lumière, cette joie et cet amour perdurent, vous pouvez les partager avec les autres. Que vous partagiez une vérité, de la joie, de l’amour ou que vous apportiez la sagesse en conseil, tout cela vient avec la grâce de Dieu. Cela vous donne la force nécessaire pour véritablement toucher une autre âme et être entendu.
+
+Mes bien-aimés, il y a beaucoup à faire. Car, comme on le voit, le monde est en grande agitation et a besoin de réconfort, de paix et de vérité. Vers qui se tourneront-ils ? Qui est disposé ? Qui, ici, dans cette assemblée, est prêt à réconforter quelqu’un, à l’accueillir avec amour et à lui montrer le chemin pour sortir des ténèbres et accéder à la lumière ? Si vous êtes cette personne, alors vous êtes l’un de mes disciples et l’un des instruments de Dieu. Soyez fidèles à l’appel de votre cœur et aux connaissances de votre âme. Ainsi, vous trouverez votre chemin sur les chemins et les sentiers de la condition humaine et vivrez comme une lumière.
+
+Dieu a besoin de vous, mes bien-aimés. J’ai besoin que vous soyez cette lumière et que vous empruntiez ces chemins, que vous vous impliquiez dans les situations inharmonieuses, que vous soyez son instrument, que vous neutralisiez et que vous apportiez la lumière. Il y a beaucoup à faire et peu de personnes sont prêtes à le faire. Serez-vous ces instruments, mes bien-aimés ? Je vous appelle à servir la Main de Dieu, à être des canaux de lumière et à être pleinement bénis par la Lumière resplendissante du Toucher d’Amour de Dieu.
+
+Que Dieu vous bénisse, âmes bien-aimées. Je suis votre frère et ami, Jésus. Je viens avec amour. Je viens vous supplier d’être des lumières. Je viens vous encourager à être les instruments de Dieu. Le monde changera par ceux qui sont prêts à changer et à être transformés par l’Amour. Que Dieu vous bénisse dans Son Amour, un afflux abondant dans vos âmes. Puissiez-vous ressentir l’étreinte de Dieu, l’élévation et la joie de votre communion avec votre Père céleste. Que Dieu vous bénisse, mes bien-aimés. Mon amour est avec vous toujours et à jamais. Que Dieu vous bénisse.

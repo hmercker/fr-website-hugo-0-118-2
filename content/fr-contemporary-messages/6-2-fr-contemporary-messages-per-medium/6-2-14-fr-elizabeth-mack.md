@@ -101,5 +101,6 @@ Joseph | [Guérison et santé en relation avec les demandes adressées à Dieu](
 Jean le Bien Aimé et Jésus | [Bénédiction de Dieu délivrée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-26-5-em-john-the-beloved-and-jesus/) | 26 Janvier 2025 
 Jean le baptiste | [L'humanité a une grande œuvre à accomplir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-1-3-em-john-the-baptist/) | 1 Février 2025 
 Jésus | [Bénédiction pour le Cercle de Lumière en ligne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-25-3-em-jesus/) | 25 Février 2025
+Marie | [Demandez ce dont vous avez besoin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-9-2-em-mary/) | 9 Mars 2025 
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

@@ -357,6 +357,10 @@ Augustin | [Soyez forts, confiants et impatients d'embrasser un monde nouveau](/
 Augustin | [Message de la Saint-Valentin pour tous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-14-1-af-augustine/) | 14 Février 2025
 Augustin | [Seul votre esprit peut vous séparer de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-21-2-af-augustine/) | 21 Février 2025
 Augustin | [Vous êtes des anges sur Terre accomplissant l'œuvre de Dieu pour l'éternité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-27-3-af-augustine/) | 27 Février 2025
+Augustin | [Conseils pour l'Estonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-2-2-af-augustine/) | 2 Mars 2025
+Augustin | [Être dans le monde, mais pas du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-14-1-af-augustine/) | 14 Mars 2025 
+Augustin | [Vos luttes ne sont pas vaines](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-29-1-af-augustine/) | 29 Mars 2025
+Augustin | [DLSF est une organisation belle et simple](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-31-2-af-augustine/) | 31 Mars 2025
 
 
 

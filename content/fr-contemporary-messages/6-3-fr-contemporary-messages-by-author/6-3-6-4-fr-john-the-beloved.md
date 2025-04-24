@@ -45,3 +45,4 @@ Jean le Bien Aimé | [Prière continue](/fr-contemporary-messages/fr-contemporar
 Jean le Bien Aimé | [Vos prières sont exaucées sur les ailes de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-14-1-af-john-the-beloved/) | 14 Mai 2024
 Jean le Bien Aimé | [Les amis de Marmora cherchent. Aimez-les. Priez pour eux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-26-1-em-john-the-beloved/) | 26 Septembre 2024
 Jean le Bien Aimé et Jésus | [Bénédiction de Dieu délivrée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-26-5-af-john-the-beloved-and-jesus/) | 26 Janvier 2025
+Jean le Bien Aimé | [Engagement de l'Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-26-2-jw-john-the-beloved/) | 26 Mars 2025 

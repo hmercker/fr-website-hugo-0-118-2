@@ -35,4 +35,5 @@ Marc | [La vérité de l’Amour Divin](/fr-contemporary-messages/fr-contemporar
 Marc | [Bénédictions pour la Première Eglise Spiritualiste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-4-2-af-mark/) | 4 Juillet 2021
 Marc | [Marcher au service de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-9-5-1-af-mark/) | 5 Septembre 2023
 Marc | [Savoir demander ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-10-3-em-mark/) | 10 Mars 2024
+Marc | [Le gardien spirituel de la FUSC bénit la congrégation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-30-3-af-mark/) | 30 Mars 2025 
 

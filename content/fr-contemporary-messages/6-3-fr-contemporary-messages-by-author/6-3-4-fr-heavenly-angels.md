@@ -102,6 +102,7 @@ Goldie | [Nous demande de déposer des fleurs à l’autel de WHC](/fr-contempor
 Goldie | [Mangez de la crème glacée pour célébrer l'Amour de Dieu !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-17-1-af-goldie/) | 17 Novembre 2022
 Goldie | [Dansez et chantez pour entrer au paradis ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-10-1-af-goldie/) | 10 Juillet 2024
 Goldie | [Amusez-vous aussi ! ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-3-2-af-goldie/) | 3 Janvier 2025
+André et Goldie | [Conseils pour la réunion du conseil d'administration de la DLSF](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-10-2-af-andrew-goldie/) | 10 Mars 2025 
 Grace | [Un message de réconfort](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-24-3-af-grace/) | 24 Novembre 2022
 Grace Jordan | [Confirmation du message de Barbara_2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-21-3-af-grace-jordan/) | 21 Février 2023
 Grace Jordan | [ Grace dit la vérité à son fils ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-29-1-af-grace-jordan/) | 29 Juin 2024
@@ -189,6 +190,7 @@ Rachel Carson | [Chaque voyage commence par un pas](/fr-contemporary-messages/fr
 Riannon | [Restez connectés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-21-3-jr-riannon/) | 21 Mai 2014
 Richard | [Donner, recevoir, émotions et pensées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-15-1-jr-richard/) | 15 Mars 2013
 Richard | [Gratitude](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-18-1-jr-richard/) | 18 Mai 2014
+Rick Minckler | [Son rêve pour FUSC s'est réalisé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-30-1-af-rick-minckler/) | 30 Mars 2025 
 Salome | [Les désirs de notre âme en alignement avec la volonté de Dieu (2021 Voix directe II)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-17-1-af-salome/) | 17 Septembre 2021
 Salome | [Le monde a besoin de vos prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-21-2-af-salome/) | 21 Juin 2022
 Sam | [Retraite spirituelle - Hawaii](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-6-6-1-fab-sam/) | 6 Juin 2002

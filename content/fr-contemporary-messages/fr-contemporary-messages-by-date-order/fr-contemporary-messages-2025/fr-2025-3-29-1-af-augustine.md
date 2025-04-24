@@ -1,0 +1,28 @@
+---
+title: "Vos luttes ne sont pas vaines"
+menu_title: ""
+description: "Vos luttes ne sont pas vaines"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Vos luttes ne sont pas vaines
+
+Augustin - reçu par Albert Fike le 29 Mars, Sechelt, Colombie-Britannique, Canada.
+
+Oui, il y a du progrès, chères âmes. Je suis votre maître, Augustin. Bien que vous perceviez votre progression comme lente, ardue, voire fastidieuse, nous la percevons comme rapide et atteignant rapidement son objectif. Bien que vous voyiez que vos progrès sont peu concluants, car votre esprit a ses propres paramètres et idées de ce que cela pourrait être, notre façon d’évaluer votre progression est de regarder au plus profond de votre âme, d’y voir la lumière grandir et d’en percevoir les effets à mesure qu’elle purifie et purifie.
+
+Tant que vous êtes guidés par l’esprit et ses attentes, vous percevrez votre progression comme lente et sans conséquence. Car l’esprit est la dernière chose à capituler devant la progression de votre âme. C’est la seule chose qui maintient fermement sa perspective et son expression dans votre vie quotidienne. Puisque vous vivez dans un monde qui est de l’esprit, vous suivez effectivement le courant de cette attente et de cette expression. Pourtant, vous recherchez quelque chose de différent, voire de révolutionnaire, dans son expression et ses priorités. Ainsi, vous hésitez à suivre les désirs de votre âme aussi systématiquement que vous le faites avec votre esprit, car vous constatez que ces inclinations, inspirations et désirs sont souvent contraires aux attentes du monde matériel.
+
+La lutte continue, mes amis, au-delà des conditions qui se préparent et grandissent en votre âme, cherchant à dominer votre conscience et à rechercher sa véritable expression et sa façon d’être au monde. Vous vous trouvez face à un dilemme, alors que les contradictions de vos pensées continuent de s’entrechoquer, que vous continuez à lutter et que vous ressentez un malaise persistant, car tout n’est pas à l’unisson et en harmonie. Mes chers et magnifiques étudiants de la vérité, vous étudiez souvent. Vous lisez. Vous priez. Vous exercez votre volonté. Vous priez encore. Vous continuez à essayer de gravir les marches de l’illumination, mais vos pas sont guidés par vos préoccupations et vos peurs conscientes.
+
+C’est une lutte. Cela exige de grands efforts. Cela exige la foi, mes amis, une foi profonde. Vous luttez souvent sur un chemin qui ne semble ni clair ni même justifiable à votre esprit. Pourtant, au fond de votre cœur, vous savez que vous êtes sur la bonne voie. Vous continuez à chercher la vérité, et elle résonne au plus profond de votre être. Dans cette résonance, elle conserve sa place et son expression en vous. Parfois, cette expression est claire et résonnante comme une cloche sonnant de ses magnifiques tons. D’autres fois, elle est étouffée. D’autres fois, elle est complètement perdue.
+
+Oui, les conditions sur votre planète, votre Terre, continuent d’exercer leur influence sur vous et sur tous. Pourtant, vous savez au fond de votre cœur que Dieu est avec vous, que vos amis angéliques sont avec vous, vos amis stellaires, les esprits brillants. Toute cette belle influence et tout ce magnifique renforcement de la vérité continuent de vivre en vous et souvent dans votre conscience. Poursuivez le combat, mes chers étudiants. Continuez à être courageux, inébranlables, remplis d’une foi qui déborde de votre conscience, remplis de confiance en Dieu et de confiance en votre être profond. Avec le temps, la domination du mental capitulera et sera absorbée par la conscience de l’âme. Ce sera un moment de véritable célébration et d’être véritable au sein de la réalité de l’Amour Divin, la réalité de Dieu.
+
+Nous attendons ce jour avec impatience. En attendant, nous sommes là pour vous. Nous vous aimons tendrement. Nous vous soutenons à chaque instant de chaque jour. Nous prions constamment pour vous. Nous sommes vos gardiens et vos enseignants, vos guérisseurs et vos amis. Nous resterons inébranlables, mes chers étudiants, toujours et à jamais. Car on ne marche pas seul sur ce chemin. On est accompagné par les anges. On a la force, l’inspiration et l’amour offerts, et c’est un immense don et une immense bénédiction pour vous tous.
+
+Allons-nous continuer, mes chers amis ? Placerons-nous un pied sur le Chemin Divin, puis un autre, puis un autre, jusqu’à cette réalisation, cette expansion, cette intégration, cette âme vivifiée par l’Amour de Dieu, l’Essence de la grande Âme de notre Créateur, jusqu’à ce qu’il n’y ait plus de place pour le doute, plus de place pour l’erreur, plus de place pour cette dualité qui perdure dans votre conscience. Il n’y a que place pour l’amour. L’amour régnera en vous et s’exprimera à chaque respiration, chaque action et chaque pensée. Il viendra et sera sans aucun frémissement sombre ou dénué de vérité. Vous êtes les enfants de Dieu. Oui, nous voyons la lumière intérieure. Nous voyons les frémissements. Nous voyons la croissance et l’expansion de l’Amour qui grandit en vous. Vous êtes vraiment sur le chemin, bien-aimés. Vraiment. Nous vous accompagnons dans votre croissance et votre intégration à ce lieu de véritable transformation et d’intégration de ce don que Dieu vous a donné si généreusement.
+
+Que Dieu vous bénisse, mes bien-aimés, mes chers élèves. Je suis votre enseignant, Augustin. Je suis venu vous encourager, vous reconnaître et vous aimer. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse.
