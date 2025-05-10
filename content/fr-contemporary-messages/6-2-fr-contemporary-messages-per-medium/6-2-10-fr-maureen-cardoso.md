@@ -123,6 +123,12 @@ Fleur de Lotus | [Décrit la transformation de l'âme avec l'Amour Divin](/fr-co
 Faith | [Désir d'avoir des anges et des guides avec vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-13-1-mc-faith/) | 13 Février 2025
 Keea Atta Kem | [La puissance de l'Amour Divin est la réponse à tout](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-3-2-mc-keea-atta-kem/) |3 Mars 2025
 Alec Gaunt | [Créer le paradis intérieur et la loi de progression](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-21-1-mc-alec/) | 21 Mars 2025 
+Faith Nyquist | [Le chemin vers le véritable pardon](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-2-1-mc-faith-nyquist/) | 2 Avril 2025 
+Fleur de Lotus | [Bienvenue dans vos cœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-10-1-mc-lotus-blossom/) | 10 Avril 2025 
+Grace Jordan | [Se connecter au sens des circonstances](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-11-2-mc-grace-jordan/) | 11 Avril 2025
+Keea-atta-Kem | [Qu’est-ce que la guérison ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-11-3-mc-keea-atta-kem/) | 11 Avril 2025
+Marie |  [Ouvrez-vous et vivez le baiser de Dieu sur votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-12-3-mc-mary/) | 12 Avril 2025 
+Jésus | [Jésus apporte guérison et bénédiction personnelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-13-3-mc-jesus/) | 13 Avril 2025
 
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

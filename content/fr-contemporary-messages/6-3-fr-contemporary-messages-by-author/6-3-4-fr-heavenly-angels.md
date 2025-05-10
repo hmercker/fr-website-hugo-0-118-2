@@ -61,6 +61,7 @@ Fleur de Lotus | [Votre état spirituel et son effet sur les cercles de lumière
 Fleur de Lotus | [L'espoir dans chaque âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-8-2-mc-lotus-blossom/) | 8 Décembre 2024
 Jésus, Fleur de Lotus et Aaron | [Bénédictions d’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-15-1-af-jesus-aaron-and-lotus-blossom/) | 15 Décembre 2024
 Fleur de Lotus | [Décrit la transformation de l'âme avec l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-26-2-mc-lotus-blossom/) | 26 Janvier 2025
+Fleur de Lotus | [Bienvenue dans vos cœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-10-1-mc-lotus-blossom/) | 10 Avril 2025
 Goldie | [S'exprimer en tant qu'enseignant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-7-1969-3-25-anonymous-goldie/) | 25 Mars 1969
 Goldie | [Vous ne pouvez grandir que pas à pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-34-1969-11-1-anonymous-goldie/) | 1 Novembre 1969
 Goldie | [Une mission spéciale de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-108-1969-anonymous-goldie/) |   1969
@@ -110,6 +111,7 @@ Grace Jordan | [La mère de David vient partager son histoire ](/fr-contemporary
 Grace Jordan | [Préparez-vous pour ce temps ensemble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-11-2-af-grace-jordan/) | 11 Janvier 2025
 Grace Jordan | [Décrit comment Barbara et elle ont suivi des chemins parallèles sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-22-4-af-grace-jordan/) | 22 Janvier 2025
 Grace Jordan | [Exprime sa gratitude pour la retraite Starpoint ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-26-1-af-grace-jordan/) | 26 Janvier 2025
+Grace Jordan | [Se connecter au sens des circonstances](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-11-2-mc-grace-jordan/) | 11 Avril 2025 
 Isabelle | [Se présente comme la guide de Sonja pour son anniversaire ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-16-2-af-isabel/) | 16 Janvier 2025
 James Tudor Sr. | [Laissez les morts enterrer les morts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-21-2-af-james-tudor-sr/) | 21 Janvier 2024
 James Tudor Sr | [Exprime sa déception face aux changements culturels à la Barbade ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-22-2-af-james-tudor-sr/) | 22 Janvier 2025

@@ -94,4 +94,7 @@ Care Darby Walsh | [Ma vie de prière](/fr-contemporary-messages/fr-contemporary
 Care Darby Walsh | [Conseils pour que nous puissions nous démarquer en tant qu'instruments au service de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-28-1-af-care-darby-walsh/) | 28 Février 2025
 Care Darby Walsh | [Les bénédictions de la tragédie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-10-1-jw-care-darby-walsh/) | 10 Mars 2025 
 Care Darby Walsh | [Avec Dieu, il n'y a pas de distance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-31-1-jw-care-darby-walsh/) | 31 Mars 2025 
+Care Darby Walsh | [Quand l'Âme est en Préséance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-13-2-jw-care-darby-walsh/) | 13 Avril 2025
+Care Darby Walsh | [Joie et félicité sans fin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-23-1-jw-care-darby-walsh/) | 23 Avril 2025
+
 

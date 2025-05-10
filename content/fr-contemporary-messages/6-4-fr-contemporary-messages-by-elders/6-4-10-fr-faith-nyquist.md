@@ -41,3 +41,4 @@ Faith Nyquist | [Marcher dans la foi et partager la vérité de l'Amour Divin ](
 Faith Nyquist | [L'humilité et la foi grandissent à mesure que vous recevez l'amour divin dans votre âme ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-22-1-af-faith/) | 22 Janvier 2025
 Faith Nyquist| [Désir d'avoir des anges et des guides avec vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-13-1-mc-faith/) | 13 Février 2025
 Faith Nyquist | [L'importance de la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-6-3-af-faith-nyquist/) | 6 Mars 2025 
+Faith Nyquist | [Le chemin vers le véritable pardon](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-2-1-mc-faith-nyquist/) | 2 Avril 2025 

@@ -11,13 +11,6 @@ weight:
 
 Keea Atta Kem - reçu par Albert Fike le 6 Mars, Sechelt, Colombie-Britannique, Canada.
 
-Affirme la progression de votre âme
-
-Esprit : Keea Atta Kem
-Date : 6 Mars 2025
-Lien : Sechelt, C.-B., Canada
-Médium : Al Fike
-
 Je souhaite simplement affirmer avec vous la progression de votre âme. Même si notre cher ami stellaire [Orion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-6-1-af-orion/) a ses inquiétudes, je tiens à vous dire que vous continuez à progresser dans la lumière. Vos âmes continuent de briller de cette belle lumière, toutes leurs facettes reflétant l’amour.
 
 Je suis d’accord avec notre cher ami : vous devez toujours choisir cela, car c’est là que réside votre force. C’est là que réside votre beauté. C’est là que votre capacité à agir se manifeste. L’âme est le moyen d’exprimer la volonté et le plan de Dieu. C’est l’âme que vous devez bien connaître et reconnaître en permanence, non seulement dans la prière, mais toujours. Ainsi, les problèmes dont parle Orion se dissiperont. Ils ne sont pas aussi difficiles à dissiper que vous pourriez le croire.

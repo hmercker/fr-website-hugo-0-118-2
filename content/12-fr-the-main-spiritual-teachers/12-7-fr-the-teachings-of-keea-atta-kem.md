@@ -124,3 +124,5 @@ Keea Atta Kem | [La puissance de l'Amour Divin est la réponse à tout](/fr-cont
 Keea Atta Kem | [Se préparer à vivre l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-4-2-af-keea-atta-kem/) | 4 Mars 2025
 Keea Atta Kem | [Affirme la progression de votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-6-2-af-keea-atta-kem/) | 6 Mars 2025
 Keea Atta Kem | [Salle de la Paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-16-2-af-keea-atta-kem/) | 16 Mars 2025 
+Keea-atta-Kem | [Qu’est-ce que la guérison ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-11-3-mc-keea-atta-kem/) | 11 Avril 2025 
+Jeanne d'arc, Marie et Keea Atta Kem | [Venez soutenir toutes les femmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-15-1-af-joan-of-arc-mary-keea-atta-kem/) | 15 Avril 2025 

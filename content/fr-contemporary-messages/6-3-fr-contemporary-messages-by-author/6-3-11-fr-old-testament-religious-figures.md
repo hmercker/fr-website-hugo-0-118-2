@@ -129,6 +129,7 @@ Moïse | [Votre responsabilité d’indiquer le chemin vers Dieu pour les autres
 Moïse | [La loi de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-21-1-em-moses/) | 21 Mars 2024
 Moïse | [Tellement de personnes dans ce monde ont besoin que l'Amour Divin leur soit apporté ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-27-2-em-moses/) | 27 Septembre 2024
 Moïse | [Nous sommes tous une famille dans l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-22-1-af-moses/) | 22 Novembre 2024
+Moïse | [Devenez un ange de la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-6-1-af-moses/) | 6 Avril 2025
 Moïse et Jésus | [Nous sommes tous nécessaires comme annonciateurs pour soutenir la tente de la vérité, ajoute sa bénédiction au message de Moïse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-1-1-af-moses-jesus/) | 1 Septembre 2024
 Noé | [Noé et le déluge](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-2-1-fab-noah/) | 2 Février 2003
 Noé | [L'histoire du déluge](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-10-1-fab-noah/) | 10 Février 2009

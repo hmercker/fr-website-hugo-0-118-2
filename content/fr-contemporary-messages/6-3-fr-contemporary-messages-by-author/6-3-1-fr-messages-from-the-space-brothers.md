@@ -173,6 +173,9 @@ Orion | [La force de vos prières détermine la puissance du résultat](/fr-cont
 Orion | [L'Amour Divin Apporte l'Unité dans la Diversité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-15-2-af-orion/) | 15 Mars 2025
 Orion | [Le monde a besoin de vous !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-18-2-af-orion/) | 18 Mars 2025
 Orion | [Soyez une lumière dans les conditions sombres qui vous assaillent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-25-2-af-orion/) | 25 Mars 2025
+Orion | [Répondez à l'appel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-1-1-af-orion/) | 1 Avril 2025 
+Orion | [Trouve notre excentricité amusante !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-3-1-af-orion/) | 3 Avril 2025
+Orion | [Priez pour la conscience de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-5-1-af-orion/) | 5 Avril 2025 
 Orion & Augustin | [Décrit plus en détail son travail avec ce projet Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-13-1-af-orion-augustine/) | 13 Septembre 2021
 Orion & Jésus | [Décrit la tendresse de leur approche pour travailler avec nous (2021 Gardiens de la Lumière)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-23-1-af-orion-jesus/) | 23 Octobre 2021
 Orion & Jésus & Orion | [Orion et Jésus encouragent les efforts pour de futures publications](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-27-1-af-jesus-orion/) | 27 Octobre 2021

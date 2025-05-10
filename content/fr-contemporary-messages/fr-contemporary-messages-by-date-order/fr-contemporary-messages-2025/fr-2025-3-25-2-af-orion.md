@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez une lumière dans les conditions sombres qui vous assaillent
 
-Orion - reçu par Albert Fike le 25 Mars, Sechelt, Colombie-Britannique, Canada.
+Orion - reçu par Albert Fike le 25 Mars 2025, Sechelt, Colombie-Britannique, Canada.
 
 Mes amis, Orion vient une fois de plus pour vous élever, vous enseigner et vous inspirer. Je ne suis pas le seul, comme vous le savez bien, seulement l’un des nombreux qui se rassemblent autour de vous dans la lumière et la beauté du désir de votre âme, désirant la vérité, assoiffée d’amour et cherchant la lumière pour être avec vous. Dieu continue de répondre à vos prières, à vos désirs et à vos choix alors que vous vivez dans ce monde souvent si inharmonieux.
 

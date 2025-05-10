@@ -20,6 +20,7 @@ Aigle Blanc | [La guérison par l’intermédiaire des guérisseurs spirituels](
 Aigle Blanc | [L’autre vision.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-2-11-1-ar-white-eagle/) | 11 Février 2001
 Aigle Blanc | [Aigle Blanc vient offrir la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-29-2-jw-white-eagle/) | 29 Mars 2020
 Aigle Blanc | [Nous sommes tous des peuples indigènes en tant qu'enfants de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-19-2-jw-white-eagle/) | 19 Avril 2020
+Aigle Blanc | [Une Tribu dans l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-27-1-jw-white-eagle/) | 27 Avril 2025 
 Marie & Aigle Blanc | [Le Miracle de Fatima et l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-9-19-2-ar-mary-white-eagle/) | 19 Septembre 1999
 Aman | [La première expérience](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-6-5-1-ar-aman/) | 5 Juin 2005
 Aman | [Changements dans le programme "Les Premiers Parents"](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-24-4-fab-aman/) | 24 Janvier 2007
@@ -88,7 +89,7 @@ Salomon | [Il n'y a pas de différences entre nous](/fr-contemporary-messages/fr
 Salomon | [La confiance dans la sagesse de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-6-1-af-solomon/) | 6 Août 2018
 Salomon | [La sagesse de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-17-4-af-solomon/) | 17 Octobre 2018
 Salomon | [Salomon parle de la sagesse de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-14-1-af-solomon/) | 14 Février 2019
-Salomon | [Conseils pour vivre votre vie!](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-11-1-af-solomon/) | 11 Mars 2025 
+Salomon | [Conseils pour vivre votre vie !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-11-1-af-solomon/) | 11 Mars 2025 
 Socrate | [Notre boussole intérieure supérieure.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-7-19-1-fab-socrates/) | 19 Juillet 2006
 Tahlia | [Semer les graines de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-1-1-af-tahlia/) | 1 Décembre 2016
 Tahlia | [Marcher dans la lumière à travers les bouleversements à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-2-1-af-tahlia/) | 2 Octobre 2017
