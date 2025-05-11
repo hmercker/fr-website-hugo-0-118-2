@@ -9,11 +9,13 @@ weight:
 ---
 ### Une Tribu dans l'Amour de Dieu
 
-Judas - reçu par reçu par Jimbeau Walsh le 27 Avril 2025, Nashville, Tennesse, USA.
+Aigle  Blanc - reçu par reçu par Jimbeau Walsh le 27 Avril 2025, Nashville, Tennesse, USA.
+
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-nepal-3.jpg)
 
 Je suis là, Aigle Blanc.<sup id="a1">[1](#f1)</sup>
 
-Je suis votre frère et votre ami, et je viens avec l’Amour de Dieu. Que la grâce du Grand Esprit soit sur vous tous.
+Je suis votre frère et votre ami, et je viens avec l’Amour de Dieu. Que la grâce du Grand Esprit soit sur vous tous.<sup id="a2">[2](#f2)</sup>
 
 En ces temps troublés, les gens recherchent la sécurité, la protection, un lieu où se poser et vivre en paix. Souvent, la réaction aux événements discordants est une forme de tribalisme. Il n’y a pas que les tribus autochtones, mais, voyez-vous, les gens gravitent vers de nombreux types de groupes. Certains sont entièrement attachés à leur équipe sportive préférée, à leur parti politique, à leur pays, à leurs préférences musicales, etc. Et bien sûr, il y a le désir d’être dans une communauté avec des âmes qui partagent les mêmes idées et de se sentir protégés. Ainsi, les gens se retrouvent dans ces groupes, dans les églises, dans les mouvements, et cela leur procure un réel sentiment d’appartenance, de fraternité et de solidarité au sein de la condition humaine. Certains groupes sont, bien sûr, fondés sur des croyances dogmatiques. D’autres sont ouverts d’esprit. D’autres encore sont très exigeants. Pourtant, quelle que soit votre inclination, vous êtes venus ici, dans ce cercle, dans cette tribu de l’Amour Divin, pour recevoir l’Amour de Dieu qui embrasse tout. Vous avez bien choisi, et les désirs de votre cœur et les aspirations de votre âme vous ont conduits ici ; issus de nombreuses cultures, de nombreux peuples, de nombreux pays ; tous unis dans cette prière.
 
@@ -24,7 +26,8 @@ Alors que vous cheminez dans le monde et que vous souhaitez partager, je vous ra
 Je suis Aigle Blanc, votre frère et ami dans les royaumes Célestes.
 <small>
 
-1. <large id="f1"> Le précédent message d’Aigle Blanc avait été communiqué [le 29 Mars 2020](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-202/\fr-2020-3-29-2-jw-white-eagle/)[↩](#a1)
+1. <large id="f1"> Le précédent message d’Aigle Blanc avait été communiqué [le 29 Mars 2020](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-29-2-jw-white-eagle/)[↩](#a1)
 
+2. <large id="f2"> Aigle Blanc est un Indien puissant et a souvent utilisé ses grands pouvoirs de guérison pour restaurer la santé de M. James E. Padgett. Il écrivait souvent car il avait dans son âme un Amour Divin considérable qui faisait de lui un esprit lumineux et beau. Vous pouvez consulter un des messages qu'il a communiqué à travers James Padgett [le 15 Février 1915](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-2-15-1-jep-white-eagle/)[↩](#a2)
 
 

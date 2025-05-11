@@ -1,15 +1,15 @@
 ---
-title: "Bartholomée continue de nous aider à trouver notre objectif"
+title: "Barthélémy continue de nous aider à trouver notre objectif"
 menu_title: ""
-description: "Bartholomée continue de nous aider à trouver notre objectif"
+description: "Barthélémy continue de nous aider à trouver notre objectif"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### Bartholomée continue de nous aider à trouver notre objectif 
+### Barthélémy continue de nous aider à trouver notre objectif 
 
-Bartholomée - reçu par Albert Fike le 10 Janvier 2025, St Michael, La Barbade.
+Barthélémy - reçu par Albert Fike le 10 Janvier 2025, St Michael, La Barbade.
 
 Je continue à travailler avec diligence pour vous aider à parvenir à un endroit où vous êtes fort et clair, rempli d’amour et où la vérité brille à travers vous. Car si vous voulez être les instruments de Dieu dans le monde, en ce lieu, ces choses doivent être accomplies. Vous avez besoin d’une main solide, stable et forte. Je suis donc ici et je continuerai d’être ici. Tant que vous souhaitez servir Dieu de la manière que votre cœur désire, Dieu vous fournira les voies et les moyens, les conseils et la présence qui vous aideront à y parvenir.
 

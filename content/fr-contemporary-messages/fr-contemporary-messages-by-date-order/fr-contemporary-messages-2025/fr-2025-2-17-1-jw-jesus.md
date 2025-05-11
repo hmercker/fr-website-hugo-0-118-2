@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Jimbeau Walsh le 17 Février 2025, Nashville, Tennesse, USA.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/jesus4.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-jesus4.jpg)
 
 Bien-aimés frères et sœurs, il est écrit : « Il n’y a pas de plus grand amour que de donner sa vie pour ses amis. » Qu’est-ce que cela signifie ? On l’attribue souvent à ma mort et aux sacrifices de mes disciples, et dans ce contexte, c’est vrai. Cependant, j’aurais tout aussi bien pu dire qu’il n’y a pas de plus grand don que celui de celui qui donne son amour pour ses amis et dans l’Amour de Dieu. Ainsi, votre sacrifice mortel n’est pas censé être un don aux autres, et vraiment, le plus grand don est l’Amour du Père pour tous Ses enfants.
 

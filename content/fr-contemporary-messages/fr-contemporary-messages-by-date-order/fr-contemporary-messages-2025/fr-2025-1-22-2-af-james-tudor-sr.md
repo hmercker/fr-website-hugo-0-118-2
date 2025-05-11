@@ -9,7 +9,7 @@ weight:
 ---
 ### Exprime sa déception face aux changements culturels à la Barbade 
 
-James Tudors Sr - reçu par Albert Fike le 22 Janvier 2025, St Michael, La Barbade
+James Tudor Sr - reçu par Albert Fike le 22 Janvier 2025, St Michael, La Barbade
 
 Je suis James, votre père et votre grand-père. J'étais avec vous, ces quatre-là qui se sont réunis pour parler et discuter de cultures et de politique, de toutes ces choses qui m'intéressaient autrefois. Je regarde aujourd'hui mon pays, la Barbade, et je suis tristement déçu par les conditions et les attitudes des gens qui y vivent. Car plutôt que de se relever par leurs propres moyens et d'essayer de se construire une vie meilleure, ils ont l'attitude de penser qu'ils ont le droit et qu'ils devraient avoir tout ce qu'ils veulent sans faire l'effort de le leur apporter.
 

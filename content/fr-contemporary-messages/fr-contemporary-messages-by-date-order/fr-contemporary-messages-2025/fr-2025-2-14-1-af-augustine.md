@@ -13,7 +13,6 @@ Augustin - reçu par Albert Fike le 14 Février 2025, Sechelt, Colombie-Britanni
 
 ![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-saint_augustin.jpg)
 
-
 Il est plutôt amusant qu’une journée dans l’année soit consacrée à l’amour, alors qu’en réalité, chaque jour de l’année devrait l’être. Je suis votre maître, Augustin. Je viens vous encourager, non seulement à exprimer l’amour naturel en vous, mais aussi l’Amour Divin qui grandit en votre âme. Car avec le temps, cet Amour que vous portez en vous éclipsera et absorbera l’amour naturel que vous possédez, les capacités d’amour que vous exprimez.
 
 L’Amour Divin transforme et absorbe tout ce que vous êtres, pour le transformer en divin, plutôt qu’en quelque chose de trop mortel, humain et naturel. Voilà ce que Dieu vous a donné : cette opportunité de chercher, de grandir et de vous épanouir au-delà de vos capacités naturelles, et d’être pleinement éveillé à l’Amour Divin de Dieu, son Essence rayonnant en vous, vous transformant et faisant de vous un être céleste, plutôt qu’un mortel.

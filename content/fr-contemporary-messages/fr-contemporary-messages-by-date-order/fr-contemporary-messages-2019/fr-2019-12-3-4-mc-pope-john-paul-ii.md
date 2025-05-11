@@ -11,6 +11,8 @@ weight:
 
 Pape Jean-Paul II - reçu par Maureen Cardoso le 3 Décembre 2019, Waianae, Oahu, Hawaii, USA.
 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-jean-paul-2.webp)
+
 Et je me joins à vous dans votre Cercle de Lumière. Vous me connaissez en tant que Pape Jean Paul, et j’aimerais venir vous dire que maintenant je suis un Ange Céleste, travaillant pour Dieu. J’ai toujours travaillé pour Dieu, bien que maintenant je travaille dans une plus grande vérité et je suis l’un de ceux qui aide à influencer les dirigeants de l’Église, qui aide à changer ce qui est dans l’erreur et aussi la grande souffrance des prêtres dans leurs actions d’erreur. Et comme vous le savez bien, lorsqu’ils passeront à la vie spirituelle, ils auront l’occasion de se racheter et de voir leur âme purifiée de leurs erreurs.
 
 Ce ne fut pas difficile pour moi lorsque Jésus est venu devant moi en me révélant la vérité sur qui il est et sur ce qu’est Dieu. Ce ne fut pas difficile pour moi de l’accepter, et dans mon amour pour Dieu et mon désir de servir, j’ai consacré mon temps de prière à recevoir l’Amour de Dieu et à purifier les erreurs et les conditions que je portais. Ma fille qui a partagé sa vision après la prière du matin, en disant qu’elle se sent guidée pour approcher ceux qu’elle connaît, ces liens d’enfance, et partager la vérité qu’elle connaît, la vérité de l’Amour Divin, avec ceux qui servent dans l’Église, je suis ici pour vous demander de suivre vos indications, cela fait partie de votre but et pour vous faire savoir que beaucoup en esprit sont autour de vous et vous guideront et vous ne serez pas seule lorsque vous avancerez vers ce but.

@@ -21,7 +21,7 @@ Une fois cela fait, lorsque vous ressentez cette connexion et que vous vous en r
 
 Je vous exhorte à prier. Priez ensemble. Priez souvent. Soyez avec Dieu. Ainsi, les pièges de cette condition humaine ne peuvent pas vraiment vous toucher ni vous inquiéter. Au contraire, vous êtes dans la grâce de Dieu et vous la soutenez par la prière. Vous marchez ensemble, presque comme une prière, en affirmant les liens qui vous unissent, ces liens d’âme si puissants, importants et éternels.
 
-Soyez véritablement dans la grâce de Dieu, mes amis. Ne contrecarrez pas cet appel, mais répondez-y avec dignité, grâce, désir et authenticité, avec tous les beaux aspects de votre être. Criez à Dieu : « Je suis là. Je suis avec toi. Je t’aime.» Trois affirmations importantes qui mettront les lois en action et susciteront les bénédictions.
+Soyez véritablement dans la grâce de Dieu, mes amis. Ne contrecarrez pas cet appel, mais répondez-y avec dignité, grâce, désir et authenticité, avec tous les beaux aspects de votre être. Criez à Dieu : *« Je suis là. Je suis avec toi. Je t’aime.»* Trois affirmations importantes qui mettront les lois en action et susciteront les bénédictions.
 
 Dieu vous aime et est prêt à tout vous donner. Premièrement, vous devez demander et être avec Dieu, non pas avec votre esprit et ses distractions, non pas avec le corps matériel et ses distractions, mais avec Dieu et votre âme, en communion et en étant fidèles à vos deux désirs : celui de Dieu de vous bénir et celui de votre âme d’être bénie.
 
