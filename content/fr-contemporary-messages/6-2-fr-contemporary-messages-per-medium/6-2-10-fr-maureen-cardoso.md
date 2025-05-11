@@ -127,7 +127,7 @@ Faith Nyquist | [Le chemin vers le véritable pardon](/fr-contemporary-messages/
 Fleur de Lotus | [Bienvenue dans vos cœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-10-1-mc-lotus-blossom/) | 10 Avril 2025 
 Grace Jordan | [Se connecter au sens des circonstances](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-11-2-mc-grace-jordan/) | 11 Avril 2025
 Keea-atta-Kem | [Qu’est-ce que la guérison ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-11-3-mc-keea-atta-kem/) | 11 Avril 2025
-Marie |  [Ouvrez-vous et vivez le baiser de Dieu sur votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-12-3-mc-mary/) | 12 Avril 2025 
+Marie |  [Ouvrez-vous et vivez le baiser de Dieu sur votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-12-1-mc-mary/) | 12 Avril 2025 
 Jésus | [Jésus apporte guérison et bénédiction personnelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-13-3-mc-jesus/) | 13 Avril 2025
 
 

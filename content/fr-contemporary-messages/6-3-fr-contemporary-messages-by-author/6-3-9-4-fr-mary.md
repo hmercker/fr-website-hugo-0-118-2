@@ -144,7 +144,7 @@ Marie | [La vie n'est pas faite pour travailler dur, s'inquiéter ou être oppri
 Marie | [Demandez ce dont vous avez besoin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-9-2-em-mary/) | 9 Mars 2025 
 Marie | [L'humanité a besoin d'apprendre la puissance de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-21-2-af-mary/) | 21 Mars 2025 
 Marie | [Nous venons avec amour pour apporter des bénédictions d'amour et de paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-11-1-af-mary/) | 11 Avril 2025
-Marie |  [Ouvrez-vous et vivez le baiser de Dieu sur votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-12-3-mc-mary/) | 12 Avril 2025
+Marie |  [Ouvrez-vous et vivez le baiser de Dieu sur votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-12-1-mc-mary/) | 12 Avril 2025
 Marie & White Eagle | [Le miracle de Fatima et l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-9-19-2-ar-mary-white-eagle/) | 19 Septembre 1999
 Marie & David | [Faire face à la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-3-19-2-ar-mary-david/) | 19 Mars 2000
 Marie & Jean | [Sur le manque d’amour de soi de M___](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-12-1-ar-mary-john/) | 12 Novembre 1999

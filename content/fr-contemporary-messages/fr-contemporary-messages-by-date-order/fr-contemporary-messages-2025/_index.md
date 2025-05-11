@@ -162,8 +162,8 @@ Fleur de Lotus | [Bienvenue dans vos cœurs](/fr-contemporary-messages/fr-contem
 Marie | [Nous venons avec amour pour apporter des bénédictions d'amour et de paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-11-1-af-mary/) | 11 Avril 2025 
 Grace Jordan | [Se connecter au sens des circonstances](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-11-2-mc-grace-jordan/) | 11 Avril 2025 
 Keea-atta-Kem | [Qu’est-ce que la guérison ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-11-3-mc-keea-atta-kem/) | 11 Avril 2025
-Marie |  [Ouvrez-vous et vivez le baiser de Dieu sur votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-12-3-mc-mary/) | 12 Avril 2025 
-Confucius | [Louanges aux Enfants de Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-13-1-af-confucius/) | 13 Avril 2025 
+Marie |  [Ouvrez-vous et vivez le baiser de Dieu sur votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-12-1-mc-mary/) | 12 Avril 2025 
+Confucius |  [Ouvrez-vous et vivez le baiser de Dieu sur votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-13-1-af-confucius/) | 12 Avril 2025 
 Care Darby Walsh | [Quand l'Âme est en Préséance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-13-2-jw-care-darby-walsh/) | 13 Avril 2025
 Jésus | [Jésus apporte guérison et bénédiction personnelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-13-3-mc-jesus/) | 13 Avril 2025 
 Maureen | [Guérison Divine pour le Cœur Féminin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-13-4-mc-maureen/) | 13 Avril 2025
