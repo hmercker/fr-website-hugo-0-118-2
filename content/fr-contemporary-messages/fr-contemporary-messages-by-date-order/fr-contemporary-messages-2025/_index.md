@@ -165,6 +165,7 @@ Keea-atta-Kem | [Qu’est-ce que la guérison ?](/fr-contemporary-messages/fr-co
 Marie |  [Ouvrez-vous et vivez le baiser de Dieu sur votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-12-3-mc-mary/) | 12 Avril 2025 
 Care Darby Walsh | [Quand l'Âme est en Préséance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-13-2-jw-care-darby-walsh/) | 13 Avril 2025
 Jésus | [Jésus apporte guérison et bénédiction personnelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-13-3-mc-jesus/) | 13 Avril 2025 
+Confucius | [Louanges aux Enfants de Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-13-1-af-confucius/) | 13 Avril 2025 
 Yogananda | [Yoga de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-14-1-jw-yogananda/) | 14 Avril 2025
 Jeanne d'arc, Marie et Keea Ata Kem | [Venez soutenir toutes les femmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-15-1-af-joan-of-arc-mary-keea-atta-kem/) | 15 Avril 2025
 Judas | [Être libéré du temps](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-21-1-jw-judas/) | 21 Avril 2025
