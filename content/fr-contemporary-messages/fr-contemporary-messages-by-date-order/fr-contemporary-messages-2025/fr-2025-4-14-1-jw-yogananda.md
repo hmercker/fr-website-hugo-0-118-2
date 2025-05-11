@@ -11,6 +11,8 @@ weight:
 
 Yogananda- reçu par reçu par Jimbeau Walsh le 14 Avril 2025, Nashville, Tennesse, USA.
 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-nepal-3.jpg)
+
 Je suis ici, Yogananda.
 
 Je viens avec l’amour de Dieu à ce merveilleux groupe d’âmes. J’aimerais parler un peu du yoga de l’Amour Divin, un sujet que j’ai abordé à plusieurs reprises avec mon frère. J’ai remarqué que beaucoup ont du mal à trouver le calme, à se poser dans leur corps, à libérer leur esprit et leurs pensées afin de s’ouvrir à recevoir l’amour. Ce n’est pas pour rien que non seulement les yogis, mais aussi les médiums, demandent souvent à ceux qui méditent ou participent à un satsang avec eux de s’asseoir d’une certaine manière, confortablement assis, parfois dans une posture yogique comme le lotus ou une posture douce et confortable. La raison est qu’une fois le corps aligné, en harmonie et laissant circuler l’énergie corporelle, il est beaucoup plus facile de ne pas se laisser distraire, tout comme on souhaiterait un endroit paisible et calme pour prier ou méditer.
