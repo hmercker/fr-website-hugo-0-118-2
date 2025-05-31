@@ -21,17 +21,22 @@ Ces croyances se divisent en deux catégories :
 
 La deuxième catégorie est plus controversée, elle se rapporte aux croyances qui sont fondamentales pour certains individus alors que, pour d'autres, elles sont absolument inacceptables. Au risque d'offenser tout le monde je vais utiliser comme exemple d’un tel ensemble contradictoire de croyances : la conviction que l’homosexualité est normale et naturelle, et la conviction qu’elle est totalement fausse et pécheresse. Le genre de logique qui s’applique à cet ensemble de croyances contradictoires s’appliquera à toutes les autres.
 
-Règle #1 	Il n'est pas correct de blesser d’autres personnes, s’il est possible de ne pas le faire.
+**Règle #1** Il n'est pas correct de blesser d’autres personnes, s’il est possible de ne pas le faire.
 </br>
-Règle #2 	Si votre croyance vous conduit à critiquer sans empathie et préoccupation ceux qui ont un avis différent, il convient de procéder avec prudence.
 </br>
-Règle #3 	Si votre croyance vous permet d'avoir une plus grande tranquillité d’esprit, et donc d'être plus affectueux et généreux envers les autres, alors elle est probablement bonne pour vous.
+**Règle #2** Si votre croyance vous conduit à critiquer sans empathie et préoccupation ceux qui ont un avis différent, il convient de procéder avec prudence.
 </br>
-Règle #4 	Vous n'avez pas tort.
 </br>
-Règle #5 	La personne partisane de la croyance opposée n’est pas dans l'erreur.
+**Règle #3** Si votre croyance vous permet d'avoir une plus grande tranquillité d’esprit, et donc d'être plus affectueux et généreux envers les autres, alors elle est probablement bonne pour vous.
 </br>
-Règle #6 	Vous devrez peut-être ajuster votre croyance pour inclure la sympathie pour l’ensemble de l’humanité.
+</br>
+**Règle #4** Vous n'avez pas tort.
+</br>
+</br>
+**Règle #5** La personne partisane de la croyance opposée n’est pas dans l'erreur.
+</br>
+</br>
+**Règle #6** Vous devrez peut-être ajuster votre croyance pour inclure la sympathie pour l’ensemble de l’humanité.
 
 **Maintenant, je dois essayer d’expliquer comment deux personnes ayant des croyances absolument contradictoires peuvent tous deux ne pas être dans l'erreur.** D’une part, il y a une vérité absolue pour chaque situation. La vérité à propos de l’homosexualité est la suivante. Dans un monde parfait, qui je l’espère verra la jour à l’avenir, l’homosexualité n'aura plus lieu d'être.
 
