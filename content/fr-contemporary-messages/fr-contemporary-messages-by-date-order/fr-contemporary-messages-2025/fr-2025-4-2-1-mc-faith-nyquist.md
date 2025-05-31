@@ -11,6 +11,8 @@ weight:
 
 Faith Nyquist- Reçu par Maureen Cardoso - le 2 Avril 2025, Abbotsford, BC.
 
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-sur-le-pardon.jpg)
+
 Bonjour, c’est moi, Faith. Je viens partager quelques connaissances et une compréhension du pardon et aider chacun à découvrir le chemin vers le véritable pardon.
 
 Il y a beaucoup de souffrance dans votre monde, où des mortels manifestent leur douleur et leur état d’âme comme un tort inconcevable aux autres. Ces individus sont très faibles dans leur état d’âme. Ils sont remplis de mépris, d’égoïsme et de peur. Ils manquent d’une approche moralement consciencieuse et d’une perspective plus large des conséquences qui les attendront dans le futur et du tort réel qu’ils causent aux autres.

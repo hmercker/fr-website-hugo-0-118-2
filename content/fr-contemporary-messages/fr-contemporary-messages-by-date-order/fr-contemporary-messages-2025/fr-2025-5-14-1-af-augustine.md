@@ -1,0 +1,26 @@
+---
+title: "Guidance pour les médiums heureux"
+menu_title: ""
+description: "Guidance pour les médiums heureux"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Guidance pour les médiums heureux
+
+Augustin -  reçu par Albert Fike - le 14 Mai 2025, Sechelt, Colombie-Britannique, Canada.
+
+Que Dieu vous bénisse, âmes bien-aimées. C’est votre maître, Augustin, qui est ici. N’oubliez pas que chaque individu a son propre chemin et sa propre expression de dons. Dans votre monde, il est courant de catégoriser et de mettre en boîte les choses, avec des attentes et des idées différentes sur ce que vous faites en matière de mentorat et d’enseignement. Dans le nôtre, c’est très fluide. Lorsque nous avons guidé des âmes individuelles à venir participer à vos magnifiques rassemblements, une multitude de possibilités s’offrent à chacune d’elles. Je vous exhorte à ne pas catégoriser ni à avoir des attentes fermes et spécifiques, mais à avoir foi que Dieu a guidé chacun dans ce cercle et qu’il recevra, absorbera et intégrera la connaissance du mieux qu’il peut, en fonction de sa progression et de son expérience de ce temps passé ensemble.
+
+Comme cet instrument l’a indiqué, c’est un temps pour construire les fondations. Chaque fondation individuelle est unique, mais les connaissances et les efforts que vous déployez pour enseigner sont très similaires, même si chaque individu absorbe et intègre ce qui lui est donné différemment. Je vous exhorte à faire preuve de compassion et de patience, à ne pas juger mais à aimer, à donner à chacun l’opportunité de prendre part à quelque chose de beau, de lumière, de vérité et d’amour divin. C’est là l’important : accueillir chacun, être un exemple pour chacun, afin que nous puissions utiliser ceux d’entre vous qui sont doués pour les aider à trouver leur chemin vers la compréhension et à s’orienter vers ce but : développer une fondation solide de vérité.
+
+En effet, chacun possède des dons de médiumnité, mais pas exactement les mêmes. Néanmoins, nous désirons établir un canal de communication avec eux. Ce faisant, ils acquièrent une compréhension plus profonde de la vérité et réalisent que chacun a un chemin à parcourir et une destinée à accomplir. Il ne vous appartient pas de juger ni de définir ce que c’est, car c’est un don de Dieu, donné à chaque individu par Dieu. Votre rôle est de soutenir et d’encourager cette personne à découvrir ce que Dieu attend d’elle et à découvrir ce que Dieu a mis en elle pour répondre à Ses attentes, à Son désir et à Son plan pour elle.
+
+Vous pouvez appeler cela « médiumnité », et c’est un terme approprié, mais il s’agit en réalité d’un voyage de découverte de l’âme et de compréhension de ses possibilités et de son potentiel. Chaque individu possède une part de médiumnité. C’est quelque chose que beaucoup peuvent saisir et sur lequel ils peuvent se concentrer. C’est effectivement ce que vous faites pour eux et ce que nous faisons et leur communiquons par votre intermédiaire, mais les dimensions et la complexité de ce voyage sont bien plus vastes. Ce n’est que le début d’un voyage éternel. Vous pouvez imaginer le nombre et la complexité des dons que chaque personne peut posséder, et la découverte de ces dons se poursuit éternellement. C’est une petite étape de l’éveil à un don. C’est l’occasion de tester les dons que l’on peut posséder auprès de personnes de confiance et de personnes qui bénéficient d’un soutien affectueux.
+
+Nous poursuivons ce voyage ensemble. Nous continuons à soutenir et à accompagner ceux qui cheminent individuellement. C’est un don non seulement pour eux, mais aussi pour vous et pour nous, car Dieu ouvre ces possibilités, ces bénédictions non seulement à un individu, mais à tous ceux qui sont impliqués. C’est la voie de Dieu : de multiples bénédictions sont déversées sur chacun. En continuant à tendre la main à vos frères et sœurs, vous serez bénis. Ils seront bénis. Vos amis angéliques seront bénis. Le monde sera béni. Quel plus grand but y a-t-il que de s’impliquer et de s’ouvrir à ces possibilités ? Les bénédictions de Dieu se déversent sur nous tous, nous élèvent et nous aident dans notre cheminement vers l’unité avec Dieu.
+
+Vous serez guidés, âmes bien-aimées. Vous savez déjà au plus profond de votre âme ce que vous ferez pour aider vos frères et sœurs. Nous vous aiderons à prendre conscience de cela et à comprendre votre rôle. Ne vous inquiétez pas, cela n’engage que l’esprit. Soyez de bonne foi et de bonne humeur. Tout se mettra en place comme par le passé et comme par le futur. Ce sera véritablement harmonieux, véritablement joyeux, et cela amènera beaucoup à un niveau supérieur de compréhension de la vérité et à l’expérience de la vérité par eux-mêmes. Alors que l’Amour de Dieu continue de couler abondamment en nous, la vérité se révèle, la compréhension s’acquiert et tout retrouve l’harmonie, la paix et la joie, tandis que Son Amour guérit, transforme et élève.
+
+Que Dieu vous bénisse, chers étudiants de la vérité. Je suis votre maître, Augustin, et je vous aime tant. Vous êtes en harmonie et en phase avec ce que vous êtes censés faire. Ne vous sentez pas autrement, car vous êtes abondamment bénis et grandement aimés. Que Dieu vous bénisse, très chers. Que Dieu vous bénisse.

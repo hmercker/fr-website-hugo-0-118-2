@@ -32,4 +32,4 @@ Barbara Davies| [L'importance de s'aimer soi-même ](/fr-contemporary-messages/f
 Barbara Davies | [Souvenez-vous des âmes perdues - Un message de Noël ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-23-1-af-barbara/) | 23 Décembre 2024
 Barbara Davies | [Décrit son service et ses sensibilités sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-22-3-af-barbara-davies/) | 22 Janvier 2025 
 Barbara Davies | [Encouragez-nous au service de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-25-2-af-barbara-davies/) | 25 Février 2025
-
+Barbara Davies | [Soyez un canal de l'Amour de Dieu où que vous alliez ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-29-2-af-barbara-davies/) | 29 Avril 2025 

@@ -30,3 +30,10 @@ Jésus | [Prend chacun de nous pour une bénédiction dans le Hall de la Paix](/
 Jésus | [Est-ce aujourd'hui le jour ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-18-1-af-jesus/) | 18 Mars 2025
 Jésus | [Que Dieu nous bénisse tous, reliés par le réseau mondial croissant de Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-23-2-af-jesus/) | 23 Mars 2025
 Jésus | [Que Dieu bénisse chacun de nous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-26-1-af-jesus/) | 26 Mars 2025
+Jésus | [Proclamation du dimanche de Pâques : Jésus se manifestera à nouveau au monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-20-1-af-jesus/) | 20 Avril 2025
+Jésus | [Bénédiction pour la retraite de Running Springs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-27-2-af-jesus/) | 27 Avril 2025 
+Jésus | [Cercle de Bénédictions à Running Springs, Californie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-27-3-af-jesus/) | 27 Avril 2025 
+Jésus | [Nous devons rester proches et en harmonie pour accomplir le plan et le dessein de Dieu pour nous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-28-2-af-jesus/) | 28 Avril 2025 
+Jésus | [Ouverture de la Croisière des Célébrités](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-4-3-af-jesus/) | 4 Mai 2025
+Jésus | [Aidez-nous à apporter la vérité pour apaiser la souffrance de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-4-4-af-jesus/) | 4 Mai 2025 
+

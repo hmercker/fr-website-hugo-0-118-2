@@ -96,5 +96,8 @@ Care Darby Walsh | [Les bénédictions de la tragédie](/fr-contemporary-message
 Care Darby Walsh | [Avec Dieu, il n'y a pas de distance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-31-1-jw-care-darby-walsh/) | 31 Mars 2025 
 Care Darby Walsh | [Quand l'Âme est en Préséance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-13-2-jw-care-darby-walsh/) | 13 Avril 2025
 Care Darby Walsh | [Joie et félicité sans fin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-23-1-jw-care-darby-walsh/) | 23 Avril 2025
+Care Darby Walsh | [Surmonter ses blessures (partie 1)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-2-1-jw-care-darby-walsh/) | 2 Mai 2025
+Care Darby Walsh | [Surmonter ses blessures (partie 2)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-2-2-jw-care-darby-walsh/) | 2 Mai 2025
+
 
 

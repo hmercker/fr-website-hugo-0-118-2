@@ -31,6 +31,7 @@ Professeur Salyards | [Pas d'approbation supérieure - Réunion de l'équipe de 
 Keea Atta Kem | [Jésus veut que vous soyez un rayon de soleil](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-9-5-af-keea-atta-kem/) | 9 Janvier 2021
 St Pierre | [Bénédictions d'en haut](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-10-1-af-st-peter/) | 10 Janvier 2021
 Pasteur George Vale Owen | [Quelques propos du Révérend GV Owen](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-11-1-jw-rev-george-vale-owen/) | 11 Janvier 2021
+Confucius | [Bénédictions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-12-1-af-confucius/) | 12 Janvier 2021
 St François d'Assise | [L’illumination par l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-13-1-jw-st-francis-of-assisi/) | 13 Janvier 2021
 Jésus | [Leçon 16 : La décision la plus importante de votre vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-14-1-af-jesus/) | 14 Janvier 2021
 Eileen Caddy | [Quel sera votre héritage ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-15-1-jw-eileen-caddy/) | 15 Janvier 2021

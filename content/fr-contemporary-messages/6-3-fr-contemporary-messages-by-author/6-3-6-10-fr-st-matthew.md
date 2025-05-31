@@ -131,3 +131,5 @@ St Matthieu | [Bénédiction de Noël](/fr-contemporary-messages/fr-contemporary
 St Matthieu | [Nous faisons partie du Réseau de Lumière pour le Monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-20-2-af-st-matthew/) | 20 Janvier 2025
 St Matthieu | [Il est temps pour vous de trouver votre but et de rencontrer votre destinée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-28-1-af-st-matthew/) | 28 Janvier 2025
 St Matthieu | [Les Anges bénissent la diversité culturelle de l'humanité sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-31-2-af-st-matthew/) | 31 Janvier 2025 
+St Matthieu | [Confirme que Jésus bénit chacun des membres du cercle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-26-1-af-st-matthew/) | 26 Avril 2025
+Mathieu | [Ayez de la compassion pour les âmes perdues ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-5-2-af-st-matthew/) | 5 Mai 2025 

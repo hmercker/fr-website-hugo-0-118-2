@@ -85,6 +85,7 @@ Confucius | [Vous créez un portail de lumière en vous unifiant dans la prière
 Confucius | [L'Amour de Dieu est le catalyseur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-25-1-hm-confucius/) | 25 Mai 2020
 Confucius | [Puissante bénédiction de guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-15-2-af-confucius/) | 15 Septembre 2020
 Confucius | [Un nouveau bail pour la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-2-2-af-confucius/) | 2 Octobre 2020
+Confucius | [Bénédictions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-12-1-af-confucius/) | 12 Janvier 2021
 Confucius | [Bénédiction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-4-2-af-confucius/) | 4 Mai 2021
 Confucius | [Bénédictions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-6-1-af-confucius/) | 6 Juillet 2021
 Confucius | [Bénédictions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-30-2-af-confucius/) | 30 Juillet 2021
@@ -105,4 +106,5 @@ Confucius, Martha, Jesus  | [Félicitations pour une retraite réussie à Lansin
 Confucius | [Vous avez un grand potentiel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-15-2-af-confucius/) | 15 Septembre 2024
 Confucius | [Bénédiction pour la tribu Trini ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-2-1-af-confucius/) | 2 Février 2025 
 Confucius | [Louanges aux Enfants de Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-13-1-af-confucius/) | 13 Avril 2025 
+Confucius | [Soyez fidèles aux aspirations de votre âme et profitez pleinement de ce temps passé ensemble ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-4-1-af-confucius/) | 4 Mai 2025 
 

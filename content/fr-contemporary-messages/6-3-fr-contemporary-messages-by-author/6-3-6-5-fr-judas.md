@@ -268,4 +268,6 @@ Judas | [Encourage la révision des messages de Judas pour renforcer la connaiss
 Judas | [Réalisez la puissance du don divin du libre arbitre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-11-2-af-judas/) | 11 Février 2025 
 Judas | [Ceci est le chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-25-1-jw-judas/) | 25 Février 2025
 Judas | [Être libéré du temps](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-21-1-jw-judas/) | 21 Avril 2025
+Judas | [Semez les graines de la Vérité dans le monde sans inquiétude](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-29-1-jw-judas/) | 29 Avril 2025 
+
 

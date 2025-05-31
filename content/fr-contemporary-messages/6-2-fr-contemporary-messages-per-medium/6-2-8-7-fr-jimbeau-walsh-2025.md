@@ -19,7 +19,7 @@ Judas | [La persévérance au-delà du rituel](/fr-contemporary-messages/fr-cont
 Nathanaêl | [Les Royaumes Spirituels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-27-1-jw-nathanaêl/) | 27 Janvier 2025
 Claire d'Assise | [Le cercle des cœurs ouverts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-8-1-jw-clare-of-assisi/) | 8 Février 2025
 Judas | [Encourage la révision des messages de Judas pour renforcer la connaissance des vérités supérieures](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-8-3-jw-judas/) | 8 Février 2025
-François d'Assise | [Créer un sanctuaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-15-1-jw-francis-of-assisi/) | 15 Février 2025
+Saint François d'Assise | [Créer un sanctuaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-15-1-jw-st-francis-of-assisi/) | 15 Février 2025
 Jésus | [Déposer votre amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-17-1-jw-jesus/) | 17 Février 2025
 Judas | [Ceci est le chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-25-1-jw-judas/) | 25 Février 2025
 Yogananda | [Les Voies du Monde et la Voie de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-3-1-jw-yogananda/) | 3 Mars 2025
@@ -35,6 +35,14 @@ Yogananda | [Yoga de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-me
 Judas | [Être libéré du temps](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-21-1-jw-judas/) | 21 Avril 2025 
 Care Darby Walsh | [Joie et félicité sans fin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-23-1-jw-care-darby-walsh/) | 23 Avril 2025
 Aigle Blanc | [Une Tribu dans l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-27-1-jw-white-eagle/) | 27 Avril 2025
+Judas | [Semez les graines de la Vérité dans le monde sans inquiétude](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-29-1-jw-judas/) | 29 Avril 2025
+Saint François d'Assise | [Laissez vos soucis de côté et accueillez-vous dans l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-30-1-jw-st-francis-of-assisi/) | 30 Avril 2025
+Claire d'Assise | [Utilisez vos mots avec sagesse et seulement si nécessaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-1-1-jw-clare-of-assisi/) | 1 Mai 2025
+Care Darby Walsh | [Surmonter ses blessures (partie 1)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-2-1-jw-care-darby-walsh/) | 2 Mai 2025
+Care Darby Walsh | [Surmonter ses blessures (partie 1)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-2-2-jw-care-darby-walsh/) | 2 Mai 2025
+Yogananda et François d’Assise | [Désir et perception de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-5-1-jw-yoganannda-st-francis-of-assisi/) | 5 Mai 2025
+Simon Pierre | [Ouvrir les tombeaux de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-12-1-jw-simon-peter/) | 12 Mai 2025
+
 
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)
