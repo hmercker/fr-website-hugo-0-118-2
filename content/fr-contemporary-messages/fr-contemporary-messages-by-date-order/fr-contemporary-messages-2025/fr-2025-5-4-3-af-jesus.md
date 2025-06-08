@@ -9,7 +9,7 @@ weight:
 ---
 ### Ouverture de la Croisière des Célébrités
 
-Jésus -  reçu par Albert Fike - le 04 Mai 2025,  Retraite Croisière Célébrités 2025
+Jésus -  reçu par Albert Fike - le 04 Mai 2025,  Retraite Croisière des Célébrités 2025
 
 Que l’Amour du Père soit sur vous, belles âmes, enfants de Dieu. Je viens. Je suis votre frère et ami. Je suis Jésus. Je viens prier avec vous et vous accueillir dans l’étreinte de Dieu.
 

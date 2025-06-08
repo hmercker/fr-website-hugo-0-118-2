@@ -9,7 +9,7 @@ weight:
 ---
 ### L'importance de se réunir en personne
 
-Keea Atta Kem -  reçu par Albert Fike - le 04 Mai 2025,  Retraite Croisière Célébrités 2025
+Keea Atta Kem -  reçu par Albert Fike - le 04 Mai 2025,  Retraite des Croisière Célébrités 2025
 
 Je suis Keea atta Kem. Vous avez évoqué l’importance de se réunir en chair et en os. Cela nous permet de mélanger les énergies. Les attributs que chacun porte en lui, comme un don au monde, peuvent être partagés dans un groupe comme celui-ci. L’Amour Divin agit de multiples façons. Il est comme un solvant qui brouille et mélange chacun dans une harmonie pleine d’amour. Dans le don de l’Amour de Dieu, il y a abondance. Il y a unité et partage. Vous vous réunissez avec ce désir et par vos prières. Ces prières sont également unifiées et combinées, s’adressant à Dieu. Ainsi, vous formez un groupe plus puissant, en quête des bénédictions divines.
 

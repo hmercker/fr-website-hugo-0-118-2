@@ -9,7 +9,7 @@ weight:
 ---
 ### Ayez de la compassion pour les âmes perdues
 
-St Matthieu -  reçu par Albert Fike - le 04 Mai 2025,  Retraite Croisière Célébrités 2025
+St Matthieu -  reçu par Albert Fike - le 04 Mai 2025,  Croisière des Célébrités 2025
 
 Âmes bien-aimées, je suis Matthieu. En parcourant cette ville (San Francisco) et en rencontrant des personnes engagées dans la vie, voyez-vous avec quelle aisance et quelle intensité elles s’investissent dans la matière ? Elles sont investies dans leurs émotions et leurs pensées, leurs attentes et leurs jugements. Elles sont toutes très humaines, ces âmes que vous rencontrez, mais elles ignorent tout de leur âme. Avec un peu de chance, elles recevront un bref aperçu, une brève rencontre, quelque chose qui touchera leur âme, mais souvent ce n’est pas dans la prière. C’est en réaction à un stimulus extérieur.
 

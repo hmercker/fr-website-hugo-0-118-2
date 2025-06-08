@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous continuons à prier ensemble pour l'Amour de Dieu
 
-Marie -  reçu par Albert Fike - le 04 Mai 2025,  Retraite Croisière Célébrités 2025
+Marie -  reçu par Albert Fike - le 04 Mai 2025,  Retraite Croisière des Célébrités 2025
 
 Je viens à vous avec amour. Je suis Marie. Je viens à vous en prière, car même si mon cheminement a été bien plus long que le vôtre, nous continuons à prier pour les mêmes choses : la nourriture de nos âmes dans l’Amour du Père. Cette nourriture m’est familière et fait tellement partie de moi maintenant, à mesure que j’ai grandi et découvert les merveilles de l’Amour de Dieu.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Soyez fidèles aux aspirations de votre âme et profitez pleinement de ce temps passé ensemble
 
-Confucius -  reçu par Albert Fike - le 04 Mai 2025, Retraite Croisière Célébrités 2025
+Confucius -  reçu par Albert Fike - le 04 Mai 2025, Retraite Croisière des Célébrités 2025
 
 Petits oiseaux, je suis Confucius. Je vous conseille de passer du bon temps ensemble, d’être spirituels dans vos pensées et vos interactions. Ces moments sont précieux. Vous avez fait de grands efforts pour vous réunir ainsi. Élevez vos pensées, âmes bien-aimées. Recherchez le plus haut pour vous-même, pour les autres et pour ce moment que vous passez chaque jour.
 

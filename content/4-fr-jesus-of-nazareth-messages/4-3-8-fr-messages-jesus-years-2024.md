@@ -22,7 +22,9 @@ Jésus | [Nous encourage vers nos destinées ](/fr-contemporary-messages/fr-cont
 Jésus | [Honorer la vieille tradition de prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-1-3-af-jesus/) | 1 Mars 2024
 Jésus | [Le Sacré-Cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-11-1-jw-jesus/) | 11 Mars 2024
 Jésus | [Que chaque âme individuelle parvienne à connaître l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-13-1-af-jesus/) | 13 Mars 2024
+Jésus | [Prière et bénédiction de la Pentecôte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-19-1-af-jesus/) | 19 Mai 2024 
 jésus | [Les anges parcourent un long chemin pour être avec vous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-21-1-af-jesus/) | 21 Mai 2024
+Jésus | [Affirme et rend hommage au travail d'Orion sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-2-3-af-jesus/) | 2 Juin 2024 
 Jésus | [La grâce de l'essence de Dieu s'accompagne de responsabilité ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-13-1-mc-jesus/) | 13 Juin 2024
 Jésus | [Jésus encourage Cliff](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-30-2-af-jesus/) | 30 Juin 2024
 Jésus | [Nous sommes satisfaits de vos progrès](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-2-2-af-jesus/) | 2 Juillet 2024

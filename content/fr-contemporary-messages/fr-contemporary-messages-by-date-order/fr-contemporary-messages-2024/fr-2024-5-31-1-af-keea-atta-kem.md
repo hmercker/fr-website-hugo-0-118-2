@@ -1,0 +1,22 @@
+---
+title: "La Voix de Dieu est dans l'air"
+menu_title: ""
+description: "La Voix de Dieu est dans l'air"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### La Voix de Dieu est dans l'air
+
+Keea atta Kem - reçu par Albert Fike le 31 Mai 2024, Sechelt, Colombie-Britannique, Canada.
+
+La voix de Dieu est dans l’air, âmes bien-aimées. Je suis Keea Atta Kem. Il murmure à votre oreille, vous transmettant les doux sons et la Vérité de Son Amour. Il est proche. Il est proche de chacun de vous. Il vous connaît par votre nom. Il vous connaît par chaque détail de votre être. Dieu connaît chacun et Son Amour pour chacun est illimité.
+
+Mes chers et beaux amis, vous êtes aimés. Vous êtes aimés non seulement de Dieu, mais aussi des Anges Célestes, des esprits brillants, de vos ancêtres. Nombreux sont ceux qui vous aiment. Nombreux sont ceux qui vous honorent. Sachez que vous êtes aimés. Sachez que l’Amour de Dieu est le plus grand des amours, le plus grand des dons. Grâce à Ses Lois d’Attraction, votre vie attire d’autres personnes qui vous aiment tant, et beaucoup souhaitent être proches de vous, se réchauffer à la lumière de votre âme. Nombreux sont ceux qui souhaitent vous accompagner dans votre quotidien et dans vos efforts pour apporter la lumière au monde. Nombreux sont ceux qui apprennent de vous tandis que vous continuez à réfléchir, à comprendre, à percevoir et à vous éveiller à la vérité.
+
+À mesure que vous grandissez, ceux qui vous entourent grandissent également. Ils sont attirés par la lumière, mes bien-aimés. Vous vous attirez vous-même vers la lumière, la lumière de l’Amour de Dieu, la lumière de Ses anges qui se rapprochent, la lumière des bénédictions qui font partie et expriment l’Amour de Dieu pour vous.
+
+Bien-aimés, beaucoup vous est donné, même si vous ne le voyez pas, ne l’entendez pas et ne le savez pas. En vous, vous êtes pleinement conscients et vous entendez la voix de Dieu qui vous murmure. Vous connaissez le réconfort du toucher de Dieu qui vous enveloppe. Vous recevez beaucoup simplement parce que vous désirez prier, aspirez à ce que Dieu a à vous donner et vous vous ouvrez à lui. Vous n’avez pas grand-chose à faire, mes chers amis, si ce n’est prier et vous immerger profondément en vous-même. Ressentez les aspirations de votre âme et laissez-les s’exprimer à Dieu. Ressentez et connaissez les perceptions, l’amour et la vie qui sont en vous et exprimez-les dans votre vie. Est-ce si complexe, mes chers amis ? Certainement pas. Vous trouvez cela difficile à cause des conditions terrestres et de vos propres problèmes non résolus qui ne relèvent pas de l’amour. Pourtant, en vous se trouve la clé et la promesse que vous serez libérés de ces choses si vous continuez à prier et à aspirer à ces bénédictions. Vous vous rapprochez de la source de l’amour de Dieu. Vous êtes, dans une certaine mesure, libérés des conditions qui ne viennent pas de Dieu. En continuant à aspirer, à prier, à travailler et à tendre vers la lumière, la liberté se fait sentir. Cela devient plus intense et devient une part éveillée de vous-même, connaissant et ressentant l’expansion de l’amour en vous, connaissant et ressentant l’Amour de Dieu pour vous, connaissant et ressentant l’amour que vous portez à vos frères et sœurs. C’est ce dont votre monde a besoin, mes bien-aimés, et vous répondez à l’appel de Dieu à prendre part à ce grand courant ascendant qui, avec le temps, changera le monde et apportera paix et amour.
+
+Vous en faites partie, mes bien-aimés. Vous serez à la hauteur de votre dévouement et de vos efforts lorsque vous avancerez dans le monde et serez ce canal d’amour. Vous recevrez tout ce dont vous avez besoin pour y parvenir. Tout ce dont vous avez besoin vous aidera sur le chemin du service et de la lumière, tandis que Dieu répond à vos prières et à votre désir d’être Son instrument dans le monde. Soyez bénis, mes bien-aimés, bénis profondément et largement, bénis puissamment et joyeusement par le Toucher Divin, Son Saint-Esprit transmettant le grand Amour de Dieu qui vous parvient au lendemain de la prière. Que Dieu vous bénisse, mes bien-aimés. Je suis Keea atta Kem et je vous aime. Je vous aime tellement. Que Dieu vous bénisse.

@@ -52,3 +52,4 @@ Alec Gaunt | [Nous encourage à agir ](/fr-contemporary-messages/fr-contemporary
 Alec Gaunt | [Créer le paradis intérieur et la loi de progression](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-21-1-mc-alec/) | 21 Mars 2025
 Alec Gaunt | [Son rêve pour FUSC s'est réalisé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-30-2-af-alec-gaunt/) | 30 Mars 2025 
 Alec & Elsie | [Bénédictions de mentors qui sont des âmes sœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-26-2-af-alec-elsie/) | 26 Mai 2021
+Alec Gaunt et Augustin | [Message d'ouverture, Message de clôture](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-30-1-af-alec-gaunt-and-augustine/) | 30 Mai 2024 

@@ -109,6 +109,7 @@ Keea Atta Kem | [Affirme que le portail est ouvert ](/fr-contemporary-messages/f
 Keea Atta Kem | [Nous sommes avec vous dans l'amour et la joie ! ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-24-1-af-keea-atta-kem/) | 24 Octobre 2023
 Keea ata Kem | [Avec les bénédictions de Jésus. Encourage les expressions de nos âmes ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-10-2-af-keea-ata-kem/) | 10 Décembre 2023
 Keea Atta Kem | [L'harmonisation de vos prières crée une grande lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-11-1-af-keea-atta-kem/) | 11 Février 2024
+Keea  Atta Kem | [La Voix de Dieu est dans l'air](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-31-1-af-keea-atta-kem/) | 31 Mai 2024 
 Keea Atta Kem | [Vous êtes des sages-femmes pour la conscience de l'âme à l'accouchement ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-6-1-af-keea-atta-kem/) | 6 Juin 2024
 Keea Atta Kem | [Vous ne dormez pas ! Les âmes s'éveillent ! (Croisière Love Boat 2024)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-10-1-af-keea-atta-kem/) | 10 Août 2024
 Keea Atta Kem | [L'importance de la communion de l’Amour Divin ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-15-1-af-keea-atta-kem/) | 15 Août 2024
@@ -124,6 +125,7 @@ Keea Atta Kem | [La puissance de l'Amour Divin est la réponse à tout](/fr-cont
 Keea Atta Kem | [Se préparer à vivre l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-4-2-af-keea-atta-kem/) | 4 Mars 2025
 Keea Atta Kem | [Affirme la progression de votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-6-2-af-keea-atta-kem/) | 6 Mars 2025
 Keea Atta Kem | [Salle de la Paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-16-2-af-keea-atta-kem/) | 16 Mars 2025 
+Keea-atta-Kem | [L'Amour de Dieu devient l'influence dominante dans vos vies](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-8-3-af-keea-atta-kem/) | 8 Avril 2025 
 Keea-atta-Kem | [Qu’est-ce que la guérison ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-11-3-mc-keea-atta-kem/) | 11 Avril 2025 
 Jeanne d'arc, Marie et Keea Atta Kem | [Venez soutenir toutes les femmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-15-1-af-joan-of-arc-mary-keea-atta-kem/) | 15 Avril 2025 
 Keea Atta Kem | [L'importance de se réunir en personne ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-5-2-af-keea-atta-kem/) | 5 Mai 2025 

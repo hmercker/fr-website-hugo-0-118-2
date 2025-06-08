@@ -99,6 +99,7 @@ Confucius | [Ne gaspillez pas les bénédictions que vous recevez](/fr-contempor
 Confucius | [Bénédictions des portails pour tous ceux qui résident ici](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-9-1-af-confucius/) | 9 Janvier 2024
 Confucius | [Les anges apportent des bénédictions de guérison ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-1-2-af-confucius/) | 1 Mars 2024
 Confucius | [Trois oiseaux sur un fil ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-20-1-af-confucius/) | 20 Mars 2024
+Confucius | [Accompagnement personnel pour la tournée de Septembre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-28-1-af-confucius/) | 28 Mai 2024 
 Confucius | [Soyez fidèle à vous-même et à votre Créateur ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-28-1-af-confucius/) | 28 Juin 2024
 Confucius | [Poursuivre le voyage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-1-1-af-confucius/) | 1 Juillet 2024
 Confucius | [Bénissez les voyageurs qui répandent les vérités de l’amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-3-1-af-confucius/) | 3 Septembre 2024

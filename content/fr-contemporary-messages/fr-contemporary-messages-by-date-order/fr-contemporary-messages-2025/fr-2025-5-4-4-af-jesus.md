@@ -9,7 +9,7 @@ weight:
 ---
 ### Aidez-nous à apporter la vérité pour apaiser la souffrance de l'humanité
 
-Jésus -  reçu par Albert Fike - le 04 Mai 2025,  Retraite Croisière Célébrités 2025
+Jésus -  reçu par Albert Fike - le 04 Mai 2025,  Retraite Croisière des Célébrités 2025
 
 Je suis Jésus. Je viens en prière, profondément préoccupé par votre Terre et tous ses habitants. Il y a trop de souffrance sur votre monde, une souffrance inutile, une souffrance créée par la disharmonie et le manque d’amour, une incompréhension des lois spirituelles qui régissent votre existence et votre création sur ce monde.
 
