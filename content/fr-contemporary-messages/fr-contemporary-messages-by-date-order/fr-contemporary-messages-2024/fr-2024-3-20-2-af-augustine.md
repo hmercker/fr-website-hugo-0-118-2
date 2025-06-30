@@ -1,0 +1,30 @@
+---
+title: "Décrit le but des messages Célestes"
+menu_title: ""
+description: "Décrit le but des messages Célestes"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Décrit le but des messages Célestes
+
+Augustin - reçu par Albert Fike le 20 Mars 2024, Sydney, Nouvelle-Galles du Sud, Australie.
+
+Âmes bien-aimées, je suis votre enseignant, Augustin. Je souhaite commenter la manière dont nous transmettons nos messages et les raisons qui les motivent. Lorsque nous transmettons un message, même en petit groupe comme celui-ci, il ne s’adresse pas uniquement à ce groupe. Il s’adresse à un public plus large, car vous faites preuve d’une grande diligence dans la diffusion, l’enregistrement et la transcription de ces messages.
+
+Chaque fois que nous avons l’occasion de prendre la parole, nous le faisons avec l’intention d’enseigner, d’inspirer et d’élever. Nous réfléchissons à ce que nous allons dire. Il ne s’agit pas d’une simple improvisation, comme vous le diriez. C’est un aspect que nous prenons en compte lorsque nous observons, à travers nos perceptions intérieures, le besoin qui existe, non seulement au sein du groupe individuel, mais aussi chez les nombreuses personnes qui y sont liées, ce qu’elles ont besoin d’entendre, ce qu’il est important pour elles d’entendre. Lorsqu’une personne pose une question et que sa réponse est que celle-ci n’a pas trouvé d’écho, qu’elle n’a pas inspiré, qu’elle n’a pas apporté de réponses, à bien des égards, cela n’a aucune importance pour nous, et cela ne devrait pas non plus vous concerner, mes chers frères et sœurs, car le public plus large a bénéficié de ce message.
+
+Notre intention est que le monde puisse entendre, par le biais de divers instruments en harmonie avec les Esprits Célestes, des informations pertinentes pour sa progression, qu’il puisse intégrer dans son cœur, son âme et son esprit, et qui l’aideront à orienter sa pensée, ses efforts et ses actions vers une plus grande harmonie avec les Lois d’Amour de Dieu, vers ce qui ouvre son âme à Dieu, vers ce qui apporte des informations pertinentes à son esprit.
+
+Nous ne venons pas parler comme si de rien n’était. Nous ne venons pas pour divertir ou acquiescer à quelqu’un qui cherche des informations qui ne sont pas pertinentes pour l’âme. Nous venons plutôt pour l’aider à éveiller la connaissance et l’ouvrir à Dieu. Nombreux sont ceux qui remarquent que, lorsque le message est transmis, ils tombent dans une sorte de stupeur et ne l’entendent pas. En réalité, ils l’entendent dans leur esprit et leur âme, mais surtout dans leur âme. Il y a une reconnaissance, une absorption des vérités transmises. Il est important qu’ils soient témoins et qu’ils reçoivent ces informations.
+
+Nous poursuivons notre chemin de communication. Nous le faisons avec beaucoup d’amour et de reconnaissance pour les belles âmes que vous êtes et la joie que nous procure cette opportunité de parler, de communiquer, d’inspirer. Même si nous devons le faire malgré les limites du médium, celles de son esprit et la réceptivité des vôtres, vous devez aussi comprendre qu’il existe aussi une communication d’âme à âme et que nous nous connectons ainsi, de manière plus profonde. Nombreux sont ceux qui, d’une manière ou d’une autre, participent à cette communication et se sentent comblés par ce qui leur est donné.
+
+Nous communiquons à différents niveaux et de diverses manières. Il est important que vous compreniez que, même si vous n’avez pas reçu ces communications dans votre esprit conscient, capable de les assimiler mot à mot, vous pouvez les absorber de différentes manières, par différents canaux qui s’expriment simultanément avec le médium. À chaque fois, si un ange s’approche de la personne qui écoute, celle-ci sera également aidée à recevoir l’information au niveau de l’âme et à l’assimiler.
+
+L’assimilation dans l’âme est bien plus importante que celle du mental. Car ce qui pénètre dans l’âme est la vérité et y demeure pour l’éternité, devenant un réservoir de vérité sur lequel l’individu peut compter, non seulement sur ce plan terrestre, mais aussi à mesure qu’il progresse dans les sphères de l’esprit et dans le Royaume Céleste. Ce trésor de vérité, ce réservoir de connaissances est d’une importance capitale. Tant de choses vous sont données, mes chers étudiants, de tant de manières différentes, de magnifiques bénédictions, données avec amour, données par Dieu par ses divers canaux, données parce que vous aspirez à cela et que vous y aspirez, et c’est pourquoi elles vous sont données, et distribuées, librement et abondamment.
+
+Que vous soyez bénis sur le chemin de la vérité. Que vous trouviez la joie sur le chemin de l’amour, que vous soyez un instrument pour Dieu, un canal de vérité et d’amour. Vous êtes préparés, développés et éveillés afin de devenir cet instrument efficace, afin que vous puissiez véritablement porter en vous ce trésor de vérité. Conservé non seulement dans votre esprit, mais aussi dans l’esprit de votre âme, où il sera conservé en sécurité et utilisé dans les temps à venir pour contribuer à l’éducation et à l’illumination de l’humanité. C’est un privilège et un plaisir pour nous de faire partie du lien qui fait avancer la vérité. C’est une telle bénédiction que Dieu nous accorde à tous, une telle bénédiction de rendre possible cette connexion entre nous, dans le Royaume Céleste, si loin de ce plan matériel, et vous qui vivez sur ce plan.
+
+Oh, quelles merveilles, oh, quelles bénédictions sont venues de l’amour, de la compassion et de la miséricorde de Dieu pour élever ses enfants et contribuer grandement à leur édification, à l’épanouissement de leur âme et à leur éveil sur le chemin du désir spirituel et de la vérité. Que Dieu vous bénisse. Je suis votre professeur, Augustin, et je vous aime tendrement, mes chers et beaux élèves. Oh, comme je vous aime tant ! Oh, comme je continuerai d’être avec vous, pour vous aider à comprendre, à connaître et à réaliser les grandes vérités de Dieu et de son amour. Que Dieu vous bénisse. Que Dieu vous bénisse tous sur votre chemin. Je vous aime.

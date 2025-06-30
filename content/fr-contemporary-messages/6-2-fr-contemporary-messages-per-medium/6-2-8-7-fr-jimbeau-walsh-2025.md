@@ -41,7 +41,22 @@ Claire d'Assise | [Utilisez vos mots avec sagesse et seulement si nécessaire](/
 Care Darby Walsh | [Surmonter ses blessures (partie 1)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-2-1-jw-care-darby-walsh/) | 2 Mai 2025
 Care Darby Walsh | [Surmonter ses blessures (partie 1)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-2-2-jw-care-darby-walsh/) | 2 Mai 2025
 Yogananda et François d’Assise | [Désir et perception de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-5-1-jw-yogananda-st-francis-of-assisi/) | 5 Mai 2025
+Care Darby Walsh | [Comment créer des sanctuaires (Accueillir l'Abondance)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-9-1-jw-care-darby-walsh/) | 9 Mai 2025
 Simon Pierre | [Ouvrir les tombeaux de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-12-1-jw-simon-peter/) | 12 Mai 2025
+Care Darby Walsh | [La clarté des perceptions de l'âm](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-22-1-jw-care-darby-walsh/) | 22 Mai 2025
+John Lennon | [L'Amour de Dieu filtre la négativité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-2-1-jw-john-lennon/) | 2 Juin 2025
+Yogananda | [La guidance est donnée par la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-5-1-jw-yogananda/) | 5 Juin 2025
+Claire d'Assise | [Bienvenue aux Gardiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-5-2-jw-clara-of-assisi/) | 5 Juin 2025
+Eileen Caddy | [Lorsque vous créez pour les autres dans l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-6-1-jw-eileen-caddy/) | 6 Juin 2025
+Fred Rogers | [Servir les enfants du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-6-2-jw-fred-rogers/) | 6 Juin 2025
+Judas | [Vous avez franchi le Rubicon.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-6-3-jw-judas/) | 6 Juin 2025
+St Luc | [Puissiez-vous tous guérir dans le baume de l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-6-4-jw-st-luke/) | 6 Juin 2025
+Jésus | [Je suis le capitaine du navire, Dieu met le vent dans les voiles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-7-1-jw-jesus/) | 7 Juin 2025
+Judas | [Votre état d’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-9-1-jw-judas/) | 9 Juin 2025
+Care Darby Walsh | [Ne jamais présumer de ses limites](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-13-1-jw-care-darby-walsh/) | 13 Juin 2025
+Barnabé | [Si vous souhaitez servir le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-16-1-jw-barnabas/) | 16 Juin 2025
+G Gurdjieff | [Les chocs du changement sont de véritables cadeaux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-23-1-jw-g-gurdjieff/) | 23 Juin 2025 
+
 
 
 

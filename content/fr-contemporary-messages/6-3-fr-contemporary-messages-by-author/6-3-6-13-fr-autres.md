@@ -9,7 +9,7 @@ weight:
 ---
 ### Autres
 
-Trois disciples sont regroupés sous cette dénomination. 
+Quatre disciples sont regroupés sous cette dénomination. 
 
 **Le premier est Marthe, une des soeurs de Lazare, très grand ami de Jésus.** L'autre soeur de Lazare se seait appelée et ce serait elle qui, selon ,saint Jean, aurait répondu la parfum sur la tête de Jésus. Le père de Lazare et Joseph, le père de jésus, étaient de proches amis. Il vivait dans un village, proche de jérusalem, appelé Béthanie. C'est ainsi que dès leur jeunesse jésus et Lazare ont été étroitement liés.
 
@@ -17,9 +17,12 @@ Trois disciples sont regroupés sous cette dénomination.
 
 **Le troisième disciple est Thomas, bien connu des lecteurs du Nouveau Testament commme étant le disciple qui a le plus douté de la résurrection de Jésus. [Jean 20 : 24-31](https://www.aelf.org/bible/Jn/20).** Dans le message qu'il a communiqué le [24 Mars 2024](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-24-1-em-thomas-joan-of-arc/), Thomas s'exprime ainsi *« J’ai été appelé « Thomas le Doutant ». J’aimerais perdre cette caractéristique, car je suis plein de foi et d’amour, l’Amour de mon Père Céleste. Développer la foi prend du temps et, plus important encore, des prières, des prières au Père pour qu’Il infuse Son amour et toutes Ses autres bénédictions, y compris la foi, dans l’âme. Mais ce n’est qu’une partie. Étendre cette foi, exprimer cette foi dans les moments où la foi est la plus requise. La foi est un don qui doit être utilisé. C’est aussi un cadeau qui vous aide tout au long de votre chemin de progression. Plus vous l’exprimez, plus vous avancez dans votre progression vers votre Père jusqu’à ce que finalement vous atteigniez cet endroit où vous savez que Dieu vous tient par les mains pour chaque étape de votre progression. Et pourtant, il reste encore beaucoup à faire, mais vous savez que vous marchez avec Dieu. »*
 
+**Le quatrième disciple est Barnabé. Barnabé est l'un des personnages les plus influents de la première communauté Chrétienne qui se forme, et ne faisant pas partie des Douze il est tout de même appelé apôtre. Il est le premier à accueillir Paul à peine converti sur la route de Damas, et est allé à Jérusalem pour faire connaissance avec les apôtres** Dans le message qu'il a communiqué [le 16 Juin 2025](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-16-1-jw-barnabas/), Barnabé s'exprime ainsi : "*Il y a si longtemps, lorsque je parcourais la terre avec mon frère Paul, prêchant aux Gentils et aux Juifs, luttant souvent pour établir la paix entre ces deux camps, et présentant ce que nous croyions être le véritable Évangile du Maître, je peux dire que nous avions raison sur certains points. J’ai écrit sur le chemin de la lumière et celui des ténèbres. J’ai écrit sur le Maître comme médiateur entre Dieu et l’homme. Mais je vous assure que c’est vraiment l’Évangile de l’amour qui a fait la différence."*
+
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 Marthe | [La différenciation entre les sexes n’est pas pertinente dans les Cieux Célestes ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-18-2-af-martha/) | 18 Août 2023
 Philippe | [Faire émerger les lois de l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-28-1-af-philippe/) | 28 Janvier 2024
 Thomas l’Apôtre | [L'âme touchée par Dieu est la vraie preuve](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-25-1-jw-thomas-the-apostle/) | 25 Juillet 2022
 Thomas-Jeanne d'Arc | [Foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-24-1-em-thomas-joan-of-arc/) | 24 Mars 2024
+Barnabé | [Si vous souhaitez servir le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-16-1-jw-barnabas/) | 16 Juin 2025 

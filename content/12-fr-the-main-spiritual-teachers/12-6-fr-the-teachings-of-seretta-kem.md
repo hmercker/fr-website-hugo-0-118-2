@@ -252,9 +252,11 @@ Seretta Kem | [Retour pour souligner le processus de développement des dons ](/
 Seretta Kem | [Le chemin du voyage de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-6-2-af-seretta-kem/) | 6 Août 2024
 Seretta Kem | [Vous continuez à progresser ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-20-2-af-seretta-kem/) | 20 Août 2024
 Marthe et Serreta Kem | [Prière d’ouverture de la grande île d’Hawaï](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-27-2-af-martha-and-serreta-kem/) | 27 Février 2024
+Seretta Kem | [Explique que l'Esprit travaille sur notre système nerveux central et nos synapses cérébrales pour une communication plus claire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-18-1-af-seretta-kem/) | 18 Janvier 2025
 Serreta Kem | [Élaboration sur le développement et présentation d'ouverture d'Al Fike](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-23-2-af-serreta-kem/) | 23 Janvier 2025 
 Seretta Kem | [S'harmoniser avec vos désirs profonds](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-15-1-af-seretta-kem/) | 15 Mars 2025
 Seretta Kem | [Exprime sa joie face à la progression de notre âme ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-29-3-af-seretta-kem/) | 29 Avril 2025 
+Seretta Kem | [Chacun a reçu un don pour un éveil spirituel plus profond ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-30-3-af-seretta-kem/) | 30 Avril 2025
 
 
 

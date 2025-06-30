@@ -36,4 +36,5 @@ Jésus | [Cercle de Bénédictions à Running Springs, Californie](/fr-contempor
 Jésus | [Nous devons rester proches et en harmonie pour accomplir le plan et le dessein de Dieu pour nous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-28-2-af-jesus/) | 28 Avril 2025 
 Jésus | [Ouverture de la Croisière des Célébrités](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-4-3-af-jesus/) | 4 Mai 2025
 Jésus | [Aidez-nous à apporter la vérité pour apaiser la souffrance de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-4-4-af-jesus/) | 4 Mai 2025 
+Jésus | [Je suis le capitaine du navire, Dieu met le vent dans les voiles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-7-1-jw-jesus/) | 7 Juin 2025
 

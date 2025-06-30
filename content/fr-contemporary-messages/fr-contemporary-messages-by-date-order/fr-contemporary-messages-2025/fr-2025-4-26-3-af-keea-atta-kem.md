@@ -1,0 +1,25 @@
+---
+title: "Une leçon de guérison pour notre cercle de développement"
+menu_title: ""
+description: "Une leçon de guérison pour notre cercle de développement"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Une leçon de guérison pour notre cercle de développement 
+
+Keea atta Kem -  reçu par Albert Fike - le 26 Avril 2025, Running Springs, CA, USA.
+
+Que Dieu vous bénisse. C’est Keea-atta-Kem. Notre chère fille ressent une série de réactions qui commencent au niveau du nerf de son cou, relié à la zone qui lui cause un inconfort. Lorsque l’énergie de l’esprit, de nous-mêmes, entre en communion avec elle, elle stimule et comprime ce nerf et provoque une toux. Avec le temps, cette réaction et cette réactivité s’atténueront et elle se sentira à nouveau bien. Cela fait partie du développement. Cela n’est pas spécifiquement ancré dans le physique. Cela fait partie d’une réponse spirituelle qui se manifeste par la prière et par son instrument.
+
+Il y a également des constrictions dans cette zone de la gorge. Ces constrictions existent depuis longtemps. Elles aussi nécessitent guérison et expiation. Il y a un traumatisme, conséquence d’un abus subi par une autre personne. Bien que cet abus ne soit pas physique, il est émotionnel. Il est temps maintenant de libérer ce souvenir et cet état. À l’époque, il était difficile pour cette personne de libérer sa rage et son horreur face au comportement de cet individu et à la souffrance qu’il lui a infligée, à elle et à sa famille. Comme vous pouvez le constater, cette situation comporte de nombreuses facettes et nécessitera davantage d’attention et de guérison pour permettre à ces choses de se résorber et à la compression de son cou de se relâcher. La pression et les énergies, comme on pourrait les appeler, dans cette zone, ce chakra, permettent de se résorber et de retrouver l’harmonie.
+
+À mesure que vous grandissez dans l’Amour du Père, que vous recherchez l’harmonie et la guérison en vous, ces choses deviennent évidentes. Elles se manifestent de différentes manières, mais elles envoient un message à la personne : elle a besoin d’attention et d’amour dans son processus de guérison. Ce centre de disharmonie peut se manifester dans de nombreuses zones du corps et dans les centres spirituels du corps. Notre chère fille, sincère et désireuse de guérison, doit prendre conscience que cette énergie bloquée se concentre dans cette zone et résulte de souvenirs douloureux, du blocage de leur expression et du refoulement des conditions entourant cette expérience et ce souvenir. La prière est essentielle et contempler ce qui se trouve dans cette zone de son corps, dans la prière, lui permettra de prendre conscience de sa source. Dans cette prise de conscience, elle peut prier Dieu de l’aider à libérer ce trouble, à y placer le Toucher et l’Amour guérisseurs de Dieu en elle, libérant ainsi les incrustations qui se manifestent ainsi autour de son âme.
+
+L’humanité est une créature très complexe. Il existe de nombreux niveaux de disharmonie et d’interactions entre les composantes de chaque individu. Il est important de comprendre que le corps humain, l’esprit et l’âme, sont composés de très nombreux composants et de nombreux éléments qui interagissent ensemble, au sein d’un seul être complet : l’être humain. Envoyez votre amour à ce magnifique instrument. Aidez-la à trouver l’apaisement et la paix, à se libérer de tous les obstacles, de toutes les conditions qui ne sont pas en harmonie avec l’amour. Nous jouerons notre rôle dans le processus de guérison. Nous partagerons nos dons, nos canaux d’amour pour Dieu. Car Dieu aime cette belle âme si profondément, si puissamment, que l’amour la guérira. L’amour la supprimera. L’amour aidera cette chère âme à se libérer de tous les obstacles, de toutes les conditions qui engendrent la disharmonie, qui sont contraires à la paix et qui entravent le corps et l’esprit.
+
+La guérison la plus grande et la plus profonde vient de Dieu dans Son Amour, cette Substance qui se déverse en vous, qui est donnée gratuitement par la grande Âme de Dieu à la vôtre. Cela apporte la Touche apaisante à tous les domaines, à toutes les douleurs, à tous les inconforts et à tout ce qui n’est pas en harmonie. Quelle générosité de Dieu dans son désir d’apporter à chacun de vous la paix, de vous libérer de la douleur, des états et des souvenirs du passé qui vous ont fait souffrir, et de les remplacer par l’amour, l’amour et la lumière, l’immensité de la lumière, qui permettent à ce qui est restreint de se libérer et au flux des énergies du corps de circuler librement, pour apporter santé et vitalité à toutes les parties de votre être.
+
+Dieu vous a doté d’un corps magnifique, un corps capable de nombreuses choses. Il vous a doté d’un esprit merveilleux qui anime toutes les parties de votre corps, de votre être et de votre conscience. Il vous a donné une âme remplie de sagesse, d’amour et de lumière, qui nourrit l’esprit et le physique. En effet, toutes ces belles parties de vous désirent être en harmonie, être aimées, bénies, offertes, être pleines de vitalité et de beauté.
+

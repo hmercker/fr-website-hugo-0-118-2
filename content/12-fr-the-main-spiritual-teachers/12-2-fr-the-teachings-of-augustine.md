@@ -322,7 +322,9 @@ Augustin | [Nous accueille et ouvre le cercle de développement en ligne](/fr-co
 Augustin | [Atteindre la conscience de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-12-1-af-augustine/) | 12 Mars 2024
 Augustin | [Répond à notre conversation en se demandant pourquoi les humains ne répondent pas aux opportunités d'Amour Divin ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-14-2-af-augustine/) | 14 Mars 2024
 Augustin | [Vous grandissez dans la lumière en tant qu’émissaires de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-18-2-af-augustin/) | 18 Mars 2024
+Augustin | [Décrit le but des messages Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-20-2-af-augustine/) | 20 Mars 2024
 Augustin | [Dieu utilise ceux qui ont de l’amour et de la compassion ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-5-1-af-augustine/) | 5 Mai 2024
+Alec Gaunt et Augustin | [Message d'ouverture, Message de clôture](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-30-1-af-alec-gaunt-and-augustine/) | 30 Mai 2024
 Augustin | [Plus d’encouragements pour enseigner les vérités de l’amour divin de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-21-1-af-augustine/) | 21 Juin 2024
 Augustin | [Votre vrai moi reconnu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-23-2-af-augustine/) | 23 Juin 2024
 Augustin | [Les opportunités abondent pour vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-24-4-af-augustine/) | 24 Juin 2024
@@ -369,6 +371,7 @@ Augustin | [Ce sont les marginaux et les non-conformistes qui œuvreront en deho
 Augustin | [La profondeur et l'étendue de l'Amour de Dieu pour vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-6-1-af-augustine/) | 6 Mai 2025 
 Augustin | [Remplacer le jugement par la compassion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-13-2-af-augustine/) | 13 Mai 2025 
 Augustin | [Guidance pour les médiums heureux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-14-1-af-augustine/) | 14 Mai 2025
+Augustin et Goldie | [Conseils au conseil d'administration de la DLSF / Gardez la joie et avancez d'un pas léger](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-21-1-af-augustine-and-goldie/) | 21 Mai 2025 
 
 
 

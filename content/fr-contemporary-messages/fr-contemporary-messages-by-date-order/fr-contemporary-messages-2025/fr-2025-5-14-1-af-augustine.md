@@ -9,7 +9,7 @@ weight:
 ---
 ### Guidance pour les médiums heureux
 
-Augustin -  reçu par Albert Fike - le 14 Mai 2025, Sechelt, Colombie-Britannique, Canada.
+Augustin -  reçu par Albert Fike - le 14 Mai 2025, Sechelt, Colombie-Britanniqu-e, Canada.
 
 Que Dieu vous bénisse, âmes bien-aimées. C’est votre maître, Augustin, qui est ici. N’oubliez pas que chaque individu a son propre chemin et sa propre expression de dons. Dans votre monde, il est courant de catégoriser et de mettre en boîte les choses, avec des attentes et des idées différentes sur ce que vous faites en matière de mentorat et d’enseignement. Dans le nôtre, c’est très fluide. Lorsque nous avons guidé des âmes individuelles à venir participer à vos magnifiques rassemblements, une multitude de possibilités s’offrent à chacune d’elles. Je vous exhorte à ne pas catégoriser ni à avoir des attentes fermes et spécifiques, mais à avoir foi que Dieu a guidé chacun dans ce cercle et qu’il recevra, absorbera et intégrera la connaissance du mieux qu’il peut, en fonction de sa progression et de son expérience de ce temps passé ensemble.
 

@@ -159,6 +159,7 @@ Judas | [Amour de soi et Amour Divin ](/fr-contemporary-messages/fr-contemporary
 Flavius Josèphe | [Sera honoré de venir demain pour répondre à la question de Geoff ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-19-1-af-josephus/) | 19 Mars 2024
 Flavius Josèphe | [Répond à la question de Geoff Cutler](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-19-2-af-josephus/) | 19 Mars 2024
 Confucius | [Trois oiseaux sur un fil ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-20-1-af-confucius/) | 20 Mars 2024
+Augustin | [Décrit le but des messages Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-20-2-af-augustine/) | 20 Mars 2024
 Moïse | [La loi de l'Amour Divin ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-21-1-em-moses/) | 21 Mars 2024
 Jean le Bien Aimé | [Plongez-vous dans la rivière de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-22-1-em-john-the-beloved/) | 22 Mars 2024
 Thomas et Jeanne d'Arc | [Foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-24-1-em-thomas-joan-of-arc/) | 24 Mars 2024
@@ -208,7 +209,7 @@ Marie | [Vous n’êtes jamais seul ](/fr-contemporary-messages/fr-contemporary-
 Care Darby Walsh | [Dites une simple prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-27-1-jw-care-darby-walsh/) | 27 Mai 2024
 Confucius | [Accompagnement personnel pour la tournée de Septembre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-28-1-af-confucius/) | 28 Mai 2024
 Orion | [L'Univers de Dieu est rempli d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-28-2-af-orion/) | 28 Mai 2024
-Alec Gaunt et Augustin | [Message d'ouverture, Message de clôture](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-30-1-af-alec-gaunt-and-agustine/) | 30 Mai 2024
+Alec Gaunt et Augustin | [Message d'ouverture, Message de clôture](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-30-1-af-alec-gaunt-and-augustine/) | 30 Mai 2024
 Keea-Atta-Kem | [La Voix de Dieu est dans l'air](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-31-1-af-keea-atta-kem/) | 31 Mai 2024
 Augustin | [Leçon profonde sur la conscience de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-1-1-af-augustine/) | 1 Juin 2024
 St Luc | [L’Essence de Dieu (Amour Divin) dans l’âme de chacun est le fondement du Royaume de Dieu sur terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-2-1-jw-st-luke/) | 2 Juin 2024

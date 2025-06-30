@@ -45,6 +45,7 @@ Fred Rogers | [Travailler avec les petits enfants](/fr-contemporary-messages/fr-
 Fred Rogers | [Amis imaginaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-29-1-jw-fred-rogers/) | 29 Septembre 2022
 Fred Rogers | [Nous sommes tous des enfants de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-5-1-1-jw-fred-rogers/) | 1 Mai 2023
 Fred Rogers | [Aime son travail en esprit comme il l'a aimé sur terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-14-2-jw-fred-rogers/) | 14 Septembre 2024
+Fred Rogers | [Servir les enfants du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-6-2-jw-fred-rogers/) | 6 Juin 2025
 Frédéric Chopin | [Comment recevoir l'inspiration](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-107-1970-anonymous-frederick-chopin/) |   1970
 Frédéric Chopin | [Je souhaite apporter ma musique à l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-21-4-af-frederick-chopin/) | 21 Novembre 2017
 Gene Kelly | [Que votre cœur chante](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-23-2-af-gene-kelly/) | 23 Novembre 2017
@@ -64,6 +65,7 @@ John Denver | [John Denver a changé de point de vue](/fr-contemporary-messages/
 John Lennon | [John Lennon est toujours un bohémien](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-16-1-fab-john-lennon/) | 16 Février 2003
 John Lennon | [Espoir d’un Beatle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-11-3-1-fab-john-lennon/) | 3 Novembre 2011
 John Lennon | [Tout ce dont vous avez besoin est l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-16-6-af-john-lennon/) | 16 Novembre 2017
+John Lennon | [L'Amour de Dieu filtre la négativité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-2-1-jw-john-lennon/) | 2 Juin 2025
 Judy Garland | [Une star du cinéma passe de l’obscurité au bonheur.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-19-1-fab-judy-garland/) | 19 Mai 2008
 Judy Garland | [Une grande interprète partage son cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-19-1-fab-judy-garland/) | 19 Septembre 2008
 Judy Garland | [Une grande interprète partage son cœur - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-27-1-fab-judy-garland/) | 27 Septembre 2008
