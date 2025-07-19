@@ -33,3 +33,4 @@ Barbara Davies | [Souvenez-vous des âmes perdues - Un message de Noël ](/fr-co
 Barbara Davies | [Décrit son service et ses sensibilités sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-22-3-af-barbara-davies/) | 22 Janvier 2025 
 Barbara Davies | [Encouragez-nous au service de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-25-2-af-barbara-davies/) | 25 Février 2025
 Barbara Davies | [Soyez un canal de l'Amour de Dieu où que vous alliez ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-29-2-af-barbara-davies/) | 29 Avril 2025 
+Barbara Davies | [Plongez dans le monde avec l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-2-3-af-barbara-davies/) | 2 Mai 2025

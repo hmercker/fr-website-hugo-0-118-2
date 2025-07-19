@@ -371,7 +371,11 @@ Augustin | [Ce sont les marginaux et les non-conformistes qui œuvreront en deho
 Augustin | [La profondeur et l'étendue de l'Amour de Dieu pour vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-6-1-af-augustine/) | 6 Mai 2025 
 Augustin | [Remplacer le jugement par la compassion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-13-2-af-augustine/) | 13 Mai 2025 
 Augustin | [Guidance pour les médiums heureux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-14-1-af-augustine/) | 14 Mai 2025
+Augustin | [Faites vos preuves, mes beaux et chers étudiants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-1-4-af-augustine/) | 1 Mai 2025
+Augustin | [Vous devez demander avec ferveur et précision pour recevoir un afflux de l'Amour Divin de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-16-1-af-augustine/) | 16 Mai 2025
+Augustin | [Le pouvoir de l'intention](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-17-1-af-augustine/) | 17 Mai 2025 
 Augustin et Goldie | [Conseils au conseil d'administration de la DLSF / Gardez la joie et avancez d'un pas léger](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-21-1-af-augustine-and-goldie/) | 21 Mai 2025 
+
 
 
 

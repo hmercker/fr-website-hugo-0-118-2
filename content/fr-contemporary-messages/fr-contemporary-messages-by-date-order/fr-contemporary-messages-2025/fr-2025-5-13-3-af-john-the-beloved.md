@@ -1,0 +1,24 @@
+---
+title: "L'importance d'avoir des canaux d'Amour Divin sur Terre"
+menu_title: ""
+description: "L'importance d'avoir des canaux d'Amour Divin sur Terre"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### L'importance d'avoir des canaux d'Amour Divin sur Terre
+
+Jean le Bien Aimé -  reçu par Albert Fike - le 13 Mai 2025, Sechelt, Colombie-Britannique, Canada.
+
+Que Dieu vous bénisse, âmes bien-aimées de la vérité. Je suis Jean, l’apôtre de Jésus. Je viens vous rejoindre car mon amour pour chacun de vous est grand. Pour chacun de ceux qui remettent en question le statu quo sur Terre et portent le manteau de l’Amour de Dieu partout où ils vont, ils portent une lumière. Ils portent la possibilité d’être les canaux d’amour de Dieu. Je vous honore et je vous aime. Je sais que ce monde est dur. Il est souvent aveuglé à la Vérité de l’Amour de Dieu. Pourtant, vous persévérez, âmes bien-aimées. Vous persévérez sur le chemin. Vous êtes dévoués et fidèles à cette vérité, cherchant à épanouir vos âmes dans les bénédictions de Dieu et de Son Essence.
+
+Les anges sont avec vous. Il nous serait facile de nous rassembler au Ciel Céleste et d’ignorer les difficultés de la Terre, car là où nous résidons règnent paix, harmonie et beauté, là où l’Amour de Dieu imprègne et où nous sommes en harmonie avec cet Amour. Pourtant, ce n’est ni notre voie, ni celle de Dieu. Nous sommes tous un, toute l’humanité. Nous ne pouvons ignorer la détresse de nos frères et sœurs. Nous devons continuer à œuvrer, à œuvrer avec diligence, pour apporter la Vérité de l’Amour de Dieu à quiconque veut bien nous écouter. En cela, nous accomplissons l’œuvre de Dieu. En cela, nous avons la chance de servir, d’être les agents de l’Amour de Dieu.
+
+Vous l’êtes aussi, mes chers amis. Car sans vous, il nous serait bien plus difficile d’établir une relation et une présence significatives sur Terre. Nous comptons sur vous. Nous comptons sur vos prières et vos désirs. Nous comptons sur la lumière que vous portez en votre âme. Nous avons tant besoin de vous, même si je sais que vous le voyez différemment. Vous voyez votre besoin de nous, l’amour que nous vous apportons, notre soutien et nos services pour votre bien. C’est vrai. Nous sommes là pour vous. Mais nous ne sommes pas seulement là pour vous, mais pour beaucoup, beaucoup dans le monde. Nous utilisons ce lien, cette connexion, ce Réseau de Lumière qui grandit dans le monde, afin d’atteindre de nombreuses âmes. Nombreuses sont celles qui aspirent à l’amour. Nombreuses sont celles qui aspirent à Dieu, mais elles sont prisonnières d’idées, de structures archaïques et de religions qui restreignent leur expérience et leur compréhension de Dieu.
+
+Vous comprenez l’immensité de l’Amour de Dieu, cet Amour sans restriction, cet Amour qui vous est accessible non seulement pour l’instant, mais pour l’éternité. Quelle bénédiction de connaître cette vérité, de ne pas être entravé ou encombré par une doctrine religieuse qui vous éloigne de Dieu. Aucune âme n’est véritablement éloignée de Dieu, mais l’esprit des mortels agit comme un tampon, un filtre, restreignant l’expérience. Pourtant, l’âme continue d’aspirer. Il y a des moments où les aspirations de l’âme sont exaucées par le don de l’Amour de Dieu. Ce sont ces personnes, ces chercheurs, que nous désirons accompagner et avec lesquels nous vous mettons en contact, afin qu’ils connaissent la vérité et l’acceptent. Vous êtes des exemples, âmes bien-aimées, de véritables exemples des effets de l’Amour du Père sur l’âme. Alors que vous rayonnez dans le monde, sachez que nous sommes avec vous, renforçant cette lumière, vous accompagnant partout où vous allez. Ensemble, cette force est formidable, belle et transformatrice.
+
+Nous cherchons à servir ensemble. Ensemble, nous sommes un instrument formidable et magnifique que Dieu peut utiliser de multiples façons et avec de multiples bénédictions. Continuez à prier pour ce grand don d’Amour, car c’est la clé. C’est la clé qui ouvre la porte qui apporte la vérité, non seulement à vous, mais à beaucoup d’autres. Vous servez bien Dieu, mes chers amis. Vous continuerez à servir Dieu de manières plus profondes et plus puissantes dans votre monde. Nous établirons une relation et un lien plus étroits avec chacun de vous à mesure que vous grandirez dans cet Amour, à mesure que cette porte s’ouvrira, que la clé sera tournée. Mes bien-aimés, sachez que nous sommes avec vous, que nous vous aimons tant. Nous vous aimons tant. Nous vous honorons et apprécions votre dévouement. Votre amour pour Dieu, combiné au nôtre, apporte la lumière au monde.
+
+Que Dieu vous bénisse. Je suis Jean le Bien-Aimé. Je vous aime, belles âmes, chercheurs de vérité. Que Dieu vous bénisse. Que Dieu vous bénisse.

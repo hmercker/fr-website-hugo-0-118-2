@@ -145,6 +145,10 @@ Marie | [Demandez ce dont vous avez besoin](/fr-contemporary-messages/fr-contemp
 Marie | [L'humanité a besoin d'apprendre la puissance de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-21-2-af-mary/) | 21 Mars 2025 
 Marie | [Nous venons avec amour pour apporter des bénédictions d'amour et de paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-11-1-af-mary/) | 11 Avril 2025
 Marie |  [Ouvrez-vous et vivez le baiser de Dieu sur votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-12-1-mc-mary/) | 12 Avril 2025
+Marie | [Nous continuons à prier ensemble pour l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-4-2-af-mary/) | 4 Mai 2025
+Marie | [Vous serez bercés dans nos bras pendant que nous vous ramènerons chez vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-8-4-af-mary/) | 8 Mai 2025
+Jésus et Marie | [Ouvrez votre âme et entrez en sainte communion avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-25-1-af-jesus-and-mary/) | 25 Mai 2025
+Marie | [Message pour la Fête des Pères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-15-1-af-mary/) | 15 Juin 2025 
 Marie & White Eagle | [Le miracle de Fatima et l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-9-19-2-ar-mary-white-eagle/) | 19 Septembre 1999
 Marie & David | [Faire face à la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-3-19-2-ar-mary-david/) | 19 Mars 2000
 Marie & Jean | [Sur le manque d’amour de soi de M___](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-12-1-ar-mary-john/) | 12 Novembre 1999
@@ -155,4 +159,4 @@ Marie & Jean | [Invitez-vous dans votre âme](/fr-contemporary-messages/fr-conte
 Marie & Jean | [Esprit Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-5-16-1-ar-mary-john/) | 16 Mai 2003
 Marie & Jean | [L’amour est notre cause](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-8-1-1-cc-mary-john/) | 1 Août 2003
 Jeanne d'arc, Marie et Keea Atta Kem | [Venez soutenir toutes les femmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-15-1-af-joan-of-arc-mary-keea-atta-kem/) | 15 Avril 2025 
-Marie | [Nous continuons à prier ensemble pour l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-4-2-af-mary/) | 4 Mai 2025 
+ 

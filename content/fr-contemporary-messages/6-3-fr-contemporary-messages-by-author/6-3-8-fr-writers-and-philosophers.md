@@ -58,6 +58,7 @@ Hafiz | [Poèmes de Haffiz](/fr-contemporary-messages/fr-contemporary-messages-b
 Hafiz | [Soyez la vraie vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-25-1-jw-hafiz/) | 25 Octobre 2021
 Hafiz | [Une fenêtre de temps](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-13-2-jw-hafiz/) | 13 Avril 2024
 Hafiz | [Que pensera le monde de vous ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-8-1-jw-hafiz/) | 8 Septembre 2024
+Hafiz | [Un festin de ça](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-1-3-jw-hafiz/) | 1 Mai 2025 
 Ida Tarbell | [Quelque chose de merveilleux à attendre avec impatience](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-24-1-fab-ida-tarbell/) | 24 Décembre 2009
 Jack Kerouac | [Le voyage d'un écrivain de l'époque](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-16-1-fab-jack-kerouac/) | 16 Avril 2008
 Jack Kerouac | [Un écrivain de l’époque trouve l'Amour Divin_2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-4-18-2-fab-jack-kerouac/) | 18 Avril 2008

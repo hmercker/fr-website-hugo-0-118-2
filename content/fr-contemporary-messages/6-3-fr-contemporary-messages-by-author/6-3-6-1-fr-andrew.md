@@ -153,5 +153,6 @@ André | [Félicitez-nous pour notre force, notre persévérance et nos choix au
 André | [Un grand changement s'annonce dans le monde, qui apportera la lumière, la joie et la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-20-4-af-andrew/) | 20 Avril 2025 
 André | [Les belles relations que vous avez créées dans la prière dureront toute l'éternité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-7-1-af-andrew/) | 7 Mai 2025
 André | [Laissez les vagues vous ramener à la maison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-8-1-af-andrew/) | 8 Mai 2025 
+André | [Continuez à aller de l'avant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-2-5-af-andrew/) | 2 Mai 2025
 André et Goldie | [Conseils pour la réunion du conseil d'administration de la DLSF](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-10-2-af-andrew-goldie/) | 10 Mars 2025 
 André et Goldie | [Conseils pour Al et Jeanne avant leur départ pour la Californie ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-24-1-af-andew-et-goldie/) | 24 Avril 2025 

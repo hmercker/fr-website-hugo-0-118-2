@@ -38,14 +38,15 @@ Aigle Blanc | [Une Tribu dans l'Amour de Dieu](/fr-contemporary-messages/fr-cont
 Judas | [Semez les graines de la Vérité dans le monde sans inquiétude](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-29-1-jw-judas/) | 29 Avril 2025
 Saint François d'Assise | [Laissez vos soucis de côté et accueillez-vous dans l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-30-1-jw-st-francis-of-assisi/) | 30 Avril 2025
 Claire d'Assise | [Utilisez vos mots avec sagesse et seulement si nécessaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-1-1-jw-clare-of-assisi/) | 1 Mai 2025
+Hafiz | [Un festin de ça](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-1-3-jw-hafiz/) | 1 Mai 2025 
 Care Darby Walsh | [Surmonter ses blessures (partie 1)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-2-1-jw-care-darby-walsh/) | 2 Mai 2025
 Care Darby Walsh | [Surmonter ses blessures (partie 1)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-2-2-jw-care-darby-walsh/) | 2 Mai 2025
 Yogananda et François d’Assise | [Désir et perception de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-5-1-jw-yogananda-st-francis-of-assisi/) | 5 Mai 2025
 Care Darby Walsh | [Comment créer des sanctuaires (Accueillir l'Abondance)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-9-1-jw-care-darby-walsh/) | 9 Mai 2025
 Simon Pierre | [Ouvrir les tombeaux de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-12-1-jw-simon-peter/) | 12 Mai 2025
-Care Darby Walsh | [La clarté des perceptions de l'âm](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-22-1-jw-care-darby-walsh/) | 22 Mai 2025
+Care Darby Walsh | [La clarté des perceptions de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-22-1-jw-care-darby-walsh/) | 22 Mai 2025
 John Lennon | [L'Amour de Dieu filtre la négativité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-2-1-jw-john-lennon/) | 2 Juin 2025
-Yogananda | [La guidance est donnée par la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-5-1-jw-yogananda/) | 5 Juin 2025
+Yogananda | [Les conseils sont donnés par la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-5-1-jw-yogananda/) | 5 Juin 2025
 Claire d'Assise | [Bienvenue aux Gardiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-5-2-jw-clara-of-assisi/) | 5 Juin 2025
 Eileen Caddy | [Lorsque vous créez pour les autres dans l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-6-1-jw-eileen-caddy/) | 6 Juin 2025
 Fred Rogers | [Servir les enfants du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-6-2-jw-fred-rogers/) | 6 Juin 2025
@@ -56,8 +57,7 @@ Judas | [Votre état d’âme](/fr-contemporary-messages/fr-contemporary-message
 Care Darby Walsh | [Ne jamais présumer de ses limites](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-13-1-jw-care-darby-walsh/) | 13 Juin 2025
 Barnabé | [Si vous souhaitez servir le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-16-1-jw-barnabas/) | 16 Juin 2025
 G Gurdjieff | [Les chocs du changement sont de véritables cadeaux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-23-1-jw-g-gurdjieff/) | 23 Juin 2025 
-
-
-
+Judas | [Comprendre la vérité et la devenir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-30-1-jw-judas/) | 30 Juin 2025
+St Luc | [Médecine spirituelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-7-1-jw-st-luke/) | 7 Juillet 2025 
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

@@ -210,30 +210,64 @@ Nuage Blanc | [Ouvrir davantage l'expression de vos dons ](/fr-contemporary-mess
 Seretta Kem | [Chacun a reçu un don pour un éveil spirituel plus profond ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-30-3-af-seretta-kem/) | 30 Avril 2025 
 Claire d'Assise | [Utilisez vos mots avec sagesse et seulement si nécessaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-1-1-jw-clare-of-assisi/) | 1 Mai 2025 
 Goldie | [Un soupir de soulagement pour ceux qui ouvrent leur âme à recevoir ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-1-2-af-goldie/) | 1 Mai 2025 
+Hafiz | [Un festin de ça](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-1-3-jw-hafiz/) | 1 Mai 2025 
+Augustin | [Faites vos preuves, mes beaux et chers étudiants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-1-4-af-augustine/) | 1 Mai 2025 
+George Stokes | [Satisfait de nos progrès](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-1-5-em-george-stokes/) | 1 Mai 2025
+Jésus | [Votre lumière attire les anges vers vous, favorisant votre progrès et votre développement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-1-6-af-jesus/) | 1 Mai 2025
 Care Darby Walsh | [Surmonter ses blessures (partie 1)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-2-1-jw-care-darby-walsh/) | 2 Mai 2025 
 Care Darby Walsh | [Surmonter ses blessures (partie 1)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-2-2-jw-care-darby-walsh/) | 2 Mai 2025 
+Barbara Davies | [Plongez dans le monde avec l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-2-3-af-barbara-davies/) | 2 Mai 2025
+Eloise Nunn | [Je vous donne ma fille](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-2-4-af-eloise-nunn/) | 2 Mai 2025
+André | [Continuez à aller de l'avant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-2-5-af-andrew/) | 2 Mai 2025
 Augustin | [Ce sont les marginaux et les non-conformistes qui œuvreront en dehors des normes de la société qui changeront le monde !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-3-1-af-augustine/) | 3 Mai 2025 
+Jésus | [Bénédictions et louanges pour clôturer la retraite d'Anaheim](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-3-1-af-jesus/) | 3 Mai 2025
 Confucius | [Soyez fidèles aux aspirations de votre âme et profitez pleinement de ce temps passé ensemble ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-4-1-af-confucius/) | 4 Mai 2025 
 Marie | [Nous continuons à prier ensemble pour l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-4-2-af-mary/) | 4 Mai 2025 
 Jésus | [Ouverture de la Croisière des Célébrités](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-4-3-af-jesus/) | 4 Mai 2025
 Jésus | [Aidez-nous à apporter la vérité pour apaiser la souffrance de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-4-4-af-jesus/) | 4 Mai 2025 
+Anna | [Puissiez-vous développer la sagesse dans vos interactions avec vos frères et sœurs!](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-4-5-af-anna/) | 4 Mai 2025
 Yogananda et St François d’Assise | [Désir et perception de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-5-1-jw-yogananda-st-francis-of-assisi/) | 5 Mai 2025 
 Keea Atta Kem | [L'importance de se réunir en personne ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-5-2-af-keea-atta-kem/) | 5 Mai 2025
 Mathieu | [Ayez de la compassion pour les âmes perdues ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-5-3-af-st-matthew/) | 5 Mai 2025
+John Hughes | [Prenez contact avec Dieu tout au long de la journée pour bénir ceux que vous rencontrez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-5-4-em-john-hughes/) | 5 Mai 2025 
 Augustin | [La profondeur et l'étendue de l'Amour de Dieu pour vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-6-1-af-augustine/) | 6 Mai 2025 
+Jésus | [La liberté de l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-6-2-em-jesus/) | 6 Mai 2025 
+Fleur de Lotus | [Marchez dans la lumière et la grâce de l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-6-3-mc-lotus-blossom/) | 6 Mai 2025 
+Anna | [Laissez briller votre lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-6-4-em-anna/) | 6 Mai 2025
+George Stokes | [L'importance de vos prières pour vous-mêmes et pour les esprits à bord de ce navire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-6-5-em-george-stokes/) | 6 Mai 2025
 André | [Les belles relations que vous avez créées dans la prière dureront toute l'éternité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-7-1-af-andrew/) | 7 Mai 2025 
 Orion | [L'Amour de Dieu est accessible à chaque être dans l'Univers et sauvera l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-7-2-af-orion/) | 7 Mai 2025 
-André | [Laissez les vagues vous ramener à la maison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-8-1-af-andrew/) | 8 Mai 2025 
+Jésus | [Vous trouverez votre chemin vers Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-7-3-af-jesus/) | 7 Mai 2025 
+Pierre | [La véritable Église est dans vos cœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-7-4-em-peter/) | 7 Mai 2025
+Jésus | [L'Amour de Dieu est universel et inclut la Miséricorde, le Pardon et la Compassion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-7-5-em-jesus/) | 7 Mai 2025 
+André | [Laissez les vagues vous ramener à la maison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-8-1-af-andrew/) | 8 Mai 2025
+St Mathieu | [Bienvenue à Victoria et remercie les nombreuses prières pour l'Amour Divin de cette magnifique ville](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-8-2-em-st-matthew/) | 8 Mai 2025
+Aliyah | [La Promesse de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-8-3-af-aliyah/) | 8 Mai 2025
+Marie | [Vous serez bercés dans nos bras pendant que nous vous ramènerons chez vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-8-4-af-mary/) | 8 Mai 2025
 Care Darby Walsh | [Comment créer des sanctuaires (Accueillir l'Abondance)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-9-1-jw-care-darby-walsh/) | 9 Mai 2025
+Anna | [Abandonnez vos attentes de perfection](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-10-1-mc-anna/) | 10 Mai 2025
+Orion et Jésus | [La prière est un élément essentiel du plan divin pour la transformation du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-11-1-af-orion-and-jesus/) | 11 Mai 2025
 Simon Pierre | [Ouvrir les tombeaux de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-12-1-jw-simon-peter/) | 12 Mai 2025
 Orion | [Comment le jugement entrave la progression de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-13-1-af-orion/) | 13 Mai 2025 
 Augustin | [Remplacer le jugement par la compassion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-13-2-af-augustine/) | 13 Mai 2025 
+Jean le Bien Aimé | [L'importance d'avoir des canaux d'Amour Divin sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-13-3-af-john-the-beloved/) | 13 Mai 2025
 Augustin | [Guidance pour les médiums heureux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-14-1-af-augustine/) | 14 Mai 2025
+Augustin | [Vous devez demander avec ferveur et précision pour recevoir un afflux de l'Amour Divin de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-16-1-af-augustine/) | 16 Mai 2025
+Augustin | [Le pouvoir de l'intention](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-17-1-af-augustine/) | 17 Mai 2025
+Seretta Kem | [L'éveil de différents aspects de notre âme influence la communication avec les anges](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-17-2-af-seretta-kem/) | 17 Mai 2025
+Jésus | [Une magnifique bénédiction de l'amour de Dieu en réponse aux prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-18-1-af-jesus/) | 18 Mai 2025 
 Yogananda | [paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-19-1-jw-yogananda/) | 19 Mai 2025 
 Augustin et Goldie | [Conseils au conseil d'administration de la DLSF / Gardez la joie et avancez d'un pas léger](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-21-1-af-augustine-and-goldie/) | 21 Mai 2025 
 Care Darby Walsh | [La clarté des perceptions de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-22-1-jw-care-darby-walsh/) | 22 Mai 2025
+Jésus et Marie | [Ouvrez votre âme et entrez en sainte communion avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-25-1-af-jesus-and-mary/) | 25 Mai 2025
 Orion | [Les Contradictions en Nous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-27-1-af-orion/) | 27 Mai 2025 
+Keea Atta Kem | [Soyez une lumière dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-27-2-af-keea-atta-kem/) | 27 Mai 2025 
+Keea Atta Kem | [Dieu murmure Son amour dans vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-30-1-af-keea-atta-kem/) | 30 Mai 2025
+Jean le Bien Aimé | [Vos âmes ont soif de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-30-2-em-john-the-beloved/) | 30 Mai 2025
 John Lennon | [L'Amour de Dieu filtre la négativité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-2-1-jw-john-lennon/) | 2 Juin 2025
+Faith Nyquist | [Demande de service](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-3-1-af-faith-nyquist/) | 3 Juin 2025
+Orion | [Tranformation par l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-3-2-af-orion/) | 3 Juin 2025
+Keea Atta Kem | [Les épreuves et les tribulations de l'homme n'ont aucune cause en Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-4-2-em-keea-atta-kem/) | 4 Juin 2025
 Yogananda | [La guidance est donnée par la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-5-1-jw-yogananda/) | 5 Juin 2025
 Claire d'Assise | [Bienvenue aux Gardiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-5-2-jw-clara-of-assisi/) | 5 Juin 2025
 Eileen Caddy | [Lorsque vous créez pour les autres dans l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-6-1-jw-eileen-caddy/) | 6 Juin 2025
@@ -244,8 +278,12 @@ Jésus | [Je suis le capitaine du navire, Dieu met le vent dans les voiles](/fr-
 Judas | [Votre état d’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-9-1-jw-judas/) | 9 Juin 2025
 Orion | [Soutien et accompagnement continus pour une douzaine de personnes atteintes de la maladie de D.V. dans le plan divin de transformation du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-10-1-af-orion/) | 10 Juin 2025 
 Care Darby Walsh | [Ne jamais présumer de ses limites](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-13-1-jw-care-darby-walsh/) | 13 Juin 2025
+Jésus | [Puissante Bénédiction d'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-15-1-af-jesus/) | 15 Juin 2025
+Marie | [Message pour la Fête des Pères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-15-1-af-mary/) | 15 Juin 2025 
 Barnabé | [Si vous souhaitez servir le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-16-1-jw-barnabas/) | 16 Juin 2025 
 G Gurdjieff | [Les chocs du changement sont de véritables cadeaux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-23-1-jw-g-gurdjieff/) | 23 Juin 2025 
+Judas | [Comprendre la vérité et la devenir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-30-1-jw-judas/) | 30 Juin 2025
+St Luc | [Médecine spirituelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-7-1-jw-st-luke/) | 7 Juillet 2025
 
 
 

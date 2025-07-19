@@ -9,7 +9,7 @@ weight:
 ---
 ### Un soupir de soulagement pour ceux qui ouvrent leur âme à recevoir
 
-Goldie -  reçu par Albert Fike - le 1<sup>er</sup> 2025, Anaheim, CA, États-Unis.
+Goldie -  reçu par Albert Fike - le 1<sup>er</sup> Mai 2025,  Retraite d'Anaheim, Anaheim, CA, États-Unis.
 
 C’est chaleureux et léger. Il apporte un soupir de soulagement à l’âme qui recherche constamment ce contact. Mes chers amis, recherchez la joie, l’expansion de cet Amour, qui vous ouvre et vous transforme, vous éclaire et vous apporte la paix.
 

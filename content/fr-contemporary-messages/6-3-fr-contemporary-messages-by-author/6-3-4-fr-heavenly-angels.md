@@ -15,11 +15,13 @@ Cette catégorie d’esprits correspond à des esprits qui ne se sont pas illust
 ---|---|---
 Adriana | [Se ressourcer dans la prière pour se préparer aux défis à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-6-1-af-adriana/) | 6 Septembre 2020
 Agnès | [Ne pas ignorer l’Amour Naturel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-19-2-jr-agnes/) | 19 Mai 2014
+Aliyah | [La Promesse de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-8-3-af-aliyah/) | 8 Mai 2025
 Archange Gabriel | [La mort et la résurrection de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-6-21-1-rl-archangel-gabriel/) | 21 Juin 2004
 Archange Michael | [Déclaration du début de la transformation de notre monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-17-3-af-archangel-michael/) | 17 Décembre 2021
 Archange Michael et Luc | [Guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-26-2-em-archangel-michael-and-luke/) | 26 Février 2024
 Bouleau Argenté, Elizabeth, Confucius | [Parle au Cercle de Lumière, est heureux et honoré de travailler avec le Cercle de Lumière de Manly, apporte des dons de guérison au Cercle de Manly ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-6-1-af-silver-birch-elizabeth-confucius/) | 6 Avril 2024
 Eaux vives | [Un nouvel ange qui nous apporte une grande lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-18-1-af-bright-waters/) | 18 Juin 2024
+Eloise Nunn | [Je vous donne ma fille](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-2-4-af-eloise-nunn/) | 2 Mai 2025
 Elyon | [Un message d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-1-6-1-na-elyon/) | 6 Janvier 2006
 Emi et Martin Luther | [Courage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-7-13-1-hm-emi-martin-luther/) | 13 Juillet 2017
 Emmanuel | [Parle de la beauté du jardin de nos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-8-3-af-immanuel/) | 8 Mars 2024
@@ -63,6 +65,7 @@ Jésus, Fleur de Lotus et Aaron | [Bénédictions d’amour](/fr-contemporary-me
 Fleur de Lotus | [Décrit les bienfaits de la respiration](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-23-6-mc-lottus-blossom/) | 23 Janvier 2025 
 Fleur de Lotus | [Décrit la transformation de l'âme avec l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-26-2-mc-lotus-blossom/) | 26 Janvier 2025
 Fleur de Lotus | [Bienvenue dans vos cœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-10-1-mc-lotus-blossom/) | 10 Avril 2025
+Fleur de Lotus | [Marchez dans la lumière et la grâce de l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-6-3-mc-lotus-blossom/) | 6 Mai 2025
 Goldie | [S'exprimer en tant qu'enseignant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-7-1969-3-25-anonymous-goldie/) | 25 Mars 1969
 Goldie | [Vous ne pouvez grandir que pas à pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-34-1969-11-1-anonymous-goldie/) | 1 Novembre 1969
 Goldie | [Une mission spéciale de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-108-1969-anonymous-goldie/) |   1969
@@ -121,6 +124,7 @@ Isabelle | [Se présente comme la guide de Sonja pour son anniversaire ](/fr-con
 James Tudor Sr. | [Laissez les morts enterrer les morts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-21-2-af-james-tudor-sr/) | 21 Janvier 2024
 James Tudor Sr | [Exprime sa déception face aux changements culturels à la Barbade ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-22-2-af-james-tudor-sr/) | 22 Janvier 2025
 Jane | [La route magique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-11-17-1-ks-jane/) | 17 Novembre 2002
+John Hughes | [Prenez contact avec Dieu tout au long de la journée pour bénir ceux que vous rencontrez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-5-4-af-john-hughes/) | 5 Mai 2025
 Laila | [Marchez chaque jour dans Sa lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-19-3-af-laila/) | 19 Mai 2017
 La Joya | [Éléments utilisés dans la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-8-2-mc-la-joya/) | 8 Octobre 2020
 Le père du médium | [Aide aux pays en difficulté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-1-23-2-fab-mediums-father/) | 23 Janvier 2007

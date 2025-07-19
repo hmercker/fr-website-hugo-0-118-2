@@ -271,5 +271,6 @@ Judas | [Être libéré du temps](/fr-contemporary-messages/fr-contemporary-mess
 Judas | [Semez les graines de la Vérité dans le monde sans inquiétude](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-29-1-jw-judas/) | 29 Avril 2025 
 Judas | [Vous avez franchi le Rubicon](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-6-3-jw-judas/) | 6 Juin 2025
 Judas | [Votre état d’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-9-1-jw-judas/) | 9 Juin 2025
+Judas | [Comprendre la vérité et la devenir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-30-1-jw-judas/) | 30 Juin 2025
 
 

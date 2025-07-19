@@ -1,0 +1,24 @@
+---
+title: "Demande de service"
+menu_title: ""
+description: "Demande de service"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Demande de service
+
+Faith Nyquist -  reçu par Albert Fike - le 03 Juin 2025, Sechelt, Colombie-Britannique, Canada.
+
+… enfants de Dieu, puissiez-vous trouver votre chemin vers une plus grande lumière, éveiller vos âmes à un amour plus profond. Je suis Faith. Je viens vous parler du partage de votre amour, de l’ouverture au désir et à l’intention de Dieu de vous utiliser comme canal d’amour dans le monde. Si vous ne mettez pas d’obstacles à cela, Dieu pourvoira à vos besoins et vous inspirera vers de nombreuses opportunités et invitations à être une lumière dans le monde. Cette invitation peut être aussi simple que de tendre la main à un inconnu, à un voisin, ou à une autre personne qui a besoin d’encouragement et d’amour. Lorsque vous êtes au bon endroit au bon moment, Dieu vous insufflera son amour et veillera à ce qu’ils reçoivent les bénédictions auxquelles ils sont ouverts.
+
+Cela peut être plus complexe que cela. Il se peut que vous vous retrouviez à parler à une foule, à être un instrument capable de toucher de nombreuses âmes à la fois. Cela aussi fait partie de l’intention et du dessein de Dieu concernant votre rôle d’instrument : être une lumière dans le monde. Vous pourriez être utilisé de multiples façons, dans des situations très diverses. L’essentiel est de prier pour être utilisé comme un instrument de lumière et d’amour par Dieu. Lorsque vous aurez l’intention, ce jour-là, d’être utilisé comme une lumière, oh, comme vous verrez que Dieu vous inspirera, vous guidera et vous montrera la voie à suivre pour affronter des circonstances et des situations dont vous n’auriez même pas pu rêver.
+
+Pourtant, vous devez en avoir le désir, mes amis. Vous devez être en harmonie avec Dieu. Lorsque cet alignement sera réalisé, vous verrez le chemin devant vous. Les pas sont faciles à suivre. La direction est claire. Dieu vous guidera sur le chemin du service et vous montrera la voie en utilisant vos dons, vos talents et votre être pour être cet instrument de lumière, aussi unique soit-il. Lorsque vous rayonnez de lumière, lorsque vous désirez être un canal de lumière et d’amour, oh, comme votre personnalité et votre être s’expriment de manière à attirer les autres vers vous. Ce n’est pas une tâche difficile ni une condition que Dieu souhaite pour vous. Tout est dans le flux de son amour et donc tout est en harmonie. Tout est dans sa grâce, ses bénédictions.
+
+Ne laissez pas les forces négatives entraver les opportunités que Dieu vous offre. N’entretenez même pas l’existence d’obstacles. Lorsque j’ai marché sur Terre, j’ai agi avec foi. J’ai demandé à être utilisé comme un instrument. Chaque jour, Dieu m’a guidé vers ce que j’étais destiné à faire. Avec assurance et désir de servir Dieu et l’humanité, ce jour a été un jour de service, un jour qui a touché les autres, un jour qui a élevé, un jour où j’ai utilisé mes dons dans le monde. Je viens à vous, mes frères et sœurs, pour faire de même. Ne laissez pas votre réticence, votre timidité, votre scepticisme ou toute autre condition intérieure vous empêcher de servir Dieu et d’aller vers les autres. Ne laissez pas ces choses entraver le passage des bénédictions divines à travers vous. Car lorsque vous êtes en harmonie, les bénédictions affluent, et vous savez et ressentez la puissance, la beauté et la joie de ce service dans l’amour.
+
+Soyez dans la grâce de Dieu, mes amis. Ne laissez rien vous retenir. Les plus grands obstacles résident en chacun de vous : la peur, la peur de la souffrance, la peur du rejet, la peur de mal faire. Pourtant, ce ne sont que des choses que vous avez inventées dans votre esprit pour vous empêcher de servir Dieu dans ce que votre âme considère comme le véritable service. Priez pour être utilisés, mes amis. Ayez une grande foi et marchez dans le monde la tête haute, le cœur ouvert et toujours en harmonie avec Dieu. Mes amis bien-aimés, chacun de vous est une lumière. Chacun de vous est unique. Dieu peut utiliser chacun de vous de manière lumineuse, dans des opportunités et des expressions uniques, en harmonie avec qui vous êtes, la belle lumière que vous êtes. Soyez fidèle à vous-même, soyez fidèle à la volonté de Dieu, et tout le reste se mettra en place. Nul souci lorsque vous travaillez pour Dieu. Seules la satisfaction et la joie naissent de vos efforts, en accord avec la volonté de Dieu.
+
+Que Dieu vous bénisse, mes bien-aimés. Je suis la Foi. Je vous aime tant. De belles, belles lumières brillent dans le monde. Le monde bénéficiera grandement de vos efforts, car Dieu vous utilise et vous bénira comme il vous utilise. Tout mon amour pour vous, mes bien-aimés. Je suis Faith et je vous aime. Que Dieu vous bénisse.

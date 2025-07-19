@@ -79,3 +79,5 @@ St Jean | [L’Amour Divin est le rocher de la vérité](/fr-contemporary-messag
 St Jean | [Le temps de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-21-1-jw-st-john/) | 21 Novembre 2021
 St Jean | [Dieu murmure à nos âmes pour qu’il puisse travailler à travers nous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-24-1-af-st-john/) | 24 Mai 2022
 St Jean | [Âmes en transition](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-28-1-jw-st-john/) | 28 Août 2023
+Jean le Bien Aimé | [L'importance d'avoir des canaux d'Amour Divin sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-13-3-af-john-the-beloved/) | 13 Mai 2025 
+Jean le Bien Aimé | [Vos âmes ont soif de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-30-2-em-john-the-beloved/) | 30 Mai 2025

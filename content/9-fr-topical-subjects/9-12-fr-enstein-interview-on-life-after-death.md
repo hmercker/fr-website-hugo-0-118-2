@@ -127,10 +127,12 @@ Einstein tendit la main. Ses derniers mots furent prononcés si doucement qu'ils
 
 Le journaliste ferma tranquillement son cahier *« Merci professeur »* dit-il. *« Je veillerai à ce que vos paroles soient mémorisées. »* 
 
-Einstein lui fit un doux sourire, rempli à la fois de chagrin et d'espoir « ne vous contentez pas de les répéter » a-t-il déclaré. « Pensez à eux, réfléchissez-y. » Ils se serrèrent la main de la manière la plus simple et la plus humaine. « Vivez sans peur » a déclaré Einstein alors qu'il se séparait « Vivez avec curiosité, c'est tout ce qui compte. » 
+Einstein lui fit un doux sourire, rempli à la fois de chagrin et d'espoir *« ne vous contentez pas de les répéter »- a-t-il déclaré. -« Pensez à eux, réfléchissez-y. »* Ils se serrèrent la main de la manière la plus simple et la plus humaine. *« Vivez sans peur »* a déclaré Einstein alors qu'il se séparait *« Vivez avec curiosité, c'est tout ce qui compte. »*
 
 Le journaliste est sorti dans l'air frais du petit matin. Derrière lui la porte se referma lentement. Tout autour de lui était pareil mais quelque chose en lui avait changé. Il ouvrit une dernière fois son cahier et écrivit **ce qui vient après n'est pas aussi important que ce que nous choisissons de faire maintenant**. 
 
-<u>Commentaire</u> : Il n'est pas certain que cet interview ait vraiment eu lieu. Cependant, même si cet interview n'a pas vraiment pris place, les propos exprimés méritent cependant d'être considérés.
+<u>Commentaire</u> : Il n'est pas certain que cette interview ait vraiment eu lieu. Cependant, même si cet interview n'a pas vraiment pris place, les propos exprimés méritent cependant d'être considérés.
 
-[Source](https://www.youtube.com/watch?v=AWM7ceEwW5I)
+[Source en français](https://www.youtube.com/watch?v=AWM7ceEwW5I)
+
+[Source en anglais](https://www.youtube.com/watch?v=hn0mhRZ-dk8&t=25s)

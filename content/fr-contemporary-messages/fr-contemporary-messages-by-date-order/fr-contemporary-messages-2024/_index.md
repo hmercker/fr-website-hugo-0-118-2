@@ -103,7 +103,7 @@ Anna et Jeanne d'Arc | [Cette lumière atteint des coins qu'elle n'a jamais atte
 Jacques | [Vous devez comprendre le pouvoir de votre libre arbitre ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-20-1-af-james/) | 20 Février 2024
 Isaïe | [La puissante essence de Dieu sera donnée à chacun de vous avec force ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-20-2-af-isaiah/) | 20 Février 2024
 Jesus | [Je  vous aime profondément](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-20-3-af-jesus/) | 20 Février 2024
-Pierre | [Ce que vous faites aujourd’hui touchera beaucoup de personnes ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-21-1-em-peter/) | 21 Février 2024
+St Pierre | [Ce que vous faites aujourd’hui touchera beaucoup de personnes ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-21-1-em-st-peter/) | 21 Février 2024
 Jeanne d'Arc | [Instruction sur la façon d’ÊTRE ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-22-1-em-joan-of-arc/) | 22 Février 2024
 Marie | [Le grand consolateur de l’Amour de Dieu est sur nous tous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-23-1-af-mary/) | 23 Février 2024
 Jean Hugues | [Rejoignez la fête de prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-25-1-em-john-hugues/) | 25 Février 2024

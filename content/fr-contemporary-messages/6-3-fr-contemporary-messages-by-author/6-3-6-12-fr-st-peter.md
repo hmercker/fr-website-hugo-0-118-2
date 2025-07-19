@@ -42,8 +42,9 @@ St Pierre | [Cherchez la vérité](/fr-contemporary-messages/fr-contemporary-mes
 St Pierre | [La lumière qui vous entoure continue de briller](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-14-1-af-st-peter/) | 14 Juillet 2024
 St Pierre | [Atteindre la conscience de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-25-1-af-st-peter/) | 25 Juillet 2024
 St Pierre | [Message de Clôture de la croisème de l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-13-1-af-st-peter/) | 13 Août 2024
-Pierre | [Ce que vous faites aujourd’hui touchera beaucoup de personnes ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-21-1-em-peter/) | 21 Février 2024
+St Pierre | [Ce que vous faites aujourd’hui touchera beaucoup de personnes ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-21-1-em-st-peter/) | 21 Février 2024
 St Pierre | [Vos bénédictions ne seront pas oubliées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-22-1-af-st-peter/) | 22 Septembre 2024
 Pierre le Rocher | [Sachez que vous êtes utilisé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-10-4-em-peter-the-rock/) | 10 Janvier 2025 
 St Pierre | [Conseils et affirmations pour prendre au sérieux les conseils de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-20-2-af-st-peter/) | 20 Avril 2025 
 Simon Pierre | [Ouvrir les tombeaux de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-12-1-jw-simon-peter/) | 12 Mai 2025
+St Pierre | [La véritable Église est dans vos cœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-7-4-em-st-peter/)
