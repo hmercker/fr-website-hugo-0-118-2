@@ -9,7 +9,7 @@ weight:
 ---
 ### La Promesse de l'Amour Divin
 
-Aliyah -  reçu par Maureeen Cardoso - le 08 Mai 2025,  Retraite Croisière des Célébrités 2025
+Aliyah -  reçu par Maureen Cardoso - le 08 Mai 2025,  Retraite Croisière des Célébrités 2025
 
 Chers amis de la Terre, je viens à vous des Cieux Célestes où l’Amour de Dieu règne en maître et où cet Amour, auquel vous vous ouvrez en ce moment, se déverse dans votre âme, la nourrissant, la soutenant, l’éveillant et la bénissant d’Amour Divin.
 

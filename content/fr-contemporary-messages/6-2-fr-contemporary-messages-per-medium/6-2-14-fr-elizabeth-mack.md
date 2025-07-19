@@ -103,13 +103,15 @@ Jean le baptiste | [L'humanité a une grande œuvre à accomplir](/fr-contempora
 Jésus | [Bénédiction pour le Cercle de Lumière en ligne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-25-3-em-jesus/) | 25 Février 2025
 Marie | [Demandez ce dont vous avez besoin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-9-2-em-mary/) | 9 Mars 2025 
 George Stokes | [Satisfait de nos progrès](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-1-5-em-george-stokes/) | 1 Mai 2025
-John Hughes | [Prenez contact avec Dieu tout au long de la journée pour bénir ceux que vous rencontrez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-5-4-em-john-hughes/) | 5 Mai 2025
+Eloise Nunn | [Je vous donne ma fille](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-2-4-em-eloise-nunn/) | 2 Mai 2025
+Jean Hughes | [Prenez contact avec Dieu tout au long de la journée pour bénir ceux que vous rencontrez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-5-4-em-john-hughes/) | 5 Mai 2025
 Jésus | [La liberté de l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-6-2-em-jesus/) | 6 Mai 2025
 Anne | [Laissez briller votre lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-6-4-em-anna/) | 6 Mai 2025
 George Stokes | [L'importance de vos prières pour vous-mêmes et pour les esprits à bord de ce navire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-6-5-em-george-stokes/) | 6 Mai 2025 
 St Pierre | [La véritable Église est dans vos cœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-7-4-em-st-peter/) | 7 Mai 2025
 Jésus | [L'Amour de Dieu est universel et inclut la Miséricorde, le Pardon et la Compassion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-7-5-em-jesus/) | 7 Mai 2025
 St Matthieu | [Bienvenue à Victoria et remercie les nombreuses prières pour l'Amour Divin de cette magnifique ville](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-8-2-em-st-matthew/) | 8 Mai 2025
+Marie | [Vous serez bercés dans nos bras pendant que nous vous ramènerons chez vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-8-4-em-mary/) | 8 Mai 2025
 Jean le Bien Aimé | [Vos âmes ont soif de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-30-2-em-john-the-beloved/) | 30 Mai 2025
 
 

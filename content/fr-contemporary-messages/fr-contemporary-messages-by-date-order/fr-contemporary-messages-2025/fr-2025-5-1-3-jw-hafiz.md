@@ -1,13 +1,13 @@
 ---
-title: "Un soupir de soulagement pour ceux qui ouvrent leur âme à recevoir"
+title: "Un festin de ça"
 menu_title: ""
-description: "Un soupir de soulagement pour ceux qui ouvrent leur âme à recevoir"
+description: "Un festin de ça"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### Un soupir de soulagement pour ceux qui ouvrent leur âme à recevoir
+### Un festin de ça
 
 Hafiz - reçu par reçu par Jimbeau Walsh le 1<sup>er</sup> Mai 2025, Retraite d'Anaheim, Anaheim, CA, USA.
 

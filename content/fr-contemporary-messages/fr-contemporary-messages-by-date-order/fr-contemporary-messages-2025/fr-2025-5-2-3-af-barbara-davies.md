@@ -1,13 +1,13 @@
 ---
-title: "Votre lumière attire les anges vers vous, favorisant votre progrès et votre développement"
+title: "Plongez dans le monde avec l'Amour de Dieu"
 menu_title: ""
-description: "Votre lumière attire les anges vers vous, favorisant votre progrès et votre développement"
+description: "Plongez dans le monde avec l'Amour de Dieu"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### Votre lumière attire les anges vers vous, favorisant votre progrès et votre développement
+### Plongez dans le monde avec l'Amour de Dieu
 
 Barbara Davies -  reçu par Albert Fike - le 2 Mai 2025, Retraite d'Anaheim, Anaheim, CA, États-Unis.
 
