@@ -217,7 +217,7 @@ Jésus | [Votre lumière attire les anges vers vous, favorisant votre progrès e
 Care Darby Walsh | [Surmonter ses blessures (partie 1)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-2-1-jw-care-darby-walsh/) | 2 Mai 2025 
 Care Darby Walsh | [Surmonter ses blessures (partie 1)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-2-2-jw-care-darby-walsh/) | 2 Mai 2025 
 Barbara Davies | [Plongez dans le monde avec l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-2-3-af-barbara-davies/) | 2 Mai 2025
-Eloise Nunn | [Je vous donne ma fille](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-2-4-af-eloise-nunn/) | 2 Mai 2025
+Eloise Nunn | [Je vous donne ma fille](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-em-4-af-eloise-nunn/) | 2 Mai 2025
 André | [Continuez à aller de l'avant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-2-5-af-andrew/) | 2 Mai 2025
 Augustin | [Ce sont les marginaux et les non-conformistes qui œuvreront en dehors des normes de la société qui changeront le monde !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-3-1-af-augustine/) | 3 Mai 2025 
 Jésus | [Bénédictions et louanges pour clôturer la retraite d'Anaheim](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-3-2-af-jesus/) | 3 Mai 2025
@@ -238,7 +238,7 @@ George Stokes | [L'importance de vos prières pour vous-mêmes et pour les espri
 André | [Les belles relations que vous avez créées dans la prière dureront toute l'éternité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-7-1-af-andrew/) | 7 Mai 2025 
 Orion | [L'Amour de Dieu est accessible à chaque être dans l'Univers et sauvera l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-7-2-af-orion/) | 7 Mai 2025 
 Jésus | [Vous trouverez votre chemin vers Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-7-3-af-jesus/) | 7 Mai 2025 
-Pierre | [La véritable Église est dans vos cœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-7-4-em-peter/) | 7 Mai 2025
+Pierre | [La véritable Église est dans vos cœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-7-4-em-st-peter/) | 7 Mai 2025
 Jésus | [L'Amour de Dieu est universel et inclut la Miséricorde, le Pardon et la Compassion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-7-5-em-jesus/) | 7 Mai 2025 
 André | [Laissez les vagues vous ramener à la maison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-8-1-af-andrew/) | 8 Mai 2025
 St Mathieu | [Bienvenue à Victoria et remercie les nombreuses prières pour l'Amour Divin de cette magnifique ville](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-8-2-em-st-matthew/) | 8 Mai 2025
