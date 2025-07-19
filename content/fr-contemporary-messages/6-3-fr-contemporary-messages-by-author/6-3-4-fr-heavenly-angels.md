@@ -15,7 +15,7 @@ Cette catégorie d’esprits correspond à des esprits qui ne se sont pas illust
 ---|---|---
 Adriana | [Se ressourcer dans la prière pour se préparer aux défis à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-9-6-1-af-adriana/) | 6 Septembre 2020
 Agnès | [Ne pas ignorer l’Amour Naturel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-19-2-jr-agnes/) | 19 Mai 2014
-Aliyah | [La Promesse de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-8-3-af-aliyah/) | 8 Mai 2025
+Aliyah | [La Promesse de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-8-3-mc-aliyah/) | 8 Mai 2025
 Archange Gabriel | [La mort et la résurrection de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-6-21-1-rl-archangel-gabriel/) | 21 Juin 2004
 Archange Michael | [Déclaration du début de la transformation de notre monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-17-3-af-archangel-michael/) | 17 Décembre 2021
 Archange Michael et Luc | [Guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-26-2-em-archangel-michael-and-luke/) | 26 Février 2024

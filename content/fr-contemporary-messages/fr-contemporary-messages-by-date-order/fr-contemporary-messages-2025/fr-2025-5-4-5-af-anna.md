@@ -1,13 +1,13 @@
 ---
-title: ""
+title: "Puissiez-vous développer la sagesse dans vos interactions avec vos frères et sœurs"
 menu_title: ""
-description: "Aidez-nous à apporter la vérité pour apaiser la souffrance de l'humanité"
+description: "Puissiez-vous développer la sagesse dans vos interactions avec vos frères et sœurs"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### Aidez-nous à apporter la vérité pour apaiser la souffrance de l'humanité
+### Puissiez-vous développer la sagesse dans vos interactions avec vos frères et sœurs
 
 Anne -  reçu par Elizabeth Mack - le 04 Mai 2025,  Retraite Croisière des Célébrités 2025
 

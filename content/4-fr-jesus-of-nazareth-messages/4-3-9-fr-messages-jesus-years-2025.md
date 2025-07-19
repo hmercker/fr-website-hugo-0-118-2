@@ -38,7 +38,7 @@ Jésus | [Votre lumière attire les anges vers vous, favorisant votre progrès e
 Jésus | [Ouverture de la Croisière des Célébrités](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-4-3-af-jesus/) | 4 Mai 2025
 Jésus | [Aidez-nous à apporter la vérité pour apaiser la souffrance de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-4-4-af-jesus/) | 4 Mai 2025 
 Jésus | [Je suis le capitaine du navire, Dieu met le vent dans les voiles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-7-1-jw-jesus/) | 7 Juin 2025
-Jésus | [Bénédictions et louanges pour clôturer la retraite d'Anaheim](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-3-1-af-jesus/) | 3 Mai 2025
+Jésus | [Bénédictions et louanges pour clôturer la retraite d'Anaheim](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-3-2-af-jesus/) | 3 Mai 2025
 Jésus | [La liberté de l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-6-2-em-jesus/) | 6 Mai 2025
 Jésus | [Vous trouverez votre chemin vers Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-7-3-af-jesus/) | 7 Mai 2025 
 Jésus | [L'Amour de Dieu est universel et inclut la Miséricorde, le Pardon et la Compassion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-7-5-em-jesus/) | 7 Mai 2025 

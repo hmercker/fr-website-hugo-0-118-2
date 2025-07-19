@@ -9,7 +9,7 @@ weight:
 ---
 ### Laissez briller votre lumière
 
-Anna -  reçu par Elizabeth Mack - le 06 Mai 2025,  Retraite Croisière des Célébrités 2025
+Anne -  reçu par Elizabeth Mack - le 06 Mai 2025,  Retraite Croisière des Célébrités 2025
 
 Laissez briller votre lumière. Laissez l’Amour du Père entrer dans vos âmes. Permettez. Permettez.
 

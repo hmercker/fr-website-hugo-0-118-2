@@ -1,13 +1,13 @@
 ---
-title: "Marchez dans la lumière et la grâce de l'amour de Dieu"
+title: "Marchez dans la lumière et la grâce de l'Amour de Dieu"
 menu_title: ""
-description: "Marchez dans la lumière et la grâce de l'amour de Dieu"
+description: "Marchez dans la lumière et la grâce de l'Amour de Dieu"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### Marchez dans la lumière et la grâce de l'amour de Dieu
+### Marchez dans la lumière et la grâce de l'Amour de Dieu
 
 Fleur de Lotus -  reçu par Maureen Cardoso - le 06 Mai 2025, Abbotsford, Colombie-Britannique, Canada
 
