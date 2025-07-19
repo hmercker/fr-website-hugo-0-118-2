@@ -217,7 +217,7 @@ Jésus | [Votre lumière attire les anges vers vous, favorisant votre progrès e
 Care Darby Walsh | [Surmonter ses blessures (partie 1)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-2-1-jw-care-darby-walsh/) | 2 Mai 2025 
 Care Darby Walsh | [Surmonter ses blessures (partie 1)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-2-2-jw-care-darby-walsh/) | 2 Mai 2025 
 Barbara Davies | [Plongez dans le monde avec l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-2-3-af-barbara-davies/) | 2 Mai 2025
-Eloise Nunn | [Je vous donne ma fille](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-em-4-af-eloise-nunn/) | 2 Mai 2025
+Eloise Nunn | [Je vous donne ma fille](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-em-4-em-eloise-nunn/) | 2 Mai 2025
 André | [Continuez à aller de l'avant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-2-5-af-andrew/) | 2 Mai 2025
 Augustin | [Ce sont les marginaux et les non-conformistes qui œuvreront en dehors des normes de la société qui changeront le monde !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-3-1-af-augustine/) | 3 Mai 2025 
 Jésus | [Bénédictions et louanges pour clôturer la retraite d'Anaheim](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-3-2-af-jesus/) | 3 Mai 2025
