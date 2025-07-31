@@ -1,0 +1,24 @@
+---
+title: "Réconciliez votre âme avec Dieu"
+menu_title: ""
+description: "Réconciliez votre âme avec Dieu"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Réconciliez votre âme avec Dieu
+
+Moïse -  reçu par Albert Fike - le 23 Mai 2025, Sechelt, Colombie-Britanniqu-e, Canada.
+
+Réconciliez-vous avec Dieu, chères âmes bien-aimées de la Terre. Je suis Moïse. Je viens vous exhorter à être avec votre Créateur, à rechercher Ses bénédictions d’amour et à être en harmonie avec tout ce que Dieu a créé, car il n’existe pas d’autre véritable solution aux dilemmes auxquels l’humanité est confrontée. Vous avez essayé d’apporter des solutions et vous possédez une grande connaissance sur votre plan terrestre. Pourtant, y a-t-il de l’harmonie ? Y a-t-il la paix ? Y a-t-il l’amour ? En effet, ces choses doivent venir sur Terre, car la Terre est destinée à s’exprimer et à être enveloppée dans ces conditions. Dieu apportera l’harmonie, la paix et l’amour au monde, mais Dieu ne peut pas les apporter à l’humanité, car il vous a fait un don précieux : le libre arbitre. Vous devez le rechercher. Vous devez découvrir ce qu’est la véritable harmonie, la véritable paix et le véritable amour.
+
+Lorsque vous êtes dans cet état, vous savez que vous êtes proche de Dieu, proche de Sa création et de votre propre création. L’âme le sait. Elle est tout à fait capable de comprendre et de vivre selon ces principes. Pourtant, partagés entre la conscience de l’âme et les préoccupations conscientes, il vous est difficile de les reconnaître et de les distinguer. Souvent, c’est la part consciente et volontaire de votre être qui l’emporte, celle qui n’est pas réconciliée avec Dieu, mais souvent en conflit avec Lui, non pas parce que vous êtes consciemment dans cet état, mais parce que vous êtes inconscient et en conflit. C’est en étant conscient, en étant conscient de votre véritable moi, de votre âme, que vous pouvez vous rapprocher de Dieu et de l’harmonie, que vous pouvez véritablement comprendre ce qu’est la paix et y trouver la paix.
+
+Cherchez Dieu, belles âmes de la Terre. Recherchez Ses bénédictions d’amour, l’essence de sa grande âme, et vous vous trouverez sur un chemin qui vous apportera plus de joie, plus de sagesse et plus de paix. À vous de choisir. C’est l’expression de votre volonté qui détermine le chemin que vous emprunterez et la façon dont vous vivrez. Bien souvent, certains blâment Dieu pour toutes les injustices, toutes les souffrances et toutes les douleurs de votre monde. En vérité, si l’humanité n’assume pas ses responsabilités, ne comprend pas le pouvoir qu’elle porte en elle et ce que ses choix apporteront à sa vie, elle ne comprendra pas vraiment pourquoi Dieu l’a créée et ce que la vie est censée être. Elle doit apprendre à connaître son âme et la puissance qu’elle recèle. Cette reconnaissance, qui s’accompagne également d’humilité, permettra une réconciliation entre vous et Dieu et vous trouverez un grand but à votre vie, un sens profond et un grand amour.
+
+Cela découle de vos désirs et de vos efforts pour être avec Dieu. Cela découle de votre reconnaissance de ce que Dieu a placé en vous, des dons, des facultés et des pouvoirs qui sont les vôtres. Grâce à cette compréhension, j’espère que vous développerez un sentiment de respect et de responsabilité pour vous gouverner de manière à être dans la lumière, à être véritablement proches de Dieu, à vous aimer vous-même et à aimer vos frères et sœurs. Ce n’est pas si difficile, mais cela requiert l’endurance et la persévérance d’une âme qui a besoin d’être reconnue consciemment et qui insiste sur cette reconnaissance.
+
+Ce faisant, vous pouvez vous offrir le luxe d’accepter votre véritable moi et de mettre de côté l’erreur que tant de personnes vous ont inculquée, expliquant qui vous êtes sans vraiment savoir qui vous êtes. Ce sont vos faux enseignants. Vous devez écouter l’enseignement intérieur, celui de votre âme, car elle a beaucoup à partager, beaucoup à donner et beaucoup à percevoir. Ainsi, vous ouvrez le canal entre vous et Dieu afin qu’Il vous enseigne la Vérité et vous montre le chemin. Laissez-vous ouvrir et réceptif à cette voie profonde qu’est l’âme. Tout ce dont vous avez besoin et tout ce que vous désirez, qui vient de Dieu et est en harmonie avec Sa création et les Lois de l’Amour, sera vôtre, non seulement pour un instant, mais pour l’éternité.
+
+Que Dieu vous bénisse, âmes bien-aimées. Je suis Moïse et je viens encore une fois vous dire des vérités profondes, des vérités qui peuvent vous sauver la vie et vous apporter une grande lumière et une grande harmonie. Tout commence par l’amour et se termine par l’amour, car tout est une question d’amour. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse. Moïse vous aime. Que Dieu vous bénisse.

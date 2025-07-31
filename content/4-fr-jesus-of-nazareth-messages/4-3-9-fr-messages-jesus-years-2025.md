@@ -16,7 +16,7 @@ Jésus | [Votre but et votre destin](/fr-contemporary-messages/fr-contemporary-m
 Jésus | [Bénédiction pour le groupe de développement de la Barbade ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-19-2-af-jesus/) | 19 Janvier 2025
 Jésus | [Souligne l'importance de notre travail pour son ministère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-30-1-af-jesus/) | 30 Janvier 2025
 Jésus | [Déposer votre amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-17-1-jw-jesus/) | 17 Février 2025
-Jésus | [Il est important de se préparer aux changements à venir dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-25-2--jesus/) | 25 Janvier 2025 
+Jésus | [Il est important de se préparer aux changements à venir dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-25-2-af-jesus/) | 25 Janvier 2025 
 George Stokes et Jésus | [Vous qui voulez être des canaux de lumière, vous avez amené beaucoup, beaucoup d'esprits ici pour recevoir l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-12-3-em-george-stokes-and-jesus/) | 12 Janvier 2025
 Jésus et Barthélémy | [Auspicious Blessings of God’s Love for a Great Number of Souls on Both Sides of the Veil](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-21-1-af-jesus-and-bartholomew/) | 21 Janvier 2025  
 Jésus | [Nous implore de rechercher la lumière pour nos âmes et nos familles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-1-2-af-jesus/) | 1 Février 2025
@@ -30,6 +30,7 @@ Jésus | [Prend chacun de nous pour une bénédiction dans le Hall de la Paix](/
 Jésus | [Est-ce aujourd'hui le jour ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-18-1-af-jesus/) | 18 Mars 2025
 Jésus | [Que Dieu nous bénisse tous, reliés par le réseau mondial croissant de Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-23-2-af-jesus/) | 23 Mars 2025
 Jésus | [Que Dieu bénisse chacun de nous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-26-1-af-jesus/) | 26 Mars 2025
+Jésus | [Ouvrez vos âmes à l'afflux de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-30-5-mc-jesus/) | 30 Mars 2025
 Jésus | [Proclamation du dimanche de Pâques : Jésus se manifestera à nouveau au monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-20-1-af-jesus/) | 20 Avril 2025
 Jésus | [Bénédiction pour la retraite de Running Springs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-27-2-af-jesus/) | 27 Avril 2025 
 Jésus | [Cercle de Bénédictions à Running Springs, Californie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-27-3-af-jesus/) | 27 Avril 2025 
@@ -44,4 +45,7 @@ Jésus | [Vous trouverez votre chemin vers Dieu](/fr-contemporary-messages/fr-co
 Jésus | [L'Amour de Dieu est universel et inclut la Miséricorde, le Pardon et la Compassion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-7-5-em-jesus/) | 7 Mai 2025 
 Jésus | [Une magnifique bénédiction de l'amour de Dieu en réponse aux prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-18-1-af-jesus/) | 18 Mai 2025
 Jésus et Marie | [Ouvrez votre âme et entrez en sainte communion avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-25-1-af-jesus-and-mary/) | 25 Mai 2025
+Jésus | [Je suis le capitaine du navire, Dieu met le vent dans les voiles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-6-5-jw-jesus/) | 6 Juin 2025
+Jésus | [C'est l'uni-vers du chant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-7-5-jw-jesus/) | 7 Juin 2025
+Jésus | [Écouter la petite voix douce de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-14-1-jw-jesus/) | 14 Juillet 2025
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Conseils au conseil d'administration de la DLSF
 
-Augustin et Goldie -  reçu par Albert Fike - le 21 Mai 2025, Sechelt, Colombie-Britanniqu-e, Canada.
+Augustin et Goldie -  reçu par Albert Fike - le 21 Mai 2025, Sechelt, Colombie-Britannique, Canada.
 
 **Augustin :** C’est votre enseignant, Augustin. Que Dieu vous bénisse, âmes bien-aimées, chercheurs de vérité, serviteurs de Dieu. Puissiez-vous poursuivre ce service, en sachant que chaque pas en avant est en accord avec la Volonté de Dieu. Lorsque vous hésitez, lorsqu’il y a un problème, comme vous le diriez, dans vos efforts, venez à Dieu dans la prière et demandez-lui conseil. C’est tout ce dont vous avez besoin pour rester en harmonie avec vos fondations et vos efforts pour servir Dieu.
 

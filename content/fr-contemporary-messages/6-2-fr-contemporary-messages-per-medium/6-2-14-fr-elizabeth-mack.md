@@ -102,6 +102,14 @@ Jean le Bien Aimé et Jésus | [Bénédiction de Dieu délivrée](/fr-contempora
 Jean le baptiste | [L'humanité a une grande œuvre à accomplir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-1-3-em-john-the-baptist/) | 1 Février 2025 
 Jésus | [Bénédiction pour le Cercle de Lumière en ligne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-25-3-em-jesus/) | 25 Février 2025
 Marie | [Demandez ce dont vous avez besoin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-9-2-em-mary/) | 9 Mars 2025 
+Jean le Baptiste | [Il y a désormais plus d'amour dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-9-5-em-john-the-baptist/) | 9 Mars 2025
+Timothée | [Se présente pour nous aider dans notre développement spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-23-3-em-timothy/) | 23 Mars 2025
+Marie | [L'impact de vos prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-23-4-em-mary/) | 23 Mars 2025
+St Luc | [À mesure que chacun d'entre nous guérit, la Terre guérit également](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-4-3-em-st-luke/) | 4 Avril 2025
+Marie | [La Terre est bénie par de nombreuses nouvelles créations du Père](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-4-4-em-mary/) | 4 Avril 2025
+Marie | [Conseils pour commencer votre ministère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-26-3-em-mary/) | 26 Avril 2025
+Joseph Babinsky | [Il y a une raison pour laquelle chacun d'entre vous a été appelé à se réunir ici](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-28-3-em-joseph-babinsky/) | 28 Avril 2025
+Marie | [Ressentez l'Amour de Dieu couler dans votre âme à chaque instant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-30-4-em-mary/) | 30 Avril 2025
 George Stokes | [Satisfait de nos progrès](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-1-5-em-george-stokes/) | 1 Mai 2025
 Eloise Nunn | [Je vous donne ma fille](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-2-4-em-eloise-nunn/) | 2 Mai 2025
 Jean Hughes | [Prenez contact avec Dieu tout au long de la journée pour bénir ceux que vous rencontrez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-5-4-em-john-hughes/) | 5 Mai 2025

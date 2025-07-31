@@ -9,7 +9,7 @@ weight:
 ---
 ### Je suis le capitaine du navire, Dieu met le vent dans les voiles
 
-Jésus - reçu par reçu par Jimbeau Walsh le 07 Juin 2025, Nashville, Tennesse, USA.
+Jésus - reçu par reçu par Jimbeau Walsh le 06 Juin 2025, Nashville, Tennesse, USA.
 
 C’est moi, votre frère Jésus.
 

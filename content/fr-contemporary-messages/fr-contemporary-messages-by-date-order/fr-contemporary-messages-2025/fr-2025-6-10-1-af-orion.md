@@ -1,13 +1,13 @@
 ---
-title: "Soutien et accompagnement continus pour une douzaine de personnes atteintes de la maladie de D.V. dans le plan divin de transformation du monde"
+title: "Soutien et accompagnement pour le groupe des douze dans le plan divin pour la transformation du monde (2025 Direct Voice – Guidance)"
 menu_title: ""
-description: "Soutien et accompagnement continus pour une douzaine de personnes atteintes de la maladie de D.V. dans le plan divin de transformation du monde"
+description: "Soutien et accompagnement pour le groupe des douze dans le plan divin pour la transformation du monde (2025 Direct Voice – Guidance)"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### Soutien et accompagnement continus pour une douzaine de personnes atteintes de la maladie de D.V. dans le plan divin de transformation du monde
+### Soutien et accompagnement pour le groupe des douze dans le plan divin pour la transformation du monde (2025 Direct Voice – Guidance)
 
 Orion -  reçu par Albert Fike - le 10 Juin 2025, Sechelt, Colombie-Britannique, Canada.
 

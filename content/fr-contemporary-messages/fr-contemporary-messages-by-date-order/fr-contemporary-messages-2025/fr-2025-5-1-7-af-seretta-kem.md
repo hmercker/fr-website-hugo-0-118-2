@@ -1,0 +1,26 @@
+---
+title: "La nécessité de créer une fondation solide et de suivre la Volonté de Dieu"
+menu_title: ""
+description: "La nécessité de créer une fondation solide et de suivre la Volonté de Dieu"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### La nécessité de créer une fondation solide et de suivre la Volonté de Dieu
+
+Seretta Kem -  reçu par Albert Fike - le 1<sup>er</sup> Mai 2025, Retraite d'Anaheim, Anaheim, CA, États-Unis.
+
+Puissiez-vous avoir des oreilles différentes pour entendre, des yeux différents pour voir et des facultés différentes pour comprendre, mes bien-aimés. Nous sommes ici ensemble pour vous aider à développer ces facultés, cette façon d'entendre, de savoir et de voir. Nous nous efforçons de vous y aider avec diligence. Je suis Seretta Kem. Nous poursuivons ce chemin ensemble afin que vous deveniez des instruments efficaces de la Volonté et du plan de Dieu pour amener l'humanité à la vérité, à l'amour et à la lumière.
+
+Vous devez d'abord parvenir vous-mêmes à la vérité, à l'amour et à la lumière. Vous devez développer en vous une fondation solide et tout ce qui repose sur elle doit être en harmonie avec les Lois de l'Amour. Lorsque vous êtes en harmonie, lorsque vous parcourez ce chemin en écoutant la Volonté de Dieu avec vos nouvelles oreilles, lorsque vous voyez devant vous avec vos nouveaux yeux les étapes à franchir, lorsque vous comprenez, lorsque vous êtes proche de nous et de Dieu, la Vérité qui vient avec le Toucher de Dieu et notre présence, lorsque tout cela est bien en place, lorsque vous ne doutez pas et ne soyez pas confus, lorsque vous êtes fort et inébranlable dans la vérité, lorsque vous mettez de côté votre propre volonté pour adopter la Volonté de Dieu, lorsque vous êtes un canal d'amour, ne permettant ni jugement ni négativité à vos pensées ni à vos interactions avec les autres, lorsque vous êtes dans la pureté de l'Amour de Dieu, alors vous êtes prêt à aller dans le monde et à être l'agent de vérité, d'amour et de lumière de Dieu.
+
+Parfois, je sais que vous croyez intérieurement que vous êtes prêt, que vous avez tout ce dont vous avez besoin et que vous avez réalisé toutes les exigences de vos efforts et ce qui est attendu de vous. Pourtant, souvent, cette évaluation vient de votre esprit et de votre désir d'être un instrument de Dieu. Ce désir vient aussi de l'esprit. Pourtant, lorsque vous serez prêts, mes chers amis, vous le saurez. Vous le ressentirez. Vous le verrez. Vous comprendrez qu'en avançant, vous êtes bien préparés et vous sentez l'élan de l'âme s'éveiller et entendre la Volonté de Dieu se manifester, non pas à travers vos calculs mentaux, vos idées et vos projections, mais à travers la vérité intérieure et la compréhension qui émane d'une âme connectée et en harmonie avec son Créateur.
+
+Nous vous avons répété ces choses à maintes reprises, nous vous avons encouragés à maintes reprises. Nous en avons parlé à maintes reprises afin que vous ayez la clarté, que vous compreniez les obstacles qui se dressent sur votre chemin et les possibilités qui s'offrent à vous à mesure que vous les dépassez, que vous les libérez, que vous soyez fidèles à la lumière brûlante et au désir de votre âme de servir Dieu et l'humanité. Mes chers amis, vous vous rapprochez. Vous vous rapprochez. En effet, le plus grand obstacle pour vous en ce moment est l'exercice de votre libre arbitre qui vous pousse dans la direction opposée à celle que votre âme souhaite prendre. Soyez conscients de ces contradictions intérieures, de ces malentendus, de ces peurs et de ces désirs qui continuent d'être contre-productifs dans votre cheminement vers le développement en tant qu'instruments de Dieu.
+
+Nous sommes là pour vous aider à voir, à entendre et à savoir. Nous ajoutons parfois nos dons aux vôtres afin que vous puissiez comprendre et expérimenter ce qui constitue un obstacle ou ce qui constitue véritablement une orientation. Nous sommes là et serons toujours là. Continuez d'avancer et d'être cet instrument que vous désirez tant être, cet instrument que Dieu a placé en vous pour un grand dessein, une grande destinée. En effet, la manière dont vous utilisez ce don du libre arbitre est cruciale en ce moment, afin que vous puissiez être en harmonie, être sur le chemin de l'harmonie, écouter, voir et savoir tout ce qui est requis, afin que vous puissiez servir Dieu au mieux de vos capacités.
+
+Vous continuez de grandir, mes chers amis. Nous continuons de marcher avec vous. Un jour, vous serez cette lumière éclatante, cette âme pure et belle qui connaîtra la volonté de Dieu sans hésitation ni malentendu, mais avec une clarté et une conscience déterminée de ce que vous devez faire et de la direction à prendre. Cela viendra en son temps. Cela dépendra de votre sens du timing et de votre volonté, mais il est inévitable que cela arrive. Vous serez sur la voie du grand service. De nombreux résultats, bénédictions et fruits de vos efforts seront en harmonie avec le plan de Dieu pour ramener l'humanité à la lumière et à l'harmonie.
+
+Que Dieu vous bénisse, mes chers amis. Je suis Seretta Kem. Je viens une fois de plus vous encourager et vous guider. Que Dieu vous bénisse. Mon amour vous accompagne, belles âmes, enfants de Dieu. Que Dieu vous bénisse.

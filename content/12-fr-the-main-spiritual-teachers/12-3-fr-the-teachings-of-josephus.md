@@ -58,4 +58,5 @@ Flavius Josèphe | [Parle sur nos dons et nos destinées](/fr-contemporary-messa
 Flavius Josèphe | [Un monde harmonieux basé sur l’honnêteté, la vérité et l’amour des autres arrive !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-26-2-af-josephus/) | 26 Octobre 2024
 Flavius Josèphe | [Soyez reconnaissants pour la vie ! ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-8-1-af-josephus/) | 8 Décembre 2024
 Flavius Josèphe | [Vous serez témoins de grands changements dans ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-30-4-af-josephus/) | 30 Mars 2025 
+Flavius Josèphe et André | [Le Pouvoir de la Prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-1-1-af-josephus-andrew/) | 1 Juin 2025
 

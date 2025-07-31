@@ -257,6 +257,7 @@ Serreta Kem | [Élaboration sur le développement et présentation d'ouverture d
 Seretta Kem | [S'harmoniser avec vos désirs profonds](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-15-1-af-seretta-kem/) | 15 Mars 2025
 Seretta Kem | [Exprime sa joie face à la progression de notre âme ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-29-3-af-seretta-kem/) | 29 Avril 2025 
 Seretta Kem | [Chacun a reçu un don pour un éveil spirituel plus profond ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-30-3-af-seretta-kem/) | 30 Avril 2025
+Seretta Kem | [La nécessité de créer une fondation solide et de suivre la volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-1-7-af-seretta-kem/) | 1 Mai 2025
 Seretta Kem | [L'éveil de différents aspects de notre âme influence la communication avec les anges](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-17-2-af-seretta-kem/) | 17 Mai 2025
 
 

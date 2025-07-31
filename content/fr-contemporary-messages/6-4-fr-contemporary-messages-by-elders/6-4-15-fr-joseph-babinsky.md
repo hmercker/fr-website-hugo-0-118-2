@@ -27,3 +27,4 @@ Joseph Babinsky est décédé en 2021 à l'âge de 86 ans. Ci-dessous sont list�
 Joseph Babinsky | [Décrit sa vie dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-4-1-jw-joseph-babinsky/) | 4 Octobre 2021
 Joseph Babinsky | [Dans l'Amour et la Gratitude de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-24-2-af-joseph-babinsky/) | 24 Avril 2023
 Joseph Babinsky | [Progressez à travers les Sphères et Laurelville](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-9-7-1-bh-joseph-babinsky/) | 7 Septembre 2023
+Joseph Babinsky | [Il y a une raison pour laquelle chacun d'entre vous a été appelé à se réunir ici](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-28-3-em-joseph-babinsky/) | 28 Avril 2025

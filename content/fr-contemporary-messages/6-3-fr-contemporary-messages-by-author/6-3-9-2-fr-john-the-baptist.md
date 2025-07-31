@@ -33,3 +33,4 @@ Jean le Baptiste | [Concentrez-vous sur l'Amour du Père](/fr-contemporary-messa
 Jean le Baptiste | [Faire chaque pas prudemment, complètement, pleinement dans la grâce de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-18-1-em-john-the-baptist/) | 18 Mars 2024
 Jean le Baptiste | [Confirme le message de Jésus pour le fête des pères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-16-1-em-john-the-baptist/) | 16 Juin 2024
 Jean le baptiste | [L'humanité a une grande œuvre à accomplir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-1-3-em-john-the-baptist/) | 1 Février 2025 
+Jean le Baptiste | [Il y a désormais plus d'amour dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-9-5-em-john-the-baptist/) | 9 Mars 2025

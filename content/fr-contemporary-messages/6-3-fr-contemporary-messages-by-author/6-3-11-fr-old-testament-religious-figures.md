@@ -121,6 +121,7 @@ Moïse | [Les désirs de votre âme](/fr-contemporary-messages/fr-contemporary-m
 Moïse & Joseph | [Dieu appelle les leaders à prendre responsabilité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-8-1-af-moses-joseph/) | 8 Mars 2020
 Moïse | [Visez le plus haut](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-11-2-hm-moses/) | 11 Mai 2020
 Moïse | [Le temps est venu pour Dieu de transformer ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-16-1-af-moses/) | 16 Juillet 2020
+Moïse | [Réconciliez votre âme avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-23-1-af-moses/) | 23 Mai 2025
 Jésus & Moïse & Elie | [Bénédictions de lumière pour le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-13-1-af-jesus-moses-elijah/) | 13 Juin 2021
 Moïse | [Vient nous soutenir et éclairer notre chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-31-2-af-moses/) | 31 Mai 2022
 Moïse | [Surmonter les exigences du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-2-1-af-moses/) | 2 Avril 2023

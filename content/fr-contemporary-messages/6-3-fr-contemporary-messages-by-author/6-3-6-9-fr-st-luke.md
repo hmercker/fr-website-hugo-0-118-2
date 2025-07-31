@@ -69,6 +69,7 @@ St Luc | [Force de la substance du Créateur](/fr-contemporary-messages/fr-conte
 St Luc | [Répandez le message loin et largement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-24-2-af-st-luke/) | 24 Septembre 2024
 St Luc | [Diversité, unité et généalogie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-2-1-jw-st-luke/) | 2 Décembre 2024
 St Luc | [Du sein de Dieu aux portes du Paradis](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-16-4-af-st-luke/) | 16 Janvier 2025 
+St Luc | [À mesure que chacun d'entre nous guérit, la Terre guérit également](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-4-3-em-st-luke/) | 4 Avril 2025
 St Luc | [Votre ministère, votre vocation et votre vie ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-27-4-af-st-luke/) | 27 Avril 2025 
 St Luc | [Puissiez-vous tous guérir dans le baume de l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-6-4-jw-st-luke/) | 6 Juin 2025
 St Luc | [Médecine spirituelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-7-1-jw-st-luke/) | 7 Juillet 2025

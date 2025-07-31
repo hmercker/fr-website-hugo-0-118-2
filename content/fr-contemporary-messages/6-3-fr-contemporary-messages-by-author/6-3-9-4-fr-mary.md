@@ -142,9 +142,13 @@ Marie | [Travaille avec Bartholomée pour apporter un doux équilibre à sa main
 Marie | [Préparez-vous avec diligence afin que les anges qui portent la grâce de Dieu puissent venir plus facilement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-15-2-af-marie/) | 15 Janvier 2025
 Marie | [La vie n'est pas faite pour travailler dur, s'inquiéter ou être opprimé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-7-1-af-mary/) | 7 Mars 2025 
 Marie | [Demandez ce dont vous avez besoin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-9-2-em-mary/) | 9 Mars 2025 
+Marie | [L'impact de vos prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-23-4-em-mary/) | 23 Mars 2025
 Marie | [L'humanité a besoin d'apprendre la puissance de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-21-2-af-mary/) | 21 Mars 2025 
+Marie | [La Terre est bénie par de nombreuses nouvelles créations du Père](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-4-4-em-mary/) | 4 Avril 2025
 Marie | [Nous venons avec amour pour apporter des bénédictions d'amour et de paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-11-1-af-mary/) | 11 Avril 2025
 Marie |  [Ouvrez-vous et vivez le baiser de Dieu sur votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-12-1-mc-mary/) | 12 Avril 2025
+Marie | [Conseils pour commencer votre ministère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-26-3-em-mary/) | 26 Avril 2025
+Marie | [Ressentez l'Amour de Dieu couler dans votre âme à chaque instant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-30-4-em-mary/) | 30 Avril 2025
 Marie | [Nous continuons à prier ensemble pour l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-4-2-af-mary/) | 4 Mai 2025
 Marie | [Vous serez bercés dans nos bras pendant que nous vous ramènerons chez vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-8-4-em-mary/) | 8 Mai 2025
 Jésus et Marie | [Ouvrez votre âme et entrez en sainte communion avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-25-1-af-jesus-and-mary/) | 25 Mai 2025

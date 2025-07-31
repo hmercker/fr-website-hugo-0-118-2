@@ -272,5 +272,5 @@ Judas | [Semez les graines de la Vérité dans le monde sans inquiétude](/fr-co
 Judas | [Vous avez franchi le Rubicon](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-6-3-jw-judas/) | 6 Juin 2025
 Judas | [Votre état d’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-9-1-jw-judas/) | 9 Juin 2025
 Judas | [Comprendre la vérité et la devenir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-30-1-jw-judas/) | 30 Juin 2025
-
+Judas | [Vos choix attirent à vous des esprits qui vivent et vibrent au même niveau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-28-1-jw-judas/) | 28 Juillet 2025 
 
