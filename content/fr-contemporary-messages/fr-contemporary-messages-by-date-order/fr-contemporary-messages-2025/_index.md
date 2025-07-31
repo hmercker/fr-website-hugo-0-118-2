@@ -168,7 +168,7 @@ Jésus | [Ouvrez vos âmes à l'afflux de l'Amour Divin](/fr-contemporary-messag
 Barbara Davies | [Discours aux les participants de « Faites-vous des amis avec G.R.A.C.E. »](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-31-3-mc-barbara-davies/) | 31 Mars 2025
 Care Darby Walsh | [Avec Dieu, il n'y a pas de distance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-31-1-jw-care-darby-walsh/) | 31 Mars 2025
 Augustin | [DLSF est une organisation belle et simple](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-31-2-af-augustine/) | 31 Mars 2025 
-Barbara Davies | [Discours aux les participants de « Faites-vous des amis avec G.R.A.C.E. »](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-31-3-af-barbara-davies/) | 31 Mars 2025
+Barbara Davies | [Discours aux les participants de « Faites-vous des amis avec G.R.A.C.E. »](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-31-3-mc-barbara-davies/) | 31 Mars 2025
 Orion | [Répondez à l'appel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-1-1-af-orion/) | 1 Avril 2025
 Faith Nyquist | [Le chemin vers le véritable pardon](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-2-1-mc-faith-nyquist/) | 2 Avril 2025 
 Orion | [Trouve notre excentricité amusante !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-3-1-af-orion/) | 3 Avril 2025 
