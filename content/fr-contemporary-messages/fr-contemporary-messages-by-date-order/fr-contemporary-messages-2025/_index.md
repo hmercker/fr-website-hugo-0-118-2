@@ -152,7 +152,7 @@ Marie | [L'humanité a besoin d'apprendre la puissance de l'amour](/fr-contempor
 Orion | [Surmonter les obstacles de l'éducation des enfants ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-22-1-af-orion/) | 22 Mars 2025
 Percy Hayes | [Percy partage des aspects de son travail d'ange Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-23-1-af-percy-hayes/) | 23 Mars 2025 
 Jésus | [Que Dieu nous bénisse tous, reliés par le réseau mondial croissant de Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-23-2-af-jesus/) | 23 Mars 2025 
-Timothée | [Il se présente pour nous aider dans notre développement spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-23-3-mc-timothy/) | 23 Mars 2025
+Timothée | [Il se présente pour nous aider dans notre développement spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-23-3-em-timothy/) | 23 Mars 2025
 Marie | [L'impact de vos prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-23-4-em-mary/) | 23 Mars 2025
 Judas | [Dire la vérité au pouvoir et aux rêves](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-24-1-jw-judas/) | 24 Mars 2025
 George Stoke | [Décrit ses progrès spirituels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-25-1-af-george-stoke/) | 25 Mars 2025 
@@ -287,7 +287,7 @@ Orion | [Les Contradictions en Nous](/fr-contemporary-messages/fr-contemporary-m
 Keea Atta Kem | [Soyez une lumière dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-27-2-af-keea-atta-kem/) | 27 Mai 2025 
 Keea Atta Kem | [Dieu murmure Son Amour dans vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-30-1-af-keea-atta-kem/) | 30 Mai 2025
 Jean le Bien Aimé | [Vos âmes ont soif de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-30-2-em-john-the-beloved/) | 30 Mai 2025
-Flavius Joseph et André | [Le Pouvoir de la Prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-1-1-af-josephus-andrew/) | 1 Juin 2025
+Flavius Josèphe et André | [Le Pouvoir de la Prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-1-1-af-josephus-andrew/) | 1 Juin 2025
 John Lennon | [L'Amour de Dieu filtre la négativité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-2-1-jw-john-lennon/) | 2 Juin 2025
 Faith Nyquist | [Demande de service](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-3-1-af-faith-nyquist/) | 3 Juin 2025
 Orion | [Tranformation par l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-3-2-af-orion/) | 3 Juin 2025

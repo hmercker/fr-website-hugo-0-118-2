@@ -9,7 +9,7 @@ weight:
 ---
 ### Se présente pour nous aider dans notre développement spirituel
 
-Timothée - reçu par Elizabeth Mack le 9 Mars, Liverpool, NY, USA.
+Timothée - reçu par Elizabeth Mack le 23 Mars, Liverpool, NY, USA.
 
 Je suis ici. Sachez que notre Père est le même que votre Père. Sachez que nous venons et que nous marchons parmi vous. Nous vous élevons et vous soutenons, et nous continuerons à le faire pendant de nombreux, nombreux éons de votre temps terrestre.
 

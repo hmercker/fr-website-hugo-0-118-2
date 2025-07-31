@@ -1,15 +1,15 @@
 ---
-title: "Discours aux les participants de « Faites-vous des amis avec G.R.A.C.E. »"
+title: "Message aux participants de « Faites-vous des amis avec G.R.A.C.E. »"
 menu_title: ""
-description: "Discours aux les participants de « Faites-vous des amis avec G.R.A.C.E. »"
+description: "Message aux participants de « Faites-vous des amis avec G.R.A.C.E. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### Discours aux les participants de « Faites-vous des amis avec G.R.A.C.E. »
+### Message aux participants de « Faites-vous des amis avec G.R.A.C.E. »
 
-Barbara Davies - reçu par Albert Fike le 31 Mars, Sechelt, Colombie-Britannique, Canada.
+Barbara Davies - reçu par Maureen Cardoso le 31 Mars, Sechelt, Colombie-Britannique, Canada.
 
 Eh bien, mes chers, vous avez surmonté cette épreuve, n’est-ce pas ? C’est Barbara. Quel bonheur de vous accompagner dans ce programme qui vous aide à découvrir votre véritable essence, votre âme.
 
