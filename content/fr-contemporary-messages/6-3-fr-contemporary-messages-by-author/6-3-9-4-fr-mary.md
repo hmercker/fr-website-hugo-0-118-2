@@ -153,6 +153,7 @@ Marie | [Nous continuons à prier ensemble pour l'Amour de Dieu](/fr-contemporar
 Marie | [Vous serez bercés dans nos bras pendant que nous vous ramènerons chez vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-8-4-em-mary/) | 8 Mai 2025
 Jésus et Marie | [Ouvrez votre âme et entrez en sainte communion avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-25-1-af-jesus-and-mary/) | 25 Mai 2025
 Marie | [Message pour la Fête des Pères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-15-1-af-mary/) | 15 Juin 2025 
+Marie | [La guérison par la grâce et le toucher bienveillant de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-11-1-af-mary/) | 11 Juillet 2025
 Marie & White Eagle | [Le miracle de Fatima et l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-9-19-2-ar-mary-white-eagle/) | 19 Septembre 1999
 Marie & David | [Faire face à la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-3-19-2-ar-mary-david/) | 19 Mars 2000
 Marie & Jean | [Sur le manque d’amour de soi de M___](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-12-1-ar-mary-john/) | 12 Novembre 1999

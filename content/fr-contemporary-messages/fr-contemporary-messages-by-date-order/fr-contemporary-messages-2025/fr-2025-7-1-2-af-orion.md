@@ -1,0 +1,22 @@
+---
+title: "Recherchez l'alignement avec l'âme divine pour trouver une plus grande harmonie et une plus grande joie"
+menu_title: ""
+description: "Recherchez l'alignement avec l'âme divine pour trouver une plus grande harmonie et une plus grande joie"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Recherchez l'alignement avec l'âme divine pour trouver une plus grande harmonie et une plus grande joie
+
+Orion -  reçu par Albert Fike - le 1<sup>er</sup> Juillet 2025, Sechelt, Colombie-Britannique, Canada.
+
+Les possibilités sont infinies, mes chers amis. Je suis Orion. L'humanité est une force créatrice sur votre monde. En effet, la puissance de la créativité et de l'action humaines a engendré des choses merveilleuses et des choses véritablement épouvantables. Dieu donne à chaque âme dans l'univers le libre arbitre et de nombreuses possibilités et potentiels. Votre intention commune est de vous recréer en quelque chose qui soit davantage à l'image de Dieu et en harmonie avec la création divine qu'à l'image de l'homme. C'est une noble tâche, que beaucoup d'entre nous admirent et qui est là pour vous soutenir, afin que vos efforts, votre progression et votre développement continus vous conduisent à un alignement profond avec ce que vous êtes véritablement destinés à être.
+
+Vous êtes tous des créatures uniques de Dieu, mais il existe des paramètres à reconnaître et à vivre pour que ces dons que vous possédez, cette âme qui aspire à une croissance et un développement accrus dans l'Amour Divin, puissent poursuivre leur chemin vers plus de lumière et d'harmonie. Chacun de vous le sait au plus profond de son cœur et de son âme. Chacun de vous a confiance dans le chemin que vous empruntez avec Dieu. Chacun de vous ressent un sentiment d'accomplissement, voire de joie, sur ce chemin. En faisant confiance à la direction et à la Volonté divines, vous vous retrouverez face à des situations et des opportunités inimaginables. En effet, dans une certaine mesure, votre foi et votre confiance sont aveugles, mais pas au point de vous faire sentir dépourvu de reconnaissance et de sentiment de justesse du chemin que vous suivez. Il y a toujours beaucoup à accomplir, de plus grandes perspectives à explorer, davantage de perceptions et de révélations à expérimenter, et un amour plus profond à vivre et à exprimer dans votre monde.
+
+Alors que vous poursuivez ce grand voyage, ne réalisez-vous pas combien vous êtes bénis, combien vos âmes sont merveilleuses, combien Dieu est merveilleux de vous avoir donné l'opportunité de grandir spirituellement ? Recherchez l'alignement de votre âme avec l'Âme de Dieu. Recherchez l'alignement en vous de tout ce que vous êtes, afin qu'au fil de votre cheminement, règnent plus d'amour, d'harmonie et de paix. Vous ressentirez une joie et un bonheur accrus, une compréhension profonde du chemin à suivre, une compréhension profonde des dons que Dieu vous a accordés et de la manière dont ils s'exprimeront, un amour plus profond pour vous-même, pour Dieu et pour l'humanité. Telles sont les bénédictions que Dieu vous accorde avec Son Amour. En effet, à mesure que vous trouvez votre voie, que vous réalisez votre potentiel et vos capacités, que la sagesse grandit en vous, que la vérité devient véritablement partie intégrante de vous, vous ne pouvez que grandir et vous élancer vers une lumière plus grande.
+
+C'est votre destinée, mes chers amis. Nous sommes témoins de cette destinée en chacun de vous, ce qui nous apporte joie et détermination pour vous accompagner dans ce cheminement. Cette aide est précieuse. Tant de personnes vous entourent, mes amis. Tant de lumière vous est donnée. Tant de lumière brille dans votre vie. Vous trouverez un immense épanouissement dans les efforts et les tentatives que vous faites pour Dieu. Car, en accord avec la Volonté de Dieu, la plus grande réalisation de votre objectif, la plus grande joie et la plus grande reconnaissance extatique viendront à vous et seront véritablement vôtres, tandis que vous cheminerez péniblement sur cette planète épuisée, si avide de ce que vous avez et de ce que vous êtes. Vous donnerez de vous-même et trouverez votre voie dans le service. Vous allumerez le feu pour les autres, en tant qu'instruments d'amour de Dieu.
+
+Que Dieu vous bénisse, mes amis. Je suis Orion. Nous continuons notre chemin ensemble. En effet, nous le faisons dans l'amour et la joie. Que Dieu vous bénisse, mes amis.

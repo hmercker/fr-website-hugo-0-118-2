@@ -191,6 +191,7 @@ Mylora | [Respectez les dispositions de la Terre Mère](/fr-contemporary-message
 Mylora |[Bénédiction de guérison pour le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-6-1-af-mylora/) | 6 Décembre 2024
 Mylora | [Bénédiction de guérison pour la Terre ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-3-3-af-mylora/) | 3 Janvier 2025
 Mylora | [Message de clôture : Bénédiction de guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-4-1-af-mylora/) | 4 Février 2025 
+Mylora | [Honorez la Création de Dieu et la Création vous honorera](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-4-1-af-mylora/) | 4 Juillet 2025
 Naari et Jésus | [Se présente comme l'un des anges Célestes anonymes qui viennent nous administrer à tous la guérison, la bénédiction de la guérison ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-7-2-af-naari-and-jesus/) | 7 Mai 2024
 Ophélius | [La couleur dans la mosaïque de la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-9-4-1-chris-ophelius/) | 4 Septembre 2011
 PSR | [L’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-4-10-1-pjr-psr/) | 10 Avril 2002

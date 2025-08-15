@@ -376,6 +376,7 @@ Augustin | [Faites vos preuves, mes beaux et chers étudiants](/fr-contemporary-
 Augustin | [Vous devez demander avec ferveur et précision pour recevoir un afflux de l'Amour Divin de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-16-1-af-augustine/) | 16 Mai 2025
 Augustin | [Le pouvoir de l'intention](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-17-1-af-augustine/) | 17 Mai 2025 
 Augustin | [La vérité de l'Amour de Dieu transcende toutes les barrières de langue et de culture](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-22-1-af-augustine/) | 22 Juin 2025
+Augustin  | [Tenez bon dans l'Amour de Dieu !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-1-1-af-augustine/) | 1 Juillet 2025
 Augustin et Goldie | [Conseils au conseil d'administration de la DLSF / Gardez la joie et avancez d'un pas léger](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-21-1-af-augustine-and-goldie/) | 21 Mai 2025 
 
 

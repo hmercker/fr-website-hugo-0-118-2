@@ -320,6 +320,22 @@ Yogananda | [Se présente à un disciple de longue date et aux changements spiri
 André | [Bénédiction dans le Grand Hall de la Paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-27-1-af-andrew/) | 27 Juin 2025
 Marc | [Soyez fortifiés par l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-29-1-af-mark/) | 29 Juin 2025 
 Judas | [Comprendre la vérité et la devenir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-30-1-jw-judas/) | 30 Juin 2025
+Augustin  | [Tenez bon dans l'Amour de Dieu !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-1-1-af-augustine/) | 1 Juillet 2025
+Orion | [Recherchez l'alignement avec l'âme divine pour trouver une plus grande harmonie et une plus grande joie !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-1-2-af-orion/) | 1 Juillet 2025
+Mylora | [Honorez la Création de Dieu et la Création vous honorera](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-4-1-af-mylora/) | 4 Juillet 2025
+Jésus | [L'Amour de Dieu vous met au service de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-6-1-af-jesus/) | 6 Juillet 2025
+St Luc | [Médecine spirituelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-7-1-jw-st-luke/) | 7 Juillet 2025
+Orion | [Priez pour la Conscience de l'Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-8-1-af-orion/) | 8 Juillet 2025
+Jésus | [Bienvenue au Grand Hall de la Paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-8-2-af-jesus/) | 8 Juillet 2025
+Marie | [La guérison par la grâce et le toucher bienveillant de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-11-1-af-mary/) | 11 Juillet 2025
+Eileen Caddy | [Tendre la main à tous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-13-1-jw-eileen-caddy/) | 13 Juillet 2025
+Jésus | [Écouter la petite voix douce de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-14-1-jw-jesus/) | 14 Juillet 2025
+Care Darby Walsh | [L'Engagement de l'Âme avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-21-1-jw-care-darby-walsh/) | 21 Juillet 2025
+Judas | [Vos choix attirent à vous des esprits qui vivent et vibrent au même niveau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-28-1-jw-judas/) | 28 Juillet 2025 
+Care Darby Walsh | [Le monde du regret](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-4-1-jw-care-darby-walsh/) | 4 Août 2025
+Claire d'Assise | [Inquiétude et préoccupation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-7-1-jw-clare-of-assissi/) | 7 Août 2025
+St Luc | [Priez sans cesse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-10-1-jw-st-luke/) | 10 Août 2025 
+
 
 
 

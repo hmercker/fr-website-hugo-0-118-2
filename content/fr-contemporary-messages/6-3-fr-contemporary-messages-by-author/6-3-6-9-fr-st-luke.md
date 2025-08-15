@@ -75,5 +75,6 @@ St Luc | [Puissiez-vous tous guérir dans le baume de l'amour de Dieu](/fr-conte
 St Luc | [Médecine spirituelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-7-1-jw-st-luke/) | 7 Juillet 2025
 St Luc & Seretta Kem | [Orientation Voix Directe (Seretta Kem) et être au service (Luc)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-5-1-af-st-luke-seretta-kem/) | 5 Août 2018
 Saint Luc et Yogananda | [Offrez le don de la prière pour l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-8-1-jw-st-luke-yogananda/) | 8 Avril 2025
+St Luc | [Priez sans cesse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-10-1-jw-st-luke/) | 10 Août 2025 
 
 
