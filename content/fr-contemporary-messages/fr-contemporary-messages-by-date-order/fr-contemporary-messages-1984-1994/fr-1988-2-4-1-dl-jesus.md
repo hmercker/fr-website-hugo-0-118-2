@@ -11,7 +11,7 @@ weight:
 
 Jésus - reçu par Révérend Dave Lampron le 4 Février 1988.
 
-![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-Jesus.jpg)
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1984-1994/fr-1988-jesus.jpg)
 
 *[Très cher Maître, Jésus, dans votre message, « [Les âmes lors de leur création …](/fr-samuels-messages/fr-diverse-messages/fr-10-25-july-1961-20-april-1962-samuels-jesus/) », communiqué en 1961 et 1962 au Dr Samuels, vous avez déclaré :*
 

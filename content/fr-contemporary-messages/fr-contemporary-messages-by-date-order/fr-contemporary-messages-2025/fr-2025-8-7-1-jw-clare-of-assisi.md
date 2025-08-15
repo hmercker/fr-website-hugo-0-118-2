@@ -1,13 +1,13 @@
 ---
-title: "Inquiétude et préoccupation"
+title: "Inquiétude et préoccupations"
 menu_title: ""
-description: "Inquiétude et préoccupation"
+description: "Inquiétude et préoccupations"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### Inquiétude et préoccupation
+### Inquiétude et préoccupations
 
 Claire d'Assise - reçu par reçu par Jimbeau Walsh le 07 Août 2025, Nashville, Tennesse, USA.
 
