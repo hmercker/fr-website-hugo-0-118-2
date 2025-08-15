@@ -7,7 +7,7 @@ draft: False
 hidden: True
 weight:
 ---
-### 
+### Vos choix attirent à vous des esprits qui vivent et vibrent au même niveau
 
 Judas - reçu par reçu par Jimbeau Walsh le 28 Juillet 2025, Nashville, Tennesse, USA.
 
