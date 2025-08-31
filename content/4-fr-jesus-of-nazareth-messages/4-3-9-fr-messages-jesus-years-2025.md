@@ -47,8 +47,8 @@ Jésus | [Une magnifique bénédiction de l'amour de Dieu en réponse aux prièr
 Jésus et Marie | [Ouvrez votre âme et entrez en sainte communion avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-25-1-af-jesus-and-mary/) | 25 Mai 2025
 Jésus | [Je suis le capitaine du navire, Dieu met le vent dans les voiles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-6-5-jw-jesus/) | 6 Juin 2025
 Jésus | [C'est l'uni-vers du chant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-7-5-jw-jesus/) | 7 Juin 2025
+Jésus | [Le don de la vie est précieux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-22-2-af-jesus/) | 22 Juin 2025
 Jésus | [L'Amour de Dieu vous met au service de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-6-1-af-jesus/) | 6 Juillet 2025
 Jésus | [Bienvenue au Grand Hall de la Paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-8-2-af-jesus/) | 8 Juillet 2025
-
 Jésus | [Écouter la petite voix douce de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-14-1-jw-jesus/) | 14 Juillet 2025
 

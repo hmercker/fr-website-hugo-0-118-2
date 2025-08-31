@@ -285,6 +285,7 @@ Augustin | [Excellent message d’enseignement sur la Volonté de Dieu et la vol
 Augustin | [La pression de la résistance au changement s'accentue](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-12-2-af-augustine/) | 12 Août 2022
 Augustin | [Voyage au puits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-26-2-af-augustine/) | 26 Août 2022
 Augustin | [Les portails de lumière ont un but](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-9-1-af-augustine/) | 9 Septembre 2022
+Augustin | [Soyez un canal de l'amour de Dieu et un instrument de Sa Volonté ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-29-2-af-augustine/) | 29 Septembre 2022
 Augustin | [Abstenez-vous de toute discussion politique ou relative aux changements terrestres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-7-2-al-augustine/) | 7 Octobre 2022
 Augustin | [Des conseils vous seront donnés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-9-2-al-augustine/) | 9 Octobre 2022
 Augustin | [Les cercles de lumière sont très importants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-16-4-af-augustine/) | 16 Octobre 2022
@@ -375,6 +376,7 @@ Augustin | [Guidance pour les médiums heureux](/fr-contemporary-messages/fr-con
 Augustin | [Faites vos preuves, mes beaux et chers étudiants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-1-4-af-augustine/) | 1 Mai 2025
 Augustin | [Vous devez demander avec ferveur et précision pour recevoir un afflux de l'Amour Divin de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-16-1-af-augustine/) | 16 Mai 2025
 Augustin | [Le pouvoir de l'intention](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-17-1-af-augustine/) | 17 Mai 2025 
+Augustin | [Le processus de réception de l'Amour Divin dans vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-20-1-af-augustine/) | 20 Mai 2025
 Augustin | [La vérité de l'Amour de Dieu transcende toutes les barrières de langue et de culture](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-22-1-af-augustine/) | 22 Juin 2025
 Augustin  | [Tenez bon dans l'Amour de Dieu !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-1-1-af-augustine/) | 1 Juillet 2025
 Augustin et Goldie | [Conseils au conseil d'administration de la DLSF / Gardez la joie et avancez d'un pas léger](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-21-1-af-augustine-and-goldie/) | 21 Mai 2025 

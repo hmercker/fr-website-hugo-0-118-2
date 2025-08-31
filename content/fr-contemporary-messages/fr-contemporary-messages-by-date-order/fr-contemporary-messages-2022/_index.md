@@ -240,6 +240,7 @@ Jesus | [Nous avons un rôle à jouer dans le plan de Dieu](/fr-contemporary-mes
 Moïse | [Nous sommes appelés à être des leaders dans le monde ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-25-1-af-moses/) | 25 Septembre 2022
 Baal Shem Tov | [Faites de chaque jour un nouveau jour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-26-1-jw-baal-shem-tov/) | 26 Septembre 2022
 Fred Rogers | [Amis imaginaires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-29-1-jw-fred-rogers/) | 29 Septembre 2022
+Augustin | [Soyez un canal de l'amour de Dieu et un instrument de Sa Volonté ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-29-2-af-augustine/) | 29 Septembre 2022
 Care Darby Walsh | [Progression au-delà des flux et reflux de la vie terrestre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-3-1-jw-care-derby-walsh/) | 3 Octobre 2022
 Yogananda | [N'abandonnez jamais votre recherche de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-3-2-af-yogananda/) | 3 Octobre 2022
 James Padgett | [Le monde connaîtra ces vérités à temps](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-4-1-af-james-padgett/) | 4 Octobre 2022

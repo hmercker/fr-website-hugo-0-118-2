@@ -25,6 +25,7 @@ Jacques | [Accueil de la première prière en personne à la Barbade ](/fr-conte
 Pierre le Rocher | [Sachez que vous êtes utilisé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-10-4-em-peter-the-rock/) | 10 Janvier 2025
 Augustin | [Écoutez votre propre âme plutôt que les conseils des autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-11-1-af-augustine/) | 11 Janvier 2025
 Grace Jordan | [Préparez-vous pour ce temps ensemble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-11-2-af-grace-jordan/) | 11 Janvier 2025
+Goldie | [Libérez-vous du bavardage de votre esprit pour que le plaisir et la liberté commencent !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-11-3-af-goldie/) | 11 Janvier 2025
 André | [Continuez à rechercher les bénédictions de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-12-1-af-andrew/) | 12 Janvier 2025
 Keea-atta-Kem | [Orientation concernant la retraite de développement pour vraiment reconnaître les murmures de Dieu dans vos âmes ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-12-2-mc-keea-atta-kem/) | 12 Janvier 2025
 George Stokes et Jésus | [Vous qui voulez être des canaux de lumière, vous avez amené beaucoup, beaucoup d'esprits ici pour recevoir l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-12-3-em-george-stokes-and-jesus/) | 12 Janvier 2025 
@@ -279,6 +280,7 @@ Seretta Kem | [L'éveil de différents aspects de notre âme influence la commun
 Jésus | [Une magnifique bénédiction de l'Amour de Dieu en réponse aux prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-18-1-af-jesus/) | 18 Mai 2025 
 Yogananda | [paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-19-1-jw-yogananda/) | 19 Mai 2025 
 Augustin et Goldie | [Conseils au conseil d'administration de la DLSF / Gardez la joie et avancez d'un pas léger](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-21-1-af-augustine-and-goldie/) | 21 Mai 2025 
+Augustin | [Le processus de réception de l'Amour Divin dans vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-20-1-af-augustine/) | 20 Mai 2025
 Care Darby Walsh | [La clarté des perceptions de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-22-1-jw-care-darby-walsh/) | 22 Mai 2025
 Moïse | [Réconciliez votre âme avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-23-1-af-moses/) | 23 Mai 2025
 Orion | [De petits choix peuvent apporter de grands changements](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-24-1-af-orion/) | 24 Mai 2025
@@ -315,6 +317,7 @@ St Matthieu | [Considérez avec patience et flexibilité les différents niveaux
 Barbara Davies | [Vivez votre vie avec amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-20-1-af-barbara-davies/) | 20 Juin 2025
 Orion | [La transformation de vos âmes est votre destinée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-21-1-af-orion/) | 21 Juin 2025
 Augustin | [La vérité de l'Amour de Dieu transcende toutes les barrières de langue et de culture](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-22-1-af-augustine/) | 22 Juin 2025
+Jésus | [Le don de la vie est précieux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-22-2-af-jesus/) | 22 Juin 2025
 G Gurdjieff | [Les chocs du changement sont de véritables cadeaux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-23-1-jw-g-gurdjieff/) | 23 Juin 2025 
 Yogananda | [Se présente à un disciple de longue date et aux changements spirituels qu'il a opérés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-24-1-af-yogananda/) | 24 Juin 2025 
 André | [Bénédiction dans le Grand Hall de la Paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-27-1-af-andrew/) | 27 Juin 2025
@@ -335,12 +338,9 @@ Judas | [Vos choix attirent à vous des esprits qui vivent et vibrent au même n
 Care Darby Walsh | [Le monde du regret](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-4-1-jw-care-darby-walsh/) | 4 Août 2025
 Claire d'Assise | [Inquiétude et préoccupations](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-7-1-jw-clare-of-assisi/) | 7 Août 2025
 St Luc | [Priez sans cesse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-10-1-jw-st-luke/) | 10 Août 2025 
-
-
-
-
-
-
+Judas | [Servir tous dans l'Amour Divin et l'amour naturel, et s'entraider au sein de la communauté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-11-1-jw-judas/) | 11 Août 2025
+Lao Tseu | [Vous avez abordé le sujet de l'immortalité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-18-1-jw-lao-tzu/) | 18 Août 2025
+Care Darby Walsh | [Lâcher prise](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-25-1-jw-care-darby-walsh/) | 25 Août 2025
 
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

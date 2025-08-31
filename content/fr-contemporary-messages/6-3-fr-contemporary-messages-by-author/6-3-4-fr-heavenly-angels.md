@@ -107,6 +107,7 @@ Goldie | [Nous demande de déposer des fleurs à l’autel de WHC](/fr-contempor
 Goldie | [Mangez de la crème glacée pour célébrer l'Amour de Dieu !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-17-1-af-goldie/) | 17 Novembre 2022
 Goldie | [Dansez et chantez pour entrer au paradis ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-10-1-af-goldie/) | 10 Juillet 2024
 Goldie | [Amusez-vous aussi ! ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-3-2-af-goldie/) | 3 Janvier 2025
+Goldie | [Libérez-vous du bavardage de votre esprit pour que le plaisir et la liberté commencent !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-11-3-af-goldie/) | 11 Janvier 2025
 Goldie | [Quand vous tombez, relevez-vous dans la joie !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-17-1-af-goldie/) | 17 Avril 2025
 Goldie | [Un soupir de soulagement pour ceux qui ouvrent leur âme à recevoir ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-1-2-af-goldie/) | 1 Mai 2025 
 André et Goldie | [Conseils pour la réunion du conseil d'administration de la DLSF](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-10-2-af-andrew-goldie/) | 10 Mars 2025 

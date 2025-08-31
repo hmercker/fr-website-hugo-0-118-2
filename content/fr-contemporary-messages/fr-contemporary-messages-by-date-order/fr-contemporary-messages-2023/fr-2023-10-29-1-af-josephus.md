@@ -9,7 +9,7 @@ weight:
 ---
 ### Aller au-delà de la conscience mentale et spirituelle jusqu'à l'âme 
 
-Flavius Josèphe - reçu par Albert Fike le 10 Octobre 2023, Sechelt, Colombie-Britannique, Canada.
+Flavius Josèphe - reçu par Albert Fike le 29 Octobre 2023, Sechelt, Colombie-Britannique, Canada.
 
 En effet, vous priez pour le grand don de l’Amour de Dieu. Cette prière est exaucée à chaque désir. Chaque fois que vous exprimez le désir de recevoir le grand don, celui-ci est donné et la loi est invoquée. Je suis Flavius Josèphe. Je ne viens pas parler de ce que Dieu peut vous donner mais de ce que vous pouvez vous donner.
 

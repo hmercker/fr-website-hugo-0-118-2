@@ -81,3 +81,4 @@ St Jean | [Dieu murmure à nos âmes pour qu’il puisse travailler à travers n
 St Jean | [Âmes en transition](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-28-1-jw-st-john/) | 28 Août 2023
 Jean le Bien Aimé | [L'importance d'avoir des canaux d'Amour Divin sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-13-3-af-john-the-beloved/) | 13 Mai 2025 
 Jean le Bien Aimé | [Vos âmes ont soif de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-30-2-em-john-the-beloved/) | 30 Mai 2025
+Jean le Bien-Aimé | [Le chemin que Dieu a tracé devant nous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-6-20-1-af-john-the-beloved/) | 20 Juin 2023

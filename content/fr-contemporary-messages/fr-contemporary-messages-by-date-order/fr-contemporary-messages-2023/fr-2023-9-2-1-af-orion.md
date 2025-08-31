@@ -1,0 +1,24 @@
+---
+title: "Commentaires sur les prières en préparation du Cercle de Laurelville"
+menu_title: ""
+description: "Commentaires sur les prières en préparation du Cercle de Laurelville"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Commentaires sur les prières en préparation du Cercle de Laurelville
+
+Orion - reçu par Albert Fike le 2 Septembre 2023, Sechelt, Colombie-Britannique, Canada.
+
+Il y a une grande lumière parmi vous, mes amis. Je suis Orion et je viens vous accompagner en ce moment de prière pour nous rassembler dans la lumière, et la lumière est avec vous. Nombreux sont ceux qui sont avec vous en ce moment, car nous saisissons chaque occasion d’être avec vous dans ces circonstances. Avec ce portail de lumière, aussi puissant soit-il, il nous est facile de nous rapprocher, surtout lorsque vous désirez tous être bénis par Dieu, bénis par son grand amour. La lumière circule en vous et autour de vous, vous élevant et vous transportant au-delà des conditions terrestres vers cet endroit qui soutient, qui élève, qui aide chacun de vous dans ses aspirations spirituelles et son désir d’être proche du Créateur de toutes choses.
+
+Il est bon que vous preniez le temps de prier pour vos frères et sœurs qui prient pour ce rassemblement qui approche. Priez pour ceux qui y participent. Plus vous priez, plus vous êtes dans la lumière, moins vous êtes sensibles à la condition humaine et aux ténèbres qui entourent cette Terre. Il est important que vous vous concentriez sur le spirituel, sur Dieu, sur tous les aspects qui apportent la lumière, afin d’être bien préparés pour le travail à venir. Il y a beaucoup de travail à venir, mes amis, beaucoup de travail, des opportunités et des aspects du travail que vous n’anticipez peut-être pas, des opportunités inhabituelles, des invitations venues de pays lointains, des âmes qui vous connaissent ou vous connaîtront bientôt, qui souhaitent collaborer, qui souhaitent unir leurs forces dans la lumière afin que davantage de lumière pénètre cette Terre.
+
+Le déroulement de cette grande transformation de la Terre sera accéléré par vos efforts, vos prières et votre lumière. Il est si important, âmes bien-aimées, de nourrir et d’entretenir la lumière autour de vous, dans votre foyer et vos familles, afin que vous soyez dans un environnement propice à notre rapprochement. Comme vous le savez, Dieu fournit ces portails, ces dons, ces Treillis de Lumière afin de soutenir et de rapprocher les conditions propices à l’éveil de l’âme par le don de l’amour. Ce n’est pas si compliqué, âmes bien-aimées, d’être dans la lumière. Cela requiert simplement votre concentration, vos désirs, vos prières, vos pensées, vos intentions.
+
+Vous avez tous été bien éduqués dans ce domaine. C’est une question d’application. C’est aussi une question de foi, de croire, de savoir, de comprendre que ces mécanismes que Dieu a mis à votre disposition pour nourrir votre être, votre âme et votre conscience sont à votre portée. Vous les comprendrez. C’est l’application qui constitue souvent le grand défi en ce monde. Pourtant, chacun de vous a manifesté son dévouement, son désir d’être dans la lumière, d’être en harmonie avec les lois de Dieu. Dieu répond donc de multiples façons : en vous envoyant ses anges, en nous envoyant lumière et bénédictions, en envoyant des esprits brillants.
+
+De nombreux aspects de la lumière sont concentrés sur vous, âmes bien-aimées, et il est important que vous reconnaissiez que votre cœur est rempli de joie et de gratitude. Vous découvrez l’élévation et les bénédictions que Dieu réserve à chacun de vous. Ouvrez-vous à la grande Lumière de l’Essence de Dieu. Ouvrez-vous aux nombreuses bénédictions de guérison et de paix, à la connaissance qui vient, à la vérité et à la compréhension qui se réalisent, et à la lumière qui se dissout dans cet environnement de lumière.
+
+Âmes bien-aimées, que les bénédictions soient puissantes, que la compréhension soit claire et que la joie vous envahisse et se répande en vous alors que vous poursuivez ce voyage de lumière, ce voyage de vérité, ce voyage vers la Source de toute lumière et de toute vérité. Vous êtes soutenus et le serez pour tous les jours de votre vie. Vous serez bénis chaque jour davantage. Vous vous éveillerez à de nombreuses facettes de l’univers divin et vous découvrirez votre véritable moi dans toute sa splendeur, la vérité et la lumière qui vous traversent, la beauté de votre âme révélée à vous-même par les éveils, les révélations et les expériences, tandis que vous continuez à chercher et à vous épanouir entre les Mains de Dieu. Que Dieu vous bénisse, âmes bien-aimées. Je suis Orion et, oui, je vous accompagnerai dans vos voyages. Je vous parlerai occasionnellement. Il y a un plan. Beaucoup de choses à venir se dévoilent. Soyez bénis, chers amis. Mon amour vous accompagne, toujours. Que Dieu vous bénisse et vous garde dans Son Amour.

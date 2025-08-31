@@ -115,4 +115,6 @@ Ronald Reagan | [Un président qui aimait son pays](/fr-contemporary-messages/fr
 Ronald Reagan | [Ronald Reagan - Apprendre à connaître un président](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-6-29-2-fab-ronald-reagan/) | 29 Juin 2009
 Ronald Reagan | [Apprendre à connaître un Président - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-6-30-1-fab-ronald-reagan/) | 30 Juin 2009
 
+### [**Lien vers la liste des messages contemporains classés par auteur**](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/)
+
 
