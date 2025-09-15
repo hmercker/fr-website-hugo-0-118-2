@@ -1,0 +1,28 @@
+---
+title: "Gardez vos prières simples"
+menu_title: ""
+description: "Gardez vos prières simples"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Gardez vos prières simples
+
+Moïse - reçu par reçu par Al Fike le 18 Juillet 2025, Sechelt, Colombie-Britannique, Canada.
+
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-spiritualite-15.jpg)
+
+Que les bénédictions de notre Dieu bien-aimé soient sur vous. Je suis Moïse. Je viens vous rappeler vos devoirs et obligations, car vous êtes les propriétaires de la Vérité. Vous portez la bannière de la Vérité, qui est le don de l’Amour Divin offert à l’humanité, un don inconnu, un don incompréhensible, mais un don néanmoins que notre frère bien-aimé Jésus a apporté à la Terre.
+
+Nous sommes tous propriétaires de ce don. Nous avons tous la responsabilité de l’apporter à l’humanité afin qu’elle puisse le connaître, comprendre la puissance et l’immense émerveillement que représente le don que Dieu lui a fait. Soyez forts dans cette Lumière et cette Vérité, âmes bien-aimées. Ne l’obscurcissez pas par des mots et des idées inutiles, ni utiles pour enseigner et démontrer cette Vérité. La Vérité est simple et doit être proclamée de manière compréhensible par tous. Soyez francs dans vos actions et dans votre vie, afin de vous démontrer chaque jour ce que signifie porter cette Vérité, ce que signifie être un instrument pour Dieu, le Créateur de toutes choses, cet instrument et ce canal d’amour dans le monde.
+
+Je ne souhaite pas que cette responsabilité vous accable, mais plutôt qu’en vous la rappelant, vous puissiez utiliser la puissance de ce don pour votre bien et celui de tous ceux qui vous entourent. Ne soyez pas à la traîne et ne vous trompez pas en pensant que vous accomplissez réellement l’œuvre de Dieu, alors qu’en réalité, vous nourrissez simplement une intention et une conception conscientes de ce qu’est cette œuvre. Car lorsque vous œuvrez pour Dieu, lorsque vous êtes Son instrument, il n’y a ni confusion ni doute quant à son intention et à sa puissance. Cela se manifeste par la grâce, la beauté, la joie, la Lumière et la Vérité du contact de Dieu sur vous. Cela se manifeste parce que Dieu a l’intention de vous utiliser comme son instrument de Vérité et de bénédictions d’Amour pour autrui. Cela ne vient pas nécessairement par des mots. Cela n’implique certainement pas de proclamations ambitieuses, d’idées et de décrets complexes sur la vérité. Non, cela vient par le Souffle de Dieu, doux mais déterminé. Cela vient par des mots, simples mais inspirants, des mots qui s’adressent à l’âme, des mots qui élèvent et qui guérissent. Car ces mots ne sont que le reflet des bénédictions et des dons que Dieu accorde à travers vous, son instrument.
+
+Soyez bien conscientes de cela, âmes bien-aimées. N’ajoutez pas consciemment aux complications de la condition humaine et à l’intention de définir et de rendre si complexes les détails de la vérité. Car les détails de la vérité sont connus de l’âme. La compréhension de la vérité est la compréhension de l’âme. L’âme, le plus souvent, est obstruée par le mental. Je vous exhorte donc à mettre de côté les pensées et à venir à Dieu par le désir et l’émotion, par le désir et par l’amour. Ces choses viennent de l’âme. Ce sont elles qui conduisent l’âme à Dieu. Lorsqu’elles sont exprimées avec clarté, humilité et beauté, il n’y a plus d’obstacle entre les prières de votre âme à Dieu et sa réception par Dieu.
+
+Soyez clair, fort et direct. Soyez humble. Exprimez vos sentiments, vos émotions, même s’il s’agit d’impuissance, de chagrin ou de tristesse. Ce sont toujours de véritables expressions de l’âme. Ainsi, Dieu pourra répondre à ces sentiments. Il vous aidera à les apaiser et à les guérir. Dieu a de nombreuses bénédictions pour chacun de vous. Dieu désire que chacun soit libéré de toutes les conditions qui empêchent l’âme de Dieu. Dieu désire que votre conscience intègre, aime et écoute tout ce qui vient de Dieu. L’Amour de Dieu pour vous est plus grand que tout ce que vous pouvez imaginer ou comprendre. Pourtant, en cheminant sur ce chemin d’éveil de l’âme, vous en glanerez la compréhension. Vous découvrirez à quel point vous êtes véritablement aimé. En cela, Dieu apportera la joie à votre cœur, la vérité à votre âme et à votre esprit. Tout sera en harmonie et en harmonie avec la vérité et la lumière. Même votre esprit, votre esprit matériel, trouvera sa place et, avec le temps, acquiescera au pouvoir et à la domination de l’âme, qui possède en elle plus de dons, de potentiels et de capacités que l’esprit matériel ne pourrait jamais posséder ou exprimer. En harmonie avec sa création, l’esprit matériel acquiesce à la puissance et à la gloire de l’âme, à toute sa beauté et ses expressions.
+
+Soyez fidèle à votre véritable moi. Vous vous retrouverez sur un chemin glorieux vers l’unité avec Dieu. Le service à Dieu viendra comme un flot, s’exprimant facilement. Comprendre Dieu sera la cloche de votre conscience. Vous connaîtrez avec une certitude et une clarté qui sont telles une cloche qui sonne sa vérité intérieure et tout autour. Soyez humbles dans la grâce de Dieu. Soyez sincères dans vos aspirations et vos efforts. Soyez intègres, mes chers frères et sœurs. Atteignez le but le plus élevé, le plus grand, celui de ne faire qu’un avec Dieu par Son Amour.
+
+Je suis Moïse et je vous aime. Je viens une fois de plus vous rappeler ce qui est important et nécessaire pour ce grand voyage de l’âme. Soyez dans la grâce de Dieu, mes chers frères et sœurs. Nous marcherons ensemble vers cette grande Lumière. Que Dieu vous bénisse tous dans Son Amour. Que Dieu vous bénisse en paix.

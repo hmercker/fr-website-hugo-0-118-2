@@ -43,3 +43,4 @@ Faith Nyquist| [Désir d'avoir des anges et des guides avec vous](/fr-contempora
 Faith Nyquist | [L'importance de la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-6-3-af-faith-nyquist/) | 6 Mars 2025 
 Faith Nyquist | [Le chemin vers le véritable pardon](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-2-1-mc-faith-nyquist/) | 2 Avril 2025 
 Faith Nyquist | [Demande de service](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-3-1-af-faith-nyquist/) | 3 Juin 2025 
+Faith Nyquist | [Un appel à retrouver l'équilibre avec la création divine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-1-1-af-faith-nyquist/) | 1 Août 2025

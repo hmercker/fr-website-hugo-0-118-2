@@ -1,0 +1,28 @@
+---
+title: "La restauration de l'Amour Divin"
+menu_title: ""
+description: "La restauration de l'Amour Divin"
+date: 2022-06-01 06:00:01+00:220
+draft: False
+hidden: True
+weight:
+---
+### La restauration de l'Amour Divin
+
+James Reid - reçu par Brian Holmes le 4 Décembre 2022
+
+Bonjour Brian, c’est James Reid. Oui, c’est la foi. La foi nous permet de nous rapprocher de vous et de transmettre des messages à travers vous. La foi est le fondement de votre développement spirituel et de votre progression vers la lumière sur terre et dans le monde spirituel. La foi est aussi importante pour vous tous sur terre que pour nous dans le monde spirituel.
+
+Tu t’es demandé pourquoi notre Père a révoqué le don de l’Amour Divin pour tous les peuples qui sont venus après Adam et Ève, plutôt que ne pas accorder ce don uniquement à Adam et Ève. Le résultat fut que le don ne fut pas accessible à l’humanité jusqu’à ce que Jésus apporte la nouvelle de sa nouvelle attribution plusieurs milliers d’années plus tard, lorsqu’il arriva et proclama la Bonne Nouvelle, qui signifiait la nouvelle attribution de l’Amour Divin à l’humanité. Il y a donc eu plusieurs milliers d’années entre la venue de Jésus et le moment où ce don a été retiré à l’humanité, et l’une de tes préoccupations est que le retrait de la possibilité de recevoir ce don est incompatible avec le caractère de Dieu tel qu’apparaît le Dieu d’Amour. Pourquoi n’a-t-il pas été offert aux enfants d’Adam et Ève ? Pourquoi pas aux enfants des enfants d’Adam et Ève, aux petits-enfants et arrière-petits-enfants ?
+
+C’est une bonne question, Brian, et Dieu a certainement Ses raisons. Peut-être, aussi omniscient qu’il soit, a-t-il réalisé que même s’il avait offert ce cadeau aux enfants d’Adam et Ève, (alias) Amon et Aman tels que vous les connaissez, leur libre arbitre les aurait empêchés de recevoir l’Amour Divin. Puisque le Père est omniscient et prémonitoire, il aurait dû connaître le résultat. Et qui sait pourquoi les descendants d’Adam et Ève auraient choisi d’ignorer l’Amour Divin, mais cela aurait à voir avec le libre arbitre, l’environnement et l’éducation qu’Adam et Ève ont donné à leurs descendants et leurs descendants à leurs descendants.
+
+Pour une raison quelconque, Dieu a trouvé que Jésus, dans la culture dans laquelle il était né et dans le contexte du monde de l’époque, était un moment opportun pour laisser tomber la graine, le lieu dans l’histoire à partir duquel grandir et se propager. Et bien que cette graine ait donné naissance à de nombreux arbres qui n’ont pas porté les fruits espérés par Jésus – certains étaient pourris, d’autres non mûrs – au moins la graine a été semée. Et à partir de cette graine, de nombreux arbres et branches différents ont poussé, tous s’efforçant à leur manière vers la lumière. Et même s’ils le font avec des articulations arthritiques et des branches flétries, ces arbres et ces branches s’efforcent par tous les moyens d’atteindre Dieu. Et ce sont les efforts renouvelés de Jésus depuis une centaine d’années qui visent à tailler les branches, à guérir l’arthrite des articulations qui s’étendent vers la lumière, les fruits des arbres et les branches qui s’étendent vers Dieu pour amener à maturité.
+
+Il est maintenant temps que les fruits mûrissent et que les peuples du monde mangent de ces fruits et entrent en harmonie avec notre Père. Et plus il y aura d’arbres et de branches qui tendront vers Dieu et la lumière, qui porteront du fruit, le vrai fruit qui vient de la graine que Jésus a plantée il y a deux mille ans, plus on trouvera et mangera de ce fruit, plus l’humanité viendra en harmonie avec elle-même, avec la planète et avec Dieu et Ses lois.
+
+La joie remplacera les ténèbres sur cette terre. La joie s’élèvera de la terre vers les autres sphères qui entourent la terre, de sorte qu’elle remplacera également les ténèbres dans le monde spirituel. C’est l’avantage de recevoir l’Amour Divin dans l’âme humaine. Même s’il semble que Dieu ait retenu pendant très longtemps la possibilité d’un don de la part de l’humanité et du monde spirituel, dans Sa clairvoyance, il savait ce qu’il faisait. Dieu savait qu’il devait planter une graine et que cette graine devait pousser, et qu’il faudrait du temps pour que cette graine prenne racine et produise des fruits, des fruits comestibles. Et le moment est venu pour ces fruits de devenir comestibles. Cela a commencé il y a plus de cent ans avec James Padgett et les messages qu’il a reçus de Jésus et d’autres anges célestes. Ces messages ont mis du temps à être publiés et trouvés, mais ils ont été trouvés et des communautés ont été et sont construites sur la base de ces messages. Et les communautés se développent grâce à ces messages Padgett et aux messages diffusés aujourd’hui avec un contenu mis à jour.
+
+Alors réjouissez-vous que le plan de Dieu fonctionne. Nous, dans le Ciel Divin spirituel, nous posons également des questions sur les raisons pour lesquelles Dieu fait ou ne fait pas les choses. Nous ne savons pas tout. Dieu ne nous fait pas non plus tout savoir. Les voies de Dieu sont nombreuses et variées, mais elles mènent toujours au meilleur. Elles conduisent toujours au progrès, et c’est ce qui se passe actuellement sur terre et dans le monde spirituel.
+
+Je pense que c’est la réponse à ta question, Brian. Je suis heureux que tu tes sois assis pour communiquer avec nous aujourd’hui et j’attends avec impatience de poursuivre les communications avec toi dans un avenir proche. Je sais que ton cœur le désire beaucoup, et nous ferons tout notre possible pour que cela se réalise de notre côté. Que Dieu te bénisse, Brian. Prend bien soin de toi. Que Dieu nous bénisse tous.

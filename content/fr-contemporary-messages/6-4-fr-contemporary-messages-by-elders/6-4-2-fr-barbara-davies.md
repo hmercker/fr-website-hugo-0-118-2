@@ -37,3 +37,4 @@ Barbara Davies | [Soyez un canal de l'Amour de Dieu où que vous alliez ](/fr-co
 Barbara Davies | [Plongez dans le monde avec l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-2-3-af-barbara-davies/) | 2 Mai 2025
 Barbara Davies | [Le voyage d’amour de Barbara](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-17-1-af-barbara-davies/) | 17 Juin 2025
 Barbara Davies | [Vivez votre vie avec amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-20-1-af-barbara-davies/) | 20 Juin 2025
+Barbara et Eileen Caddy | [Expressions d'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-13-2-af-barbara-and-eileen-caddy/) | 13 Juillet 2025

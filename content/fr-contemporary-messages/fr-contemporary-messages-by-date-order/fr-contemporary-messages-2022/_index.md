@@ -296,6 +296,7 @@ Augustin | [Vulnérabilités de l'interprétation et de l'enseignement des véri
 Robert James Lee | [Une synchronicite de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-1-1-jw-robert-james-lee/) | 1<sup>er</sup> Décembre 2022
 Orion | [Commentaire sur le développement de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-4-1-af-orion/) | 4 Décembre 2022
 George Stokes | [Développer une relation avec Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-4-1-em-george-stokes/) | 4 Décembre 2022
+James Reid | [Restauration de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-4-3-bh-james-reid/) | 4 Décembre 2022
 Yogananda | [Prière, méditation et guérison dans l'amour humain et Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-5-1-jw-yogananda/) | 5 Décembre 2022
 George Stokes | [Envoyer de l'Amour à Dieu est une communion spéciale](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-5-1-em-george-stokes/) | 5 Décembre 2022
 Augustin | [Leçon sur le chagrin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-10-1-af-augustine/) | 10 Décembre 2022

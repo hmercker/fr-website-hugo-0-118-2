@@ -136,4 +136,5 @@ Yogananda et St François d’Assise | [Désir et perception de l'âme](/fr-cont
 Saint Luc et Yogananda | [Offrez le don de la prière pour l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-8-1-jw-st-luke-yogananda/) | 8 Avril 2025 
 Yogananda | [Les conseils sont donnés par la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-5-1-jw-yogananda/) | 5 Juin 2025 
 Yogananda | [Se présente à un disciple de longue date et aux changements spirituels qu'il a opérés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-24-1-af-yogananda/) | 24 Juin 2025
+Yogananda | [Le Yoga d'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-8-3-af-yogananda/) | 8 Juillet 2025
 

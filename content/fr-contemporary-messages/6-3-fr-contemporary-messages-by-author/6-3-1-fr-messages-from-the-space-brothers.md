@@ -117,7 +117,6 @@ Orion | [Les perceptions de l'âme sont multidimensionnelles ](/fr-contemporary-
 Orion | [L'Évolution de l'Humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-27-1-af-orion/) | 27 Octobre 2023
 Orion | [Commentaires, collaboration et correction sur l'enseignement de la vérité de l'Amour Divin ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-14-2-af-orion/) | 14 Novembre 2023
 Orion | [Le temps presse pour gagner la bataille](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-21-1-af-orion/) | 21 Novembre 2023
-
 Orion | [Nous sommes des âmes comme vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-1-1-af-orion/) | 1 Décembre 2023
 Orion | [Famille, gouvernement, économie et vie sur la planète d'Orion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-7-1-af-orion/) | 7 Décembre 2023
 Orion | [Parle à nouveau du progrès de nos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-16-1-af-orion/) | 16 Décembre 2023
@@ -204,6 +203,12 @@ Orion | [Les voies de l'amour au service de Dieu](/fr-contemporary-messages/fr-c
 Orion | [La transformation de vos âmes est votre destinée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-21-1-af-orion/) | 21 Juin 2025
 Orion | [Recherchez l'alignement avec l'âme divine pour trouver une plus grande harmonie et une plus grande joie !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-1-2-af-orion/) | 1 Juillet 2025
 Orion | [Priez pour la Conscience de l'Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-8-1-af-orion/) | 8 Juillet 2025
+Orion | [La Métamorphose de l'Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-12-2-af-orion/) | 12 Juillet 2025
+Orion | [Mettez vos doutes de côté et préparez-vous à ce qui vient !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-15-1-af-orion/) | 15 Juillet 2025
+Orion | [Prévient les participants à l’expression de la Voix Directe de ce qui les attend](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-22-1-af-orion/) | 22 Juillet 2025
+Orion | [L'Amour de Dieu imprègne l'Univers](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-27-1-af-orion/) | 27 Juillet 2025
+Orion | [Êtes-vous prêts à servir ? Le temps de choisir est maintenant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-2-1-af-orion/) | 2 Août 2025
+Orion | [Élévation au-delà de la conscience de l'esprit matériel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-26-1-af-orion/) | 26 Août 2025
 Orion & Augustin | [Décrit plus en détail son travail avec ce projet Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-13-1-af-orion-augustine/) | 13 Septembre 2021
 Orion & Jésus | [Décrit la tendresse de leur approche pour travailler avec nous (2021 Gardiens de la Lumière)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-23-1-af-orion-jesus/) | 23 Octobre 2021
 Orion & Jésus | [Orion et Jésus encouragent les efforts pour de futures publications](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-27-1-af-jesus-orion/) | 27 Octobre 2021

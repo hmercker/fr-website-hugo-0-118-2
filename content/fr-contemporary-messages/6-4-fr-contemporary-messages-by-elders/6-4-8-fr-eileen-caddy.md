@@ -52,3 +52,4 @@ Eileen  Caddy | [Création d'un sanctuaire](/fr-contemporary-messages/fr-contemp
 Eileen Caddy | [Pour le bien du monde, pour le bien de vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-13-1-jw-eileen-caddy/) | 13 Janvier 2025
 Eileen Caddy | [Lorsque vous créez pour les autres dans l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-6-1-jw-eileen-caddy/) | 6 Juin 2025
 Eileen Caddy | [Tendre la main à tous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-13-1-jw-eileen-caddy/) | 13 Juillet 2025
+Barbara et Eileen Caddy | [Expressions d'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-13-2-af-barbara-and-eileen-caddy/) | 13 Juillet 2025

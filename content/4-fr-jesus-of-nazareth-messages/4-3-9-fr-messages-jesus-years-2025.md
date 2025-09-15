@@ -51,4 +51,5 @@ Jésus | [Le don de la vie est précieux](/fr-contemporary-messages/fr-contempor
 Jésus | [L'Amour de Dieu vous met au service de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-6-1-af-jesus/) | 6 Juillet 2025
 Jésus | [Bienvenue au Grand Hall de la Paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-8-2-af-jesus/) | 8 Juillet 2025
 Jésus | [Écouter la petite voix douce de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-14-1-jw-jesus/) | 14 Juillet 2025
-
+Jésus | [Unis dans la prière, transformés par l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-3-1-af-jesus/) | 3 Août 2025
+Jésus | [Ouvrez grand vos âmes pour recevoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-18-1-af-jesus/) | 18 Août 2025

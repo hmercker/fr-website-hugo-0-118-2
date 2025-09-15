@@ -259,6 +259,8 @@ Seretta Kem | [Exprime sa joie face à la progression de notre âme ](/fr-contem
 Seretta Kem | [Chacun a reçu un don pour un éveil spirituel plus profond ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-30-3-af-seretta-kem/) | 30 Avril 2025
 Seretta Kem | [La nécessité de créer une fondation solide et de suivre la volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-1-7-af-seretta-kem/) | 1 Mai 2025
 Seretta Kem | [L'éveil de différents aspects de notre âme influence la communication avec les anges](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-17-2-af-seretta-kem/) | 17 Mai 2025
+Seretta Kem | [La chimie et l'alignement nécessaires pour libérer les incrustations de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-12-1-af-seretta-kem/) | 12 Juillet 2025
+Seretta Kem | [Guidance pour le chemin le moins fréquenté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-26-1-af-seretta-kem/) | 26 Juillet 2025
 
 
 

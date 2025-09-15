@@ -137,3 +137,4 @@ Keea Atta Kem | [L'importance de se réunir en personne ](/fr-contemporary-messa
 Keea Atta Kem | [Soyez une lumière dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-27-2-af-keea-atta-kem/) | 27 Mai 2025
 Keea Atta Kem | [Dieu murmure Son amour dans vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-30-1-af-keea-atta-kem/) | 30 Mai 2025
 Keea Atta Kem | [Les épreuves et les tribulations de l'homme n'ont aucune cause en Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-4-2-em-keea-atta-kem/) | 4 Juin 2025
+Keea Atta Kem | [Aimez-vous pour aimer le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-29-1-af-keea-atta-kem/) | 29 Juillet 2025 

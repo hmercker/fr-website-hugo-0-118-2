@@ -1,0 +1,36 @@
+---
+title: "Expressions d'Amour"
+menu_title: ""
+description: "Expressions d'Amour"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Expressions d'Amour
+
+Barbara and Eileen Caddy - reçu par reçu par Al Fike le 13 Juillet 2025, Sechelt, Colombie-Britannique, Canada.
+
+**Barbara** : Que les bénédictions de l’Amour de Dieu vous comblent. Je suis Barbara. Je viens vous parler d’amour et de la façon dont l’Amour de Dieu, lorsqu’il pénètre votre âme, ouvre des voies, des portes et des possibilités pour aimer et exprimer votre amour dans le monde. L’amour peut s’exprimer de multiples façons. Puisque vous êtes une âme unique créée par Dieu, l’unicité de cet amour exprimé à travers vous, comme un prisme de votre âme, peut être belle, créative et imprégnée de votre empreinte et de votre capacité à exprimer votre singularité.
+
+Lorsque vous voyagez à travers le monde, que vous rencontrez différentes personnes, que vous échangez et créez des liens, une certaine qualité s’ajoute à chacune de ces interactions. Cette qualité est le reflet de votre âme. Votre âme est le reflet de Dieu dans ses attributs d’Amour. Vous pouvez cheminer dans le monde, ouvert, réceptif à cette connexion avec les autres, avec le monde lui-même, avec la nature, avec les animaux, avec bien des choses, avec la Terre. Ce faisant, à mesure que ce canal s’ouvre en vous, Dieu vous utilisera pour révéler les qualités et les dons uniques de votre âme, embellis et élargis par l’amour.
+
+Je vous exhorte, mes chers amis, à cheminer dans le monde avec une attitude d’amour, de respect pour la vie, de respect pour chaque personne que vous rencontrez, quelle que soit sa couleur de peau, son apparence, ce qui lui est propre. Puissiez-vous honorer cela avec amour. Puissiez-vous les accueillir avec amour. Même si ce n’est pas une étreinte physique, que ce soit une étreinte spirituelle, que ce moment où vous marchez avec eux soit un don de Dieu. Par ce don de Dieu, puissiez-vous être véritablement en harmonie avec la Volonté de Dieu. Que tout ce que Dieu désire leur donner à travers vous, par votre canal unique, soit accompli, intense et puisse même changer leur vie.
+
+Dieu a de nombreuses intentions et désirs pour élever ses enfants. Il veut que chaque enfant sur cette planète connaisse la joie de l’amour et la joie de vivre. Je vous demande de prier pour que vous puissiez contribuer à accomplir cette promesse que Dieu a faite à ses enfants : que, d’une certaine manière, vous soyez un instrument pour les élever et les soutenir, et que, par la puissance de l’amour, la bénédiction puisse venir à travers vous.
+
+Vous vous demandez peut-être comment vous pourriez être l’instrument de Dieu ? Pourtant, je vous le dis, belles âmes de Dieu, chaque fois que vous recevez un nouvel afflux d’amour divin, vous vous rapprochez de cet état d’instrument pur et véritable pour Dieu. En effet, comme pour tout, vous devez pratiquer cet effort, vous efforcer d’être ouverts et disposés, d’être un canal d’amour pour autrui. Lorsque vous y parviendrez et que cela deviendra une partie de vous-même, une partie toujours ouverte et débordante d’amour, alors vous aurez tenu votre promesse faite à Dieu d’être cette lumière dans le monde et un magnifique canal d’amour pour le monde.
+
+Chaque fois que vous posez le pied sur la Terre, je vous exhorte à l’aimer. Chaque fois que vous voyez une fleur, un arbre, lorsque vous êtes dans la nature, éprouvez de l’amour et du respect pour ces choses. Chaque fois que vous rencontrez la plus grande création de Dieu, l’humanité, éprouvez du respect et de l’amour pour elle. Aussi sombre et dépréciée soit-elle au fond de son âme, éprouvez de l’amour, car cet amour peut être un catalyseur de changement, un catalyseur permettant à Dieu d’atteindre cette âme.
+
+Vous n’êtes pas obligé de parler à tout le monde, mais si vous parlez avec votre âme, vous vous adressez à tous. Vous tendez la main à tous. Lorsque vous priez, priez pour le monde. Priez pour vos proches. Priez pour toutes les personnes qui vous entourent et pour toutes celles que vous rencontrerez. Priez pour les enfants à naître et ceux qui sont sur le point de naître. Priez, partout où la vie surgit, pour qu’elle s’accomplisse dans la beauté et la perfection qu’elle est censée être. Il existe de nombreuses façons d’aimer et de nombreuses façons de prier. Je vous exhorte à continuer d’exprimer l’amour dans vos prières, et plus particulièrement l’amour que vous avez pour vous-même, le respect que vous portez à votre être, à la création unique que vous êtes. Car c’est une création divine magnifique. Vous êtes véritablement aimé et votre présence au monde était destinée à exister.
+
+Dans votre vie, honorez cela. Ayez du respect pour tout ce que vous faites et tout ce que vous êtes, et vous vous retrouverez alors dans la joie et une compréhension plus profonde de vous-même. En vous comprenant et en vous aimant davantage, vous pourrez aimer et comprendre les autres plus profondément. Ce voyage est un voyage de progression et d’éveil spirituel, afin que toutes ces facultés que vous possédez soient réalisées et éveillées par l’Amour du Père, afin que vous puissiez parcourir cette Terre avec des réalisations, des révélations et des capacités toujours plus profondes et plus grandes à aimer et à servir Dieu.
+
+Tout cela vient avec une simple prière, le désir de recevoir ce grand don de l’Amour Divin. Puissiez-vous le rechercher sans cesse, mes chers amis. Puissiez-vous savoir qu’en le cherchant, en le recevant, vous avez posé vos pieds sur un chemin éternel qui mènera à l’union avec Dieu. Cette union sera une joie inimaginable. Ce sera un immense don de lumière, de joie et d’amour. C’est Dieu. C’est l’expression de Sa bénédiction sur vous. Puissiez-vous être ouverts à ces moments dans la prière pour un afflux toujours plus grand de Son Amour, afin que cet afflux soit constant et s’amplifie à chaque prière, chaque jour, tandis que vous cheminez dans le monde, une lumière pour Dieu.
+
+Que Dieu vous bénisse, mes chers amis. Je suis Barbara. Je suis honorée de vous parler aujourd’hui des voies de l’amour, de sa puissance, de sa beauté. Que Dieu vous bénisse. Je vous aime. Que Dieu vous bénisse.
+
+**Eileen** : Je suis heureuse que notre amie Barbara ait parlé du respect de la nature et de la Terre. C’est très important en ce moment. La Terre est menacée. Elle est en déséquilibre. Je vous exhorte à prier pour le soutien et la guérison de la Terre Mère, car chacun de vous peut être un canal pour cela, et pour bien d’autres choses encore. Considérez votre rôle, la puissance de votre âme en harmonie avec Dieu, en relation avec votre Créateur. En accomplissant cette destinée d’être avec Dieu, utilisez les dons qui vous sont donnés, le canal créé, le portail d’amour et de lumière que vous êtes pour le monde.
+
+Merci de m’avoir écoutée. Je suis Eileen Caddy. Alors que vous grandissez dans l’Amour du Père, que ce portail grandisse. Qu’il soit puissant et beau, un agent de guérison pour le monde. Que Dieu vous bénisse, mes amis. Que Dieu vous bénisse.
