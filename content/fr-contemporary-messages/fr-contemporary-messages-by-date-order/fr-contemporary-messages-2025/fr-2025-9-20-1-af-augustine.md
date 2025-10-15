@@ -1,0 +1,33 @@
+---
+title: "La puissance de l'Amour Divin"
+menu_title: ""
+description: "La puissance de l'Amour Divin"
+date: 2023-09-01 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### La puissance pouvoir de l'Amour Divin
+
+Augustin - reçu par Albert Fike - le 20 Septembre 2025, Fontainebleau, France
+
+Que Dieu vous bénisse, chers étudiants. Je suis votre enseignant, Augustin. Sur le plan terrestre et dans vos cultures particulières, ce que vous appelez le monde occidental, les individus suivent souvent des modèles de comportement et de développement qui reflètent ce que vous appelleriez le développement naturel de l'amour. Lorsqu'un individu aspire à la nourriture spirituelle, à la nourriture et à la vérité, il a tendance à découvrir ces vérités à travers les écrits, les livres et les conversations. Et ce monde regorge d'informations, une quantité considérable d'informations circulant dans l'air. Non seulement des informations transmises par les fils, mais aussi des informations qui font partie des machinations mentales de l'humanité et qui sont transmises par la pensée. Et il existe de très nombreuses façons de partager des informations entre nous. Ces informations relèvent de la communication consciente. Même les images et les photos présentées sont conçues pour stimuler l'esprit. Rares sont celles qui reflètent véritablement l'intention de l'âme dans la communication. Ce sont des bribes de messages ici et là, transmis dans le monde, destinés à éveiller des désirs, des pensées et des aspirations plus profonds dans l'âme. Il est donc compréhensible que l'individu entame son cheminement spirituel par des moyens verbaux. C'est ainsi que fonctionne votre monde. Et rares sont ceux qui ne s'y engagent pas de cette manière. Nous communiquons d'âme à âme, de cœur à cœur.
+
+C'est toujours le fondement de nos communications. Nous nous efforçons donc de toucher l'individu au plus profond de son âme et de favoriser cette communication, cette prise de conscience qui jaillit dans l'esprit.
+
+Souvent, elle est si déformée et malvenue que la communication est perdue. Mais nous persistons, nous poursuivons cet effort. Et parmi les milliers et les millions de personnes avec lesquelles nous sommes en contact sur terre, un très faible pourcentage est réellement conscient de ces communications, de ce rapport établi. Pourtant, le monde a grand besoin de ce que nous avons à offrir, de ce que Dieu a à offrir. C'est pourquoi nous persistons, nous continuons et nous sommes très heureux d'avoir parmi nous des âmes ouvertes, prêtes à écouter, à ressentir et à reconnaître les incitations de leur âme. Ceci marque le début d'un plan de grande envergure dans votre région du monde. Il commence par vous, mes chers amis.
+
+Regardez autour de vous et dites-vous : je ne suis personne de spécial. Je ne suis ni un individu, ni un grand leader, ni un orateur. Je n'ai pas les dons pour convaincre les autres. Et pourtant, à mesure que vous grandissez intérieurement, que l'Amour Divin pénètre en vous et éveille vos dons, vous seriez très surpris de ce qui pourrait advenir, de ce qui pourrait se manifester. Cet instrument a commencé sa vie enveloppé d'une carapace de peur et de timidité, et manquait cruellement d'expression pour exprimer ses sentiments et ses pensées. Et pourtant, regardez-le aujourd'hui ce qu'il exprime avec confiance, avec clarté. C'est la puissance de l'Amour Divin qui ouvre les dons qui sont en lui, les dons que Dieu a déposés en lui. Et il a fallu de nombreuses années pour que cela se produise. Pourtant, il existe une manifestation d'une âme douée qui a fait de grands efforts pour venir à vous parler, inspirer et être l'instrument de Dieu. Et Dieu a fourni les moyens pour que cela se produise. Et il peut en être ainsi pour vous, âmes bien-aimées. Il peut en être ainsi pour chacun de vous. Car chacun de vous possède en lui des secrets, de nombreux talents et dons inexplorés et non écrits.
+
+Si vous poursuivez la voie de l'Amour Divin et grandissez en lui, il est inévitable que ces dons se manifestent. Et ils se manifesteront de manières surprenantes. Mais Dieu a mis en chacun de vous la capacité d'être un enseignant, un guérisseur, une lumière, un canal d'amour pour l'humanité. Notre désir profond et notre quête sont de vous aider à vous éveiller à ces trésors cachés en vous, de vous aider à trouver votre voie en tant qu'instrument de Dieu, de vous aider à aider les autres. Car le temps approche où les besoins seront grands, de grandes opportunités viendront avec ces besoins et des conditions qui se manifesteront sur terre. Dieu abandonnera-t-il ses enfants ? Non, jamais. Vous abandonnerons-nous ? Non, jamais.
+
+Mais nous persistons à espérer que vous n'abandonnerez pas vos frères et sœurs, que vous développerez et manifesterez vos dons, non seulement pour votre bien personnel, mais aussi pour celui de l'humanité. Agi sans individus sur la Terre, planifiant d'être des serviteurs de Dieu, des canaux d'amour. Nous sommes donc avec vous, âmes bien-aimées. Chacun de vous a un grand espoir et une grande foi que vous répondrez à l'appel que Dieu adresse à tous ses merveilleux enfants, ses instruments de lumière, d'amour et de vérité, pour qu'ils s'expriment et deviennent d'humbles serviteurs de Dieu. Vous trouverez votre voie, mes chers amis, étudiants de la vérité, et vous découvrirez la merveille que Dieu a créée en vous.
+
+Les dons et les capacités qui sommeillent en vous, souvent latents, mais stimulés par le don de l'amour divin, réveillent votre âme, la transforment et font de vous quelqu'un qui pourrait vous surprendre, dont vous doutez de l'existence en vous, mais qui est bel et bien là.
+
+La graine attend de germer et devient l'arbre. Et l'arbre fait pousser ses branches, ces magnifiques dons, qui s'étendent au monde et protègent de nombreuses âmes qui ont besoin de répit, de vérité, de réconfort et d'amour. Vous serez ce bel arbre.
+
+Mes chers et magnifiques étudiants, vous germez, vous grandissez. Chaque jour, vous nourrissez et recherchez la nourriture qui vous aidera dans cette voie. Vous trouverez un grand épanouissement, une grande paix, une grande connaissance et compréhension, une grande sagesse.
+
+Une grande joie dans ces quêtes. Je vous le promets, mes chers et magnifiques frères et sœurs. Je vous y aiderai, comme beaucoup d'autres à vous épanouir pleinement et à exprimer ce qui est en vous. Car Dieu vous bénit abondamment afin que vous puissiez trouver votre voie et exprimer ces dons. Que Dieu vous bénisse, chers élèves. Votre enseignant, Augustin, vous aime tendrement et continue de cheminer avec vous. Que Dieu vous bénisse. Que Dieu vous bénisse tous dans son amour.
+

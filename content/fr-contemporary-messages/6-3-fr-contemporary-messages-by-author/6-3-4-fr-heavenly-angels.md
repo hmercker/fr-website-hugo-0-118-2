@@ -171,6 +171,7 @@ Michael Collier | [Vos désirs et attentes pour une bénédiction spéciale](/fr
 Michael Collier | [L’intensité de la prière nous rapproche de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-8-1-af-michael-collier/) | 8 Décembre 2023
 Michael Collier | [Chevauchez le pendule des bénédictions de Dieu vers la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-27-1-af-michael-collier/) | 27 Décembre 2024
 Michael Collier | [Autres vérités sur l'évolution](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-23-3-af-michael-collier/) | 23 Janvier 2025
+Michael Collier | [Bienvenue à la retraite de Harrow](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-3-1-af-michael-collier/) | 3 Septembre 2025
 Mylora | [Votre lumière est très attirante dans le monde spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-3-2-af-mylora/) | 3 Décembre 2019
 Mylora | [Je suis avec vous dans vos efforts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-2-3-af-mylora/) | 2 Octobre 2020
 Mylora | [Prier avec une intention et une motivation aimantes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-16-1-af-mylora/) | 16 Mai 2021

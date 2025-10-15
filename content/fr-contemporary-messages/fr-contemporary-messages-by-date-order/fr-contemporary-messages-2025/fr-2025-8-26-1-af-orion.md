@@ -9,7 +9,7 @@ weight:
 ---
 ### Élévation au-delà de la conscience de l'esprit matériel
 
-Orion -  reçu par Albert Fike - le 26 Août 2025, Sechelt, Colombie-Britannique, Canada.
+Orion - reçu par Albert Fike - le 26 Août 2025, Sechelt, Colombie-Britannique, Canada.
 
 Salutations et bénédictions à vous, mes chers amis. Je suis Orion. Oh, comme l’esprit matériel est vénéré dans votre monde, en particulier en Occident ! Cette vénération a commencé il y a des siècles en Europe et au Moyen-Orient et a depuis fait le tour du monde, où l’idée de conscience a été explorée par des philosophes et des sages. Ainsi, elle a favorisé le développement de l’esprit matériel et de ce que vous appelez l’ego, vers la conscience matérielle. Vous avez développé un vocabulaire étendu ; vous avez de nombreuses définitions et idées sur le monde matériel. Vos scientifiques l’ont exploré en profondeur. Vos philosophes explorent en profondeur les notions de l’esprit. Vos universitaires et vos éducateurs enseignent la philosophie et les idées qui ont évolué au fil des ans. Ainsi, dans l’esprit des hommes, le monde a été clairement défini, et la conscience humaine suit ces définitions avec beaucoup plus de précision que ce que permet la conscience dont dispose l’humanité.
 

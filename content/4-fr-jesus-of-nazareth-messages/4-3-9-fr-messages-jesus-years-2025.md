@@ -52,4 +52,8 @@ Jésus | [L'Amour de Dieu vous met au service de l'humanité](/fr-contemporary-m
 Jésus | [Bienvenue au Grand Hall de la Paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-8-2-af-jesus/) | 8 Juillet 2025
 Jésus | [Écouter la petite voix douce de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-14-1-jw-jesus/) | 14 Juillet 2025
 Jésus | [Unis dans la prière, transformés par l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-3-1-af-jesus/) | 3 Août 2025
-Jésus | [Ouvrez grand vos âmes pour recevoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-18-1-af-jesus/) | 18 Août 2025
+Jésus | [Ouvrez grand vos âmes pour recevoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-18-2-af-jesus/) | 18 Août 2025
+Jésus | [Nous sommes tous enfants de Dieu et son amour est accessible à tous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-6-1-af-jesus/) | 6 Septembre 2025
+Jésus | [La flamme de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-20-3-af-jesus/) | 20 Septembre 2025
+Jésus | [L'Amour de Dieu est la clé de toutes choses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-21-1-af-jesus/) | 21 Septembre 2025
+Jean le Bien Aimé et Jésus | [Message d'ouverture de la retraite de Fontainebleau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-18-2-af-john-the-beloved-and-jesus/) | 18 Septembre 2025

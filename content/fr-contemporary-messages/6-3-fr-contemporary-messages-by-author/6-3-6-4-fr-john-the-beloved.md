@@ -48,3 +48,4 @@ Jean le Bien Aimé | [Les amis de Marmora cherchent. Aimez-les. Priez pour eux](
 Jean le Bien Aimé et Jésus | [Bénédiction de Dieu délivrée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-26-5-af-john-the-beloved-and-jesus/) | 26 Janvier 2025
 Jean le Bien Aimé | [Engagement de l'Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-26-2-jw-john-the-beloved/) | 26 Mars 2025 
 Jean le Bien Aimé | [Avec des larmes de joie, le travail du maître se poursuit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-20-3-af-john-the-beloved/) | 20 Avril 2025
+Jean le Bien Aimé et Jésus | [Message d'ouverture de la retraite de Fontainebleau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-18-2-af-john-the-beloved-and-jesus/) | 18 Septembre 2025

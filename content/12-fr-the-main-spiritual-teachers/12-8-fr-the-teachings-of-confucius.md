@@ -108,4 +108,6 @@ Confucius | [Vous avez un grand potentiel](/fr-contemporary-messages/fr-contempo
 Confucius | [Bénédiction pour la tribu Trini ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-2-1-af-confucius/) | 2 Février 2025 
 Confucius | [Louanges aux Enfants de Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-13-1-af-confucius/) | 13 Avril 2025 
 Confucius | [Soyez fidèles aux aspirations de votre âme et profitez pleinement de ce temps passé ensemble ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-4-1-af-confucius/) | 4 Mai 2025 
+Confucius | [Chaque âme est aimée de la même façon par Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-19-2-af-confucius/) | 19 Septembre 2025
+Confucius | [Message de clôture de la retraite de Fontainebleau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-21-2-af-confucius/) | 21 Septembre 2025
 

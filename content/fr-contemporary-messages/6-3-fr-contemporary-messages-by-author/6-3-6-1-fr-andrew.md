@@ -159,3 +159,4 @@ André | [Bénédiction dans le Grand Hall de la Paix](/fr-contemporary-messages
 André et Goldie | [Conseils pour la réunion du conseil d'administration de la DLSF](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-10-2-af-andrew-goldie/) | 10 Mars 2025 
 André et Goldie | [Conseils pour Al et Jeanne avant leur départ pour la Californie ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-24-1-af-andew-et-goldie/) | 24 Avril 2025 
 Flavius Josèphe et André | [Le Pouvoir de la Prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-1-1-af-josephus-andrew/) | 1 Juin 2025
+André | [Vous ne mourrez pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-1-1-jw-andew/) | 1 Septembre 2025

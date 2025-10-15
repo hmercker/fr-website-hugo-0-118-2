@@ -60,6 +60,10 @@ Jeanne d'Arc | [Dites une petite prière pour chaque personne que vous rencontre
 Jeanne d'Arc | [Permettez à Dieu d'être connecté à vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-23-1-em-joan-of-arc/) | 23 Juin 2024
 Jeanne d'Arc | [Nous vous avons réunis dans un but précis, ne faites qu'un avec Dieu, ouvre et bénit la retraite de Lansing.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-6-2-em-joan-of-arc/) | 6 Septembre 2024
 Jeanne d'Arc | [La force de l'Amour Divin stabilise votre monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-21-1-af-joan-of-arc/) | 21 Février 2025
+Jeanne d'Arc | [Ayez de la compassion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-18-3-em-joan-of-arc/) | 18 Septembre 2025
+Jeanne d'Arc | [L'Amour de Dieu pour Ses Enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-19-4-em-joan-of-arc/) | 19 Septembre 2025
+Jeanne d’Arc | [Permettre à l’Amour de Dieu d’entrer dans nos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-21-3-em-joan-of-arc/) | 21 Septembre 2025
+Jeanne d’Arc | [Message de clôture de la retraite de Fontainebleau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-21-4-es-joan-of-arc/) | 21 Septembre 2025
 Jeanne d'arc, Marie et Keea Ata Kem | [Venez soutenir toutes les femmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-15-1-af-joan-of-arc-mary-keea-atta-kem/) | 15 Avril 2025 
 Augustin, Jeanne d'Arc, Jésus et Mathieu | [Guidance pour le Cercle de Lumière de l'Amour Divin francophone](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-20-2-af-augustine-joan-of-arc-jesus-and-matthew/) | 20 Décembre 2024
 Jeannette Rankin | [L’image que se fait d’elle-même une politicienne américaine – 1](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-7-16-1-fab-jeannette-rankin/) | 16 Juillet 2009
@@ -79,6 +83,7 @@ La princesse Diana Windsor | [Vous connaissez cet amour](/fr-contemporary-messag
 Le roi Arthur | [Un roi légendaire - le roi Arthur - est réel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-2-1-1-fab-king-arthur/) | 1 Février 2009
 Louis XIV | [Le malheur de Louis XIV](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-7-12-1-fab-louis-xiv/) | 12 Juillet 2005
 Louis XIV | [Il y a tant de choses à dire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-19-5-af-louis-xiv/) | 19 Novembre 2017
+Louis XIV | [La voie vers le réveil](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-18-4-af-louis-xiv/) | 18 Septembre 2025
 Mahatma Gandhi | [Ayez foi en nous, amis bien-aimés de la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1963/fr-1-1958-anonymous-mahatma-gandhi/) | 11 Mai 1958
 Mahatma Gandhi | [Priez pour mon peuple](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-29-1969-10-13-anonymous-mahatma-gandhi/) | 13 Octobre 1969
 Mahatma Gandhi | [Instructions sur la Voix Directe_2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-31-1969-10-27-anonymous-mahatma-gandhi/) | 27 Octobre 1969
@@ -143,6 +148,7 @@ Robert Kennedy | [Plus sur Robert Kennedy](/fr-contemporary-messages/fr-contempo
 Robert Kennedy | [Plus sur Robert Kennedy - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-7-2-fab-robert-kennedy/) | 7 Décembre 2009
 Robert Kennedy | [Plus sur Robert Kennedy - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-8-1-fab-robert-kennedy/) | 8 Décembre 2009
 Robert Kennedy | [Plus sur Robert Kennedy - 4](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-8-2-fab-robert-kennedy/) | 8 Décembre 2009
+Robespierre | [Il y a une division dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-19-3-af-robespierre/) | 19 Septembre 2025
 Roger Williams | [La liberté dans l’Amérique coloniale et dans le futur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-6-15-2-fab-roger-williams/) | 15 Juin 2006
 Roger Williams | [Un dissident colonial](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-23-1-fab-roger-williams/) | 23 Mars 2008
 Roi George I | [Un roi anglais est maintenant heureux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-11-25-2-fab-king-george-i/) | 25 Novembre 2007

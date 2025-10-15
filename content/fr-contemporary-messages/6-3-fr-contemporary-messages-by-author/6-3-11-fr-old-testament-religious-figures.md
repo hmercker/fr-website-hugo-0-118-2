@@ -57,8 +57,10 @@ Isaïe | [La puissante essence de Dieu sera donnée à chacun de vous avec force
 Isaïe | [Une puissante leçon sur la prise de responsabilité pour la progression de notre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-8-2-af-isaiah/) | 8 Juillet 2024
 Isaïe | [Guerriers de la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-9-1-af-isaiah/) | 9 Septembre 2024
 Isaie | [Une leçon d'humilité et des conseils pour éviter les pièges](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-29-1-af-isaiah/) | 29 Janvier 2025 
+Isaïe | [Venez connaître la vérité, la puissance et la gloire de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-6-2-af-isaïe/) | 6 Septembre 2025
 Jacob | [La foi de Jacob en Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-4-1-fab-jacob/) | 4 Février 2003
 Jacob | [Sur la Foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-6-1-hm-jacob/) | 6 Mai 2020
+Jacob | [L'Onction de votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-19-1-af-jacob/) | 19 Septembre 2025
 Jérémie | [Indignation vertueuse_3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-5-16-2-fab-jeremiah/) | 16 Mai 2008
 Jérémie et Salomon | [Donnez de votre Essence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-4-10-1-cc-jeremiah-soloman/) | 10 Avril 2004
 Jérémie et Salomon | [Allez à l'intérieur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-7-9-1-cc-jeremiah-soloman/) | 9 Juillet 2004

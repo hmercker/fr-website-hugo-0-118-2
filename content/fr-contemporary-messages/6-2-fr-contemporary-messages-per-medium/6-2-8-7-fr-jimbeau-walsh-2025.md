@@ -70,5 +70,17 @@ St Luc | [Priez sans cesse](/fr-contemporary-messages/fr-contemporary-messages-b
 Judas | [Servir tous dans l'Amour Divin et l'amour naturel, et s'entraider au sein de la communauté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-11-1-jw-judas/) | 11 Août 2025
 Lao Tseu | [Vous avez abordé le sujet de l'immortalité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-18-1-jw-lao-tzu/) | 18 Août 2025
 Care Darby Walsh | [Lâcher prise](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-25-1-jw-care-darby-walsh/) | 25 Août 2025 
+André | [Vous ne mourrez pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-1-1-jw-andew/) | 1 Septembre 2025
+James Padgett | [L'humilité est la clé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-7-1-jw-james-padgett/) | 7 Septembre 2025
+Arthur Conan Doyle | [Prier, c'est élémentaire !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-9-1-jw-arthur-conan-doyle/) | 9 Septembre 2025
+Care Darby Walsh | [Perdre l'esprit et être dans le coeur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-12--jw-care-darby-walsh/) | 12 Septembre 2025
+Yogananda | [Les yogas de l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-13--jw-yogananda/) | 13 Septembre 2025
+Yogananda et Care | [Que votre guidance soit Céleste plutôt que terrestre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-21-5-jw-yogananda-et-care/) | 21 Septembre 2025
+Care Darby Walsh | [Envisagez d'être occupé dans la prière ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-22-1-jw-care-darby-walsh/) | 22 Septembre 2025
+Judas | [Que la bénédiction de l'Amour de Dieu soit en ce lieu et touche chaque âme qui y entre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-23-1-jw-judas/) | 23 Septembre 2025
+Care Darby Walsh | [Les sanctuaires prospéreront si leurs fondations sont bâties sur l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-26-1-jw-care-darby-walsh/) | 26 Septembre 2025
+Eileen Caddy et François d'Assise | [Créer un sanctuaire commence par un petit pas.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-27-1-jw-eileen-caddy-and-francis-of-assisi/) | 27 Septembre 2025
+Paul | [La prière profonde crée un magnétisme qui attire chaque âme à Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-28-1-jw-paul/) | 28 Septembre 2025
+
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

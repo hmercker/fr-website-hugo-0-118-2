@@ -9,7 +9,7 @@ weight:
 ---
 ### Jours ensoleillés en vous : Vivre dans l’Amour de Dieu
 
-Goldie - le 27 Août 2025, Sechelt, Colombie-Britannique, Canada.
+Goldie - reçu par Albert Fike - le 27 Août 2025, Sechelt, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, mes amis. Je suis Goldie. Dieu désire des jours ensoleillés pour vous chaque jour. Même si les nuages ​​s’accumulent et que la pluie tombe sur votre cœur, vous pouvez avoir une journée ensoleillée, une journée de joie, une journée qui consacre votre belle âme à l’Amour de Dieu et à l’exprimer de toutes les manières possibles. Tous les beaux dons que vous possédez, toute la belle Lumière que vous pouvez donner. Dieu vous en donnera toujours plus. Ce qu’il peut vous donner est infini. Laissez-Le vous donner tout ce qu’il est possible de vous donner.
 

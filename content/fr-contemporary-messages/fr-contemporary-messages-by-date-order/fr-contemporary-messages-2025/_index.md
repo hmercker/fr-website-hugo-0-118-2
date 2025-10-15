@@ -330,17 +330,70 @@ Jésus | [L'Amour de Dieu vous met au service de l'humanité](/fr-contemporary-m
 St Luc | [Médecine spirituelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-7-1-jw-st-luke/) | 7 Juillet 2025
 Orion | [Priez pour la Conscience de l'Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-8-1-af-orion/) | 8 Juillet 2025
 Jésus | [Bienvenue au Grand Hall de la Paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-8-2-af-jesus/) | 8 Juillet 2025
+Yogananda | [Le Yoga d'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-8-3-af-yogananda/) | 8 Juillet 2025 
 Marie | [La guérison par la grâce et le toucher bienveillant de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-11-1-af-mary/) | 11 Juillet 2025
+Seretta Kem | [La chimie et l'alignement nécessaires pour libérer les incrustations de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-12-1-af-seretta-kem/) | 12 Juillet 2025 
+Orion | [La Métamorphose de l'Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-12-2-af-orion/) | 12 Juillet 2025 
 Eileen Caddy | [Tendre la main à tous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-13-1-jw-eileen-caddy/) | 13 Juillet 2025
+Barbara et Eileen Caddy | [Expressions d'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-13-2-af-barbara-and-eileen-caddy/) | 13 Juillet 2025 
 Jésus | [Écouter la petite voix douce de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-14-1-jw-jesus/) | 14 Juillet 2025
+Orion | [Mettez vos doutes de côté et préparez-vous à ce qui vient !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-15-1-af-orion/) | 15 Juillet 2025 
+Moïse | [Gardez vos prières simples](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-18-1-af-moses/) | 18 Juillet 2025 
 Care Darby Walsh | [L'Engagement de l'Âme avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-21-1-jw-care-darby-walsh/) | 21 Juillet 2025
+Orion | [Prévient les participants à l’expression de la Voix Directe de ce qui les attend](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-22-1-af-orion/) | 22 Juillet 2025 
+Mylora | [Il existe de nombreuses façons de servir comme Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-22-2-af-mylora/) | 22 Juillet 2025 
+Seretta Kem | [Guidance pour le chemin le moins fréquenté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-26-1-af-seretta-kem/) | 26 Juillet 2025 
+Orion | [L'Amour de Dieu imprègne l'Univers](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-27-1-af-orion/) | 27 Juillet 2025 
 Judas | [Vos choix attirent à vous des esprits qui vivent et vibrent au même niveau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-28-1-jw-judas/) | 28 Juillet 2025 
+Keea Atta Kem | [Aimez-vous pour aimer le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-29-1-af-keea-atta-kem/) | 29 Juillet 2025
+Faith Nyquist | [Un appel à retrouver l'équilibre avec la création divine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-1-1-af-faith-nyquist/) | 1 Août 2025
+Orion | [Êtes-vous prêts à servir ? Le temps de choisir est maintenant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-2-1-af-orion/) | 2 Août 2025
+Jésus | [Unis dans la prière, transformés par l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-3-1-af-jesus/) | 3 Août 2025
 Care Darby Walsh | [Le monde du regret](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-4-1-jw-care-darby-walsh/) | 4 Août 2025
+Augustin | [Leçon sur le libre arbitre sur Terre et dans l'Esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-5-1-af-augustine/) | 5 Août 2025
 Claire d'Assise | [Inquiétude et préoccupations](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-7-1-jw-clare-of-assisi/) | 7 Août 2025
 St Luc | [Priez sans cesse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-10-1-jw-st-luke/) | 10 Août 2025 
 Judas | [Servir tous dans l'Amour Divin et l'amour naturel, et s'entraider au sein de la communauté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-11-1-jw-judas/) | 11 Août 2025
+Marie | [Vous êtes les messagers de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-15-1-af-mary/) | 15 Août 2025
 Lao Tseu | [Vous avez abordé le sujet de l'immortalité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-18-1-jw-lao-tzu/) | 18 Août 2025
+Jésus | [Ouvrez grand vos âmes pour recevoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-18-2-af-jesus/) | 18 Août 2025
 Care Darby Walsh | [Lâcher prise](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-25-1-jw-care-darby-walsh/) | 25 Août 2025
+Orion | [Élévation au-delà de la conscience de l'esprit matériel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-26-1-af-orion/) | 26 Août 2025
+Goldie | [Jours ensoleillés en vous : Vivre dans l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-27-1-af-goldie/) | 27 Août 2025 
+André | [Vous ne mourrez pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-1-1-jw-andew/) | 1 Septembre 2025
+Michael Collier | [Bienvenue à la retraite de Harrow](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-3-1-af-michael-collier/) | 3 Septembre 2025
+Jésus | [Nous sommes tous enfants de Dieu et son amour est accessible à tous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-6-1-af-jesus/) | 6 Septembre 2025
+Isaïe | [Venez connaître la vérité, la puissance et la gloire de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-6-2-af-isaïe/) | 6 Septembre 2025
+James Padgett | [L'humilité est la clé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-7-1-jw-james-padgett/) | 7 Septembre 2025
+Arthur Conan Doyle | [Prier, c'est élémentaire !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-9-1-jw-arthur-conan-doyle/) | 9 Septembre 2025
+Care Darby Walsh | [Perdre l'esprit et être dans le coeur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-12--jw-care-darby-walsh/) | 12 Septembre 2025
+Yogananda | [Les yogas de l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-13--jw-yogananda/) | 13 Septembre 2025
+Marie | [Nous cherchons à servir Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-18-1-af-mary/) | 18 Septembre 2025
+Marie | [Nous cherchons à servir Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-18-1-af-mary/) | 18 Septembre 2025
+Jean le Bien Aimé et Jésus | [Message d'ouverture de la retraite de Fontainebleau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-18-2-af-john-the-beloved-and-jesus/) | 18 Septembre 2025
+Jeanne d'Arc | [Ayez de la compassion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-18-3-em-joan-of-arc/) | 18 Septembre 2025
+Louis XIV | [La voie vers le réveil](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-18-4-af-louis-xiv/) | 18 Septembre 2025
+Jacob | [L'Onction de votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-19-1-af-jacob/) | 19 Septembre 2025
+Confucius | [Chaque âme est aimée de la même façon par Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-19-2-af-confucius/) | 19 Septembre 2025
+Robespierre | [Il y a une division dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-19-3-af-robespierre/) | 19 Septembre 2025
+Jeanne d'Arc | [L'Amour de Dieu pour Ses Enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-19-4-em-joan-of-arc/) | 19 Septembre 2025
+Augustin  | [Le pouvoir de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-20-1-af-augustine/) | 20 Septembre 2025
+Anonyme | [La Nouvelle Naissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-20-2-es-anonymous/) | 20 Septembre 2025
+Jésus | [La flamme de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-20-3-af-jesus/) | 20 Septembre 2025
+Jésus | [L'Amour de Dieu est la clé de toutes choses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-21-1-af-jesus/) | 21 Septembre 2025
+Confucius | [Message de clôture de la retraite de Fontainebleau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-21-2-af-confucius/) | 21 Septembre 2025
+Jeanne d’Arc | [Permettre à l’Amour de Dieu d’entrer dans nos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-21-3-af-joan-of-arc/) | 21 Septembre 2025
+Jeanne d’Arc | [Message de clôture de la retraite de Fontainebleau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-21-4-es-joan-of-arc/) | 21 Septembre 2025
+Yogananda et Care | [Que votre guidance soit Céleste plutôt que terrestre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-21-5-jw-yogananda-et-care/) | 21 Septembre 2025
+Care Darby Walsh | [Envisagez d'être occupé dans la prière ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-22-1-jw-care-darby-walsh/) | 22 Septembre 2025
+Judas | [Que la bénédiction de l'Amour de Dieu soit en ce lieu et touche chaque âme qui y entre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-23-1-jw-judas/) | 23 Septembre 2025
+Care Darby Walsh | [Les sanctuaires prospéreront si leurs fondations sont bâties sur l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-26-1-jw-care-darby-walsh/) | 26 Septembre 2025
+Eileen Caddy et François d'Assise | [Créer un sanctuaire commence par un petit pas.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-27-1-jw-eileen-caddy-and-francis-of-assisi/) | 27 Septembre 2025
+
+Paul | [La prière profonde crée un magnétisme qui attire chaque âme à Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-28-1-jw-paul/) | 28 Septembre 2025
+
+
+
 
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

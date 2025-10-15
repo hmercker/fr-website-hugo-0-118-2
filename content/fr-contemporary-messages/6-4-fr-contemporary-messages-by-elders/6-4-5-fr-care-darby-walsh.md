@@ -104,6 +104,9 @@ Care Darby Walsh | [Ne jamais présumer de ses limites](/fr-contemporary-message
 Care Darby Walsh | [L'Engagement de l'Âme avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-21-1-jw-care-darby-walsh/) | 21 Juillet 2025
 Care Darby Walsh | [Le monde du regret](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-4-1-jw-care-darby-walsh/) | 4 Août 2025
 Care Darby Walsh | [Lâcher prise](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-25-1-jw-care-darby-walsh/) | 25 Août 2025
+Care Darby Walsh | [Perdre l'esprit et être dans le coeur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-12--jw-care-darby-walsh/) | 12 Septembre 2025
+Care Darby Walsh | [Envisagez d'être occupé dans la prière ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-22-1-jw-care-darby-walsh/) | 22 Septembre 2025
+Care Darby Walsh | [Les sanctuaires prospéreront si leurs fondations sont bâties sur l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-26-1-jw-care-darby-walsh/) | 26 Septembre 2025
 
 
 

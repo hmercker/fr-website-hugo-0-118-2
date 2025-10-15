@@ -121,7 +121,8 @@ Jésus | [L'Amour de Dieu est universel et inclut la Miséricorde, le Pardon et 
 St Matthieu | [Bienvenue à Victoria et remercie les nombreuses prières pour l'Amour Divin de cette magnifique ville](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-8-2-em-st-matthew/) | 8 Mai 2025
 Marie | [Vous serez bercés dans nos bras pendant que nous vous ramènerons chez vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-8-4-em-mary/) | 8 Mai 2025
 Jean le Bien Aimé | [Vos âmes ont soif de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-30-2-em-john-the-beloved/) | 30 Mai 2025
-
-
+Jeanne d'Arc | [Ayez de la compassion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-18-3-em-joan-of-arc/) | 18 Septembre 2025
+Jeanne d'Arc | [L'Amour de Dieu pour Ses Enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-19-4-em-joan-of-arc/) | 19 Septembre 2025
+Jeanne d’Arc | [Permettre à l’Amour de Dieu d’entrer dans nos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-21-3-em-joan-of-arc/) | 21 Septembre 2025
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

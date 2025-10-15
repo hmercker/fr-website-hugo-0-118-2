@@ -28,3 +28,12 @@ Pendant que vous parcourez ce chemin, alors que vous devenez votre véritable mo
 Vous avancez sur ce chemin, hésitant et parfois méfiant, parfois glorieux dans votre acceptation. Mais vous devez continuer à marcher régulièrement. Ne rétractez pas vos pas mais marchez dans l’amour et la foi, dans le désir et l’empressement d’être dans la vérité, d’être dans votre relation avec votre Créateur, si unique, si profonde et si puissante. Cela grandit dans votre âme. Vous devez grandir dans votre reconnaissance, votre acceptation et votre conscience de votre âme. De cette façon, toutes ces choses que vous désirez, toutes ces ambitions naissantes en vous grandiront effectivement.
 
 Comme l’a expliqué ce cher instrument, l’arbre a de nombreuses branches. Lorsque vous acceptez l’arbre unique, la forme unique dans laquelle Dieu vous a créé, alors tout s’épanouira et tout grandira en beauté et en lumière, glorieux dans la création de Dieu, une véritable expression de Dieu, dans tous vos attributs et dans tout l’amour possible, dans toute la lumière qui est la création de Dieu en vous. Que Dieu vous bénisse mes amis. Je suis Lao Tseu. Merci de m’avoir écouté et ma petite leçon pour vous. Mon amour est avec vous. Que Dieu vous bénisse. Que Dieu vous bénisse tous. Mon amour est avec vous. Merci.
+<small>
+
+1. <large id="f1"> Lao Tseu s’était exprimé précédemment lors des messages suivants : [↩](#a1)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Lao Tseu | [À la pointe du changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-15-2-af-lao-tzu/) | 15 Novembre 2017
+Lao Tseu | [Le grand potentiel de l'âme doit être découvert par tous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-13-5-af-lao-tzu/) | 13 Mars 2020
+Lao Tseu | [La voie Divine est différente de la voie naturelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-8-1-af-lao-tzu/) | 8 Juin 2021

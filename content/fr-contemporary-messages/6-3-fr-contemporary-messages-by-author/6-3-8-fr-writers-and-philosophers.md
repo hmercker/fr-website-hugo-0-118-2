@@ -25,6 +25,7 @@ Aristote | [L’âme a une capacité bien supérieure à celle de l’esprit mat
 Arthur Conan Doyle | [J'ai ressenti la grâce de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-15-1-jw-arthur-conan-doyle/) | 15 Décembre 2019
 Arthur Conan Doyle | [Deux spiritualistes britanniques sont sur le chemin de l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-7-18-1-jw-arthur-conan-doyle/) | 18 Juillet 2020
 Arthur Conan Doyle | [Il y a beaucoup de travail à faire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-22-1-jw-arthur-conan-doyle/) | 22 Octobre 2021
+Arthur Conan Doyle | [Prier, c'est élémentaire !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-9-1-jw-arthur-conan-doyle/) | 9 Septembre 2025
 Bertrand Russell | [La simplicité de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-24-2-af-bertrand-russell/) | 24 Novembre 2017
 Bram Stoker | [L'auteur de Dracula a changé ses croyances](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-11-1-fab-bram-stoker/) | 11 Août 2008
 Carl Jung | [L'expérience de Jung](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-29-1-fab-carl-jung/) | 29 Mai 2009
