@@ -5253,7 +5253,12 @@ select.form-control-lg:not([size]):not([multiple]), .input-group-lg > select.for
 #search form {
   margin: 0; }
 
-/* Custom Search Submit Button */
+/* Hide Submit text initially */
+#search input[type="submit"] {
+  visibility: hidden;
+  /* Hide the Submit button text */ }
+
+/* Custom Submit Button */
 #search input[type="submit"].custom-submit-button {
   float: right;
   /* Aligns the button to the right */
@@ -5268,7 +5273,9 @@ select.form-control-lg:not([size]):not([multiple]), .input-group-lg > select.for
   background: url(../images/ico-search.png) no-repeat center center;
   /* Custom search icon */
   background-size: contain;
-  /* Ensures the icon fits inside the button */ }
+  /* Ensures the icon fits inside the button */
+  visibility: visible;
+  /* Ensure the button is visible once the styles are loaded */ }
 
 /* Hover effect for the search button */
 #search input[type="submit"].custom-submit-button:hover {

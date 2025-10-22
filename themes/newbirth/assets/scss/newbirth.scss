@@ -57,7 +57,12 @@
     margin: 0;
 }
 
-/* Custom Search Submit Button */
+/* Hide Submit text initially */
+#search input[type="submit"] {
+    visibility: hidden; /* Hide the Submit button text */
+}
+
+/* Custom Submit Button */
 #search input[type="submit"].custom-submit-button {
     float: right; /* Aligns the button to the right */
     width: 30px; /* Set width of the button */
@@ -66,14 +71,13 @@
     cursor: pointer; /* Changes the cursor to a pointer on hover */
     background: url(../images/ico-search.png) no-repeat center center; /* Custom search icon */
     background-size: contain; /* Ensures the icon fits inside the button */
+    visibility: visible; /* Ensure the button is visible once the styles are loaded */
 }
 
 /* Hover effect for the search button */
 #search input[type="submit"].custom-submit-button:hover {
     background-color: rgba(0, 0, 0, 0.1); /* Optional hover effect */
 }
-
-
 
 #search label {
     float: right;
