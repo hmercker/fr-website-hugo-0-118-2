@@ -5263,8 +5263,8 @@ select.form-control-lg:not([size]):not([multiple]), .input-group-lg > select.for
   border: none;
   /* Removes the default border */
   cursor: pointer;
-  /* Changes the cursor to a pointer when hovered */
-  background: url(../images/ico-search.png) 0 0 no-repeat;
+  /* Changes the cursor to a pointer on hover */
+  background: url(../images/ico-search.png) no-repeat center center;
   /* Adds the search icon as the background */
   background-size: contain;
   /* Ensures the icon fits inside the button */ }
