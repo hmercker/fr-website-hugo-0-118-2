@@ -38,3 +38,6 @@ delimiter = ""
     meta_og_image = "https:///www.lanouvelleverite.fr/images/social.png"
     meta_og_description = ""
     meta_og_site_name = "Le chemin vers la vérité de l'amour éternel"
+
+[build]
+minify = true
