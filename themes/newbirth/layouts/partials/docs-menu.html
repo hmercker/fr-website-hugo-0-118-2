@@ -10,7 +10,7 @@
 {{ with .sect }}
 {{ if .IsSection }}
 <li class="section{{ if .IsAncestor $currentNode }} active-trail{{ end }}">
-  <a href="{{ .URL }}"><span>{{ .Title | truncate 50 }}</span></a>
+  <a href="{{ .Permalink }}"><span>{{ .Title | truncate 50 }}</span></a>
 
   <div class="dropdown">
     <ul>
@@ -33,11 +33,11 @@
   </div>
 </li>
 {{- else -}}
-<li class="{{ if eq .UniqueID $currentNode.UniqueID }}active{{ end }}">
-  <a href="{{ .URL }}"><span>{{ .Title | truncate 45 }}</span></a>
+<li class="{{ if eq .Permalink $currentNode.Permalink }}active{{ end }}">
+  <a href="{{ .Permalink }}"><span>{{ .Title | truncate 45 }}</span></a>
 </li>
 {{ end -}}
 
+{{ end }}
+{{ end }}
 
-{{ end }}
-{{ end }}
