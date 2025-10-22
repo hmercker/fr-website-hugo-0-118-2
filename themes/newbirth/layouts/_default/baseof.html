@@ -29,22 +29,24 @@
 <!-- Header -->
 <header id="header">
   <!-- Search -->
-  <div id="search">
-    <form action="https://search.freefind.com/find.html" method="GET">
-      <input type="hidden" name="lang" value="fr">
-      <input type="hidden" name="id" value="3307454">
-      <input type="hidden" name="id2" value="2911983">
-      <input type="hidden" name="pid" value="r">
-      <input type="hidden" name="mode" value="ALL">
-      <input type="hidden" name="n" value="0">
-      
-      <!-- Submit Button with Custom Icon -->
-      <input name="submit" type="submit" value="" class="custom-submit-button">
+<!-- Search Form -->
+<div id="search">
+  <form action="https://search.freefind.com/find.html" method="GET">
+    <input type="hidden" name="lang" value="fr">
+    <input type="hidden" name="id" value="3307454">
+    <input type="hidden" name="id2" value="2911983">
+    <input type="hidden" name="pid" value="r">
+    <input type="hidden" name="mode" value="ALL">
+    <input type="hidden" name="n" value="0">
 
-      <!-- Search Input Field -->
-      <label>recherche:<input name="query" type="text" placeholder="Recherche..."></label>
-    </form>
-  </div>
+    <!-- Ensure Submit Button has an Empty Value -->
+    <input type="submit" value="" class="custom-submit-button"> <!-- Empty value here -->
+
+    <!-- Search Input Field -->
+    <label>recherche:<input name="query" type="text" placeholder="Recherche..."></label>
+  </form>
+</div>
+
   <!-- /Search -->
 </header>
 <!-- /Header -->
