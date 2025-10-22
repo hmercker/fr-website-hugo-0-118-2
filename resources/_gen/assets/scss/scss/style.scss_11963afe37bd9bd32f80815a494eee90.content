@@ -5253,7 +5253,8 @@ select.form-control-lg:not([size]):not([multiple]), .input-group-lg > select.for
 #search form {
   margin: 0; }
 
-#search input[type="submit"] {
+/* Custom Search Submit Button */
+#search input[type="submit"].custom-submit-button {
   float: right;
   /* Aligns the button to the right */
   width: 30px;
@@ -5265,13 +5266,14 @@ select.form-control-lg:not([size]):not([multiple]), .input-group-lg > select.for
   cursor: pointer;
   /* Changes the cursor to a pointer on hover */
   background: url(../images/ico-search.png) no-repeat center center;
-  /* Adds the search icon as the background */
+  /* Custom search icon */
   background-size: contain;
   /* Ensures the icon fits inside the button */ }
 
-#search input[type="submit"]:hover {
+/* Hover effect for the search button */
+#search input[type="submit"].custom-submit-button:hover {
   background-color: rgba(0, 0, 0, 0.1);
-  /* Optional: add a hover effect */ }
+  /* Optional hover effect */ }
 
 #search label {
   float: right;
