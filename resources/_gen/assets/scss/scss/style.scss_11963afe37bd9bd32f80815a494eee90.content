@@ -5255,11 +5255,23 @@ select.form-control-lg:not([size]):not([multiple]), .input-group-lg > select.for
 
 #search input[type="submit"] {
   float: right;
+  /* Aligns the button to the right */
   width: 30px;
+  /* Set width of the button */
   height: 30px;
+  /* Set height of the button */
   border: none;
+  /* Removes the default border */
   cursor: pointer;
-  background: url(../images/ico-search.png) 0 0 no-repeat; }
+  /* Changes the cursor to a pointer when hovered */
+  background: url(../images/ico-search.png) 0 0 no-repeat;
+  /* Adds the search icon as the background */
+  background-size: contain;
+  /* Ensures the icon fits inside the button */ }
+
+#search input[type="submit"]:hover {
+  background-color: rgba(0, 0, 0, 0.1);
+  /* Optional: add a hover effect */ }
 
 #search label {
   float: right;
@@ -5883,11 +5895,11 @@ body {
   padding-left: 5px;
   padding-right: 5px; }
 
-.box .inputBox input:focus {
+.box inputBox input:focus {
   outline: none;
   border: 2px solid #1a73e8; }
 
-.box input[type="submit"] {
+.box .input[type="submit"] {
   border: none;
   outline: none;
   color: transparent;
