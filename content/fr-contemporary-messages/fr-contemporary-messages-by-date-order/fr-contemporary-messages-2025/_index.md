@@ -389,11 +389,6 @@ Care Darby Walsh | [Envisagez d'être occupé dans la prière ](/fr-contemporary
 Judas | [Que la bénédiction de l'Amour de Dieu soit en ce lieu et touche chaque âme qui y entre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-23-1-jw-judas/) | 23 Septembre 2025
 Care Darby Walsh | [Les sanctuaires prospéreront si leurs fondations sont bâties sur l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-26-1-jw-care-darby-walsh/) | 26 Septembre 2025
 Eileen Caddy et François d'Assise | [Créer un sanctuaire commence par un petit pas.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-27-1-jw-eileen-caddy-and-francis-of-assisi/) | 27 Septembre 2025
-
 Paul | [La prière profonde crée un magnétisme qui attire chaque âme à Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-28-1-jw-paul/) | 28 Septembre 2025
-
-
-
-
 
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)

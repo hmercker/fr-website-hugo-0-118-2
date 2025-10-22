@@ -41,3 +41,9 @@ delimiter = ""
 
 [build]
 minify = true
+
+[markup]
+  defaultMarkdownHandler = "goldmark"
+
+  [markup.goldmark.renderer]
+    unsafe = true   # Optional: Allow raw HTML (set this to false if you don’t need it)
