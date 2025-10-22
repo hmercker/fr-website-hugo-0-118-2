@@ -31,6 +31,4 @@ De nombreux sujets sont abordés, par exemple le sens des [paraboles de Jésus](
 
 Chacun est libre d’intégrer les vérités présentées dans sa vie, indépendamment de son origine culturelle ou de sa situation dans la vie. Que les pages qui suivent vous apportent une grande joie sur le chemin de votre âme, et la réalisation profonde que nous - chacun d’entre nous - sommes tendrement aimés.
 
-<p style="text-align: center;">
-<script type="text/javascript" src="//counter.websiteout.net/js/5/6/0/1"></script>
-</p>
+{{< visitor-counter >}}

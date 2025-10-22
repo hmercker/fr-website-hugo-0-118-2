@@ -1,14 +1,19 @@
 [build]
   publish = "public"
-  command = "hugo -b $URL"
+  command = "npx hugo-extended@0.118.2 --gc --minify"
+
+[build.environment]
+  HUGO_ENV = "production"
+  TZ = "UTC"
+
+[context.production.environment]
+  HUGO_VERSION = "0.118.2"
+  HUGO_EXTENDED = "true"
 
 [context.deploy-preview]
   command = "hugo -b $DEPLOY_URL"
 
 [context.deploy-preview.environment]
-  HUGO_VERSION = "0.118.2"
-
-[context.production.environment]
   HUGO_VERSION = "0.118.2"
 
 [context.branch-deploy]
@@ -17,3 +22,7 @@
 [context.branch-deploy.environment]
   HUGO_VERSION = "0.118.2"
 
+[[headers]]
+for = "/*"
+[headers.values]
+  Content-Security-Policy = "default-src 'self' https: data: 'unsafe-inline' 'unsafe-eval'; img-src * data: https:;"
