@@ -15,6 +15,9 @@ weight: 330
   </tr>
   <tr>
     <td style="text-align: center; vertical-align: middle; border: 1px solid #ccc; padding: 8px;">
+      <a href="/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/">2025</a>
+    </td>
+    <td style="text-align: center; vertical-align: middle; border: 1px solid #ccc; padding: 8px;">
       <a href="/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/">2025</a>
     </td>
     <td style="text-align: center; vertical-align: middle; border: 1px solid #ccc; padding: 8px;">
@@ -26,11 +29,12 @@ weight: 330
     <td style="text-align: center; vertical-align: middle; border: 1px solid #ccc; padding: 8px;">
       <a href="/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/">2022</a>
     </td>
+
+  </tr>
+  <tr>
     <td style="text-align: center; vertical-align: middle; border: 1px solid #ccc; padding: 8px;">
       <a href="/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/">2021</a>
     </td>
-  </tr>
-  <tr>
     <td style="text-align: center; vertical-align: middle; border: 1px solid #ccc; padding: 8px;">
       <a href="/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/">2020</a>
     </td>
@@ -43,11 +47,12 @@ weight: 330
     <td style="text-align: center; vertical-align: middle; border: 1px solid #ccc; padding: 8px;">
       <a href="/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/">2017</a>
     </td>
+
+  </tr>
+  <tr>
     <td style="text-align: center; vertical-align: middle; border: 1px solid #ccc; padding: 8px;">
       <a href="/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/">2016</a>
     </td>
-  </tr>
-  <tr>
     <td style="text-align: center; vertical-align: middle; border: 1px solid #ccc; padding: 8px;">
       <a href="/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/">2015</a>
     </td>
@@ -60,11 +65,12 @@ weight: 330
     <td style="text-align: center; vertical-align: middle; border: 1px solid #ccc; padding: 8px;">
       <a href="/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/">2012</a>
     </td>
+
+  </tr>
+  <tr>
     <td style="text-align: center; vertical-align: middle; border: 1px solid #ccc; padding: 8px;">
       <a href="/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/">2011</a>
     </td>
-  </tr>
-  <tr>
     <td style="text-align: center; vertical-align: middle; border: 1px solid #ccc; padding: 8px;">
       <a href="/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/">2010</a>
     </td>
@@ -77,11 +83,12 @@ weight: 330
     <td style="text-align: center; vertical-align: middle; border: 1px solid #ccc; padding: 8px;">
       <a href="/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/">2007</a>
     </td>
+
+  </tr>
+  <tr>
     <td style="text-align: center; vertical-align: middle; border: 1px solid #ccc; padding: 8px;">
       <a href="/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/">2006</a>
     </td>
-  </tr>
-  <tr>
     <td style="text-align: center; vertical-align: middle; border: 1px solid #ccc; padding: 8px;">
       <a href="/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/">2005</a>
     </td>
@@ -94,11 +101,12 @@ weight: 330
     <td style="text-align: center; vertical-align: middle; border: 1px solid #ccc; padding: 8px;">
       <a href="/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/">2002</a>
     </td>
+
+  </tr>
+  <tr>
     <td style="text-align: center; vertical-align: middle; border: 1px solid #ccc; padding: 8px;">
       <a href="/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/">2001</a>
     </td>
-  </tr>
-  <tr>
     <td style="text-align: center; vertical-align: middle; border: 1px solid #ccc; padding: 8px;">
       <a href="/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/">2000</a>
     </td>
@@ -111,11 +119,12 @@ weight: 330
     <td style="text-align: center; vertical-align: middle; border: 1px solid #ccc; padding: 8px;">
       <a href="/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/">1970</a>
     </td>
+
+  </tr>
+  <tr>
     <td style="text-align: center; vertical-align: middle; border: 1px solid #ccc; padding: 8px;">
       <a href="/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/">1969</a>
     </td>
-  </tr>
-  <tr>
     <td style="text-align: center; vertical-align: middle; border: 1px solid #ccc; padding: 8px;">
       <a href="/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1963/">1963 et avant</a>
     </td>

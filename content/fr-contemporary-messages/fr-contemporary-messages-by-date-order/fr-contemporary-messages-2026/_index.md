@@ -31,5 +31,3 @@ Martin Luther King | [Priez et Soyez en Paix](/fr-contemporary-messages/fr-conte
 St François d'Assise | [Un ennemi devient ami par l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-2-1-jw-st-francis-of-assisi/) | 2 Février 2026
 Georges Gurdjieff | [Le chemin est entre vous et Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-9-1-jw-george-gurdjieff/) | 9 Février 2026
 Care Darby Walsh | [Maîtriser le service (Rayonner la lumière)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-16-1-jw-care-darby-walsh/) | 16 Février 2026
-
-

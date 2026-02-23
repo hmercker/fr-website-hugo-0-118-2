@@ -557,7 +557,4 @@ Thomas d'Aquin | [Le véritable sens de Noël est l'amour](/fr-contemporary-mess
 Judas | [Connaître l'Esprit au-delà de la mort](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-12-29-1-jw-judas/) | 29 Décembre 2025
 Barthélémy | [Ouverture du Portail dans notre Suite au Plumtree](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-12-31-1-af-bartholomew/) | 31 Décembre 2025
 
-
-
-
 ### [**Lien vers la liste des messages contemporains classées par année**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/)
