@@ -1,13 +1,13 @@
 ---
-title: "Prière et sanctuaire"
+title: "Exprime sa gratitude pour la retraite Starpoint"
 menu_title: ""
-description: "Prière et sanctuaire"
+description: "Exprime sa gratitude pour la retraite Starpoint"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### L'humilité et la foi grandissent à mesure que vous recevez l'amour divin dans votre âme 
+### Exprime sa gratitude pour la retraite Starpoint
 
 Grace Jordan - reçu par Albert Fike le 26 Janvier 2025, Christ Church, La Barbade
 

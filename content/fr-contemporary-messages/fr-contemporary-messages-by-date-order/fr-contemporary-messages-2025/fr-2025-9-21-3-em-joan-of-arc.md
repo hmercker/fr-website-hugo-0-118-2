@@ -2,7 +2,7 @@
 title: "Permettre à l’Amour de Dieu d’entrer dans nos âmes"
 menu_title: ""
 description: "Permettre à l’Amour de Dieu d’entrer dans nos âmes"
-date: 2023-09-01 06:00:01+00:01
+date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True
 weight:

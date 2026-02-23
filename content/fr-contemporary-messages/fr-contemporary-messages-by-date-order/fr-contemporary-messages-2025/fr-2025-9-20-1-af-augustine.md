@@ -2,7 +2,7 @@
 title: "La puissance de l'Amour Divin"
 menu_title: ""
 description: "La puissance de l'Amour Divin"
-date: 2023-09-01 06:00:01+00:01
+date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True
 weight:

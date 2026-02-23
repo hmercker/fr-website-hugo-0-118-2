@@ -1,0 +1,40 @@
+---
+title: "Les manifestations défieront nos attentes"
+menu_title: ""
+description: "Les manifestations défieront nos attentes"
+date: 2025-12-21 16:00:01+00:01
+draft: False
+hidden: True
+weight: 
+---
+### Les manifestations défieront nos attentes
+
+Orion et Jésus - reçu par Albert Fike - le 25 Novembre 2025, Sechelt, BC, Canada.
+
+**Orion** : Que Dieu vous bénisse, mes amis. Ici Orion. Il est fort probable que ce ne soit pas Jésus qui prenne la parole en premier par Voix directe, car il possède la lumière la plus élevée et ce que vous appelez « vibration ». Il sera le plus difficile à faire apparaître. Nous ferons apparaître quelqu’un qui sera reconnu et qui suscitera un certain émoi parmi vous et parmi ceux qui assisteront à cette démonstration de matérialisation et de réalisation.
+
+Jésus apparaîtra certainement à un moment donné, mais nous ne pouvons pas encore le déterminer. Chacun de vous aspire à cette manifestation et a, en son esprit, certaines idées et préceptes quant à sa nature. Je vous le dis, mes amis, il est bon d’être enthousiaste. Il est bon d’aspirer au plus haut. En effet, votre frère bien-aimé, notre frère bien-aimé, Jésus, se manifestera à un moment donné, et ce sera un événement capital et important. Cependant, étant donné que nous sommes confrontés au monde matériel et à votre humanité profonde, nous ne pouvons prédire l’issue avec une exactitude et une précision absolues.
+
+Je sais que vous avez la perception que nous possédons la connaissance de l’avenir et de tout ce qui va arriver. Pourtant, ce n’est pas le cas, en raison du libre arbitre qui agit dans l’univers. Nous avons une perception des tendances et de leurs conséquences, qui engendreront certaines certitudes et certaines possibilités. Le moment précis, en revanche, n’est pas déterminé, car il l’est par vous, et non par nous. Nous sommes toujours prêts à susciter la manifestation, à créer les conditions et à déverser les bénédictions qui transformeront la conscience de ceux qui sont présents et de ceux qui en seront témoins. Vos amis anges sont également prêts à agir, mais l’êtes-vous, mes amis ? Êtes-vous prêts ? Êtes-vous disposés et capables de contribuer à la réalisation de cette manifestation, à la levée de la barrière entre le monde matériel et le monde spirituel ?
+
+C’est une tâche immense, un engagement colossal. Vous êtes tranquillement installés dans vos foyers confortables, songeant à l’avenir. Vous priez pour l’Amour de Dieu, aspirant au plus haut pour votre âme. Cherchez-vous aussi à vous préparer, physiquement, mentalement et spirituellement, à cette grande tâche qui vous attend ? Elle exigera beaucoup de vous, mes chers amis. Elle nécessitera un grand changement dans votre vie. Je sais que vous y pensez et que vous le souhaitez. Pourtant, vos réflexions et votre compréhension du déroulement des changements, de ce qui vous sera demandé, sont quelque peu naïves. Les changements et les exigences fixés ne seront pas toujours confortables, faciles à accomplir ou à accepter.
+
+Ces conditions, pensées, projections et idées se mêlent à vos désirs et à votre esprit. En effet, les résultats de vos projections, les idées que vous nourrissez, les désirs qui vous habitent ne correspondent pas nécessairement à ce qui est requis ni à ce qui se manifestera. Vous avez donc besoin de foi et de confiance en ce que Dieu a en tête et en ce qui lui est offert comme une bénédiction par notre intermédiaire, par vos amis anges, par les esprits lumineux et par vous-mêmes. Vous êtes le point de blocage de cette bénédiction. Votre esprit a considérablement restreint votre vision. Vos désirs ont imposé des limites à votre manière de servir. Vos âmes sont disposées et capables, emplies de l’Amour de Dieu et rayonnantes de lumière, mais ce point de blocage réside dans la communication entre votre âme et votre esprit, et dans toutes les restrictions qui en découlent.
+
+Vous devez vous libérer de ces restrictions. Il est préférable de ne pas projeter, de ne pas attendre, de ne pas imposer d’idées, de principes ou d’attentes à ce projet, tant que votre âme et votre esprit ne communiquent pas mieux, ne sont pas libérés de ces restrictions et n’ont pas véritablement accepté votre destin et l’avenir tels que le Créateur les a conçus. Nous vous demandons beaucoup et pourtant, d’une certaine manière, nous vous dissuadons de vous approprier ce projet, d’y participer pleinement, de vous éloigner de ces idées et projections mentales quant à ce que signifie y participer. C’est un défi, je le sais. Cela ne vous permet pas de concrétiser vos idées, vos désirs et vos besoins. Il s’agit plutôt d’une foi pure, mes amis. Lorsque la foi est forte, lorsqu’elle est pure, alors tout ce qui vient de Dieu et tout ce qui relève de son plan pourra se manifester à travers vous.
+
+Je vous exhorte à y réfléchir. Réfléchissez à quel point vous entravez la Volonté de Dieu, comment vos attentes et vos idées vous empêchent d’accomplir ce qu’Il a prévu pour vous et pour vous tous. Je vous interpelle par ces affirmations, par cet examen de votre situation. Je vous demande de considérer ces choses avec un cœur ouvert, un esprit ouvert et, surtout, une âme ouverte, afin que vous puissiez pleinement vous épanouir dans la liberté et l’émerveillement de tous les dons, de tous les projets et de tout ce qui constitue votre relation avec Dieu.
+
+Vous vous rapprochez de Dieu jour après jour. Vous êtes profondément aimés de Lui et votre amour pour Lui grandit à mesure que vous progressez dans Son Amour. Sachez que nous vous aimons. De nombreux esprits vous aiment. Les anges vous aiment. L’amour ne manque pas, mes amis, mais l’acceptation et la volonté de participer pleinement à ce flux et à ce plan font défaut. Ils seront remarquables, exceptionnels et merveilleux, et pourtant, nous continuons d’avancer sur le chemin, pas à pas. Vous continuez de grandir dans la lumière. Vous continuez d’accepter votre foi. Vous continuez d’avoir foi dans le plan et le désir de Dieu pour vous, et ainsi, tout ce qui est en place vous assurera le succès.
+
+C’est cette part de vous qui est obstinée, cette part de conscience qui continue de vous retenir. Certes, vous en êtes tous à différents stades de cette situation, mais vous trouverez votre chemin. Soutenez-vous et aimez-vous les uns les autres. Priez avec ferveur, mes amis, pour recevoir le grand don de l’Amour de Dieu. Ne laissez pas les inhibitions vous dominer, mais laissez la joie et la liberté de l’âme prendre pleinement la place qui leur revient dans votre conscience. Ainsi, vous trouverez ce que vous cherchez. Cela se manifestera de manières que vous accepterez avec joie.
+
+Sachez que nous vous aimons profondément, mes chers amis. Je suis Orion et nous poursuivons notre chemin vers l’accomplissement de nos objectifs, vers l’éveil de nos âmes, vers le renforcement de nos liens avec notre Créateur. Que Son Amour continue de se déverser en nous en abondance, brisant les barrières, levant les restrictions et unifiant nos âmes et nos esprits dans toute leur plénitude, leur beauté et leur émerveillement.
+
+Que Dieu vous bénisse, mes chers amis. Orion vous aime. Que Dieu vous bénisse.
+
+**Jésus** : Je viens, je suis votre frère, votre ami. Je suis Jésus. Je désire ardemment me manifester dans le monde, assurer au monde de ma présence et que mes enseignements, la vérité que je porte, soient transmis de telle sorte que tous écoutent et adhèrent à la simple vérité de l’Amour de Dieu.
+
+Je vous assure que cela se produira en temps voulu et selon le plan de Dieu. Je souhaite vous réconforter, vous bénir, vous assurer de mon amour et vous dire que nous poursuivons ensemble ce chemin au service des autres.
+
+Que l’Amour de Dieu vous accompagne, mes bien-aimés. Je marche à vos côtés. Je ne vous abandonnerai jamais et je ne serai jamais loin de vous. Vous êtes à jamais présents dans ma conscience, dans cette conscience d’amour qui m’habite. Vous êtes mes frères et sœurs. Que Dieu vous bénisse, mes êtres chers. Je suis Jésus et je vous aime.

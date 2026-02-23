@@ -1,0 +1,20 @@
+---
+title: "Honorez votre identité dans la Création Divine"
+menu_title: ""
+description: "Honorez votre identité dans la Création Divine"
+date: 2026-02-21 16:00:01+00:01
+draft: False
+hidden: True
+weight: 
+---
+### Honorez votre identité dans la Création Divine 
+
+Keea atta Kem - reçu par Albert Fike - le 02 Décembre 2025, Sechelt, BC, Canada.
+
+Que Dieu vous bénisse, mes bien-aimés. Je suis Keea atta Kem. Quelle grâce d’être unis par ce lien d’amour, connectés de cette manière ! Que le plan de Dieu qui a ouvert les portes de cette connexion est magnifique ! Que la vérité de l’Amour de Dieu est puissante ! Elle nous a permis, chacun à notre manière, de nous ouvrir aux merveilles de notre âme et à la beauté de notre relation avec notre Créateur.
+
+Dieu a créé un univers merveilleux et, dans cet univers, nous existons, nous faisons partie de sa création. Lorsque nous reconnaissons cela, lorsque nous reconnaissons tous les aspects de notre création, lorsque nous l’honorons et lorsque nous aimons qui nous sommes, ce que nous sommes, qui est Dieu et ce qu’Il est, alors nous bâtissons des fondements solides qui incarnent la vérité, la lumière et l’amour. Mes chers amis, combien nous sommes bénis d’être au cœur de la Volonté, des bénédictions et du plan de Dieu. Comprenez pleinement ce que cela signifie et ce que c’est, et agissez en conséquence à mesure que notre conscience s’éveille, que notre esprit s’étend dans l’Amour de Dieu, nos âmes s’abreuvant avidement aux Eaux Vives, en quête d’une vérité plus grande, d’un développement et d’une progression harmonieux.
+
+Nous connaissons la clé. Nous la pratiquons ensemble, en tant qu’âmes magnifiques, sur le même chemin, celui de l’union avec Dieu. Mes amis, nous sommes bénis au-delà de toute mesure, au-delà de notre entendement limité. Nous sommes bénis. À mesure que nous progressons sur ce grand chemin d’éveil et de transformation de l’âme, notre conscience grandira, la profondeur et l’étendue de notre compréhension s’étendront et deviendront une part intégrante de nous-mêmes. Oui, combien la création de Dieu est merveilleuse ! Faire partie de cette magnifique création, de son univers merveilleux, et savoir que nous sommes aimés, aimés infiniment, et que nous avons une place, une place précieuse, au sein de son univers. Mes chers amis, continuez d’honorer qui vous êtes, qui est Dieu, votre vie, votre expérience, votre conscience, les ouvertures et les grâces qui se présentent à vous par la prière et la contemplation, la guidance qui vous est offerte. Ne les ignorez pas, mais honorez-les, accueillez-les et faites-en pleinement partie. Ainsi, nous cheminons ensemble, unis par le désir, l’effort et l’amour, un chemin qui fait partie du plan de Dieu et qui nous alignera sur ce plan. Il nous montrera le chemin au-delà de nos esprits changeants, de nos interprétations et de nos filtres, vers ce lieu de pure vérité, de pure conscience qui naît de l’éveil de notre âme. Soyez véritablement les instruments de Dieu, mes chers amis. Soyez pleinement dans la belle conscience et la Présence de Dieu. Vous connaîtrez les joies. Vous connaîtrez la connaissance, la compréhension de la vérité. Vous percevrez et comprendrez de nombreuses choses à mesure que vos âmes s’éveilleront et se transformeront dans l’Amour du Père.
+
+Que Dieu vous bénisse, mes chers amis. Nous prions ensemble sur ce chemin continu qui ne s’achève jamais. Nous nous éveillons et continuons de nous éveiller, et cela aussi ne s’arrêtera jamais. Tout ce qui relève de l’Amour de Dieu est éternel, immense et nous englobe tous dans ce grand flot de lumière, d’amour et de joie. Que Dieu vous bénisse tous. Je suis Keea atta Kem. Je vous aime tous. Je prie avec vous maintenant, ainsi que beaucoup d’autres. Je prie avec vous et je suis avec vous. Que Dieu vous bénisse tous dans Son Amour. Je vous aime. Que Dieu vous bénisse.

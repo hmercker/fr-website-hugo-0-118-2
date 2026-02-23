@@ -2,7 +2,7 @@
 title: "Gardez vos prières simples"
 menu_title: ""
 description: "Gardez vos prières simples"
-date: 2023-09-01 06:00:01+00:01
+date: 2025-07-15 06:00:01+00:01
 draft: False
 hidden: True
 weight:

@@ -1,13 +1,13 @@
 ---
-title: "Se présente comme le guide de Sonja pour son anniversaire "
+title: "Nous encourage à poursuivre le travail de James Padgett"
 menu_title: ""
-description: "Se présente comme le guide de Sonja pour son anniversaire "
+description: "	Nous encourage à poursuivre le travail de James Padgett"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### Se présente comme le guide de Sonja pour son anniversaire 
+### Nous encourage à poursuivre le travail de James Padgett
 
 Leslie Stone - reçu par Albert Fike le 16 Janvier 2025, St Michael, La Barbade
 

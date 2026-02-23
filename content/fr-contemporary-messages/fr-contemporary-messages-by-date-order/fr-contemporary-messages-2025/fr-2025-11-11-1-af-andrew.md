@@ -1,0 +1,28 @@
+---
+title: "Semez les graines de la vérité"
+menu_title: ""
+description: "Semez les graines de la vérité"
+date: 2025-12-12 16:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Semez les graines de la vérité
+
+André - reçu par Albert Fike - le 11 Novembre 2025, Sechelt, BC, Canada.
+
+Mes chers amis, le terrain est mûr pour être labouré. Je suis Andrew. Cela ne paraît peut-être pas évident. Pourtant, le moment est venu de semer les graines de la vérité. Le moment est venu de prendre la parole. Le moment est venu de témoigner de l'amour et de tout ce qui relève de l'Amour de Dieu.
+
+Je sais qu'il est difficile, dans votre monde, d'aller à contre-courant des pensées et des actes communs, de proclamer la Vérité que l'Amour est le ciment de l'univers et que l'Amour en nos âmes est la grâce salvatrice. Nombreux sont ceux qui prononcent ces mots sans les comprendre véritablement, et vous qui les comprenez vraiment, vous les prononcez rarement. C'est un véritable dilemme, n'est-ce pas ? En effet, nous vous demandons d'être dans le monde, mais pas du monde. Pourtant, vous avez pris cela si au sérieux que souvent, vous vous éloignez du monde extérieur. Vous préféreriez être unis dans l'amour, l'harmonie et la prière avec Dieu, les anges et les uns avec les autres.
+
+Il y a assurément beaucoup de mérite à cela, mes amis. Être fidèles les uns aux autres, se soutenir et s'élever mutuellement, voilà ce qui est important. Pourtant, pour ceux qui s'abreuvent abondamment à la Source de Vie, tout autour de vous, les gens ont soif et faim de vérité, et ils ont bien peu de sources vers lesquelles se tourner. Ceux qui sont trop prompts à parler et à partager possèdent souvent une vérité née de l'esprit, de l'intellect, et non véritablement de l'âme. Ceux qui parlent de vérité avec amour, tendresse et bienveillance sont souvent mis à l'écart, rejetés et considérés comme faibles et instables. C'est là aussi un dilemme, car le cœur des hommes est endurci par la dureté de votre monde. Il est difficile de percer cette carapace de protection et de suspicion, mêlée à la culpabilité d'avoir commis des actes contraires à l'amour.
+
+Oui, les conditions sont en effet difficiles, mais vous grandissez en force, mes amis. Vous grandissez en amour, en lumière et en sagesse. En effet, où que vous alliez, cette lumière brille. Vous avez captivé l'attention de nombreuses personnes. Pourtant, il est difficile d'éveiller véritablement leur curiosité. Nous ne vous envoyons pas divertir, vous vanter ou devenir ces personnes exubérantes qui pullulent de nos jours et qui recherchent constamment l'attention. Au contraire, l'humble serviteur de Dieu passe souvent inaperçu. Nous sommes ici pour vous aider à renforcer votre position dans le monde. Lorsque le don de la Voix Directe sera révélé, il attirera l'attention. Il suscitera la curiosité et l'intérêt.
+
+Comme nous l'avons dit, vous devez être prêt à vous adresser aux sceptiques, aux optimistes, aux interrogations et à ceux qui osent s'interroger. Vous devez avancer avec ferveur, force, clarté, confiance et humilité. Être ce canal d'amour, mes chers amis, c'est être véritablement en harmonie avec Dieu, c'est être ce canal d'amour de telle sorte que les cœurs endurcis et protégés s'adoucissent et s'ouvrent à la tendresse, que les esprits emplis d'erreurs et d'incompréhension s'ouvrent à la voix directe et simple de la vérité qui est donnée, que les âmes de l'humanité réalisent qu'il y a véritablement de l'espoir, qu'il existe véritablement un chemin pour guérir les blessures et ouvrir la conscience à la vérité.
+
+Chacun de vous porte la vérité en soi. Certains d'entre vous s'efforcent avec diligence de la faire connaître et ont souvent l'impression de parler dans le vide, mais nous avons un plan. Dieu a un plan, mes chers amis, pour éveiller l'humanité. Malheureusement, le moyen d'y parvenir est de la secouer pour la réveiller d'une manière si brutale que cela causera un grand malaise, de l'angoisse et de l'inquiétude à beaucoup. Pourtant, vous serez inébranlables, mes amis. Vous serez les messagers de la vérité et de tout ce que nous vous avons transmis pour comprendre le chemin et le plan que vous devez partager. Vous devez étudier attentivement ce qui vous a été donné, l'intégrer comme vérité et l'exprimer avec vos propres mots, à votre manière, pour apaiser et réconforter l'humanité, mais aussi pour éduquer et inspirer.
+
+Nous comptons énormément sur vous, mes chers amis. Dieu compte sur vous pour votre dévouement, votre foi et votre amour pour Lui. N'aimons-nous pas Dieu profondément ? Puisse cet amour pour Dieu continuer à grandir, à s'éveiller et à s'épanouir en quelque chose de beau, de puissant et de merveilleux. Nous poursuivons notre chemin, mes chers amis, un chemin d'éveil, un chemin de service, un chemin vers la véritable compréhension de l'amour : sa nature, son pouvoir, sa capacité à s'épanouir dans le monde. Soyez fidèles à vous-mêmes, mes chers amis. Soyez fidèles à Dieu. Recherchez Son Amour. Tout le reste en découlera.
+
+Je suis André. Je vous aime profondément. Je suis ici avec vous. À chaque prière, à chaque conversation, à chaque fois que vous vous réunissez, je suis avec vous. Je vous soutiens pleinement dans votre cheminement de découverte de soi, de service et d'éveil. Que Dieu vous bénisse, mes amis. Que Son Amour continue de vous inonder abondamment, tel un flot d'Amour, l'Eau Vive. Qu'il soit vôtre, mes chers amis. Que Dieu vous bénisse. Que Dieu vous bénisse tous.

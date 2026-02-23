@@ -2,14 +2,14 @@
 title: "La Nouvelle Naissance"
 menu_title: ""
 description: "La Nouvelle Naissance"
-date: 2023-09-01 06:00:01+00:01
+date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
 ### La Nouvelle Naissance
 
-Anonyme - reçu par Emmanuel Sternesky - le 20 Septembre 2025, Fontainebleau, France
+Anonyme - reçu par Emmanuel Sternitsky - le 20 Septembre 2025, Fontainebleau, France
 
 Bonjour.
 

@@ -2,7 +2,7 @@
 title: "Les sanctuaires prospéreront si leurs fondations sont bâties sur l'Amour de Dieu"
 menu_title: ""
 description: "Les sanctuaires prospéreront si leurs fondations sont bâties sur l'Amour de Dieu"
-date: 2023-09-01 06:00:01+00:01
+date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True
 weight:

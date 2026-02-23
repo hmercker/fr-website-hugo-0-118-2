@@ -9,7 +9,7 @@ weight:
 ---
 ### Sachez que vous êtes utilisé
 
-Pierre le Rocher - reçu par Albert Fike le 10 Janvier 2025, Liverpool, New York, Etats Unis
+Pierre le Rocher - reçu par Elizabeth Mack le 10 Janvier 2025, Liverpool, New York, Etats Unis
 
 (Je suis Pierre) Je viens de la maison de mon Père, où l’Amour de mon Père est omniprésent, et je viens avec mes frères et sœurs qui me rejoignent depuis nos demeures Célestes. Nous venons parce que nous vous aimons. Nous vous chérissons. Nous vous élevons.
 

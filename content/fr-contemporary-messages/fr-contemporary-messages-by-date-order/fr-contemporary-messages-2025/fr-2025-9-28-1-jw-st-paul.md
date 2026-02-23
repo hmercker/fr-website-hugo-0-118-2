@@ -2,7 +2,7 @@
 title: "La prière profonde crée un magnétisme qui attire chaque âme à Dieu"
 menu_title: ""
 description: "La prière profonde crée un magnétisme qui attire chaque âme à Dieu"
-date: 2023-09-01 06:00:01+00:01
+date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True
 weight:

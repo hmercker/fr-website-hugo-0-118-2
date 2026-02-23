@@ -2,14 +2,14 @@
 title: "Que la bénédiction de l'Amour de Dieu soit en ce lieu et touche chaque âme qui y entre"
 menu_title: ""
 description: "Que la bénédiction de l'Amour de Dieu soit en ce lieu et touche chaque âme qui y entre"
-date: 2023-09-01 06:00:01+00:01
+date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
 ### Que la bénédiction de l'Amour de Dieu soit en ce lieu et touche chaque âme qui y entre
 
-Care Darby Walsh - reçu par Jimbeau Walsh - le 23 Septembre 2025, Newquay, Cornouailles, Royaume-Uni
+Judas - reçu par Jimbeau Walsh - le 23 Septembre 2025, Newquay, Cornouailles, Royaume-Uni
 
 C’est moi, votre frère Judas.
 

@@ -2,7 +2,7 @@
 title: "Venez connaître la vérité, la puissance et la gloire de l'amour"
 menu_title: ""
 description: "Venez connaître la vérité, la puissance et la gloire de l'amour"
-date: 2023-09-01 06:00:01+00:01
+date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True
 weight:

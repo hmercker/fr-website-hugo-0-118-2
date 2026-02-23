@@ -2,14 +2,14 @@
 title: "Vous ne mourrez pas"
 menu_title: ""
 description: "Vous ne mourrez pas"
-date: 2023-09-01 06:00:01+00:01
+date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
 ### Vous ne mourrez pas
 
-André - reçu par reçu par Jimbeau Walsh le le 1<sup>er</sup> Septembre 2025, Nashville, Tennesse, USA.
+André - reçu par reçu par Jimbeau Walsh le 1<sup>er</sup> Septembre 2025, Nashville, Tennesse, USA.
 
 Je suis ici, André, l'Apôtre.
 

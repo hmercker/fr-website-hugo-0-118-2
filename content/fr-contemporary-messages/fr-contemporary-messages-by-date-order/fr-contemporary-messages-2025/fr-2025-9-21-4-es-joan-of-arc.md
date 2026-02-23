@@ -2,14 +2,14 @@
 title: "Message de clôture de la retraite de Fontainebleau"
 menu_title: ""
 description: "Message de clôture de la retraite de Fontainebleau"
-date: 2023-09-01 06:00:01+00:01
+date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
 ### Message de clôture de la retraite de Fontainebleau
 
-Anonyme - reçu par Emmanuel Sternesky - le 21 Septembre 2025, Fontainebleau, France.
+Anonyme - reçu par Emmanuel Sternitsky - le 21 Septembre 2025, Fontainebleau, France.
 
 Bonjour, nous aimerions remercier ces participants. Bénies soient leurs âmes car ils ont choisi de se réunir, de venir ici pour diffuser et prier pour la réception de l’Amour Divin.
 

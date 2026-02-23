@@ -2,7 +2,7 @@
 title: "Envisagez d'être occupé dans la prière"
 menu_title: ""
 description: "Envisagez d'être occupé dans la prière"
-date: 2023-09-01 06:00:01+00:01
+date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True
 weight:

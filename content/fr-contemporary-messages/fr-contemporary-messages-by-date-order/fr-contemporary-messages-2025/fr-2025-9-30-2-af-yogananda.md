@@ -1,0 +1,20 @@
+---
+title: "Lever le voile entre nos deux mondes"
+menu_title: ""
+description: "Lever le voile entre nos deux mondes"
+date: 2025-11-10 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Lever le voile entre nos deux mondes
+
+Yogananda - reçu par Albert Fike - le 30 Septembre 2025, Sechelt, BC, Canada.
+
+Je suis Yogananda. Lorsque vous priez ainsi, vous levez souvent le voile entre notre monde et le vôtre, établissant ainsi une connexion entre vos amis des hautes sphères et vous sur le plan terrestre. En priant, vous dissipez toutes les conditions qui ne sont pas d’amour, vous apportant lumière et élévation. Dieu vous bénit lorsque vous vous ouvrez à cet Amour universel qui est l’essence de Dieu. Continuez à être ouverts, à chercher à affiner votre compréhension et à harmoniser tout ce qui est bonté, lumière et amour. Car en faisant cela quotidiennement, vous êtes sur la bonne voie pour une véritable connexion profonde avec Dieu, le Créateur de tout.
+
+Mettez de côté les pensées et les préoccupations du monde terrestre et ressentez l’expansion et l’élévation de votre âme, s’éveillant à l’Amour. Lorsque vous ressentez cela, reconnaissez-le. N’hésitez pas à exprimer vos désirs, vos aspirations profondes, car c’est ce qui ouvrira plus pleinement, clairement et profondément le passage aux grandes bénédictions de Dieu. À mesure que ce passage s’ouvre, que vous vous éveillez plus pleinement aux dons, aux bénédictions et aux conseils de Dieu, votre vie deviendra plus harmonieuse, plus belle dans ses expériences et ses expressions. Car vous changez la perspective de votre conscience, passant d’un esprit qui s’est efforcé d’être en harmonie mais dont les limitations ne permettent pas une plus grande compréhension et expérience par rapport à l’âme. Or, lorsque vous vous adressez directement à l’âme, lorsque vous vous ouvrez directement à Dieu, il n’y a pas de limites. Il y a l’expérience de l’instant présent qui continue d’éveiller les potentiels de ce qui peut être.
+
+Vivez pour cet instant, mes amis. Vivez pour être véritablement en harmonie avec tout ce qui est divin. Vous trouverez de grandes, de très grandes bénédictions, de grands bienfaits, de grands éveil et, surtout, une grande transformation de l’âme. En marchant pas à pas, en confiant vos aspirations et vos désirs à Dieu, en cherchant à aimer Dieu et à être avec Dieu, toutes les réponses vous seront données. Tous les véritables désirs de l’âme seront exaucés. Tout ce qui est mystérieux devient votre réalité, et Sa vérité vous ancrera dans le grand voyage de l’âme vers l’union avec Dieu. Il y a tant à découvrir, tant à connaître et à ressentir, tant à vivre, tant à voir. Dieu vous guidera sur ce chemin, le chemin de la découverte, le chemin de l’illumination. Il vous suffit de le demander. Cherchez Dieu. Apaisez votre esprit et cherchez Dieu avec la conscience de l’âme, et vous trouverez les merveilles de l’univers en vous, avec cette bénédiction de Dieu, cet Amour Divin, l’essence de la vie éternelle.
+
+Que ces bénédictions soient vôtres, mes amis. Puissiez-vous véritablement connaître vos origines et votre destinée, car tout cela est contenu dans la conscience de l’âme. C’est la grande source de vérité qui jaillit lorsque vous ouvrez votre âme à Dieu et que Dieu vous comble de toutes sortes de bénédictions. Que Dieu vous bénisse, âmes bien-aimées. Je suis Yogananda. Je suis proche de cette chère personne, cette belle âme qui cherche avec tant d’ardeur et de sincérité. Avec cela comme guide et motivation, vous ne faillirez pas, chère fille, mais vous trouverez davantage de vérité. Car la vérité est éternelle, et en cherchant ce grand don d’Amour, vous aussi serez éternelle. Bénédictions à vous, chers amis. Mon amour vous accompagne tous sur le chemin de la découverte, de l’éveil et de la transformation.

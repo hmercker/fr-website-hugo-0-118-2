@@ -1,13 +1,13 @@
 ---
-title: "L'Onction de votre âme"
+title: "Dieu vous prépare pour être les porte partoles de Sa Vérité"
 menu_title: ""
-description: "L'Onction de votre âme"
-date: 2023-09-01 06:00:01+00:01
+description: "Dieu vous prépare pour être les porte partoles de Sa Vérité"
+date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### L'Onction de votre âme
+### Dieu vous prépare pour être les porte partoles de Sa Vérité
 
 Jacob - reçu par Albert Fike - le 19 Septembre 2025, Fontainebleau, France.
 

@@ -2,7 +2,7 @@
 title: "Message d'ouverture de la retraite de Fontainebleau"
 menu_title: ""
 description: "Message d'ouverture de la retraite de Fontainebleau"
-date: 2023-09-01 06:00:01+00:01
+date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True
 weight:

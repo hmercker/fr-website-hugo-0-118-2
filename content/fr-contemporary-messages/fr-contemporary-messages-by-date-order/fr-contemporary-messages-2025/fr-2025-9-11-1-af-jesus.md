@@ -2,14 +2,14 @@
 title: "Ouverture du cercle d’aujourd’hui"
 menu_title: ""
 description: "Ouverture du cercle d’aujourd’hui"
-date: 2023-09-01 06:00:01+00:01
+date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
 ###  Ouverture du cercle d’aujourd’hui
 
-Jésus - reçu par Al Fike - le 12 Septembre 2025, Tallinn, Estonie
+Jésus - reçu par Al Fike - le 11 Septembre 2025, Tallinn, Estonie
 
 Je vous souhaite la bienvenue, mes bien-aimés. Je suis votre frère et ami, Jésus. Je viens ouvrir ce cercle, pour reconnaître chacun d’entre vous. Je prie pour que vous soyez réceptifs à l’amour du Père qui coule dans votre âme.
 

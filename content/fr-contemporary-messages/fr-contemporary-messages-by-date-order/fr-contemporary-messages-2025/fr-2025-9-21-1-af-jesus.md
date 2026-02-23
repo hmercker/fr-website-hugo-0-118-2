@@ -2,7 +2,7 @@
 title: "L'Amour de Dieu est la clé de toutes choses"
 menu_title: ""
 description: "L'Amour de Dieu est la clé de toutes choses"
-date: 2023-09-01 06:00:01+00:01
+date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True
 weight:
@@ -10,15 +10,6 @@ weight:
 ### L'Amour de Dieu est la clé de toutes choses
 
 Jésus - reçu par Albert Fike - le 21 Septembre 2025, Fontainebleau, France.
-
-L'Amour de Dieu est la clé de toutes choses
-
-Esprit : Jésus
-Date : 21 Septembre 2025
-Lieu : Fontainebleau
-Médium : Al Fike
-
-L'Amour de Dieu est la clé de toutes choses, mes bien-aimés.
 
 Je suis votre frère et votre ami. Je suis Jésus. J'espère que vous ressentirez et reconnaîtrez ma présence. Que vous puissiez ressentir et connaître ma présence non seulement aujourd'hui, mais aussi lorsque vous priez, lorsque vous cherchez Dieu, que je suis votre meilleur et plus cher ami dans ces prières. Car sans votre désir d'éveiller et de transformer votre âme dans l'Amour du Père, vous ne faites que pratiquer un exercice mental. Vous recevez certaines bénédictions et certains dons, mais vous ne recevez pas la profondeur et le souffle qui accompagnent l'Amour du Père. Car ces autres dons et bénédictions auront leur effet, mais ils ne vous transformeront pas.
 

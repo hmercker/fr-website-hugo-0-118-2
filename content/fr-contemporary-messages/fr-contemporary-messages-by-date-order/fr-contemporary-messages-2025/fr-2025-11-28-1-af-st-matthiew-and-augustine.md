@@ -1,0 +1,32 @@
+---
+title: "Votre Destinée en tant qu'Instruments de Dieu : Rayonner de Vérité et d'Amour dans le Monde"
+menu_title: ""
+description: "Votre Destinée en tant qu'Instruments de Dieu : Rayonner de Vérité et d'Amour dans le Monde"
+date: 2025-12-21 16:00:01+00:01
+draft: False
+hidden: True
+weight: 
+---
+### Votre Destinée en tant qu'Instruments de Dieu : Rayonner de Vérité et d'Amour dans le Monde
+
+St Matthieu et Augustin - reçu par Albert Fike - le 28 Novembre 2025, Sechelt, BC, Canada.
+
+**Matthieu** : Que Dieu vous bénisse, mes chers amis. Je suis Matthew. Vous êtes d’intrépides chercheurs de vérité. Chacun de vous a consacré sa vie à rechercher l’harmonie avec son être profond et sa vocation. Grâce à vos efforts, vos désirs et vos actions courageux, Dieu vous a abondamment bénis. Il continue de vous bénir sur ce chemin si peu fréquenté.
+
+Nombreux sont ceux qui croient détenir la vérité. Nombreux sont ceux qui s’accrochent à cette croyance jusqu’à la rigidité. Pourtant, vous avez œuvré tout au long de votre vie pour vous connaître et vous harmoniser avec la création. Vous avez découvert une vérité unique. Vous avez trouvé la puissance de l’Amour de Dieu qui transforme et guérit. Vous continuez à cheminer sur cette voie, en quête d’une vérité plus profonde, de bénédictions plus grandes à recevoir et à accumuler le maximum dans votre vie, afin de vous nourrir et de vous propulser sur le voyage de l’existence. Vous savez tous que ce voyage ne s’arrête pas au corps de chair, mais se poursuit tout au long de votre marche sur cette route, qui sera un chemin vers l’éternité.
+
+Sur ce chemin, je vous encourage à être un exemple de cette vérité, afin que d’autres puissent voir ses bienfaits se manifester à travers vous. Je vous exhorte à dire la vérité chaque fois que vous le pouvez et à être cette lumière que Dieu souhaite que vous soyez. Lorsque vous êtes en harmonie avec Dieu, lorsque vous cherchez à le servir, lorsque votre âme est ouverte à son amour et le reçoit en abondance, alors non seulement vous empruntez une voie qui vous est bénéfique, mais vous empruntez aussi une voie sur laquelle Dieu guidera de nombreuses personnes. Vous aurez une influence spirituelle sur vos frères et sœurs.
+
+À mon époque, nous enseignions la vérité. Nous cherchions à être les instruments de Dieu, les disciples de Jésus. Nous parcourions le monde pour toucher le cœur de tous. Nombreux sont ceux qui ont été touchés par notre rôle d’instruments, de canaux entre les mains de Dieu. Il en va de même pour vous, mes chers amis, de tendre la main aux innombrables âmes perdues et en quête de sens à travers le monde. Dans leur recherche, Dieu les guidera vers vous, et vous vers elles. Vous trouverez les moyens de communiquer, d’exprimer votre lumière, la Vérité qui est votre être resplendissant de l’Amour de Dieu. Leurs âmes le ressentiront, même si leur esprit le rejette. Leurs âmes seront attirées, et cela pourrait susciter un élan en elles. Si vous proclamez la simple vérité pour encourager les autres à prier, à s’ouvrir au don précieux de l’Amour de Dieu, alors vous leur aurez offert le plus grand des dons : celui de la vérité. Même s’ils le rejettent intellectuellement, ils l’auront reçu au fond de leur âme. Avec le temps, cette graine que vous aurez semée pourra germer et devenir un arbre majestueux, une expression, une âme rachetée par l’Amour du Père.
+
+Mes chers amis, voici votre chemin. Voici votre raison d’être. Voici votre destinée : être un exemple, un guide, un vecteur de vérité, d’amour et de lumière pour le monde. N’ignorez pas cela. N’esquivez pas votre responsabilité, mais avancez avec audace et donnez avec amour. Car lorsque vous donnez avec amour, lorsque vous exprimez votre amour à vos frères et sœurs, ils le ressentiront et y répondront. Nombreux seront ceux qui se demanderont pourquoi vous êtes une telle lumière où l’amour circule librement. Ils seront curieux. Ils seront attirés. Ils ressentiront un sentiment de soulagement, d’acceptation, d’amour. En continuant d’être ce vecteur de lumière et en établissant une relation avec eux, vous aurez de nombreuses occasions de montrer le chemin et d’exprimer la vérité.
+
+Dieu agit par de nombreux moyens. Dieu agit à travers ceux qui le cherchent, les guidant. Ayez foi en ce qui peut être possible en une journée. Car chaque jour apporte de nouvelles possibilités, de nouvelles opportunités. Soyez ouverts et réceptifs à votre guidance, âmes bien-aimées, et soyez une lumière dans le monde. Car le monde a désespérément besoin de lumière et d’amour, et il peut être transformé par cette simple vérité que vous devez donner, partager, exprimer.
+
+Que ce chemin vous soit béni, mes chers amis. Je suis Matthieu. Mon amour pour chacun de vous est immense, et nous suivons vos voyages, vos expressions quotidiennes. Nous sommes avec vous et nous cherchons à servir comme vous. Ensemble, nous formons une force formidable pour le bien, car Dieu nous guide tous dans l’Amour de sa vérité, la Lumière de son Amour. Que Dieu vous bénisse, mes bien-aimés. Matthieu vous aime. Que Dieu vous bénisse.
+
+**Augustin** : Dieu mettra les mots dans votre bouche, mes chers et beaux élèves. Je suis votre professeur, Augustin. Tandis que Matthieu vous encourage à aller de l’avant, je vous encourage à avoir foi qu’en avançant, Dieu vous utilisera et exprimera la vérité à travers vous de toutes les belles manières qui toucheront une autre âme. Il vous suffit d’avancer avec foi et de marcher dans la Lumière et la Vérité de l’Amour de Dieu pour recevoir toujours plus de ce don.
+
+Vous, mes chers élèves, serez des enseignants, des guérisseurs et des lumières dans le monde, des instruments de Dieu. Chacun de vous continue de chercher comment exprimer ces qualités. Chaque jour est une occasion de tâter le terrain, d’être un canal de lumière, d’amour et de vérité. Dieu vous en donnera l’opportunité, pourvu que vous soyez disposés et réceptifs à sa guidance. Priez pour que Dieu vous guide, afin que vous soyez un instrument de sa Lumière, de son Amour et de sa Vérité. Il vous ouvrira assurément les portes. Les opportunités se présenteront à vous et les bénédictions afflueront.
+
+Que Dieu vous bénisse, mes chers élèves. Je suis votre enseignant, Augustin. Je continue d’obéir à la Volonté de Dieu et de chercher à le servir. Je le fais avec vous, avec les autres et avec de nombreux esprits. Que Dieu vous bénisse, chers élèves. Augustin vous aime.

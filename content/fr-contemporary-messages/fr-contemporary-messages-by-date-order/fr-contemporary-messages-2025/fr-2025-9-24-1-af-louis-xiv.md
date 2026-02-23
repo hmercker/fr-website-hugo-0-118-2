@@ -1,0 +1,45 @@
+---
+title: "Ne laissez pas le jugement obscurcir votre lumière"
+menu_title: ""
+description: "Ne laissez pas le jugement obscurcir votre lumière"
+date: 2025-11-10 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Ne laissez pas le jugement obscurcir votre lumière
+
+Louis XIV - reçu par Albert Fike - le 24 Septembre 2025, Fontainebleau, France.
+
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-Louis-XIV.jpg)
+
+Belles âmes, je suis Louis XIV. Je suis heureux que vous parcouriez les couloirs du château de mes ancêtres et des miens<sup id="a1">[1](#f1)</sup>. Je souhaite que vous voyiez cela comme une opportunité de répandre la lumière, plutôt que comme une occasion de porter un jugement. Car lorsque vous jugez, vous fermez ce magnifique canal que vous êtes. Votre esprit jette alors un voile sur votre lumière. Dieu ne veut pas que vous soyez enveloppés par le jugement. Dieu veut que vous soyez ouverts et libres dans votre expression d’amour.
+
+Oui, les méthodes et les moyens par lesquels ces lieux ont été construits, les conditions de ces lieux à l’époque, étaient effectivement sombres. Pourtant, ne pensez-vous pas qu’il est temps maintenant d’apporter de la lumière, de transformer, de bénir ? Car Dieu utilise chaque opportunité pour bénir et apporter de la lumière. Il est dit qu’il ne faut pas entrer dans une situation sombre sans tenter de la purifier. Même de ce point de vue, vous demandez à Dieu de vous utiliser pour bénir, élever et purifier.
+
+Mon chemin vers un Royaume Céleste a été difficile2, comme vous pouvez l’imaginer. J’étais certainement une âme dépravée lorsque je suis passé dans le monde des esprits. Oh, comme le pouvoir et la gloire de l’époque du Roi Soleil me manquaient ! Oh, comme je désirais leur retour, mais ils ne pouvaient pas revenir. Car lorsque l’on est dans le monde des esprits, les lois qui régissent ces choses sont complètement différentes. J’ai dû apprendre. J’ai dû grandir. J’ai dû me pardonner et pardonner à ceux qui m’entouraient et aux dépravations de leurs vies, à leurs expressions d’eux-mêmes.
+
+Lorsque j’ai réalisé que tout ce que nous faisions était sans importance pour la progression de notre âme, que tout ce que nous faisions lui était contraire, j’ai dû apprendre une nouvelle voie. J’ai dû devenir un homme nouveau. De nombreux esprits m’ont aidé, m’ont enseigné, m’ont montré le chemin. Lorsque j’ai découvert la grande bénédiction de l’Amour Divin, qui est le véritable soleil, la véritable lumière, j’ai alors réalisé que mon chemin pour retrouver la lumière était à nouveau possible. J’ai été fervent dans mes efforts, en effet, pour expier, pour me réconcilier, pour pardonner, pendant de nombreuses années, comme vous diriez en termes terrestres. Une fois cela accompli, oh, quelle joie, quelle liberté, quelle vérité, quelle compréhension de la vérité, quelle purification de mon âme et quelle expansion de mon âme avec l’Essence de Dieu ! C’est ainsi que je suis devenu un véritable roi. Bien sûr, pas de la manière dont vous l’imaginez, mais de la manière dont je suis devenu le maître de mon propre royaume et de mon propre être. C’est la seule façon de trouver la rédemption, la guérison et la lumière.
+
+Non, je ne suis le roi de personne aujourd’hui. Je suis le roi de ma propre âme, et j’en suis heureux. Lorsque cet instrument m’a vu vêtu de haillons, c’était ma façon de dire : *« Je suis peut-être un pauvre en termes de biens matériels, mais je suis véritablement un roi en termes d’âme. »* Je poursuis mon chemin, enseignant aux autres la Vérité de l’Amour de Dieu, étant humble, une qualité que j’ignorais totalement lorsque je marchais ici-bas, étant fidèle à mon Créateur, un canal d’amour, comme vous aspirez à l’être. Oh, ce que vous avez évité, mes chers et beaux amis, grâce au chemin que vous avez emprunté si tôt dans votre existence ! Un chemin que je ne souhaiterais à personne en termes d’expiation et d’obscurité, de confusion et de douleur. Vous évitez toutes ces choses et vous trouverez votre chemin vers une grande lumière. Vous portez une lumière. Maintenant, pouvez-vous imaginer, avec le temps, à quel point cette lumière s’étendra et à quel point vous deviendrez beaux ?
+
+Je suis heureux de vous servir, et je serai avec vous lorsque vous parcourrez ces lieux. Ensemble, ne pouvons-nous pas être une lumière dans le monde ? Ne pouvons-nous pas être un canal d’amour dans le monde ? À certains égards, lorsque vous verrez ce qui a été créé, fruit d’aspirations plus élevées, cela a pu être, dans une certaine mesure, mal placé et mal orienté. Pourtant, le désir de beauté, le désir d’harmonie, était bien présent en moi et chez les autres lorsque nous avons tenté de créer ce château. Cela a coûté cher à ceux qui étaient sous mes ordres, mais aujourd’hui, ce pays a quelque chose à voir et à apprécier, quelque chose qui peut inspirer, on ne sait jamais, qui peut élever, apporter de la joie. Je vous exhorte à considérer les choses sous cet angle, à vous libérer de tout jugement ou de toute idée selon laquelle ce que vous voyez est une manifestation du péché, car les aspirations supérieures ne sont pas synonymes de péché. La manière dont on a utilisé et accompli ces choses, en revanche, relevait certainement du péché.
+
+Il en est ainsi dans votre monde. Le péché côtoie la lumière, le mal le saint, les égarés ceux qui sont sauvés. Votre monde est rempli de contradictions. Si vous ouvriez vraiment votre regard, vos perceptions, vous seriez horrifiés par la multiplicité, la profondeur et l’ampleur de ces contradictions. En vérité, personne n’en est exempt. Personne ne peut dire : *« Je vis ma vie en parfaite harmonie avec les lois de Dieu dans ce monde qui est le vôtre. »* Car chaque fois que vous sortez de chez vous, chaque fois que vous utilisez un bien matériel, quelque chose qui vous facilite la vie, vous commettez un péché. Le monde que l’humanité a créé est gangrené par le péché, par la disharmonie, et cela détruit votre monde. Vous le savez. Je vous suggère d’adopter une attitude et une pensée humbles. Dites : *« Oui, je suis aussi un pécheur, mais je veux aussi être un canal d’amour. Cette contradiction peut exister dans ma vie, mais c’est une tentative d’aller vers la lumière. »* Cela sera apprécié.
+
+Dieu reconnaîtra vos efforts. Dieu œuvre à un plan pour éveiller l’humanité et ramener tout à l’harmonie. Vous ne pouvez pas être parfaits, mes chers amis. J’ai essayé d’être parfait. Je voulais que tout soit parfait lorsque je vivais sur cette terre. Où cela m’a-t-il mené ? Dans les ténèbres, la douleur et la souffrance. En effet, j’ai vécu un temps en enfer et j’étais en haillons, un pauvre hère à tous égards. Vous, mes amis, vous n’aurez pas cette expérience. Vous trouverez votre chemin vers une plus grande lumière.
+
+Soyez cette lumière du mieux que vous pouvez. Marchez dans votre monde du mieux que vous pouvez, en conformité et en harmonie avec la lumière, l’amour, la vérité et les lois de l’amour dont vous avez conscience. Vous y trouverez joie et épanouissement. Chaque instant est une occasion de trouver l’épanouissement et la joie. Soyez fidèles aux désirs de votre âme. Soyez fidèles à ce soleil intérieur qui est votre âme. Vous verrez que la vie se déroulera de manière glorieuse. Une vie sans faux-semblants, sans artifices ni tromperies, mais une vie véritablement imprégnée de l’amour de Dieu, de la puissance de cet amour, de la gloire de cet amour. Vous marcherez dans le monde humble mais libre, puissant mais guidé, béni et doublement béni.
+
+Que Dieu vous bénisse, mes amis. Je suis Louis XIV et je suis heureux que vous soyez ici dans mon pays, répandant la lumière. Soyez ce canal, âmes bien-aimées, et tout ira bien. Vous ne souffrirez pas pour vos efforts. Bien que vous ne soyez pas naïfs, vous constaterez que lorsque vous gardez la tête haute et priez pour être un canal d’amour, tous les autres aspects de vos efforts seront transformés par cet Amour et deviendront lumière. Que Dieu vous bénisse, chers amis, et merci.<sup id="a2">[2](#f2)</sup>
+<small>
+
+1. <large id="f1"> Le groupe visitait le château de Versailles.[↩](#a1)
+
+2. <large id="f2"> Louis XIV s'était exprimé précédemment lors des messages suivants.[↩](#a2)
+
+**Auteur** | **Titre du message** | **Date du message**  
+---|---|---
+Louis XIV | [Le malheur de Louis XIV](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-7-12-1-fab-louis-xiv/) | 12 Juillet 2005
+Louis XIV | [Il y a tant de choses à dire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-19-5-af-louis-xiv/) | 19 Novembre 2017
+Louis XIV | [La voie vers le réveil](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-18-4-af-louis-xiv/) | 18 Septembre 2025

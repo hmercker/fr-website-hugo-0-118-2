@@ -1,0 +1,34 @@
+---
+title: "Soyez fidèles à la volonté de Dieu : Un appel à s'éveiller et à servir dans l'Amour de Dieu"
+menu_title: ""
+description: "Soyez fidèles à la volonté de Dieu : Un appel à s'éveiller et à servir dans l'Amour de Dieu"
+date: 2025-12-12 16:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Soyez fidèles à la volonté de Dieu : Un appel à s'éveiller et à servir dans l'Amour de Dieu
+
+Jésus, Isaïe et Pierre - reçu par Albert Fike - le 02 Novembre 2025, Sechelt, BC, Canada.
+
+Jésus : Que la grande bénédiction de l'amour du Père soit avec vous. Je viens être avec vous. Je suis votre frère et votre ami, Jésus. Je viens prier avec vous et vous accompagner spirituellement, avec tous les anges des Cieux. Par vos prières et vos désirs, par les aspirations de votre âme, vous ouvrez les vannes de ces bénédictions, car le Saint-Esprit vient toucher votre âme. Avec ce don et cette bénédiction, les anges célestes viennent aussi être avec chacun de vous.
+
+En vérité, mes bien-aimés, vous ouvrez les vannes, car vous recherchez la plus grande bénédiction qui puisse être donnée, le plus beau chemin qui puisse être parcouru, ce qui est éternel et qui continuera de croître et de s'ajouter à chacun de vous. Mes bien-aimés, sachez et ressentez les aspirations de votre âme qui se tourne vers Dieu, car l'âme connaît son Créateur. L'âme est consciente de Dieu. Lorsque vous adressez cette prière consciente, en dissipant tous les obstacles entre vous et Dieu, les bénédictions affluent. La porte s'ouvre et l'âme poursuit son chemin vers la rédemption et la guérison.
+
+Mes bien-aimés, nous sommes tous frères et sœurs sur ce chemin de vérité. Nous marcherons ensemble pour l'éternité. Je souhaite ardemment que tous ceux qui prient ici et à travers le monde connaissent ce don, car s'ils le demandent consciemment, avec un désir sincère, ils le recevront. Eux aussi commenceront le chemin d'une réconciliation éternelle avec Dieu. Parlez de cette Vérité à vos frères et sœurs. Parlez du chemin. Parlez de votre propre expérience sur ce chemin. Parlez de votre amour pour Dieu, de votre amitié avec moi, les anges et tous ceux qui sont en harmonie avec cette Vérité. Car ils doivent le savoir, mes bien-aimés. Tant de personnes dans le monde ignorent cette vérité et les possibilités de cette bénédiction. Ils doivent le savoir et faire ce choix par eux-mêmes.
+
+Chacun de vous est mon disciple, chargé de proclamer cette Vérité. Je vous exhorte à la proclamer et à la manifester. Je vous exhorte à suivre ce chemin à chaque instant et à être ce canal d'amour, cet instrument de paix que Dieu place dans le monde. Ensemble, nous assisterons Dieu dans son grand dessein pour le salut de l'humanité. Chacun a sa contribution à apporter. Chacun peut prier pour l'humanité. Chacun sera inspiré et guidé pour servir Dieu selon les voies qu'il a tracées. Chaque jour est une occasion de le faire. Soyez fidèles aux aspirations de votre âme. Soyez fidèles à la volonté de Dieu pour vous et soyez cette lumière dans le monde, car le monde a désespérément besoin de vous tous pour être des précurseurs, pour montrer le chemin du véritable salut de l'âme et de l'humanité.
+
+Chaque frère et sœur, chaque enfant et tous les êtres vivants en quête de vérité doivent connaître cette Vérité et s'éveiller à l'aspiration profonde de leur âme. Ils doivent confier cette aspiration à Dieu afin de recevoir le don qu'il offre si librement, pour être transformés et éveillés dans l'Amour du Père. Prions ensemble, mes bien-aimés, pour que le monde s'éveille et que toute souffrance, toute obscurité, toute ignorance et toute douleur soient éradiquées de ce monde, remplacées par la lumière, l'amour et la vérité. C'est une tâche immense pour Dieu, mais il en est capable. Que notre Dieu, la puissance de ses bénédictions, la puissance de sa Volonté, la puissance de ses Lois en action, la puissance de vos prières et la puissance du libre arbitre concourent à apporter la guérison nécessaire et l'éveil de chaque âme. Tel est le désir de Dieu, et puisse-t-il être le vôtre, mes bien-aimés. Qu'il soit vôtre.
+
+Je suis Jésus, votre frère et ami, et je viens vous parler avec simplicité et vérité, à vous et au monde entier. Mon amour pour chacun de vous et pour toute l'humanité est immense. Je continue d'œuvrer sans relâche pour le salut de l'humanité. J'ai rassemblé mon troupeau pour vous annoncer la vérité et vous assurer qu'elle demeure en vous à jamais. Mes chers frères et sœurs, nous avançons, cherchant à servir, à aimer, à rechercher la lumière. Que Dieu vous bénisse. Je suis Jésus et mon amour est avec vous tous. Que Dieu vous bénisse.
+
+Isaïe : Que les bénédictions de l'amour du Père soient avec vous. Je suis Isaïe. Je me tiens aux côtés de mon frère pour proclamer la vérité et répandre la lumière de l'amour de Dieu en abondance parmi vous. Tous les anges du ciel œuvrent pour le salut et la bénédiction de l'humanité. Nous travaillons ensemble et désirons collaborer avec chacun de vous dans cet effort immense pour guider l'humanité vers la lumière, devancer les ténèbres et de vivre dans la joie de l'amour de Dieu.
+
+Que Dieu vous bénisse, âmes bien-aimées. Je suis Isaïe et je viens prier avec vous.
+
+Pierre : Je suis Pierre, connu comme Pierre le Roc. J'apporte ma force, mes prières et mon amour à tous ceux qui parlent et à tous ceux qui prient, car le monde en a besoin. Nous venons unir nos prières et notre lumière aux vôtres, et nous continuons à œuvrer ensemble, n'est-ce pas ?
+
+Vous qui cherchez à servir Dieu et l'humanité, vous trouverez les moyens d'y parvenir et vous connaîtrez la gloire de Dieu manifestée au plus profond de votre âme, chassant tout ce qui n'est pas amour et lumière. Vous êtes rachetés en ce moment même et vous poursuivrez votre chemin de rédemption pour l'éternité et au-delà, vers la gloire et la joie de l'âme éveillée et transformée. Ce don vous est offert à chacun tandis que vous cheminez vers la réconciliation avec Dieu. Soyez fidèles à votre âme et à son désir de progresser et de rayonner de la lumière de la vérité.
+
+Que Dieu vous bénisse, âmes bien-aimées. Pierre est avec vous, ainsi que tant d'autres. Ceux qui pourraient vous parler en ce moment prendraient bien plus de temps que celui que vous partagez en prière. Je vous le dis, nous sommes tous réunis et nous vous entourons de lumière, de prière et d'amour. Ce don est vôtre car vous le désirez. Il vous est donné car Dieu le veut. Que Dieu vous bénisse, bien-aimés. Ouvrez grand à ce don précieux. Ressentez la force, la paix et la gloire de la main de Dieu sur vous. C'est un don. C'est à vous, il suffit de le demander. Que Dieu vous bénisse. Pierre vous aime. Que Dieu vous bénisse.

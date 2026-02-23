@@ -2,7 +2,7 @@
 title: "Perdre l'esprit et être dans le cœur"
 menu_title: ""
 description: "Perdre l'esprit et être dans le cœur"
-date: 2023-09-01 06:00:01+00:01
+date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True
 weight:

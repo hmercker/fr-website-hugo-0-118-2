@@ -2,7 +2,7 @@
 title: "L'Amour de Dieu imprègne l'Univers"
 menu_title: ""
 description: "L'Amour de Dieu imprègne l'Univers"
-date: 2023-09-01 06:00:01+00:01
+date: 2025-07-15 06:00:01+00:01
 draft: False
 hidden: True
 weight:

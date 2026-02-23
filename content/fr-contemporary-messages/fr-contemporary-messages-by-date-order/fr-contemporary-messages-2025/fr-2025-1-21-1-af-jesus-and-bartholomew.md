@@ -1,13 +1,13 @@
 ---
-title: "Bénédictions propices de l'amour de Dieu pour un grand nombre d'âmes des deux côtés du Voile"
+title: "Bénédictions propices de l'Amour de Dieu pour un grand nombre d'âmes des deux côtés du Voile"
 menu_title: ""
-description: "Bénédictions propices de l'amour de Dieu pour un grand nombre d'âmes des deux côtés du Voile"
+description: "Bénédictions propices de l'Amour de Dieu pour un grand nombre d'âmes des deux côtés du Voile"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### Bénédictions propices de l'amour de Dieu pour un grand nombre d'âmes des deux côtés du Voile
+### Bénédictions propices de l'Amour de Dieu pour un grand nombre d'âmes des deux côtés du Voile
 
 Jésus et Barthélémy - reçu par Albert Fike le 21 Janvier 2025, St Michael, La Barbade
 

@@ -2,7 +2,7 @@
 title: "Leçon sur le libre arbitre sur Terre et dans l'Esprit"
 menu_title: ""
 description: "Leçon sur le libre arbitre sur Terre et dans l'Esprit"
-date: 2023-09-01 06:00:01+00:01
+date: 2025-07-15 06:00:01+00:01
 draft: False
 hidden: True
 weight:

@@ -2,7 +2,7 @@
 title: "L'Amour de Dieu est accessible à chaque être dans l'Univers et sauvera l'humanité"
 menu_title: ""
 description: "L'Amour de Dieu est accessible à chaque être dans l'Univers et sauvera l'humanité"
-date: 2023-09-01 06:00:01+00:01
+date: 2025-11-10 06:00:01+00:01
 draft: False
 hidden: True
 weight:

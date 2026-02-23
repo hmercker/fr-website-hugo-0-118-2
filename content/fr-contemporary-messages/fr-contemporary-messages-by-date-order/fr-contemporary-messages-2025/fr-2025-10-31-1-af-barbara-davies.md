@@ -1,0 +1,22 @@
+---
+title: "Le Chemin des Ténèbres à la Lumière"
+menu_title: ""
+description: "Le Chemin des Ténèbres à la Lumière"
+date: 2025-12-21 16:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Le Chemin des Ténèbres à la Lumière
+
+Barbara Davies - reçu par Albert Fike - le 31 Octobre 2025, Sechelt, BC, Canada.
+
+Que Dieu vous bénisse, mes amis. Je suis Barbara. Combien il est difficile pour vous, mes chers amis, sur ce plan terrestre, de vivre en harmonie avec les Lois d’Amour de Dieu, alors que tout autour de vous règnent les ténèbres, l’ignorance et les conflits, et que la souffrance se manifeste de mille façons. Pourtant, vous persistez. Vous continuez de prier et d’aspirer à ce don, car vous savez au plus profond de votre être, au plus profond de votre âme, que c’est la voie juste, le chemin du salut.
+
+Je sais combien le contraste est saisissant pour nous qui vivons dans le Royaume Céleste de venir à vous sur ce plan terrestre. Même lorsque vous progressez vers les sphères supérieures, le contraste est frappant. Vous trouverez un grand repos en progressant vers les lieux de lumière. Vous trouverez de grandes récompenses pour vos efforts de prière et d’accueil de l’Amour de Dieu, car c’est le chemin vers la lumière. En vérité, toutes les souffrances du plan terrestre vous quitteront lorsque vous accéderez aux sphères supérieures. Quel réconfort de savoir que dans chaque sphère, chaque dimension de la création divine, Son Amour imprègne tout. Son Amour est présent et accessible à chacun de vous. Même dans les profondeurs les plus obscures des enfers, l’Amour de Dieu est là, attendant que l’âme le désire. Dans les plus hauts cieux, bien sûr, cette bénédiction est également disponible. Notre frère bien-aimé, Jésus, la désire autant que vous et s’y épanouit à mesure que vous progressez. Cherchez-la, mes bien-aimés. Cherchez ce don. Suivez le chemin et vos difficultés et vos soucis vous paraîtront moins lourds, car les vertus rédemptrices de l’Amour de Dieu continueront d’apaiser votre âme et de calmer votre esprit, apportant la paix à votre être.
+
+Tant de choses vous attendent, mes chers amis. Tant de choses sont à votre portée, surtout lorsque vous ouvrez cette porte, la porte de la vérité, la porte des bénédictions de l’Amour de Dieu. Alors, les flots de Son amour se déversent sur vous et vous élèvent vers la lumière. Soyez fidèles aux aspirations de votre âme, enfants bien-aimés de Dieu. Sachez que nous qui habitons le Royaume Céleste venons encore sur Terre. Nous ne vous abandonnons pas. Nous sommes avec vous. Nous venons vous aider et vous soutenir, vous élever, vous guérir et vous apporter la paix, car nous sommes les instruments de Dieu et Dieu n’abandonne aucun de Ses enfants, mais cherche à racheter chaque âme, quelle que soit sa condition. Les efforts de Dieu pour aider, guérir et accueillir cette âme dans l’amour et la lumière sont toujours présents et continuent d’œuvrer pour le bien de tous.
+
+Vous aussi, vous pouvez être l’instrument de l’Amour de Dieu, Son magnifique instrument de lumière. Si tel est votre désir, alors être ce canal d’amour pour Dieu est votre don et votre expression dans le monde. Cela peut se manifester de bien des manières, par de nombreux moyens différents, mais tous ces moyens sont guidés par Dieu. Ce flux d’amour se manifeste à travers vos dons uniques, votre personnalité et votre présence dans le monde. Que cette grâce se répande abondamment et avec puissance, touchant de nombreuses âmes. Car beaucoup cherchent sans savoir ce qu’elles cherchent. Ainsi, mes bien-aimés, vous êtes là pour être cet instrument, cette source de vérité, cette belle lumière dans le monde. Soyez fidèles à la Volonté de Dieu et tout se mettra en place, car Sa Volonté se réalisera dans votre vie et dans ce monde. Nous sommes là. Beaucoup sont là. Nous vous soutenons dans votre ministère et dans le ministère de Dieu sur vous. Avancez avec assurance dans votre foi, mes bien-aimés. Soyez fidèles à la Volonté de Dieu et tout viendra à vous dans la magnifique effusion du Saint-Esprit.
+
+Je vous aime. Je suis Barbara et je viens prier avec vous, comme beaucoup d’autres. Car la grâce de Dieu est nécessaire partout. Votre âme aspire à cette grâce et sera un messager de son expression dans le monde. Que Dieu vous bénisse, mes bien-aimés. Je vous aime profondément. Je prie souvent avec vous. Que la lumière continue de briller abondamment dans vos vies et celles de vos proches. Que Dieu vous bénisse. Je vous aime tous. Que Dieu vous bénisse.

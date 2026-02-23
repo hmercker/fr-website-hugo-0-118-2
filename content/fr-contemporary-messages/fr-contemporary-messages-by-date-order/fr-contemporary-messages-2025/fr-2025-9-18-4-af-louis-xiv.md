@@ -2,7 +2,7 @@
 title: "La voie vers le réveil"
 menu_title: ""
 description: "La voie vers le réveil"
-date: 2023-09-01 06:00:01+00:01
+date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True
 weight:
@@ -11,7 +11,9 @@ weight:
 
 Louis XIV - reçu par Albert Fike - le 18 Septembre 2025, Fontainebleau, France.
 
-Bonjour mon ami. Je suis Louis XIV.
+![](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-Louis-XIV.jpg)
+
+Bonjour mon ami. Je suis Louis XIV.<sup id="a1">[1](#f1)</sup> 
 
 Vous m’avez vu et reconnu plus tôt dans la journée. Je suis un habitant du Royaume Céleste et, croyez-moi, l'entrée en ce lieu a été durement gagnée pour moi.
 
