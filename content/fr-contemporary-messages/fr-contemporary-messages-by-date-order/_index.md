@@ -15,7 +15,7 @@ weight: 330
   </tr>
   <tr>
     <td style="text-align: center; vertical-align: middle; border: 1px solid #ccc; padding: 8px;">
-      <a href="/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/">2025</a>
+      <a href="/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/">2026</a>
     </td>
     <td style="text-align: center; vertical-align: middle; border: 1px solid #ccc; padding: 8px;">
       <a href="/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/">2025</a>
@@ -128,6 +128,6 @@ weight: 330
     <td style="text-align: center; vertical-align: middle; border: 1px solid #ccc; padding: 8px;">
       <a href="/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1963/">1963 et avant</a>
     </td>
-    <td colspan="4" style="text-align: center; vertical-align: middle; border: 1px solid #ccc; padding: 8px;"></td>
+    <td colspan="3" style="text-align: center; vertical-align: middle; border: 1px solid #ccc; padding: 8px;"></td>
   </tr>
 </table>
