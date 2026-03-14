@@ -17,7 +17,7 @@ St François d’Assise est aussi considéré comme le précurseur du dialogue i
 
 | **Année**
 |---
-|[2026 à 2028](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-14-2-4-fr-st-francis-of-assisi-2026-2028.md/) |
-|[2023 à 2025](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-14-2-3-fr-st-francis-of-assisi-2023-2025.md/) |
-|[2020 à 2022](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-14-2-2-fr-st-francis-of-assisi-2020-2022.md/) |
-|[2003 à 2019](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-14-2-1-fr-st-francis-of-assisi-2003-2019.md/) |
+|[2026 à 2028](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-14-2-4-fr-st-francis-of-assisi-2026-2028/) |
+|[2023 à 2025](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-14-2-3-fr-st-francis-of-assisi-2023-2025/) |
+|[2020 à 2022](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-14-2-2-fr-st-francis-of-assisi-2020-2022/) |
+|[2003 à 2019](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-14-2-1-fr-st-francis-of-assisi-2003-2019/) |

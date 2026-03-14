@@ -11,18 +11,18 @@ weight:
 
 Comme il se doit, les écrivains et les philosophes ont été nombreux à s’exprimer au cours des années. A ce jour, mi-2023, environ 150 messages ont été communiqués par des personnalités les plus diverses. C’est ainsi que se sont exprimés Georges Gurdjieff, mystique et philosophe Arménien, Hafez ou Hafiz (selon les goûts) qui fut un poète, philosophe et un mystique Persan, Kahil Gibran (poète Libanais) mais aussi d’anciens médiums qui, durant leur vie terrestre et particulièrement au début du 20ème siècle, c’est-à-dire la période où James Padgett a canalisé plus d’un millier de messages. Parmi ces auteurs « spirituels » on notera Robert James Lees (auteur de la série de livres « The Life Elysean (la vie Elyséenne), Robert Hugh Benson qui fut l’auteur spirituel du livre « Ma vie au Paradis »), le Révérend GV Owen auteur du livre « Through the mists (A travers les Brumes) qui en 1952 en était déjà à sa 20ème réédition. Cependant l’auteur le plus connu est William Shakespeare qui a communiqué une quinzaine de messages.
 
-[Georges Gurdjieff](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-8-1-georges-gurdjieff.md)
+[Georges Gurdjieff](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-8-1-georges-gurdjieff/)
 </br>
-[Georges Vale Owen](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-8-2-georges-vale-owen.md)
+[Georges Vale Owen](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-8-2-georges-vale-owen/)
 </br>
-[Hafiz](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-8-3-fr-hafiz.md)
+[Hafiz](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-8-3-fr-hafiz/)
 </br>
-[Kahlil Gibran](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-8-4-fr-kahlil-gibran.md)
+[Kahlil Gibran](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-8-4-fr-kahlil-gibran/)
 </br>
-[Robert Hughes Benson](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-8-5-fr-robert-hugues-benson.md)
+[Robert Hughes Benson](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-8-5-fr-robert-hugues-benson/)
 </br>
-[Robert James Lees](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-8-6-fr-robert-james-lees.md)
+[Robert James Lees](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-8-6-fr-robert-james-lees/)
 </br>
-[William Shakespeare](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-8-7-fr-wiliiam-shakespeare.md)
+[William Shakespeare](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-8-7-fr-wiliiam-shakespeare/)
 </br>
-[Ecrivains et Philosophes divers](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-8-8-fr-various-writers-and-philosophers.md)
+[Ecrivains et Philosophes divers](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-8-8-fr-various-writers-and-philosophers/)

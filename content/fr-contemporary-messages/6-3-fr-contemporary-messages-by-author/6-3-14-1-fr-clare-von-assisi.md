@@ -13,10 +13,10 @@ Claire d'Assise est née le 16 Juillet 1194 à Assise dans une famille de la nob
 
 | **Année**
 |---
-|[2025 à 2027](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-14-1-4-fr-clare-von-assisi-2025-to-2027.md/) |
-|[2022 à 2024](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-14-1-3-fr-clare-von-assisi-2022-to-2024.md/) |
-|[2021](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-14-1-2-fr-clare-von-assisi-2021.md/) |
-|[2020](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-14-1-1-fr-clare-von-assisi-2020.md/) |
+|[2025 à 2027](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-14-1-4-fr-clare-von-assisi-2025-to-2027/) |
+|[2022 à 2024](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-14-1-3-fr-clare-von-assisi-2022-to-2024/) |
+|[2021](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-14-1-2-fr-clare-von-assisi-2021/) |
+|[2020](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-14-1-1-fr-clare-von-assisi-2020/) |
 
 
 
