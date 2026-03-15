@@ -13,7 +13,7 @@ Moïse est un des personnages les plus célèbres de l'Ancien Testament. Il faut
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-||<p align="center">>span style="color:red">**De 1969 à 2010**</span></p> |
+|| <p align="center"><span style="color:red">**Pour les années 1969 à 2010**</span></p> | |
 Moïse | [Aucun d'entre nous n'est une île](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-33-1969-11-3-anonymous-moses/) | 3 Novembre 1969
 Moïse | [Symboles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-70-1969-anonymous-moses/) |   1969
 Moïse | [Nos enseignements sont simples](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-73-1969-anonymous-moses/) |   1969
@@ -39,7 +39,7 @@ Moïse | [Préparation de Moïse à l’approche Hébraïque de Dieu – 2](/fr-
 Moïse | [La mort de Moïse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-5-8-1-fab-moses/) | 8 Mai 2010
 Moïse | [La relation de Moïse avec les femmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-10-20-1-fab-moses/) | 20 Octobre 2010
 Moïse | [Les conseils de Moïse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-11-21-1-fab-moses/) | 21 Novembre 2010
-||<p align="center">>span style="color:red">**Après 2010**</span></p> |
+|| <p align="center"><span style="color:red">**Après les années 2010**</span></p> | |
 Moïse | [Leçon sur la fausseté de l’expiation indirecte et la nature incertaine de la vérité personnelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-12-2-af-moses/) | 12 Avril 2016
 Moïse | [Les adeptes de l’Amour Divin doivent s’unir au nom de l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-28-2-af-moses/) | 28 Novembre 2016
 Moïse | [Cherchez la source de tout amour, vérité et lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-24-3-af-moses/) | 24 Février 2018

@@ -11,7 +11,7 @@ weight:
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-|| <p align="center">span style="color:red">**Fihures historiques de la Royauté de divers pays**</span></p> | |
+|| <p align="center"><span style="color:red">**Figures historiques de la Royauté de divers pays**</span></p> | |
 Caligula | [Décrit son voyage des enfers les plus profonds aux Cieux Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-29-1-af-caligula/) | 29 Octobre 2024
 Charles I | [Un roi anglais fait le bilan de son règne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-21-2-fab-charles-i/) | 21 Février 2008
 Jacques Ier | [Un roi anglais est humble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-21-3-fab-james-i/) | 21 Février 2008
@@ -38,7 +38,7 @@ Reine Victoria | [Parle de la loyauté (Reine d'Angleterre)](/fr-contemporary-me
 Reine Victoria | [Soyez fidèles, mais surtout, soyez forts et sages dans l'amour de Dieu.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-162-1970-anonymous-queen-victoria/) |   1970
 Reine Victoria | [Beaucoup travaillent ensemble pour la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-3-2-af-queen-victoria/) | 3 Novembre 2017
 Reine Victoria | [Désire l’harmonie, la lumière, l’amour et la joie pour tous dans son pays : Guernesey](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-15-5-af-queen-victoria/) | 15 Mai 2022
-||<p align="center">span style="color:red">**communications de Robert Kennedy**</span></p> ||
+|| <p align="center"><span style="color:red">**communications de Robert Kennedy**</span></p> | |
 Robert Kennedy | [Guidance divine d'un Kennedy](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-29-1-fab-robert-kennedy/) | 29 Août 2008
 Robert Kennedy | [Guidance divine d'un Kennedy - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-30-1-fab-robert-kennedy/) | 30 Août 2008
 Robert Kennedy | [Pensées d'un Kennedy](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-8-28-1-fab-robert-kennedy/) | 28 Août 2009
@@ -49,7 +49,7 @@ Robert Kennedy | [Plus sur Robert Kennedy](/fr-contemporary-messages/fr-contempo
 Robert Kennedy | [Plus sur Robert Kennedy - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-7-2-fab-robert-kennedy/) | 7 Décembre 2009
 Robert Kennedy | [Plus sur Robert Kennedy - 3](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-8-1-fab-robert-kennedy/) | 8 Décembre 2009
 Robert Kennedy | [Plus sur Robert Kennedy - 4](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-12-8-2-fab-robert-kennedy/) | 8 Décembre 2009
-||<p align="center">>span style="color:red">**Autres Rois et Reines**</span></p> |
+|| <p align="center"><span style="color:red">**Autres Rois et Reines**</span></p> | |
 Roi George I | [Un roi anglais est maintenant heureux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-11-25-2-fab-king-george-i/) | 25 Novembre 2007
 Roi George III | [Le point de vue de George III sur la Révolution Américaine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-20-1-fab-king-george-iii/) | 20 Septembre 2008
 Roi George VI | [Continuez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-14-2-af-king-george-vi/) | 14 Novembre 2017
