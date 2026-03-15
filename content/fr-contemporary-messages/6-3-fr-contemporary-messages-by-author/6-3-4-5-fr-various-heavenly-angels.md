@@ -2,7 +2,7 @@
 title: "Anges Célestes Divers"
 menu_title: ""
 description: "Anges Célestes Divers"
-date: 2023-05-31 06:25:48+00:80
+date: 2026-02-28 06:00:00+00:00
 draft: False
 hidden: True
 weight:
@@ -25,6 +25,7 @@ Eloise Nunn | [Je vous donne ma fille](/fr-contemporary-messages/fr-contemporary
 Elyon | [Un message d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-1-6-1-na-elyon/) | 6 Janvier 2006
 Emi et Martin Luther | [Courage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-7-13-1-hm-emi-martin-luther/) | 13 Juillet 2017
 Emmanuel | [Parle de la beauté du jardin de nos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-8-3-af-immanuel/) | 8 Mars 2024
+||<p align="center"><span style="color:red">**Esprit Céleste Elev**</span></p> | |
 Esprit Céleste Elevé | [Faits, noms, dates et divergences](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-4-2-2-ks-a-high-celestial-spirit/) | 2 Avril 2000
 Esprit Céleste Elevé | [Esprit, Amour et Perfection](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-4-7-1-ks-a-high-celestial-spirit/) | 7 Avril 2000
 Esprit Céleste Elevé | [Un Esprit Céleste Élevé : Conseil personnel ; sur les Premiers Parents](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-6-19-1-ks-a-high-celestial-spirit/) | 19 Juin 2000
@@ -38,6 +39,7 @@ Esprit Céleste Elevé | [Protection contre les blessures](/fr-contemporary-mess
 Esprit Céleste Elevé | [La foi et comment découvrir la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-12-19-1-ks-a-high-celestial-spirit/) | 19 Décembre 2000
 Esprit Céleste Elevé | [S’élever au-dessus du mal](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-1-23-2-ks-a-high-celestial-spirit/) | 23 Janvier 2001
 Esprit Céleste Elevé | [Tendre l’autre joue](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-2-24-1-ks-a-high-celestial-spirit/) | 24 Février 2001
+||<p align="center"><span style="color:red">**Estelle Roberts et Grace Jordan**</span></p> | |
 Estelle Roberts et Augustin | [Les Anges se préparent à nous accueillir à Harrow](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-13-1-af-estelle-roberts-augustine/) | 13 Août 2025
 Estelle Roberts | [Ouverture de la retraite de Harrow : chantez votre chanson émouvante sur la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-5-1-af-estelle-roberts/) | 5 Septembre 2025 
 Estelle Roberts | [Cette église sera un sanctuaire de lumière pour beaucoup](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-7-3-af-estelle-roberts/) | 7 Septembre 2025
@@ -51,6 +53,7 @@ Grace Jordan | [Exprime sa gratitude pour la retraite Starpoint ](/fr-contempora
 Grace Jordan | [Se connecter au sens des circonstances](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-11-2-mc-grace-jordan/) | 11 Avril 2025 
 Grace Jordan | [Soyez courageux face à vos défis](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-20-6-mc-grace-jordan/) | 20 Avril 2025
 Grace Jordan | [Un acte de Foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-13-2-af-grace-jordan/) | 13 Janvier 2026
+ ||<p align="center"><span style="color:red">**Autres Anges Célestes**</span></p> | |
 Isabelle | [Se présente comme la guide de Sonja pour son anniversaire ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-16-2-af-isabel/) | 16 Janvier 2025
 James Tudor Sr. | [Laissez les morts enterrer les morts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-21-2-af-james-tudor-sr/) | 21 Janvier 2024
 James Tudor Sr | [Exprime sa déception face aux changements culturels à la Barbade ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-22-2-af-james-tudor-sr/) | 22 Janvier 2025

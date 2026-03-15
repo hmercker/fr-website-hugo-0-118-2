@@ -167,4 +167,5 @@ Marie & Jean | [Esprit Divin](/fr-contemporary-messages/fr-contemporary-messages
 Marie & Jean | [L’amour est notre cause](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-8-1-1-cc-mary-john/) | 1 Août 2003
 Jeanne d'arc, Marie et Keea Atta Kem | [Venez soutenir toutes les femmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-15-1-af-joan-of-arc-mary-keea-atta-kem/) | 15 Avril 2025 
 Marie | [Nous cherchons à servir Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-18-1-af-mary/) | 18 Septembre 2025
+Marie | [Votre transformation dans l’Amour de Dieu est possible dès votre séjour sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-12-3-af-mary/) | 12 Janvier 2026
  

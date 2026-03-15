@@ -33,5 +33,6 @@ Jésus et Barthélémy | [Bénédictions propices de l'amour de Dieu pour un gra
 Barthélémy | [Confirme que les messages transmis sont des vérités divines](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-26-3-af-bartholomew/) | 26 Janvier 2025 
 Nathanael (Barthélémy)| [Les Royaumes Spirituels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-27-1-jw-nathanael/) | 27 Janvier 2025
 Barthélémy | [Les prières à utiliser dans le service offrent des opportunités de croissance et d'apprentissage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-5-1-af-bartholomew/) | 5 Février 2025
+Barthélémy | [Ne restez pas inactifs : Tenez ferme dans la simple Vérité de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-4-2-af-bartholomew/) | 4 Janvier 2026 
 
 

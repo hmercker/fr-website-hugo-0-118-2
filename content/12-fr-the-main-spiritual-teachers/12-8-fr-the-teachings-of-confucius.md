@@ -11,6 +11,7 @@ weight: 735
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
+|| <p align="center"><span style="color:red">**Pour les années 1969 à 2015**</span></p> | |
 Confucius | [Allez de l'avant en tant qu'enseignants et guérisseurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-19-1969-8-11-anonymous-confucius/) | 11 Août 1969
 Confucius | [L'amour naturel de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-25-1969-10-1-anonymous-confucius/) | 1 Octobre 1969
 Confucius | [Désir de parler à mon peuple](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-44-1969-12-17-anonymous-confucius/) | 17 Décembre 1969
@@ -23,6 +24,7 @@ Confucius | [L'humanité construit ses fondations](/fr-contemporary-messages/fr-
 Confucius | [Recevoir l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-17-2-af-confucius/) | 17 Mai 2014
 Confucius | [L’amour est la chose la plus importante](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-21-1-af-confucius/) | 21 Mai 2014
 Confucius | [La différence entre Amour Divin et l’Amour naturel et comment l’obtenir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-10-11-2-af-confucius/) | 11 Octobre 2014
+|| <p align="center"><span style="color:red">**Pour les années 2016 à 2019**</span></p> | 
 Confucius | [Accepter les nouvelles prises de conscience d'une âme qui se libère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-4-1-af-confucius/) | 4 Janvier 2016
 Confucius | [Comment le don d’amour peut toucher une âme et changer le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-18-1-af-confucius/) | 18 Janvier 2016
 Confucius | [N'oubliez pas de nourrir votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-2-10-1-af-confucius/) | 10 Février 2016
@@ -79,6 +81,7 @@ Confucius | [Chaque rencontre est une bénédiction](/fr-contemporary-messages/f
 Confucius | [Dieu se sert de vous de bien des manières différentes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-12-2-af-confucius/) | 12 Novembre 2019
 Confucius | [La vérité, la grâce et l'amour qui ont été promis seront donnés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-21-2-af-confucius/) | 21 Novembre 2019
 Confucius | [Buvez profondément ces eaux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-27-1-af-confucius/) | 27 Novembre 2019
+|| <p align="center"><span style="color:red">**Pour les années 2020 à 2025**</span></p> | 
 Confucius | [Marchez toujours dans la lumière de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-2-18-1-af-confucius/) | 18 Février 2020
 Confucius | [Une bénédiction de guérison et de paix (Cercle de prière en ligne 2020)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-10-1-af-confucius/) | 10 Avril 2020
 Confucius | [Vous créez un portail de lumière en vous unifiant dans la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-27-2-af-confucius/) | 27 Avril 2020
@@ -110,4 +113,7 @@ Confucius | [Louanges aux Enfants de Lumière](/fr-contemporary-messages/fr-cont
 Confucius | [Soyez fidèles aux aspirations de votre âme et profitez pleinement de ce temps passé ensemble ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-4-1-af-confucius/) | 4 Mai 2025 
 Confucius | [Chaque âme est aimée de la même façon par Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-19-2-af-confucius/) | 19 Septembre 2025
 Confucius | [Message de clôture de la retraite de Fontainebleau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-21-2-af-confucius/) | 21 Septembre 2025
+|| <p align="center"><span style="color:red">**Pour les années 2026 à 2028**</span></p> | 
+Confucius | [Soyez consciencieux et faites de grands efforts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-7-3-af-confucius/) | 7 Janvier 2026 
+Confucius | [Trouver l'humour dans nos conversations sur la Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-10-2-af-confucius/) | 10 Janvier 2026 
 

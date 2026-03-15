@@ -2,7 +2,7 @@
 title: "Mylora"
 menu_title: ""
 description: "Mylora"
-date: 2023-05-31 06:25:48+00:80
+date: 2026-02-28 06:00:00+00:00
 draft: False
 hidden: True
 weight:
@@ -13,7 +13,7 @@ weight:
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-| <p align="center">**pour les années 2019 à 2022**</p> |
+|| <p align="center"><span style="color:red">**Pour les années 2019 à 2022**</span></p> |
 Mylora | [Votre lumière est très attirante dans le monde spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-3-2-af-mylora/) | 3 Décembre 2019
 Mylora | [Je suis avec vous dans vos efforts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-2-3-af-mylora/) | 2 Octobre 2020
 Mylora | [Prier avec une intention et une motivation aimantes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-5-16-1-af-mylora/) | 16 Mai 2021
@@ -28,7 +28,7 @@ Mylora | [Comment Dieu veille sur nous tous](/fr-contemporary-messages/fr-contem
 Mylora | [Honorer la terre merre qui nous aime tant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-2-1-af-mylora/) | 2 Septembre 2022
 Mylora | [Soyez dans la grâce de Dieu ; cherchez son amour maintenant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-8-1-al-mylora/) | 8 Octobre 2022
 Mylora | [Lorsque vous placez Dieu en premier, il y a du temps pour tout](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-16-1-af-mylora/) | 16 Octobre 2022
-| <p align="center">**pour les années 2023 à 2026**</p> |
+|| <p align="center"><span style="color:red">**Pour les années 2023 à 2026**</span></p> |
 Mylora | [Bénédiction de guérison profonde alors que nous voyageons à Laurelville ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-11-6-af-mylora/) | 11 Octobre 2023
 Mylora | [Commentaires sur les niveaux de guérison ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-7-1-af-mylora/) | 7 Novembre 2023
 Mylora | [Partenaires de Guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-7-2-em-mylora/) | 7 Décembre 2023

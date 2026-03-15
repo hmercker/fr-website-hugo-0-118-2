@@ -11,6 +11,8 @@ weight:
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
+Jésus | [Unis dans l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-4-1-af-jesus/) | 4 Janvier 2026 
+Jésus  | [Les Anges du Ciel viennent vous accompagner avec grâce et humilité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-7-1-af-jesus/) | 7 Janvier 2026 
 Isaïe, Jésus, Moïse | [Le monde change](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-8-1-af-isaiah-jesus-moses/) | 8 Janvier 2026
 Jésus et Judas | [Choisir l’Amour de Dieu / Jésus confirme Judas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-10-1-af-jesus-and-judas/) | 10 Janvier 2026
 Jésus  | [Il y a beaucoup de choses que vous ignorez sur vous-mêmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-12-2-af-jesus/) | 12 Janvier 2026

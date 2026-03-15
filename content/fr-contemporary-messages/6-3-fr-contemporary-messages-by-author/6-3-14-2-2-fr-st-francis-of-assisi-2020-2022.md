@@ -2,7 +2,7 @@
 title: "Messages communiqués par St François d'Assise au cours des années 2020 à 2022"
 menu_title: ""
 description: "Messages communiqués par St François d'Assise au cours des années 2020 à 2022"
-date: 2023-05-24 00:00:11+11:00
+date: 2026-02-28 16:00:01+00:01
 draft: False
 hidden: True
 weight:
@@ -11,7 +11,7 @@ weight:
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
- | <p align="center">**pour l'année 2020**</p> |
+ | <p align="center"><span style="color:red">**Pour l'année 2020**</span></p> |
 St François d'Assise | [La croyance en l'Amour de Dieu transcende toutes les autres croyances](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-1-3-jw-st-francis-of-assisi/) | 1 Janvier 2020
 St François d'Assise | [Fou pour Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-2-14-1-jw-st-francis-of-assisi/) | 14 Février 2020
 St François d'Assise | [Faites grandir vos âmes dans le jardin d’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-3-1-jw-st-francis-of-assisi/) | 3 Mars 2020
@@ -35,7 +35,7 @@ St François d'Assise | [Le secret de l’âme est d’être humble](/fr-contemp
 St François d'Assise | [Le secret](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-4-3-jw-st-francis-of-assisi/) | 4 Octobre 2020
 St François d'Assise | [Soyez Bénis](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-10-3-jw-st-francis-of-assisi/) | 10 Octobre 2020
 St François d'Assise | [Se tenir nu devant Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-11-10-2-jw-st-francis-of-assisi/) | 10 Novembre 2020
- | <p align="center">**pour l'année 2021**</p> |
+ | <p align="center"><span style="color:red">**Pour l'année 2021**</span></p> |
 St François d'Assise | [Ce chemin exige que vous sachiez ce qui est important](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-1-1-jw-st-francis-of-assisi/) | 1 Janvier 2021
 St François d'Assise | [L’illumination par l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-13-1-jw-st-francis-of-assisi/) | 13 Janvier 2021
 St François d'Assise | [Tendre la main avec l’Amour de Dieu dans vos cœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-2-15-1-jw-st-francis-of-assisi/) | 15 Février 2021
@@ -48,7 +48,7 @@ St François d'Assise | [Bénis soient les enfants](/fr-contemporary-messages/fr
 St François d'Assise | [Nous implore d’apporter une plus grande lumière dans le monde (Cercle de Prière en ligne)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-17-1-af-st-francis-of-assisi/) | 17 Octobre 2021
 St François d'Assise | [Le plan des amis et de la famille de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-6-1-jw-st-francis-of-assisi/) | 6 Novembre 2021
 St François d'Assise | [Ce choix simple](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-20-1-jw-st-francis-of-assisi/) | 20 Décembre 2021
- | <p align="center">**pour l'année 2022**</p> |
+ | <p align="center"><span style="color:red">**Pour l'année 2022**</span></p> |
 St François d'Assise | [L’importance de nos cercles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-2-1-1-af-st-francis-of-assisi/) | 1 Février 2022
 St François d'Assise | [C’est seulement une question de grâce](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-14-1-jw-st-francis-of-assisi/) | 14 Mars 2022
 St François d'Assise | [S’épanouir dans la générosité de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-28-1-jw-st-francis-of-assisi/) | 28 Mars 2022

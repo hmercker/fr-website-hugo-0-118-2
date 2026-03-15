@@ -1,0 +1,22 @@
+---
+title: "Ne restez pas inactifs : Tenez ferme dans la simple Vérité de l'Amour de Dieu"
+menu_title: ""
+description: "Ne restez pas inactifs : Tenez ferme dans la simple Vérité de l'Amour de Dieu"
+date: 2026-03-15 06:00:00+00:00
+draft: False
+hidden: True
+weight:
+---
+### Ne restez pas inactifs : Tenez ferme dans la simple Vérité de l'Amour de Dieu
+
+Barthélémy - reçu par Albert Fike le 04 Janvier 2026, ChristChurch, La Barbade.
+
+Je viens saluer ceux qui sont sous ma protection. Je viens vous témoigner de la Volonté de Dieu et vous encourager sur le chemin du service, car ce Cercle de Lumière a un grand dessein et une grande destinée. Âmes bien-aimées, considérez ceci : vous avez été réunis dans un but précis et vous avez un grand dessein. Chacun de vous porte une vocation, un don que Dieu entend utiliser pour élever non seulement ceux qui vous entourent ici, mais aussi cette vaste région d’îles, de nations et de peuples. Dans les temps à venir, vos voix se feront entendre, le message sera transmis, le véritable chemin du salut sera partagé. Rayonnez de l’Amour du Père, et les autres ressentiront votre présence, votre message et bénéficieront de vos dons pour élever, guérir et inspirer les âmes à s’ouvrir à Dieu.
+
+Il y a beaucoup à faire. Je vous suggère de ne pas perdre votre temps en futilités et en fausses doctrines, mais de saisir la simple Vérité de l’Amour de Dieu et d’en faire votre priorité, votre prière, et d’appliquer cet Amour dans tout ce que vous êtes et tout ce que vous faites. Car cela exige de l’application. Cela exige de l’expression. Cela exige votre compréhension et que vous embrassiez cette Vérité en vous, dans tous les aspects de votre vie, à chaque instant.
+
+Vous ne pouvez pas aller dans le monde comme instruments de Dieu et être ambivalents, ni suivre deux chemins à la fois. Il doit y avoir l’unité et la force de l’engagement de l’âme qui connaît et comprend la vérité. Vous devez plonger au plus profond de votre âme ; communier avec elle et être véritablement en harmonie avec Dieu. Ainsi, la guidance et la Volonté de Dieu se manifesteront à vous avec une présence si belle et si puissante qu’il n’y aura plus aucun doute. Il n’y aura pas de retour en arrière. Il y aura un chemin à suivre, un chemin que Dieu éclairera, guidera et vous montrera, vous révélant ce qui est nécessaire et ce qui sera. N’esquivez pas vos responsabilités, mais recherchez chaque jour, dans la prière, la guidance divine. Cherchez à grandir dans l’Amour du Père. Cherchez à vous dépouiller de tout ce qui est contraire à Son Amour et recherchez un puissant flux qui vous transformera, vous rendra entiers aux yeux de votre Créateur et vous unira à tout ce qui est saint et divin.
+
+Il n’y a pas d’autre voie, mes chers amis. Vous n’êtes pas sans savoir cette vérité. Je vous exhorte à la vivre pleinement et à incarner la vérité dans tout ce que vous faites. Oh, mes chers amis, le temps presse et vous devez profiter de ce calme avant la tempête. Je le répète, ne perdez pas votre temps, mais engagez-vous résolument dans votre quête d’éveil et de transformation de l’âme, car c’est ce dont le monde a besoin aujourd’hui : des guides, des êtres de lumière, prêts à s’avancer, à se laisser appeler par Dieu et à être Ses émissaires, à montrer le chemin de l’Amour divin pour transformer, guérir et élever. Vous ne pouvez pas agir à la place d’autrui, mais vous pouvez montrer le chemin. Vous pouvez être un exemple. Vous pouvez être une lumière qui éclaire le chemin. En agissant ainsi, vous accomplissez l’œuvre de Dieu. En étant cela, vous êtes véritablement un enfant de Dieu.
+
+Mes chers amis, Dieu vous a réunis dans un but précis. Il vous révélera ce but et comment l’accomplir. Que vous soyez bénis sur le chemin de l’éveil, de la connaissance et de l’acceptation véritable de la vérité. Que l’Amour de Dieu vous soit connu dans toute sa plénitude et sa splendeur. Puissiez-vous véritablement suivre ce chemin de vérité et être les instruments de Dieu, des canaux d’Amour dans le monde. Je suis Barthélemy. Je suis avec vous. Je vous soutiendrai. Telle est ma promesse et telle est ma mission : soutenir mes frères et sœurs de ces îles et de ces nations et être un instrument de changement et de réconciliation avec Dieu, notre Père Céleste. Que Dieu vous bénisse, mes bien-aimés. Je suis avec vous. Je suis avec vous et je vous aime. Que Dieu vous bénisse.

@@ -11,6 +11,7 @@ weight: 715
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
+|| <p align="center"><span style="color:red">**Pour les années 2013 à 2019**</span></p> | |
 Yogananda | [Transcender ses émotions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-11-15-1-wv-yogananda/) | 15 Novembre 2013
 Yogananda | [Le monde n’est qu’une illusion de notre imagination](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-31-1-wv-yogananda/) | 31 Mai 2014
 Yogananda | [Êtes-vous prêts à faire briller votre lumière dans les moments d’obscurité ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-9-6-2-wv-yogananda/) | 6 Septembre 2014
@@ -54,6 +55,7 @@ Yogananda | [Vous êtes digne de Son amour](/fr-contemporary-messages/fr-contemp
 Yogananda | [Faites un rituel de toujours demander à être en harmonie avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-6-4-jw-yogananda/) | 6 Décembre 2019
 Yogananda | [Noël est un moment privilégié pour partager le cadeau de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-15-3-jw-yogananda/) | 15 Décembre 2019
 Yogananda | [Priez !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-20-2-jw-yogananda/) | 20 Décembre 2019
+|| <p align="center"><span style="color:red">**Pour les années 2020 à 2021**</span></p> | |
 Yogananda | [Le chemin de la transformation et de l’illumination](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-1-1-jw-yogananda/) | 1 Janvier 2020
 Yogananda | [Vous pouvez effectivement dissiper l'obscurité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-7-2-jw-yogananda/) | 7 Janvier 2020
 Yogananda | [Différences et similitudes entre la méditation et la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-14-1-jw-yogananda/) | 14 Janvier 2020
@@ -105,6 +107,7 @@ Yogananda | [Soyez courageux si vous souhaitez créer des sanctuaires](/fr-conte
 Yogananda | [Créer un sanctuaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-18-2-jw-yogananda/) | 18 Octobre 2021
 Yogananda | [Répond à une conversation au sujet d’un homme prétendant être Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-25-2-af-yogananda/) | 25 Octobre 2021
 Yogananda | [Le voyage du cœur est véritablement le voyage de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-15-1-jw-yogananda/) | 15 Novembre 2021
+|| <p align="center"><span style="color:red">**Pour les années 2022 à 2024**</span></p> | |
 Yogananda | [Laissez vos pensées s’élever vers Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-1-17-1-jw-yogananda/) | 17 Janvier 2022
 Yogananda | [Progression spirituelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-6-2-jw-yogananda/) | 6 Mars 2022
 Yogananda | [Conscience de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-15-6-jw-yogananda/) | 15 Mai 2022
@@ -129,6 +132,7 @@ Yogananda | [Jésus est  mon Yogi](/fr-contemporary-messages/fr-contemporary-mes
 Yogananda | [La foi sur la peur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-22-2-jw-yogananda/) | 22 Septembre 2024
 Yogananda | [Parlez à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-16-1-jw-yogananda/) | 16 Décembre 2024
 Yogananda | [Opportunités d'expériences d'éveil de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-20-1-af-yogananda/) | 20 Décembre 2024
+|| <p align="center"><span style="color:red">**Pour les années 2025 à 2028**</span></p> | |
 Yogananda | [Les Voies du Monde et la Voie de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-3-1-jw-yogananda/) | 3 Mars 2025 
 Yogananda | [Dieu sert ceux qui Le servent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-17-1-jw-yogananda/) | 17 Mars 2025 
 Yogananda | [Yoga de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-14-1-jw-yogananda/) | 14 Avril 2025 
@@ -139,4 +143,4 @@ Yogananda | [Se présente à un disciple de longue date et aux changements spiri
 Yogananda | [Le Yoga d'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-8-3-af-yogananda/) | 8 Juillet 2025
 Yogananda | [Les yogas de l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-13-jw-yogananda/) | 13 Septembre 2025
 Yogananda et Care | [Que votre guidance soit Céleste plutôt que terrestre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-21-5-jw-yogananda-et-care/) | 21 Septembre 2025
-
+Yogananda | [Magnétisme Spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-12-1-jw-yogananda/) | 12 Janvier 2026

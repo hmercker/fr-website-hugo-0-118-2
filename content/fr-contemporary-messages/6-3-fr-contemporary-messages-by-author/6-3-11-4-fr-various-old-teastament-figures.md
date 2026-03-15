@@ -2,7 +2,7 @@
 title: "Diverses figures historiques de l'Ancien Testament"
 menu_title: ""
 description: "Diverses figures historiques de l'Ancien Testament"
-date: 2023-05-31 06:25:48+00:80
+date: 2026-02-28 06:00:00+00:00
 draft: False
 hidden: True
 weight:
@@ -64,6 +64,7 @@ Isaïe | [Venez connaître la vérité, la puissance et la gloire de l'amour](/f
 Jésus, Isaïe et Pierre | [Soyez fidèles à la volonté de Dieu : Un appel à s'éveiller et à servir dans l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-11-2-1-af-jesus-isaiah-peter/) | 2 Novembre 2025
 Isaïe, Jésus, Moïse | [Vous êtes les canaux vivants des bénédictions divines sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-12-12-1-af-isaiah-jesus-moses/) | 12 Décembre 2025
 Isaïe, Jésus, Moïse | [Le monde change](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-8-1-af-isaiah-jesus-moses/) | 8 Janvier 2026
+Isaïe | [Dieu vous offre une vie nouvelle dans Son Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-13-2-af-isaïe/) | 13 Janvier 2026 
 Jacob | [La foi de Jacob en Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-4-1-fab-jacob/) | 4 Février 2003
 Jacob | [Sur la Foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-6-1-hm-jacob/) | 6 Mai 2020
 Jacob | [L'Onction de votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-19-1-af-jacob/) | 19 Septembre 2025

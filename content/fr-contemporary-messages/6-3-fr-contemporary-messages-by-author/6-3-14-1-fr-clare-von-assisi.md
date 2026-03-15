@@ -2,7 +2,7 @@
 title: "Claire d'Assise"
 menu_title: ""
 description: "Claire d'Assise"
-date: 2023-05-31 06:25:48+00:80
+date: 2026-02-28 16:00:01+00:01
 draft: False
 hidden: True
 weight:

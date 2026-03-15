@@ -11,6 +11,7 @@ weight: 705
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
+|| <p align="center"><span style="color:red">**Pour les années 2019 à 2020**</span></p> | |
 Flavius Josèphe | [Facultés de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-1-1-af-josephus/) | 1 Février 2019
 Flavius Josèphe | [Q&R : La notion de mental intérieur n'est pas exacte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-9-1-af-josephus/) | 9 Juillet 2019
 Flavius Josèphe | [Q&R : S'éveiller grâce à l'Amour du Père permet d'accéder soi-même à la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-7-9-2-af-josephus/) | 9 Juillet 2019
@@ -45,6 +46,7 @@ Flavius Josèphe | [Le libre arbitre et son impact sur la Terre (Collection gén
 Flavius Josèphe | [La créativité est la source de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-29-1-af-josephus/) | 29 Avril 2020
 Flavius Josèphe | [Les merveilles de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-18-2-af-josephus/) | 18 Août 2020
 Flavius Josèphe | [Les couches de conscience dans l’âme, le mental et le matériel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-12-6-1-af-josephus/) | 6 Décembre 2020
+|| <p align="center"><span style="color:red">**Pour les années 2022 à 2025**</span></p> | |
 Flavius Josèphe | [Avertissement et réassurance pour des changements terrestres de plus en plus intenses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-29-1-af-josephus/) | 29 Mars 2022
 Flavius Josèphe | [Connaître son âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-21-1-af-josephus/) | 21 Avril 2023
 Flavius Josèphe | [L'intention est la clé de la prière ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-6-11-1-af-josephus/) | 11 Juin 2023
@@ -59,4 +61,5 @@ Flavius Josèphe | [Un monde harmonieux basé sur l’honnêteté, la vérité e
 Flavius Josèphe | [Soyez reconnaissants pour la vie ! ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-8-1-af-josephus/) | 8 Décembre 2024
 Flavius Josèphe | [Vous serez témoins de grands changements dans ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-30-4-af-josephus/) | 30 Mars 2025 
 Flavius Josèphe et André | [Le Pouvoir de la Prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-1-1-af-josephus-andrew/) | 1 Juin 2025
+|| <p align="center"><span style="color:red">**Pour les années 2026 à 2028**</span></p> | |
 

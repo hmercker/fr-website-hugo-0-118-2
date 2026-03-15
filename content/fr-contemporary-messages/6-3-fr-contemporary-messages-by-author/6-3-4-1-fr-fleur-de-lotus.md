@@ -2,7 +2,7 @@
 title: "Fleur de Lotus"
 menu_title: ""
 description: "Fleur de Lotus"
-date: 2023-05-31 06:25:48+00:80
+date: 2026-02-28 06:00:00+00:00
 draft: False
 hidden: True
 weight:
@@ -13,7 +13,7 @@ weight:
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-| | <p align="center">**pour les années 1969 à 2028**</p> | |
+|| <p align="center"><span style="color:red">**Pour les années 1969 à 2028**</span></p> | |
 Fleur de Lotus | [J'ai un grand amour pour la Chine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-76-1969-anonymous-lotus-blossom/) |   1969
 Fleur de Lotus | [Personnel pour M](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-8-10-1-af-lotus-blossom/) | 10 Août 2017
 Fleur de Lotus | [Le salut du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-24-3-af-lotus-blossom/) | 24 Septembre 2017
@@ -26,7 +26,7 @@ Fleur de Lotus | [L'ouverture du don de médiumnité](/fr-contemporary-messages/
 Fleur de Lotus  | [Faites appel à moi pour la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-15-2-mc-lotus-blossom/) | 15 Septembre 2018
 Fleur de Lotus | [L'esprit s'engage à marcher avec nous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-26-1-af-lotus-blossom/) | 26 Octobre 2018
 Fleur de Lotus |  [L’importance de vos Pensées, Émotions et Sentiments](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-22-3-mc-lotus-blossom/) | 22 Novembre 2018
-| <p align="center">**pour les années 2019 à 2025**</p> |
+||<p align="center"><span style="color:red">**Pour les années 2019 à 2025**</span></p> | |
 Fleur de Lotus | [C'est l'âme qui connaît vraiment la vérité, pas l'esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-3-4-2-af-lotus-blossom/) | 4 Mars 2019
 Fleur de Lotus | [Continuer à renforcer vos liens pour accomplir vos missions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-3-10-3-mc-lotus-blossom/) | 10 Mars 2019
 Fleur de Lotus | [Être vulnérable avec Dieu pour guérir les blessures de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-8-1-1-mc-lotus-blossom/) | 1 Août 2019

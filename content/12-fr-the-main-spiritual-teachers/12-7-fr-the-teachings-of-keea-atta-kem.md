@@ -11,6 +11,7 @@ weight: 730
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
+|| <p align="center"><span style="color:red">**Pour les années 1969 à 2015**</span></p> | |
 Keea Atta Kem & Augustin | [Prévoyez la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-123-1969-anonymous-keea-atta-kem-augustine/) |   1969
 Keea Atta Kem | [Contrôle de l'instrument](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-57-1969-anonymous-keea-atta-kem/) |   1969
 Keea Atta Kem | [Faites en sorte que vos âmes soient dignes de recevoir, puis priez et demandez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-132-1969-anonymous-keea-atta-kem/) |   1969
@@ -28,6 +29,7 @@ Keea Atta Kem | [St. Augustin](/fr-contemporary-messages/fr-contemporary-message
 Keea Atta Kem | [C'est le développement de l'âme qui est important pour l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-49-1970-1-8-anonymous-keea-atta-kem/) | 8 Janvier 1970
 Keea Atta Kem | [Effet curatif des couleurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-54-1970-7-26-anonymous-keea-atta-kem/) | 26 Juillet 1970
 Keea Atta Kem | [Utiliser la gratitude pour éliminer les pensées négatives](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-9-14-1-af-keea-atta-kem/) | 14 Septembre 2015
+|| <p align="center"><span style="color:red">**Pour les années 2016 à 2019**</span></p> | |
 Keea Atta Kem | [Accepter chaque âme unique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-16-1-af-keea-atta-kem/) | 16 Janvier 2016
 Keea Atta Kem | [Le prisme de nos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-4-2-af-keea-atta-kem/) | 4 Avril 2016
 Keea Atta Kem | [Comment l’Amour Divin change l’Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-5-16-1-af-keea-atta-kem/) | 16 Mai 2016
@@ -78,6 +80,7 @@ Keea Atta Kem | [Prier pour l'Amour de Dieu dans les conditions difficiles de no
 Keea Atta Kem | [Le Portail de Sydney est une cheville ouvrière du réseau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-5-2-af-keea-atta-kem/) | 5 Novembre 2019
 Keea Atta Kem | [L'harmonie dans un groupe reflète l'harmonie entre les individus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-5-2-mc-keea-atta-kem/) | 5 Décembre 2019
 Keea Atta Kem | [Nous sommes tous de belles fleurs de Dieu S'éveiller à l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-7-2-af-keea-atta-kem/) | 7 Décembre 2019
+|| <p align="center"><span style="color:red">**Pour les années 2020 à 2022**</span></p> | |
 Keea Atta Kem | [Soyez attentifs à la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-12-3-af-keea-atta-kem/) | 12 Janvier 2020
 Keea Atta Kem | [Le treillis de lumière est comme un filet qui recouvre le monde et le relie tous ensemble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-31-3-mc-keea-atta-kem/) | 31 Janvier 2020
 Keea Atta Kem | [Une allocution sérieuse sur le changement des conditions de la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-15-1-af-keea-atta-kem/) | 15 Mars 2020
@@ -100,6 +103,7 @@ Keea Atta Kem | [Nos pensées sont très puissantes et manifestes dans le monde]
 Keea Atta Kem | [Bénédictions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-11-1-af-keea-atta-kem/) | 11 Avril 2022
 Keea Atta Kem | [La vérité viendra de manière unique à chaque âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-30-1-af-keea-atta-kem/) | 30 Août 2022
 Keea Atta Kem | [Ayez de la compassion pour vous-mêmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-22-1-af-keea-atta-kem/) | 22 Octobre 2022
+|| <p align="center"><span style="color:red">**Pour les années 2023 à 2026**</span></p> | |
 Keea Atta Kem | [Préparatifs de nos rassemblements de prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-11-1-af-keea-atta-kem/) | 11 Janvier 2023
 Keea Atta Kem | [Heureux d'être à nouveau réunis avec le groupe du Cercle des 7](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-13-1-af-keea-atta-kem/) | 13 Mars 2023
 Keea Atta Kem | [Vous êtes les rares privilégiés au monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-5-23-1-af-keea-atta-kem/) | 23 Mai 2023
@@ -138,3 +142,4 @@ Keea Atta Kem | [Soyez une lumière dans le monde](/fr-contemporary-messages/fr-
 Keea Atta Kem | [Dieu murmure Son amour dans vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-30-1-af-keea-atta-kem/) | 30 Mai 2025
 Keea Atta Kem | [Les épreuves et les tribulations de l'homme n'ont aucune cause en Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-4-2-em-keea-atta-kem/) | 4 Juin 2025
 Keea Atta Kem | [Aimez-vous pour aimer le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-29-1-af-keea-atta-kem/) | 29 Juillet 2025 
+Keea Atta Kem et Jean le Bien Aimé | [Une âme en relation avec Dieu ne connaît pas de limites](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-11-2-af-keea-atta-kem-et-john-le-beloved/) | 11 Janvier 2026

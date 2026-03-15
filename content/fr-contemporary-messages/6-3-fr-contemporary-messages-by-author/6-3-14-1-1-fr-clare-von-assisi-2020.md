@@ -2,7 +2,7 @@
 title: "Messages communiqués par Claire d'Assise au cours de l'année 2020"
 menu_title: ""
 description: "Messages communiqués par Claire d'Assise au cours de l'année 2020"
-date: 2023-05-24 00:00:11+11:00
+date: 2026-02-28 16:00:01+00:01
 draft: False
 hidden: True
 weight:

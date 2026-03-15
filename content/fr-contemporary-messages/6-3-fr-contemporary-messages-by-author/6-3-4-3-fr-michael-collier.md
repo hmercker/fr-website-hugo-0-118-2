@@ -2,7 +2,7 @@
 title: "Michael Collier"
 menu_title: ""
 description: "Michael Collier"
-date: 2023-05-31 06:25:48+00:80
+date: 2026-02-28 06:00:00+00:00
 draft: False
 hidden: True
 weight:
@@ -13,7 +13,7 @@ weight:
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-| <p align="center">**pour les années 2018 à 2022**</p> |
+|| <p align="center"><span style="color:red">**Pour les années 2018 à 2022**</span></p> |
 Michael Collier | [Comment apporter la vérité aux nouvelles âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-18-1-af-michael-collier/) | 18 Novembre 2018
 Michael Collier | [Apporter une plus grande vie à l’humanité en tant que canaux d’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-26-2-af-michael-collier/) | 26 Novembre 2018
 Michael Collier | [Prions pour la bénédiction de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-10-6-2-af-michael-collier/) | 6 Octobre 2019
@@ -30,8 +30,8 @@ Michael Collier | [Priez pour être utilisé comme des canaux d’amour et de lu
 Michael Collier  | [Vous ferez la connaissance de nombreux frères et sœurs d'autres mondes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-24-2-af-michael-collier/) | 24 Août 2021
 Michael Collier | [Répondre à l’invitation à servir Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-8-2-af-michael-collier/) | 8 Mai 2022
 Michael Collier  | [La chance d'avoir une communauté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-16-2-af-michael-collier/) | 16 Août 2022
-| <p align="center">**pour les années 2023 à 2025**</p> |
-Michael Collier | [Notre rôle sur terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-25-1-af-michael-collier/) | 25 Janvier 2023
+||<p align="center"><span style="color:red">**Pour les années 2023 à 2025**</span></p> |
+Mihael Collier | [Notre rôle sur terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-25-1-af-michael-collier/) | 25 Janvier 2023
 Michael Collier | [Notre rôle dans le plan de dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-26-1-af-michael-collier/) | 26 Janvier 2023
 Michael Collier | [Également engagé envers des liens d’äme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-30-4-af-michael-collier/) | 30 Mars 2023
 Michael Collier | [L'importance de la cohérence, du dévouement et de la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-4-1-af-michael-collier/) | 4 Juillet 2023

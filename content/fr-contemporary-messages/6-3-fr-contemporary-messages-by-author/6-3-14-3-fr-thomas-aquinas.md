@@ -2,8 +2,7 @@
 title: "Thomas d'Aquin"
 menu_title: ""
 description: "Thomas d'Aquin"
-date: 2023-05-31 06:25:48+00:80
-draft: False
+date: 2026-02-28 16:00:01+00:01
 hidden: True
 weight:
 ---

@@ -1,0 +1,34 @@
+---
+title: "Une âme en relation avec Dieu ne connaît pas de limites"
+menu_title: ""
+description: "Une âme en relation avec Dieu ne connaît pas de limites"
+date: 2026-03-15 06:00:00+00:00
+draft: False
+hidden: True
+weight:
+---
+### Une âme en relation avec Dieu ne connaît pas de limites
+
+Keea Atta Kem - reçu par Albert Fike le 11 Janvier 2026, ChristChurch, La Barbade.
+
+**Keea Atta Kem** : Que Dieu vous bénisse, âmes bien-aimées. Je suis Keea Atta Kem. Bienvenue dans ce Cercle de Lumière, ce lieu de lumière, vous, êtres de lumière, réunis aujourd’hui pour chercher une lumière plus intense, plus profonde : la lumière de l’Amour de Dieu, scintillante et rayonnante en vous, cette bénédiction émanant du Créateur de toute chose. Je vous exhorte à faire de Dieu une priorité dans votre vie, à le chercher chaque jour, à le servir chaque jour et à lui adresser des prières sincères, profondes et belles, afin que votre âme continue de s’éveiller et de grandir dans l’Amour. Car lorsque vous êtes en relation avec votre Créateur, dans une relation consciente et belle, vous trouverez une grande paix et une grande joie, l’épanouissement et l’amour.
+
+Nombreux sont ceux qui, parmi vous, souhaitent se passer de Dieu et s’adonner à la méditation et aux rituels qui ne font que satisfaire leur esprit. Pourtant, je vous le dis, plus vous irez en profondeur, plus votre expérience divine sera intense. Car au-delà des pratiques de pleine conscience, des rituels et des routines, vous vous connectez à Dieu au plus profond de votre âme. C’est là que vous et Dieu pouvez nouer une relation puissante, une relation emplie de bénédictions, d’intuitions et de révélations de vérité. Bien sûr, lorsque vous désirez recevoir l’Essence de l’Âme divine, mes chers amis, il existe des domaines de conscience entiers que vous ignorez encore ou que vous n’avez pas explorés. Il vous suffit d’accepter de plonger au plus profond de vous-même et de demeurer dans ce sanctuaire de lumière et d’amour qu’est votre âme, de l’exprimer et de vous connecter à la Grande Âme Suprême, le Créateur suprême de toute chose.
+
+Lorsque cette connexion est établie, les possibilités deviennent infinies. La profondeur et l’étendue de vos expériences dépasseront votre imagination. Car lorsque vous vous libérez du voile de la pleine conscience et que vous avez transcendé ce lieu, l’immensité de l’âme en relation avec Dieu, qui reçoit son Essence, est sans limites, sans forme ni rituel. Il n’y a plus que vous et Dieu ensemble, unissant vos forces par un lien d’Amour qui grandira pour l’éternité.
+
+Dieu n’a pour vous que l’Amour, un Amour inconditionnel, immense et glorieux qui vous guidera sur le chemin de l’éveil spirituel. Vous pourrez ainsi comprendre votre âme, ses facultés et ses aspects difficiles d’accès et de compréhension à travers la conscience et les voies matérielles de votre monde. Mais lorsque vous mettez le monde de côté et que vous vous tournez vers Dieu avec un désir, une prière et une aspiration sincères, alors, mes chers amis, un autre monde s’ouvre à vous. Un monde si différent de ce que ce plan terrestre a à offrir, un monde qui vous apportera l’illumination spirituelle, la connaissance, l’expérience et un Amour qui dépassent tout ce que l’homme naturel peut concevoir. C’est un monde divin.
+
+Nombreux sont ceux qui se croient déjà divins. Certes, ils sont des créations de Dieu, des reflets de Dieu, mais ils ne sont pas imprégnés de l’Essence divine, cette Essence que nous appelons Amour Divin. Cette Essence ouvre la porte à de nombreuses richesses intérieures. Une fois reçue et reconnue, elle devient la clé de tout ce qui relève de l’âme et de sa capacité à expérimenter, comprendre, s’éveiller à cet Amour et être transformée par lui. L’Essence divine réside alors en chaque individu, et un processus entièrement spirituel et unique se met en place.
+
+Dieu a créé chaque âme unique, et c’est dans cette unicité que résident les facultés et la conscience, les expériences, les sentiments, l’Amour qui anime l’âme. Ainsi, vous êtes pleinement conscient de qui vous êtes, de cette âme véritablement unique créée par Dieu, et vous vous éveillez aux multiples facettes de cette âme unique qu’est votre être. Vous savez ainsi que vos capacités et vos dons, exprimés ici-bas, seront amplifiés et éveillés par l’Amour. Ainsi, vous pourrez servir Dieu avec plus de clarté, de puissance, de profondeur et d’amour, expressions propres à l’âme éveillée, inaccessibles à une âme non imprégnée de l’Amour du Père. Nombre de facultés peuvent s’exprimer sans cet Amour, mais bien plus encore s’éveillent et s’expriment avec lui.
+
+Mes chers amis, mes belles âmes, mes âmes en quête, prenez le temps d’être avec Dieu. Confiez-vous à Dieu, offrez-lui vos aspirations, votre désir de vérité. Demandez-lui de vous éclairer, de vous éveiller et de vous transformer. Vous entrerez dans un monde unique, un lieu sacré en vous, éveillé au divin qui vous transcende. Cette connexion, cette relation, est la vocation et le chemin les plus élevés que vous puissiez entreprendre. Elle apporte les dons et les bénédictions les plus précieux. Tout est donné par Amour, librement et abondamment. L’Amour de Dieu pour vous est si immense que vous ne pouvez le comprendre, mais vous pouvez le ressentir. Vous pouvez le percevoir. Il est palpable et il peut être vôtre comme un don tangible au plus profond de votre âme.
+
+Puissiez-vous être bénis par la conscience de ce don que Dieu vous offre à travers vos prières, vos aspirations et vos demandes. Puisse cette expérience être réelle et puissante, vous aidant à comprendre pleinement les éveils que Dieu souhaite pour vous, l’Amour qu’il vous porte. Que Dieu vous bénisse, mes chers amis. Je suis Keea atta Kem et je viens vous encourager, vous aider à comprendre la véritable nature de votre âme. Elle est la porte vers Dieu et la capacité de vous éveiller à tout ce qu’il a placé en vous, à toute sa splendeur et sa beauté. Que Dieu vous bénisse, âmes bien-aimées, et vous garde dans sa Lumière. Je vous aime. Je suis avec vous, dans vos cercles, et je vous aime.
+
+**Jean le Bien-Aimé** : … sur vous et en vous, mes bien-aimés. Je suis Jean, connu sous le nom de Jean le Bien-Aimé. Je viens prier avec vous et reconnaître chacun d’entre vous, pour apporter cette effusion, cette Pentecôte.
+
+Ce Toucher est à votre portée et vous avez le pouvoir d’attirer cette bénédiction à vous. Ouvrez-vous à cette bénédiction. Aspirez-y, désirez-le de tout votre cœur et de toute votre âme, et vous verrez que Die vous répondra à la mesure de cette ferveur et de cet effort.
+
+Que vous soyez bénis, mes bien-aimés, par l’effusion des bénédictions de l’Âme de Dieu sur la vôtre. Dieu le souhaite pour vous, et cela se réalisera selon votre propre désir. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse.

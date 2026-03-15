@@ -2,7 +2,7 @@
 title: "Goldie"
 menu_title: ""
 description: "Goldie"
-date: 2023-05-31 06:25:48+00:80
+date: 2026-02-28 06:00:00+00:00
 draft: False
 hidden: True
 weight:
@@ -12,7 +12,7 @@ weight:
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-| | <p align="center">**pour les années 1969 à 2017**</p> |  |
+|| <p align="center"><span style="color:red">**Pour les années 1969 à 2017**</span></p> |  |
 Goldie | [S'exprimer en tant qu'enseignant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-7-1969-3-25-anonymous-goldie/) | 25 Mars 1969
 Goldie | [Vous ne pouvez grandir que pas à pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-34-1969-11-1-anonymous-goldie/) | 1 Novembre 1969
 Goldie | [Une mission spéciale de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-108-1969-anonymous-goldie/) |   1969
@@ -31,7 +31,7 @@ Goldie | [Son Amour merveilleux](/fr-contemporary-messages/fr-contemporary-messa
 Goldie | [Soyez remplis de joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-29-1-af-goldie/) | 29 Novembre 2017
 Goldie | [Poudre de Lutin et Fleurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-3-1-af-goldie/) | 3 Décembre 2017
 Goldie | [Dansez sur la musique de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-31-1-af-goldie/) | 31 Décembre 2017
-| | <p align="center">**pour les années 2018 à 2020**</p> | |
+|| <p align="center"><span style="color:red">**Pour les années 2018 à 2020**</span></p> | |
 Goldie | [Du plaisir à Hawaï !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-15-1-af-goldie/) | 15 Janvier 2018
 Goldie | [Apportez la musique !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-23-1-af-goldie/) | 23 Février 2018
 Goldie | [En bien des choses, vous êtes plus proche de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-5-3-af-goldie/) | 5 Mars 2018
@@ -47,7 +47,7 @@ Goldie | [Soyez dans la joie](/fr-contemporary-messages/fr-contemporary-messages
 Goldie | [Ouvrez vos cœurs à la joie de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-31-2-af-goldie/) | 31 Janvier 2020
 Goldie | [Ressentir de la joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-3-20-1-af-goldie/) | 20 Mars 2020
 Goldie | [Le ciel chante "Oh Holy One" (Cercles de prière en ligne 2020)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-7-2-mc-goldie/) | 7 Avril 2020
-| | <p align="center">**pour les années 2021 à 2025**</p> | |
+|| <p align="center"><span style="color:red">**Pour les années 2021 à 2025**</span></p> | |
 Goldie | [La beauté de la fleur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-9-1-af-goldie/) | 9 Janvier 2021
 Goldie | [Tout est entre les mains de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-19-1-af-goldie/) | 19 Juin 2021
 Goldie | [Nous recevons tous des conseils, que nous en soyons conscients ou non](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-12-1-af-goldie/) | 12 Avril 2022
@@ -66,4 +66,4 @@ Goldie | [Vous défiez les conditions de ce monde par le rire et la joie](/fr-co
 André et Goldie | [Conseils pour la réunion du conseil d'administration de la DLSF](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-10-2-af-andrew-goldie/) | 10 Mars 2025 
 André et Goldie | [Conseils pour Al et Jeanne avant leur départ pour la Californie ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-24-1-af-andew-et-goldie/) | 24 Avril 2025 
 Augustin et Goldie | [Conseils au conseil d'administration de la DLSF / Gardez la joie et avancez d'un pas léger](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-21-1-af-augustine-and-goldie/) | 21 Mai 2025 
-| | <p align="center">**pour les années 2026 à 2028**</p> |  |
+|| <p align="center"><span style="color:red">**Pour les années 2026 à 2028**</span></p> |  |

@@ -11,6 +11,7 @@ weight: 716
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
+|| <p align="center"><span style="color:red">**Pour les années 1969 à 2019**</span></p> | |
 Seretta Kem | [Produits chimiques de guérison (Chimiste en chef Egyptien du groupe)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-35-1969-11-10-anonymous-seretta-kem/) | 10 Novembre 1969
 Seretta Kem | [La plus grande de toutes les formes de guérison est la guérison par l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-3-29-1-af-seretta-kem/) | 29 Mars 2015
 Seretta Kem | [Être un réconfort dans ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-4-2-af-seretta-kem/) | 4 Janvier 2016
@@ -149,6 +150,7 @@ Seretta Kem | [Vous continuez à vous éveiller alors que vos âmes grandissent 
 Seretta Kem | [L'engagement est nécessaire pour développer les dons de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-10-19-1-af-seretta-kem/) | 19 Octobre 2019
 Seretta Kem | [Priez pour que Dieu guérisse la faille entre chaque âme et Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-10-21-1-af-seretta-kem/) | 21 Octobre 2019
 Seretta Kem | [Conseils pour que le Cercle des Sept se réunisse en personne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-19-2-mc-seretta-kem/) | 19 Décembre 2019
+|| <p align="center"><span style="color:red">**Pour les années 2020 à 2022**</span></p> | |
 Seretta Kem | [Guide pour la retraite de la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-5-1-af-seretta-kem/) | 5 Janvier 2020
 Seretta Kem | [Il vous sera donné de dont vous aurez besoin pour servir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-7-3-af-seretta-kem/) | 7 Janvier 2020
 Seretta Kem | [Vous devez vous concentrer sur la Prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-12-2-af-seretta-kem/) | 12 Janvier 2020
@@ -218,6 +220,7 @@ Seretta Kem | [Guérir avec les couleurs de l'arc-en-ciel](/fr-contemporary-mess
 Seretta Kem | [Le monde a besoin de plus de cercles de lumière d'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-27-1-af-seretta-kem/) | 27 Août 2022
 Seretta Kem | [Se libérer de l'occupation d'une entité inférieure](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-8-31-1-af-seretta-kem/) | 31 Août 2022
 Seretta Kem | [Connaître Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-1-1-af-seretta-kem/) | 1 Novembre 2022
+|| <p align="center"><span style="color:red">**Pour les années 2023 à 2026**</span></p> | |
 Seretta Kem | [Ouverture de la retraite - Cadeau d'un portail](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-3-1-mc-seretta-kem/) | 3 Février 2023
 Seretta Kem | [Dernières recommandations](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-5-1-mc-seretta-kem/) | 5 Février 2023
 Seretta Kem | [Intégration du portail](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-9-1-mc-seretta-kem/) | 9 Février 2023
@@ -261,6 +264,8 @@ Seretta Kem | [La nécessité de créer une fondation solide et de suivre la vol
 Seretta Kem | [L'éveil de différents aspects de notre âme influence la communication avec les anges](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-17-2-af-seretta-kem/) | 17 Mai 2025
 Seretta Kem | [La chimie et l'alignement nécessaires pour libérer les incrustations de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-12-1-af-seretta-kem/) | 12 Juillet 2025
 Seretta Kem | [Guidance pour le chemin le moins fréquenté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-26-1-af-seretta-kem/) | 26 Juillet 2025
+Seretta Kem | [Distinguer les perceptions spirituelles de la conscience de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-7-2-af-seretta-kem/) | 7 Janvier 2026 
+Seretta Kem | [Parle sur le développement personnel des participants à la retraite de la Barbade](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-12-4-mc-seretta-kem/) | 12 Janvier 2026
 
 
 

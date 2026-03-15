@@ -25,6 +25,7 @@ Au milieu de l'année 2024, André avat communiqué près de 120 messages.
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
+|| <p align="center"><span style="color:red">**Pour les années 1963 à 2017**</span></p> |  |
 André | [Tendre la main au Royaume des Cieux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1963/fr-1963-2-14-2-anonymous-andrew/) | 14 Février 1963
 André | [Apporter sa lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-122-1969-anonymous-andrew/) |   1969
 André | [Centre dans la ville](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-127-1969-anonymous-andrew/) |   1969
@@ -65,6 +66,7 @@ André | [Les désirs de votre âme sont nombreux](/fr-contemporary-messages/fr-
 André | [La prière sincère est un désir de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-7-31-1-af-andrew/) | 31 Juillet 2017
 André | [Se tourner vers Dieu pour se nourrir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-6-1-af-andrew/) | 6 Novembre 2017
 André | [S'unir dans l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-8-1-af-andrew/) | 8 Décembre 2017
+|| <p align="center"><span style="color:red">**Pour les années 2018 à 2020**</span></p> |  |
 André | [Vous vous éveillez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-1-1-af-andrew/) | 1 Janvier 2018
 André | [Laissez l'âme s'exprimer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-2-1-af-andrew/) | 2 Mars 2018
 André | [Être dans le courant de l'Amour du Père ensemble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-12-1-af-andrew/) | 12 Mars 2018
@@ -119,6 +121,7 @@ André | [Plantez les graines de l'Amour de Dieu](/fr-contemporary-messages/fr-c
 André | [Soyez cohérent dans vos prières pour être une lumière pour le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-5-1-af-andrew/) | 5 Octobre 2020
 André | [Demander et recevoir l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-16-2-af-andrew/) | 16 Octobre 2020
 André | [L'interconnexion de nos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-11-20-1-af-andrew/) | 20 Novembre 2020
+|| <p align="center"><span style="color:red">**Pour les années 2021 à 2025**</span></p> |  |
 André | [Nous sommes tous nécessaires dans le cadre du plan de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-2-28-2-af-andrew/) | 28 Février 2021
 André | [Le portail de la lumière est ouvert par vos prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-24-1-af-andrew/) | 24 Mars 2021
 André | [Prière au monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-4-2-1-af-andrew/) | 2 Avril 2021
@@ -160,3 +163,7 @@ André et Goldie | [Conseils pour la réunion du conseil d'administration de la 
 André et Goldie | [Conseils pour Al et Jeanne avant leur départ pour la Californie ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-24-1-af-andew-et-goldie/) | 24 Avril 2025 
 Flavius Josèphe et André | [Le Pouvoir de la Prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-1-1-af-josephus-andrew/) | 1 Juin 2025
 André | [Vous ne mourrez pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-1-1-jw-andew/) | 1 Septembre 2025
+|| <p align="center"><span style="color:red">**Pour les années 2026 à 2028**</span></p> |  |
+André | [Vous ne vacillerez pas si vous vivez en accord avec la volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-3-3-af-andrew/) | 3 Janvier 2026 
+André | [Vous bâtissez un pont entre vous et Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-8-1-af-andrew/) | 8 Janvier 2026 
+André | [Les vents du changement soufflent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-13-1-af-andrew/) | 13 Janvier 2026

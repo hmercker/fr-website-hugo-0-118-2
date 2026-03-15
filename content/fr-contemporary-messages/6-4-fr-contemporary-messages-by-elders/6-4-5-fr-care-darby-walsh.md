@@ -107,6 +107,6 @@ Care Darby Walsh | [Lâcher prise](/fr-contemporary-messages/fr-contemporary-mes
 Care Darby Walsh | [Perdre l'esprit et être dans le coeur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-12--jw-care-darby-walsh/) | 12 Septembre 2025
 Care Darby Walsh | [Envisagez d'être occupé dans la prière ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-22-1-jw-care-darby-walsh/) | 22 Septembre 2025
 Care Darby Walsh | [Les sanctuaires prospéreront si leurs fondations sont bâties sur l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-26-1-jw-care-darby-walsh/) | 26 Septembre 2025
-
+Care Darby Walsh | [Maîtriser le service (Rayonner la lumière)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-16-1-jw-care-darby-walsh/) | 16 Février 2026
 
 

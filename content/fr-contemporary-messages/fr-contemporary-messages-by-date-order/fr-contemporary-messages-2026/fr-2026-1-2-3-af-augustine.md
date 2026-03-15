@@ -1,0 +1,28 @@
+---
+title: "Une leçon sur les multiples facettes de notre rôle d'instrumentalistes"
+menu_title: ""
+description: "Une leçon sur les multiples facettes de notre rôle d'instrumentalistes"
+date: 2026-03-15 06:00:00+00:00
+draft: False
+hidden: True
+weight:
+---
+### Une leçon sur les multiples facettes de notre rôle d'instrumentalistes
+
+Augustin - reçu par Albert Fike le 02 Janvier 2026, ChristChurch, La Barbade.
+
+Que vos âmes s’ouvrent pleinement à l’Amour de Dieu, ce grand Élixir de l’âme offert gratuitement par Dieu et qui attend que vous l’acceptiez, que vous le désiriez et que vous vous y ouvriez. Je suis votre maître, Augustin. Il est bon que vous conversiez ensemble de sujets spirituels. Il est bon que ceux d’entre vous qui en parlent continuent de le faire, de partager leur sagesse, car cela élève l’atmosphère et la condition qui vous entourent. Pour ceux qui découvrent cela ou qui ont une perception erronée de la vérité, vos efforts pour partager, parler et converser sont bénéfiques.
+
+Vous devez également réaliser que de nombreux esprits vous entourent constamment. Nombreux sont ceux qui écoutent vos conversations. Nombreux sont ceux qui se joignent à vous dans la prière. Bien sûr, les anges sont avec vous lorsque vous vous réunissez ainsi. L’œuvre ne s’arrête pas avec vous. Elle ne s’interrompt pas lorsque vous ne priez pas. Elle se poursuit à chaque respiration, car nombreux sont ceux qui vous entourent et vous suivent, de nombreux esprits qui ont besoin de lumière, d’amour, de vérité et de bénédictions. Dieu vous utilise à chaque instant, chaque jour, que vous soyez éveillé ou endormi. Il vous utilise comme instruments. Lorsque des personnes extérieures à votre groupe se présentent, elles amènent elles aussi un cortège d’esprits. C’est également une occasion de proclamer la vérité. Lorsque vous marchez dans la rue, que vous rencontrez différentes personnes, ne pensez-vous pas que Dieu vous utilise comme une bénédiction pour elles ?
+
+Dieu répand Ses bénédictions de bien des manières. Il est important pour vous, mes chers et précieux élèves, de prier, de prier pour être utilisés comme instruments de Dieu, canaux d’amour et de bénédictions de vérité pour le monde. Lorsque vous priez, lorsque vous demandez à être utilisés, Dieu vous utilisera, les occasions se présenteront et vous serez guidés. Ne sous-estimez jamais le potentiel d’une situation, mais soyez réceptifs à votre intuition, aux murmures de votre âme et à ce qui parvient à votre esprit et à votre conscience. Ce sont là les voies et les moyens par lesquels Dieu vous utilise comme instrument. Il est important que vous soyez conscients de ces opportunités, des bienfaits que vous pouvez transmettre à autrui.
+
+Le monde entier est dans un grand besoin, mes chers amis, et vous portez en vous une vérité, une lumière, vos dons, une âme en éveil. Quel trésor pour le monde ! Que d’opportunités s’offrent à vous car votre âme a reçu la bénédiction de l’Amour de Dieu et possède de grandes capacités et un potentiel immense, permettant à Dieu de vous utiliser comme son instrument. Méditez là-dessus, mes chers élèves : la responsabilité qui vous incombe, les opportunités que Dieu place devant vous, les potentiels qui peuvent se réaliser, la lumière qui brille en vous et autour de vous. Les anges vous accompagnent et la main de Dieu veille sur vous. Tout cela concourt à créer un puissant canal d’amour, de lumière et de bénédictions pour le monde.
+
+Réfléchissez-y. Réfléchissez à ce pour quoi vous priez. Réfléchissez à ce qui peut découler de vos prières, de vos actions, de vos pensées et de vos désirs. Dans cette réflexion, je vous exhorte à viser l’excellence, afin que le déroulement de votre journée soit véritablement béni et contribue grandement à apporter la lumière au monde. Tout cela découle d’une âme qui désire être avec Dieu, en harmonie avec Son Amour et un canal de Son Amour. C’est une pratique simple, mais les répercussions et les fruits de vos prières et de votre alignement sur la Vérité de l’Amour sont immenses, puissants, profonds et d’une portée considérable.
+
+Votre esprit ne le perçoit pas. Il a beaucoup de mal à saisir la complexité, les multiples facettes du service qu’impliquent les instruments de Dieu, ses enfants bien-aimés. Pourtant, vous, mes chers élèves, vous devez chercher à connaître, à comprendre, à percevoir ce qui se passe sous toutes ces formes et à tous ces niveaux d’expression. Cela vous apportera la véritable sagesse de l’âme, une compréhension profonde de qui vous êtes et de votre véritable nature, ainsi qu’une conscience aiguë de la volonté divine exprimée de manière magnifique.
+
+Mes chers et précieux élèves, continuez à vous épanouir, à grandir, à apprendre et à progresser. Il est important que vous reconnaissiez que chaque jour est une occasion de le faire. Voyez votre journée sous cet angle. Réjouissez-vous de savoir que Dieu vous utilisera comme instruments de manière merveilleuse et sublime. Dieu vous aime profondément. Que votre amour pour Dieu grandisse et s’étende, et que de ce sentiment et de cette expression partagés se manifestent en vous et, par vous, pour le monde.
+
+Que Dieu vous bénisse, mes élèves. Je suis votre enseignant, Augustin. Je vous aime. Je continuerai à enseigner et à exprimer la vérité, et je vous encourage à faire de même. Partout où l’occasion se présente, proclamez cette vérité et soyez des instruments de l’Amour de Dieu, chers frères et sœurs. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse.

@@ -11,6 +11,7 @@ weight: 710
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
+|| <p align="center"><span style="color:red">**Pour les années 2012 à 2019**</span></p> | |
 Martin Luther | [Continuez à tendre la main](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-29-1-jb-martin-luther/) | 29 Mai 2012
 Martin Luther | [Tes prières ont été entendues](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-5-29-3-jb-martin-luther/) | 29 Mai 2012
 Martin Luther | [A la  poursuite de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-7-18-1-af-martin-luther/) | 18 Juillet 2016
@@ -32,6 +33,7 @@ Martin Luther | [La compassion comme expression de l'amour de soi et des autres]
 Martin Luther | [L'éveil progressif de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-26-3-af-martin-luther/) | 26 Octobre 2018
 Martin Luther | [Servir et donner est réciproque](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-9-2-5-af-martin-luther/) | 2 Septembre 2019
 Martin Luther | [Vous devez avoir une rencontre avec votre mental](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-11-3-1-af-martin-luther/) | 3 Novembre 2019
+|| <p align="center"><span style="color:red">**A parir des années 2020**</span></p> | |
 Martin Luther | [Encouragement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-6-2-hm-martin-luther/) | 6 Mai 2020
 Martin Luther | [Encouragements pour le Cercle des Sept](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-14-2-hm-martin-luther/) | 14 Mai 2020
 Martin Luther | [Connaissance de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-15-1-hm-martin-luther/) | 15 Mai 2020

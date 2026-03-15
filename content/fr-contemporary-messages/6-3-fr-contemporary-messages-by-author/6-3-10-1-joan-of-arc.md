@@ -2,7 +2,7 @@
 title: "Jeanne d'Arc"
 menu_title: ""
 description: "Jeanne d'Arc"
-date: 2023-05-31 06:25:48+00:80
+date: 2026-02-28 06:00:00+00:00
 draft: False
 hidden: True
 weight:
@@ -41,7 +41,7 @@ Le 30 mai 1431, elle est brûlée vive sur la place du Vieux-Marché à Rouen, e
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-| <p align="center">**pour les années 1969 à 2023**</p> |
+|| <p align="center"><span style="color:red">**Pour les années 1969 à 2023*</span>**</p> | |
 Jeanne d'Arc | [La plus grande force vient de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-128-1969-anonymous-joan-darc/) |   1969
 Jeanne d'Arc | [Et si je [Jeanne d’Arc] n’avais pas été exécutée ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-12-26-3-gmb-joan-darc/) | 26 Décembre 2006
 Jeanne d'Arc | [S'avancer pour Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-15-1-af-joan-darc/) | 15 Novembre 2017
@@ -56,7 +56,7 @@ Jeanne d'Arc | [Dieu désire guérir l’angoisse de Ses enfants](/fr-contempora
 Jeanne d'Arc | [Vous pouvez rechercher secrètement un véritable désir ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-16-2-em-joan-of-arc/) | 16 Novembre 2023
 Jeanne d'Arc | [Jeanne nous encourage à développer une relation avec nos guides ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-12-1-em-joan-of-arc/) | 12 Décembre 2023
 Jeanne d'Arc | [Comme Dieu le veut, ainsi cela sera ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-28-1-em-joan-of-arc/) | 28 Décembre 2023
-| <p align="center">**pour les années 2024 à 2025**</p> |
+|| <p align="center"><span style="color:red">**Pour les années 2024 à 2025*</span>**</p> | |
 Jeanne d'Arc | [C’est seulement l’Amour de Dieu qui nourrit les personnes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-15-2-em-joan-of-arc/) | 15 Janvier 2024
 Jeanne d'Arc | [Nous sommes prêts et disposés à vous aider à exprimer vos dons ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-4-1-em-joan-of-arc/) | 4 Février 2024
 Jeanne d'Arc | [L’Amour de Dieu est votre droit de naissance ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-9-1-em-joan-of-arc/) | 9 Février 2024
@@ -81,4 +81,4 @@ Jeanne d'Arc | [Rapprochez-vous de votre ange gardien Céleste](/fr-contemporary
 Jeanne d'Arc | [L'Œuvre de la Prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-10-13-2-em-joan-of-arc/) | 13 Octobre 2025 
 Jeanne d'Arc | [Changements terrestres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-10-20-2-em-joan-of-arc/) | 20 Octobre 2025 
 Augustin, Jeanne d'Arc, Jésus et Mathieu | [Guidance pour le Cercle de Lumière de l'Amour Divin francophone](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-20-2-af-augustine-joan-of-arc-jesus-and-matthew/) | 20 Décembre 2024
-| <p align="center">**pour les années 2026 à 2028**</p> |
+|| <p align="center"><span style="color:red">**Pour les années 2026 à 2028*</span>**</p> | |
