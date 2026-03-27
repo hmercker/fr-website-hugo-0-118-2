@@ -116,6 +116,7 @@ Marie | [Soyez l’ami affectueux de l’autre](/fr-contemporary-messages/fr-con
 Marie | [Nous sommes ensemble dans ce ce grand cercle de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-20-1-af-mary/) | 20 Juillet 2021
 Marie | [Une bénédiction de Marie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-20-1-af-mary/) | 20 Août 2021
 Marie | [Paroles de vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-20-1-jw-mary/) | 20 Septembre 2021
+Marie | [Joyaux Inestimables en Mer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-22-1-em-mary/) | 22 Avril 2022
 Marie | [Vient élever et bénir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-14-3-af-mary/) | 14 Mai 2022
 Marie | [Les anges travaillent avec nous pour transformer l’obscurité en lumière, l’erreur en vérité et le chaos en paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-12-1-af-mary/) | 12 Juin 2022
 Marie | [Bénédiction de la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-28-1-af-mary/) | 28 Octobre 2022

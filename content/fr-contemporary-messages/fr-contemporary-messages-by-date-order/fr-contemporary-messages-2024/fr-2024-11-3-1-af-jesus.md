@@ -9,7 +9,7 @@ weight:
 ---
 ### Demandez pour moi
 
-Jésus - reçu par Albert Fike le 03 Novembre 2024, Sechelt, Colombie-Britannique, Canada
+Jésus - reçu par Albert Fike le 03 Novembre 2024, Sechelt, Colombie-Britannique, Canada.
 
 Que la lumière de l’amour et de la vérité de Dieu soit avec vous, frères et sœurs beaux et bien-aimés. Je viens. Je suis Jésus. Je viens prier avec vous et je viens vous aider et vous élever dans la lumière. Alors que vous priez pour vos frères et sœurs, tant ici sur votre monde que dans le monde spirituel, puissiez-vous réaliser que de nombreux anges sont ici pour aider et élever tous ceux pour qui vous priez.
 

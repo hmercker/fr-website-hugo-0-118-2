@@ -25,7 +25,7 @@ Eloise Nunn | [Je vous donne ma fille](/fr-contemporary-messages/fr-contemporary
 Elyon | [Un message d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-1-6-1-na-elyon/) | 6 Janvier 2006
 Emi et Martin Luther | [Courage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-7-13-1-hm-emi-martin-luther/) | 13 Juillet 2017
 Emmanuel | [Parle de la beauté du jardin de nos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-8-3-af-immanuel/) | 8 Mars 2024
-||<p align="center"><span style="color:red">**Esprit Céleste Elev**</span></p> | |
+||<p align="center"><span style="color:red">**Esprit Céleste Elevé**</span></p> | |
 Esprit Céleste Elevé | [Faits, noms, dates et divergences](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-4-2-2-ks-a-high-celestial-spirit/) | 2 Avril 2000
 Esprit Céleste Elevé | [Esprit, Amour et Perfection](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-4-7-1-ks-a-high-celestial-spirit/) | 7 Avril 2000
 Esprit Céleste Elevé | [Un Esprit Céleste Élevé : Conseil personnel ; sur les Premiers Parents](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2000/fr-2000-6-19-1-ks-a-high-celestial-spirit/) | 19 Juin 2000

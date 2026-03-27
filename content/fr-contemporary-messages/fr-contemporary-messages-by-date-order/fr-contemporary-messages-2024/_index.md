@@ -309,13 +309,18 @@ Confucius | [Bénissez les voyageurs qui répandent les vérités de l’amour d
 Augustin | [Restez sur le droit chemin – la simple vérité de l’Amour Divin de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-3-2-af-augustine/) | 3 Septembre 2024
 Mylora | [Respectez les dispositions de la Terre Mère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-6-1-mc-mylora/) | 6 Septembre 2024
 Jeanne d'Arc | [Nous vous avons réunis dans un but précis, ne faites qu'un avec Dieu, ouvre et bénit la retraite de Lansing](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-6-2-em-joan-of-arc/) | 6 Septembre 2024
+Jésus | [Ouverture et bénédiction de la retraite de Lansing](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-6-3-em-jesus/) | 6 Septembre 2024
+Keea Atta Kem | [Soyez Un avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-6-4-af-keea-atta-kem/) | 6 Septembre 2024
 Flavius Josèphe | [Parle sur nos dons et nos destinées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-7-1-af-josephus/) | 7 Septembre 2024
 Augustin | [Il faut notre puissance de prière pour rapprocher Dieu et les anges](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-7-2-af-augustine/) | 7 Septembre 2024
 Hafiz | [Que pensera le monde de vous ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-8-1-jw-hafiz/) | 8 Septembre 2024
 Confucius, Martha, Jesus  | [Félicitations pour une retraite réussie à Lansing](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-8-2-af-confucius-martha-jesus/) | 8 Septembre 2024
+Jésus | [Reconnaissez la joie que le Père vous offre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-8-3-em-jesus/) | 8 Septembre 2024
 Isaïe | [Guerriers de la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-9-1-af-isaiah/) | 9 Septembre 2024
 Augustin | [Comment fonctionne le flux de la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-9-2-af-augustine/) | 9 Septembre 2024
+Alec Gaunt | [Votre joie et votre amour divin rayonnent sur tous ceux qui vous entourent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-9-3-af-alec-gaunt/) | 9 Septembre 2024
 Augustin-Jésus | [Une leçon sur la prise de décision harmonieuse, continue de bénir nos voyages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-11-1-af-augustine-jesus/) | 11 Septembre 2024
+St Pierre | [Vous serez enchantés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-11-2-em-st-peter/) | 11 Septembre 2024
 Jésus | [Nous venons partager la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-12-1-af-jesus/) | 12 Septembre 2024
 St Luc | [Force de la substance du Créateur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-12-2-mc-st-luke/) | 12 Septembre 2024
 Care Darby Walsh | [Vos trésors sont gardés au Ciel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-12-3-jw-care-darby-walsh/) | 12 Septembre 2024
@@ -326,21 +331,25 @@ Yogananda | [Vous êtes tous des êtres saints !](/fr-contemporary-messages/fr-c
 Jésus | [Brisez les chaînes de l’obscurité et libérez vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-14-1-af-jesus/) | 14 Septembre 2024
 Fred Rogers | [Aime son travail en esprit comme il l'a aimé sur terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-14-2-jw-fred-rogers/) | 14 Septembre 2024
 Aaron | [Les anges ne peuvent pas faire leur travail sans l'aide d'instruments sur terre qui peuvent être vus et entendus ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-14-3-af-aaron/) | 14 Septembre 2024
+Goldie | [Souvenez-vous des tout-petits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-14-4-em-goldie/) | 14 Septembre 2024
 Judas | [Les conseils pratiques sont dans la demande](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-15-1-jw-judas/) | 15 Septembre 2024
 Confucius | [Vous avez un grand potentiel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-15-2-af-confucius/) | 15 Septembre 2024
 Moïse | [Vous serez les enfants de Dieu sur la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-15-3-af-moses/) | 15 Septembre 2024
+St Pierre | [Bénédiction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-15-4-em-st-peter/) | 15 Septembre 2024
 Claire d'Assise | [Le silence est d'or](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-16-1-jw-clare-of-assisi/) | 16 Septembre 2024
 Orion et Jésus | [Vous Atteignez les Âmes, Pas les Esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-16-2-af-orion-and-jesus/) | 16 Septembre 2024
-Orion | [Se présente et présente son objectif à la retraite de Poughkeepsie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-20-2-af-orion/) | 20 Septembre 2024
 Plume Blanche | [Concentrez-vous sur Dieu et mettez toutes les distractions de côté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-17-1-af-white-feather/) | 17 Septembre 2024
+Jeanne d'Arc | [Ouvrez grand vos âmes pour recevoir l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-17-2-em-joan-of-arc/) | 17 Septembre 2024
 André | [Vous avez un impact ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-18-1-af-andrew/) | 18 Septembre 2024
+Jean Baptiste | [Décrit l'impact attendu et les participants qui se joindront à nous à Poughkeepsie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-19-1-em-john-the-baptist/) | 19 Septembre 2024
+Jean le Bien Aimé | [La Source de Tout Amour et de Toute Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-20-4-em-john-the-beloved/) | 20 Septembre 2024
 Yogananda | [Jésus est  mon Yogi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-20-1-af-yogananda/) | 20 Septembre 2024
 Orion | [Se présente et présente son objectif à la retraite de Poughkeepsie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-20-2-af-orion/) | 20 Septembre 2024
+Christine | [Être est notre religion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-20-3-af-christine/) | 20 Septembre 2024
 Jésus | [Expiation avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-21-1-af-jesus/) | 21 Septembre 2024
 St Pierre | [Vos bénédictions ne seront pas oubliées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-22-1-af-st-peter/) | 22 Septembre 2024
 Yogananda | [La foi sur la peur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-22-2-jw-yogananda/) | 22 Septembre 20244
 Orion | [Questions et réponses lors de la retraite de Poughkeepsie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-22-3-af-orion/) | 22 Septembre 2024
-Orion et Jésus | [Vous Atteignez les Âmes, Pas les Esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-16-2-af-orion-and-jesus/) | 16 Septembre 2024
 Claire d'Assise | [La forme la plus haute de la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-23-1-jw-clare-of-assisi/) | 23 Septembre 2024
 James Reid | [Le chemin vers le Royaume](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-24-1-af-james-reid/) | 24 Septembre 2024
 St Luc | [Répandez le message loin et largement ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-24-2-af-st-luke/) | 24 Septembre 2024
@@ -383,6 +392,7 @@ Orion | [Les multiples dimensions de la création de Dieu ](/fr-contemporary-mes
 Orion | [L'Amour Divin est la clé de la communication interstellaire et permet d'éviter les distorsions et les distractions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-2-1-af-orion/) | 2 Novembre 2024
 Jésus | [Demandez pour moi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-3-1-af-jesus/) | 3 Novembre 2024
 Judas | [La Naissance de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-4-1-jw-judas/) | 4 Novembre 2024
+Jean le Baptiste | [Annonce de sa supervision des projets de Gestion des Messages pour la diffusion des Vérités de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-7-1-em-john-the-baptist/) | 7 Novembre 2024
 Augustin | [Soyez une lumière et ne vous laissez pas emporter par les ténèbres et les troubles du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-8-1-jw-augustine/) | 8 Novembre 2024
 Jésus | [Vos prières apportent une plus grande lumière au monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-10-1-af-jesus/) | 10 Novembre 2024
 Galilée | [Le centre de l'univers ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-11-1-jw-galileo/) | 11 Novembre 2024
@@ -414,14 +424,17 @@ Keea Atta Kem | [Bénédictions spéciales de grande joie ! ](/fr-contemporary-m
 Yogananda | [Opportunités d'expériences d'éveil de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-20-1-af-yogananda/) | 20 Décembre 2024
 Augustin, Jeanne d'Arc, Jésus  et Mathieu | [Guidance pour le Cercle de Lumière de l'Amour Divin francophone](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-20-2-af-augustine-joan-of-arc-jesus-and-matthew/) | 20 Décembre 2024
 Augustin | [Votre capacité à recevoir des conseils s'approfondit ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-21-1-af-augustine/) | 21 Décembre 2024
+Orion | [Le Voyage de l'Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-21-2-af-orion/) | 21 Décembre 2024
 Barbara Davies| [Souvenez-vous des âmes perdues - Un message de Noël ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-23-1-af-barbara/) | 23 Décembre 2024
 Judas | [La volonté de Dieu et le libre arbitre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-23-2-jw-judas/) | 23 Décembre 2024
 Jésus | [Bénédiction de la veille de Noël pour le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-24-1-af-jesus/) | 24 Décembre 2024
 Marie | [Bénédiction de Noël de son Fils au monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-24-2-af-mary/) | 24 Décembre 2024
 St Mathhieu | [Bénédiction de Noël](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-24-3-af-st-mathhew/) | 24 Décembre 2024
 Michael Collier | [Chevauchez le pendule des bénédictions de Dieu vers la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-27-1-af-michael-collier/) | 27 Décembre 2024
+Orion | [Éloges pour nos efforts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-28-2-af-orion/) | 28 Décembre 2024
 Care Daby Walsh | [Rendre le banal spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-30-1-jw-care-daby-walsh/) | 30 Décembre 2024
 Jésus | [Bénédiction de la veille du Nouvel An](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-31-1-af-jesus/) | 31 Décembre 2024
+Orion | [Message de la veille du Nouvel An](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-31-2-af-orion/) | 31 Décembre 2024
 
 ### [**Lien vers les messages des années 2025**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/)
 

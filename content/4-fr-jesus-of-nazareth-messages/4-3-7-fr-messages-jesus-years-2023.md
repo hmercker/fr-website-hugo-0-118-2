@@ -11,7 +11,6 @@ weight:
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-Jésus | [Continuez à vous concentrer sur la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-27-1-af-jesus/) | 27 Novembre 2022
 Jésus | [Bénédictions pour la nouvelle année](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-1-1-af-jesus/) | 1 Janvier 2023
 Jésus | [Vous avez un but](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-13-2-em-jesus/) | 13 Janvier 2023
 Jésus | [Les prophètes sont nécessaires dans les temps à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-24-1-af-jesus/) | 24 Janvier 2023
@@ -47,4 +46,4 @@ Jésus | [Permettez à Dieu](/fr-contemporary-messages/fr-contemporary-messages-
 Jésus | [Nous vous demandons de briller en tant qu’instruments de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-5-1-af-jésus/) | 5 Novembre 2023
 Jésus | [Prière d'ouverture, but et bénédiction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-29-1-af-jesus/) | 29 Novembre 2023
 Jésus | [Une vérité, de nombreuses expressions ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-1-3-af-jésus/) | 1 Décembre 2023
-
+Jésus | [Une invitation aux membres de la Fédération Galactique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-3-2-em-jesus/) | 3 Décembre 2023

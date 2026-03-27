@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous vous avons réunis dans un but précis, ne faites qu'un avec Dieu, ouvre et bénit la retraite de Lansing
 
-Jeanne d'Arc, Keea Atta Kem, Jésus - reçu par Elizabeth Mack le 06 Sptembre 2024, Lansing, Michigan,  États Unis
+Jeanne d'Arc, Keea Atta Kem, Jésus - reçu par Elizabeth Mack le 06 Septembre 2024, Lansing, Michigan,  États Unis
 
 Vous nous avez, avec une protection tout autour. Nous vous élevons, vous apportant les bénédictions de votre Père Céleste. Je suis Jeanne, Jeanne d’Arc, et je parle à travers ce médium qui me connaît bien. Nous vous avons réunis. Vous avez ressenti le besoin de vous joindre à ce groupe. De vous joindre à la prière. De vous joindre à l’Amour dont le Père bénit chacun d’entre vous. Vous êtes venus ici dans un but. Un but qui vous accompagne depuis votre création, et le moment est venu de l’accomplir.
 

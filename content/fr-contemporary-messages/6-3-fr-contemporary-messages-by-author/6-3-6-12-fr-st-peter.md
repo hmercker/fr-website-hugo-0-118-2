@@ -35,14 +35,19 @@ St Pierre | [Nous sommes devenus des pêcheurs d'hommes](/fr-contemporary-messag
 St Pierre | [La Pentecôte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-31-1-af-st-peter/) | 31 Mai 2020
 St Pierre | [Bénédictions d'en haut](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-10-1-af-st-peter/) | 10 Janvier 2021
 St Pierre | [Considérer ce que c’est que d’être transformé en Amour Divin (Cercle de prière de Gibson)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-11-1-jw-st-peter/) | 11 Octobre 2021
+St Pierre | [Recherche d'âmes à Puenta Delgado](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-24-1-em-st-peter/) | 24 Avril 2022
+St Pierre | [Construire une Église n'est pas chose facile](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-26-1-em-st-peter/) | 26 Avril 2022
 St Pierre | [Apporte un message profond et puissant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-7-15-1-af-st-peter/) | 15 Juillet 2022
 St Pierre | [Le libre arbitre - la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-4-5-em-st-peter/) | 4 Octobre 2022
 St Pierre | [Venez connaitre la réalité de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-9-3-af-st-peter/) | 9 Janvier 2023
 St Pierre | [Cherchez la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-13-4-em-st-peter/) | 13 Janvier 2023
+Jean Baptiste et Pierre | [Ne vous contentez pas de rechercher le repentir / Votre amour manifesté sur Terre produit déjà ses effets](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-14-1-em-john-the-baptist-peter/) | 14 Décembre 2023
+St Pierre | [Ce que vous faites aujourd’hui touchera beaucoup de personnes ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-21-1-em-st-peter/) | 21 Février 2024
 St Pierre | [La lumière qui vous entoure continue de briller](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-14-1-af-st-peter/) | 14 Juillet 2024
 St Pierre | [Atteindre la conscience de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-25-1-af-st-peter/) | 25 Juillet 2024
 St Pierre | [Message de Clôture de la croisème de l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-13-1-af-st-peter/) | 13 Août 2024
-St Pierre | [Ce que vous faites aujourd’hui touchera beaucoup de personnes ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-21-1-em-st-peter/) | 21 Février 2024
+St Pierre | [Vous serez enchantés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-11-2-em-st-peter/) | 11 Septembre 2024
+St Pierre | [Bénédiction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-15-4-em-st-peter/) | 15 Septembre 2024
 St Pierre | [Vos bénédictions ne seront pas oubliées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-22-1-af-st-peter/) | 22 Septembre 2024
 Pierre le Rocher | [Sachez que vous êtes utilisé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-10-4-em-peter-the-rock/) | 10 Janvier 2025 
 St Pierre | [Conseils et affirmations pour prendre au sérieux les conseils de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-20-2-af-st-peter/) | 20 Avril 2025 

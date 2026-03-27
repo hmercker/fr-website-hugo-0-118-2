@@ -9,7 +9,7 @@ weight:
 ---
 ### Famille, gouvernement, économie et vie sur la planète d'Orion
 
-Oion - reçu par Albert Fike le 7 Décembre 2023, Sechelt, Colombie-Britannique, Canada.
+Orion - reçu par Albert Fike le 7 Décembre 2023, Sechelt, Colombie-Britannique, Canada.
 
 C’est moi, Orion. Devons-nous poursuivre nos essais ? Aujourd’hui, je souhaite parler des conditions sociales et politiques de ma planète en contraste avec la vôtre. Comme je l’ai indiqué, nous vivons dans un environnement harmonieux, qui considère tout le monde et n’exclut aucun individu. Il n’y a personne qui soit démuni, qui soit malade, qui manque de nourriture et d’abri, les éléments de base nécessaires à tout individu ayant besoin d’une vie bonne. Car notre réflexion reflète les besoins du collectif plutôt que le progrès individuel. Nous avons très peu d’institutions, car nous n’en avons pas besoin. La scolarité se fait à la maison. Le partage des responsabilités entre les membres de la famille garantit un enseignement et une transmission adéquats des connaissances. Une grande expérience s’acquiert au sein de la cellule familiale ainsi qu’en interagissant avec d’autres individus et familles, en parlant aux aînés, en démontrant diverses capacités et dons qui sont enseignés à nos enfants à travers le collectif de groupe.
 

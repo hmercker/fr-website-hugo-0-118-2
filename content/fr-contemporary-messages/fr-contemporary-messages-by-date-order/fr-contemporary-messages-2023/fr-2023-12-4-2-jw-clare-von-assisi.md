@@ -9,7 +9,7 @@ weight:
 ---
 ### Les richesses de l’Amour de Dieu
 
-Claire d'Assise - reçu par Jimbeau Walsh le 2 Décembre 2023, Nashville, Tennesse, USA.
+Claire d'Assise - reçu par Jimbeau Walsh le 4 Décembre 2023, Nashville, Tennesse, USA.
 
 C'est moi, Claire. Je viens dans l’Amour de Dieu pour apporter à ce cercle des choses qui, je pense, peuvent vous aider et que mon frère ici présent, qui aime les informations pratiques, souhaite servir. Je suis Claire, originaire d’Assise, et certains d’entre vous savent peut-être que j’ai fondé un ordre de religieuses inspiré par mon bien-aimé François et ses frères qui ont fait vœu de pauvreté et ont choisi de vivre dans la nature et de compter sur Dieu pour pourvoir à leurs besoins. Mes sœurs et moi avons suivi ces traces et aujourd’hui encore, nous sommes connues sous le nom de « Pauvres Claires ». Dans notre ordre, le service et la prière étaient primordiaux. Souvent, nous ne parlions pas, mais chantions ensemble, donc ce qui sortait de nos bouches louait Dieu et était saint. Nous avons travaillé ensemble pour fournir de la nourriture à tous, et nous avons souvent jeûné et j’aurais alors appelé cela « souffrance consciente », mais pas de manière cruelle, mais seulement pour amener l’âme à désirer Dieu.
 

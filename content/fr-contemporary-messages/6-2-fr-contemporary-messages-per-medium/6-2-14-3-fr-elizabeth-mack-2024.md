@@ -65,6 +65,7 @@ Jeanne d'Arc | [Nous vous avons réunis dans un but précis, ne faites qu'un ave
 Jésus | [Ouverture et bénédiction de la retraite de Lansing](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-6-3-em-jesus/) | 6 Septembre 2024
 Jésus | [Reconnaissez la joie que le Père vous offre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-8-3-em-jesus/) | 8 Septembre 2024
 Jésus | [Ouverture et bénédiction de la retraite de Lansing](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-6-3-em-jesus/) | 6 Septembre 2024
+Jeanne d'Arc | [Nous vous avons réunis dans un but précis, ne faites qu'un avec Dieu, ouvre et bénit la retraite de Lansing](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-6-2-em-joan-of-arc/) | 6 Septembre 2024
 St Pierre | [Vous serez enchantés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-11-2-em-st-peter/) | 11 Septembre 2024
 St Matthieu | [Je viendrai renforcer une bénédiction avec chacun de vous pour revigorer le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-12-4-em-st-matthew/) | 12 Septembre 2024
 Goldie | [Souvenez-vous des tout-petits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-14-4-em-goldie/) | 14 Septembre 2024

@@ -25,6 +25,7 @@ George et Will | [Une offre d’assistance/de confiance](/fr-contemporary-messag
 George | [Se connecter avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-11-2-em-george/) | 11 Mars 2024
 Christine | [Se présente](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-16-1-af-christine/) | 16 Mars 2024
 Christine | [Conseils pour Matt partagés avec autorisation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-18-3-af-christine/) | 18 Mars 2024
+Christine | [Être est notre religion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-20-3-af-christine/) | 20 Septembre 2024
 Christine | [De nombreux amis stellaires dans l'univers sont là pour vous aide](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-24-1-af-christine/) | 24 Novembre 2024
 
 

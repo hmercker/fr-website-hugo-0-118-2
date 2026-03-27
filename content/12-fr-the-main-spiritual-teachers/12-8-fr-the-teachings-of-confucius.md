@@ -97,6 +97,7 @@ Confucius | [S'envoler vers votre Père Céleste](/fr-contemporary-messages/fr-c
 Confucius | [Ne gaspillez pas ces opportunités](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-1-13-1-af-confucius/) | 13 Janvier 2023
 Confucius | [Dieu vous guidera dans votre service](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-2-2-af-confucius/) | 2 Février 2023
 Confucius | [Vous volerez sur le souffle de Dieu pour éveiller de nombreuses âmes ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-11-1-af-confucius/) | 11 Octobre 2023
+Confucius | [S'élever au-dessus de la corruption du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-1-4-af-confucius/) | 1 Décembre 2023
 Confucius | [Nous avons le plein soutien de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-3-1-af-confucius/) | 3 Janvier 2024
 Confucius | [Ne gaspillez pas les bénédictions que vous recevez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-5-2-af-confucius/) | 5 Janvier 2024
 Confucius | [Bénédictions des portails pour tous ceux qui résident ici](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-9-1-af-confucius/) | 9 Janvier 2024

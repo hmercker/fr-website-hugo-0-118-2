@@ -55,6 +55,7 @@ St Luc | [Cherchez d’abord le Royaume, et tout le reste vous sera donné](/fr-
 St Luc | [Avancer dans la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-1-1-jw-st-luke/) | 1 Novembre 2021
 St Luc | [Marcher à cœur ouvert](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-2-22-2-jw-st-luke/) | 22 Février 2022
 St Luc | [La vie spirituelle est un combat](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-10-2-jw-st-luke/) | 10 Mars 2022
+St Luc | [Les braises de l'amour qui brûlent dans vos âmes sont ressenties à travers le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-18-3-af-st-luke/) | 18 Avril 2022
 St Luc | [Il y a de nombreux chemins pour la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-27-1-jw-st-luke/) | 27 Mars 2023
 St Luc | [Être en phase avec la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-7-2-af-st-luke/) | 7 Avril 2023
 St Luc | [Faites d’être dans le moment présent de l’Amour de Dieu, votre priorité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-10-2-jw-st-luke/) | 10 Octobre 2023

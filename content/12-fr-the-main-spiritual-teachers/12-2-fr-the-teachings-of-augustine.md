@@ -316,6 +316,7 @@ Augustin | [Marchez dans la vraie réalité de Dieu ](/fr-contemporary-messages/
 Augustin | [Ne prenez pas les choses pour acquises ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-15-1-af-augustine/) | 15 Août 2023
 Augustin | [Il est temps de se préparer aux changements à venir dans le monde ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-29-2-af-augustine/) | 29 Août 2023
 Augustin | [Nous implore tous de « nous élever au-dessus des conditions terrestres au service de Dieu »](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-9-12-1-af-augustine/) | 12 Septembre 2023
+Augustin | [Bénédiction et clôture de la retraite de Running Springs ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-4-4-af-augustine/) | 4 Décembre 2023
 Augustin | [Conseils pour le travail de Jeanne et Al en République dominicaine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-1-2-af-augustine/) | 1 Janvier 2024
 Augustin | [L'orientation continue](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-1-3-af-augustine/) | 1 Janvier 2024
 Augustin | [Message puissant pour vivre la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-10-2-af-augustine/) | 10 Janvier 2024
@@ -344,6 +345,7 @@ Augustin | [Il faut notre puissance de prière pour rapprocher Dieu et les anges
 Augustin | [Comment fonctionne le flux de la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-9-2-af-augustine/) | 9 Septembre 2024
 Augustin-Jésus | [Une leçon sur la prise de décision harmonieuse, continue de bénir nos voyages](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-11-1-af-augustine-jesus/) | 11 Septembre 2024
 Augustin | [Les solutions à vos problèmes viennent avec la foi ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-12-5-af-augustine/) | 12 Septembre 2024
+Augustin | [Clôture de la Retraite de Poughkeepsie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-22-4-em-augustine/) | 22 Septembre 2024
 Augustin | [Questions et réponses lors de la retraite du State College](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-25-1-af-augustine/) | 25 Septembre 2024
 Augustin | [La conscience de Dieu est consciente de tout dans sa création ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-1-1-af-augustine/) | 1 Octobre 2024
 Augustin | [Encourage l’engagement envers la pratique claire de l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-8-1-af-augustine/) | 8 Octobre 2024

@@ -36,7 +36,9 @@ Jésus | [Le cadeau merveilleux de Dieu](/fr-contemporary-messages/fr-contempora
 Jésus | [Cause et effet, temporel et spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-19-1-jw-jesus/) | 19 Août 2024
 Jésus | [Apporte des bénédictions d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-25-2-af-jesus/) | 25 Août 2024
 Jésus | [Approuve et encourage les efforts déployés par le Cercle de Lumière d’Estonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-29-2-af-jesus/) | 29 Août 2024
-Jésus | [Nous venons partager la lumièr](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-12-1-af-jesus/) | 12 Septembre 2024
+Jésus | [Ouverture et bénédiction de la retraite de Lansing](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-6-3-em-jesus/) | 6 Septembre 2024
+Jésus | [Reconnaissez la joie que le Père vous offre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-8-3-em-jesus/) | 8 Septembre 2024
+Jésus | [Nous venons partager la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-12-1-af-jesus/) | 12 Septembre 2024
 Jésus | [Brisez les chaînes de l’obscurité et libérez vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-14-1-af-jesus/) | 14 Septembre 2024
 Jésus | [Expiation avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-21-1-af-jesus/) | 21 Septembre 2024
 Jésus | [Votre lumière peut aider Dieu à briser des générations de ténèbres dans le monde ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-6-1-af-jesus/) | 6 Octobre 2024
