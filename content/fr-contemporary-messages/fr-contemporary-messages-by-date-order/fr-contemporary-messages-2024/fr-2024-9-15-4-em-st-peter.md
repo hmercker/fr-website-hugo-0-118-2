@@ -1,13 +1,13 @@
 ---
-title: "Souvenez-vous des tout-petits"
+title: "Bénédiction"
 menu_title: ""
-description: "Souvenez-vous des tout-petits"
+description: "Bénédiction"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### Souvenez-vous des tout-petits
+### Bénédiction
 
 St Pierre - reçu par Elizabeth Mack le 15 Septembre 2024, Nashville, Tennesse, USA.
 

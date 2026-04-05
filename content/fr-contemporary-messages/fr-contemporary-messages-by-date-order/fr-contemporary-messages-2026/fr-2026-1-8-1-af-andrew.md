@@ -2,7 +2,7 @@
 title: "Vous bâtissez un pont entre vous et Dieu"
 menu_title: ""
 description: "Vous bâtissez un pont entre vous et Dieu"
-date: 2026-03-15 06:00:00+00:00
+date: 2026-04-03 16:00:00+00:00
 draft: False
 hidden: True
 weight:

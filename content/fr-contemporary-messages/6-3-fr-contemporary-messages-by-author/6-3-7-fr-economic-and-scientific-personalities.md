@@ -41,6 +41,7 @@ Copernic | [S'élancer dans la gloire de la conscience de l'âme](/fr-contempora
 Cornelius Vanderbilt | [Un industriel américain est perdu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-1-1-fab-cornelius-vanderbilt/) | 1 Mars 2008
 Galilée | [Le centre de l'univers ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-11-1-jw-galileo/) | 11 Novembre 2024
 Galilée | [Fibonacci, Ai et l'intelligence Angélique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-9-1-jw-galileo/) | 9 Décembre 2024
+Galilée | [Compagnons explorateurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-23-1-jw-galileo/) | 23 Février 2026
 Jay Gould | [Un industriel américain est malheureux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-3-1-2-fab-jay-gould/) | 1 Mars 2008
 John D Rockefeller | [La vie de John D. Rockefeller Senior](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-2-5-1-fab-john-d-rockefeller/) | 5 Février 2010
 John D Rockefeller | [Une perception différente](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-6-4-1-fab-john-d-rockefeller/) | 4 Juin 2010

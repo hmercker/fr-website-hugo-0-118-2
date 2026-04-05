@@ -44,3 +44,4 @@ Michael Collier | [Autres vérités sur l'évolution](/fr-contemporary-messages/
 Michael Collier | [Bienvenue à la retraite de Harrow](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-3-1-af-michael-collier/) | 3 Septembre 2025
 Michael Collier | [Choisissez de faire partie d'un monde plus harmonieux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-7-2-af-michael-collier/) | 7 Septembre 2025
 Michael Collier | [Comment se préparer à être des enseignants et des lumières dans les temps à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-18-1-af-michael-collier/) | 18 Janvier 2026
+Michael Collier | [Questions-Réponses ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-18-2-af-michael-collier/) | 18 Janvier 2026

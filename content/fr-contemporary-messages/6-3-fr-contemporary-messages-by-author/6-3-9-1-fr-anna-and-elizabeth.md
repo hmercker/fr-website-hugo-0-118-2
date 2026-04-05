@@ -29,4 +29,5 @@ Anne | [Puissiez-vous développer la sagesse dans vos interactions avec vos frè
 Anne | [Laissez briller votre lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-6-4-em-anna/) | 6 Mai 2025 
 Elizabeth | [Unis dans l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-16-2-jw-elizabeth/) | 16 Juin 2020
 Elizabeth | [Laissez l'Amour de Dieu vous guider](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-15-1-jw-elizabeth/) | 15 Juillet 2024
-Elizabeth | [Apprenez à connaître votre âme comme votre conscience principale pour le vrai bonheur ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-5-1-af-elizabeth/) | 5 Janvier 2025
+Elizabeth | [Apprenez à connaître votre âme comme votre conscience principale pour le vrai bonheur ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-5-2-af-elizabeth/) | 5 Janvier 2025
+Elizabeth | [S'ouvrir est un don](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-9-1-em-elizabeth/) | 9 Janvier 2025 

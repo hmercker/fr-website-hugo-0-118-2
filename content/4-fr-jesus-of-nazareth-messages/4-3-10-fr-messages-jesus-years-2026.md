@@ -17,3 +17,5 @@ Isaïe, Jésus, Moïse | [Le monde change](/fr-contemporary-messages/fr-contempo
 Jésus et Judas | [Choisir l’Amour de Dieu / Jésus confirme Judas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-10-1-af-jesus-and-judas/) | 10 Janvier 2026
 Jésus  | [Il y a beaucoup de choses que vous ignorez sur vous-mêmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-12-2-af-jesus/) | 12 Janvier 2026
 Jésus | [Il est essentiel de connaître et d'enseigner la vérité pour combattre l'erreur répandue dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-14-1-af-jesus/) | 14 Janvier 2026
+Jésus | [Nous marchons tous dans la même direction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-17-2-af-jesus/) | 17 Janvier 2026
+Jésus | [Quand le cœur s'humilie, l'âme s'élève](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-9-1-jw-jesus/) | 9 Mars 2026

@@ -17,5 +17,11 @@ Martin Luther King | [Priez et Soyez en Paix](/fr-contemporary-messages/fr-conte
 St François d'Assise | [Un ennemi devient ami par l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-2-1-jw-st-francis-of-assisi/) | 2 Février 2026
 Georges Gurdjieff | [Le chemin est entre vous et Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-9-1-jw-george-gurdjieff/) | 9 Février 2026
 Care Darby Walsh | [Maîtriser le service (Rayonner la lumière)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-16-1-jw-care-darby-walsh/) | 16 Février 2026
+Galilée | [Compagnons explorateurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-23-1-jw-galileo/) | 23 Février 2026
+George Vale Owen | [Progression spirituelle au-delà des réticences et de la religion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-2-1-jw-george-vale-owen/) | 2 Mars 2026
+Eileen Caddy | [Le grand bateau et le petit bateau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-4-1-jw-eileen-caddy/) | 4 Mars 2026
+Jésus | [Quand le cœur s'humilie, l'âme s'élève](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-9-1-jw-jesus/) | 9 Mars 2026
+Yogananda | [Clarté de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-16-1-jw-yogananda/) | 16 Mars 2026
+St Luc | [La Chrysalide](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-23-1-jw-st-luke/) | 23 Mars 2026
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

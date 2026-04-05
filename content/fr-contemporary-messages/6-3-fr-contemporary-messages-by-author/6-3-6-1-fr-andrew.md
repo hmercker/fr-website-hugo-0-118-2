@@ -162,7 +162,12 @@ André | [Bénédiction dans le Grand Hall de la Paix](/fr-contemporary-messages
 André et Goldie | [Conseils pour la réunion du conseil d'administration de la DLSF](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-10-2-af-andrew-goldie/) | 10 Mars 2025 
 André et Goldie | [Conseils pour Al et Jeanne avant leur départ pour la Californie ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-24-1-af-andew-et-goldie/) | 24 Avril 2025 
 Flavius Josèphe et André | [Le Pouvoir de la Prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-1-1-af-josephus-andrew/) | 1 Juin 2025
-André | [Vous ne mourrez pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-1-1-jw-andew/) | 1 Septembre 2025
+André | [Vous ne mourrez pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-1-1-jw-andrew/) | 1 Septembre 2025
+André | [Le pouvoir de l'unité peut changer le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-12-2-af-andrew/) | 12 Septembre 2025
+André | [Chacun a l'opportunité de progresser](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-24-2-af-andrew/) | 24 Septembre 2025
+André | [Attributs de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-10-7-2-em-andrew/) | 7 Octobre 2025
+André | [Ce don ne s'obtient que par la demande](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-10-21-3-af-andrew/) | 21 Octobre 2025
+André | [Semez les graines de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-11-11-1-af-andrew/) | 11 Novembre 2025
 || <p align="center"><span style="color:red">**Pour les années 2026 à 2028**</span></p> |  |
 André | [Vous ne vacillerez pas si vous vivez en accord avec la volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-3-3-af-andrew/) | 3 Janvier 2026 
 André | [Vous bâtissez un pont entre vous et Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-8-1-af-andrew/) | 8 Janvier 2026 

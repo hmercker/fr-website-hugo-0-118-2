@@ -18,3 +18,4 @@ Au cours des années 1920, George Vale Owen écrivit un certain nombre de livres
 Pasteur George Vale Owen | [Prier pour s'ouvrir à l'Amour du Créateur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-10-1-jw-rev-george-vale-owen/) | 10 Août 2020
 Pasteur George Vale Owen | [Dans la gratitude et l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-8-12-1-jw-rev-george-vale-owen/) | 12 Août 2020
 Pasteur George Vale Owen | [Quelques propos du Révérend GV Owen](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-11-1-jw-rev-george-vale-owen/) | 11 Janvier 2021
+George Vale Owen | [Progression spirituelle au-delà des réticences et de la religion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-2-1-jw-george-vale-owen/) | 2 Mars 2026

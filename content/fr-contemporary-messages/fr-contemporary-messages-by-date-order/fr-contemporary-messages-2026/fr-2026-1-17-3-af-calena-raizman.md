@@ -1,0 +1,26 @@
+---
+title: "Calena raconte son voyage spirituel et encourage chacun à suivre le seul vrai chemin vers Dieu"
+menu_title: ""
+description: "Calena raconte son voyage spirituel et encourage chacun à suivre le seul vrai chemin vers Dieu"
+date: 2026-04-03 16:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Calena raconte son voyage spirituel et encourage chacun à suivre le seul vrai chemin vers Dieu
+
+Calena Raizman - reçu par Albert Fike le 17 Janvier 2026, ChristChurch, La Barbade.
+
+Mes amis dans l’amour, je m’adresse tout particulièrement à mon cher ami et époux. Je suis Calena. Je souhaite partager avec vous mon chemin vers la vérité. Après mon combat contre le cancer, lorsque je suis entrée dans le monde spirituel, j’étais épuisée et lasse. Pourtant, Dieu m’a envoyé de magnifiques anges d’amour qui m’ont soutenue dans ma guérison. Ce fut le début d’un chemin de foi pour moi. J’avais la foi sur Terre, mais celle que j’ai acquise dans le monde spirituel était bien plus profonde et étendue. Certaines de mes croyances terrestres n’étaient plus pertinentes ni importantes. J’ai ôté le manteau de la religion et revêtu un nouveau manteau, celui de la vérité, qui transcende toute religion. J’ai véritablement compris que Dieu m’aimait et que cet Amour était tangible et magnifique.
+
+Il n’y avait plus aucune hésitation dans mon esprit ni dans mon âme lorsque j’ai appris à connaître Dieu comme je le connais. Mes prières pour recevoir le don précieux de l’Amour Divin étaient intenses et m’ont plongée dans la rêverie qu’il suscite. L’Esprit Saint qui l’apporte était mon ami, la source nourricière de mon âme. À présent, je suis au Royaume Céleste. À présent, je connais la Vérité, l’Amour et Dieu, et je suis en parfaite harmonie avec eux. Je sais qui est Jésus, car je l’ai rencontré à plusieurs reprises. Je l’ai vu ici avec toi, car j’étais présente. Mon bien-aimé George, chaque fois que tu es là, je suis là. Quand tu penses à moi, je suis proche. Tu vois, les liens de l’amour nous unissent tous, cœur à cœur, âme à âme. Mon bien-aimé, je ne t’ai pas quitté. Je continue d’être avec toi. Je continue de prier pour toi. Je continue de te soutenir et de t’accompagner, car je suis ton âme sœur. Nous sommes destinés à être ensemble pour l’éternité.
+
+Ma chère amie et sœur, laisse l’Amour inonder ton âme, car c’est la rédemption dont Jésus a parlé. C’est la grâce salvatrice offerte à chaque âme. Vous toutes, belles âmes, persévérez dans la prière. Continuez à rechercher la réconciliation avec Dieu, et vous découvrirez, à travers vos prières et vos collaborations, la vérité qui apparaîtra limpide à chacune d’entre vous. Elle sera une puissante source de motivation et d’inspiration pour votre travail et votre cheminement vers la vérité, vers l’amour, vers tout ce qui peut apporter amour et vérité.
+
+Mes amis, je suis heureuse d’avoir cette occasion de parler, de rendre hommage à mes proches, de reconnaître la vérité. Car chacun suit son propre chemin, chacun sa propre voie. Pourtant, en ouvrant votre âme et votre esprit à Dieu et à tout ce qu’il a à offrir, votre cheminement se mêle à celui des autres et votre vérité émerge de celle qu’ils portent en eux. C’est un puissant courant qui guide l’âme vers la réconciliation avec Dieu. Mes chers amis, sachez que nous sommes nombreux à nous rassembler autour de vous. Nombreux sont ceux qui cherchent à vous soutenir, à prier avec vous et à vous aider à trouver la clarté, à accéder à la vérité de l’âme, la Vérité de l’Âme de Dieu et à comprendre la relation entre les deux. Voilà l’essentiel. Les idées et les préceptes des Églises peuvent, ou non, conduire à Dieu. C’est à chacun, par ses prières, ses désirs et ses efforts pour être avec Dieu, qu’il revient de se tourner vers notre Créateur.
+
+Rien d’autre ne peut véritablement accomplir cela, ni les livres, ni la Bible. Rien ne peut véritablement conduire l’âme à Dieu. C’est à chacun, par son ouverture d’esprit et son désir d’être avec Dieu, que la vérité se révèle. Si cette âme est ouverte à Dieu et à Son Amour, alors elle aussi connaîtra la Nouvelle Naissance, la magnifique transformation de l’âme. Elle est accessible à tous, quelles que soient leur religion, leur culture, la couleur de leur peau ou leur expérience de vie. Cette vérité est offerte à tous. S’ils y croient et y adhèrent, elle deviendra une réalité en eux. Elle deviendra une expérience merveilleuse à laquelle ils pourront accéder en priant et en la recherchant. Elle n’est pas refusée, mais donnée gratuitement.
+
+Mes chers amis, merci de m’avoir écoutée. Mon cher George, sache que je suis près de toi, que je le serai toujours. Ne verse plus de larmes pour moi, mais sois heureux, car je suis au plus grand bonheur qui soit. Je réside au Ciel de l’Amour. Ma joie est immense, mon épanouissement infini et mon amour infini. Que pourrais-je désirer de plus ? Que pourriez-vous désirer de plus, sinon être en ce lieu, dans la joie et l’émerveillement du Royaume Céleste ? Je vous y attends tous. Je prierai pour chacun d’entre vous, afin que vous puissiez entrer en ce lieu bientôt et avec joie dans votre cœur.
+
+Que Dieu vous bénisse, mes bien-aimés. Je suis Calena. Je vous aime. Je suis là. J’ai toujours été là. Je resterai ici pour vous soutenir. Que Dieu vous bénisse.

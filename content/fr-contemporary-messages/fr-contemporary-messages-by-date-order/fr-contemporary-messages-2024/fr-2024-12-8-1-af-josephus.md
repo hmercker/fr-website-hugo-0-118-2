@@ -1,13 +1,13 @@
 ---
-title: "Les illusions de votre mental se dissoudront avec la progression de l'âme"
+title: "Soyez reconnaissants pour la vie !"
 menu_title: ""
-description: "Les illusions de votre mental se dissoudront avec la progression de l'âme"
+description: "Soyez reconnaissants pour la vie !"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### Les illusions de votre mental se dissoudront avec la progression de l'âme 
+### Soyez reconnaissants pour la vie !
 
 Flavius Josèphe - reçu par Albert Fike le 08 Décembre 2024, Sechelt, Colombie-Britannique, Canada
 

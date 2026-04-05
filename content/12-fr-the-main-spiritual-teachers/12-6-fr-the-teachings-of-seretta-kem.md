@@ -264,6 +264,7 @@ Seretta Kem | [La nécessité de créer une fondation solide et de suivre la vol
 Seretta Kem | [L'éveil de différents aspects de notre âme influence la communication avec les anges](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-17-2-af-seretta-kem/) | 17 Mai 2025
 Seretta Kem | [La chimie et l'alignement nécessaires pour libérer les incrustations de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-12-1-af-seretta-kem/) | 12 Juillet 2025
 Seretta Kem | [Guidance pour le chemin le moins fréquenté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-26-1-af-seretta-kem/) | 26 Juillet 2025
+Seretta Kem | [Beaucoup a été accompli ces derniers jours](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-22-2-af-seretta-kem/) | 22 Septembre 2025
 Seretta Kem | [Distinguer les perceptions spirituelles de la conscience de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-7-2-af-seretta-kem/) | 7 Janvier 2026 
 Seretta Kem | [Parle sur le développement personnel des participants à la retraite de la Barbade](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-12-4-mc-seretta-kem/) | 12 Janvier 2026
 

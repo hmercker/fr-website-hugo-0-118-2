@@ -50,3 +50,5 @@ Joseph | [Bénédictions pour tous les passagers](/fr-contemporary-messages/fr-c
 Joseph | [Importance du phare de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-23-1-em-joseph/) | 23 Mai 2022
 Joseph | [Réflexion sur les sensibilités liées au fait d'avoir un fils différent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-1-1-af-joseph/) | 1 Août 2023
 Joseph | [Fête des Pères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-10-1-jw-joseph/) | 10 Juin 2024
+Joseph | [Guérison et santé en relation avec les demandes adressées à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-23-5-em-joseph/) | 23 Janvier 2025 
+Joseph | [La puissance de l’Amour de Dieu pour dissiper les montagnes de négativité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-20-1-em-joseph/) | 20 Février 2025

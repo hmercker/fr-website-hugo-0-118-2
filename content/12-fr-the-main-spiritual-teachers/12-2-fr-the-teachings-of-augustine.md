@@ -390,7 +390,7 @@ Augustin et Goldie | [Conseils au conseil d'administration de la DLSF / Gardez l
 Augustin  | [Le pouvoir de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-20-1-af-augustine/) | 20 Septembre 2025
 Augustin | [Une leçon sur les multiples facettes de notre rôle d'instrumentalistes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-2-3-af-augustine/) | 2 Janvier 2026 
 Augustin  | [Recherchez l'amour infini de Dieu et ne vous retenez pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-7-4-af-augustine/) | 7 Janvier 2026 
-Augustin | [Leçon sur l'engagement / Réfléchissez au destin que vous vous forgez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-9-1-af-augustine/) | 9 Janvier 2026
+Augustin et Barbara Davies | [Leçon sur l'engagement / Réfléchissez au destin que vous vous forgez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-9-1-af-augustine-barbara-davies/) | 9 Janvier 2026
 Augustin | [Abandonnez la volonté de l'esprit et adoptez celle de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-9-2-af-augustine/) | 9 Janvier 2026 
 Augustin | [Chaque jour est une bénédiction et une occasion de progresser](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-14-3-af-augustine/) | 14 Janvier 2026 
 

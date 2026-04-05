@@ -11,7 +11,7 @@ weight:
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-Judas | [Les avantages du silence ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-1-1-jw-judas/) | 1 Janvier 2024
+Judas | [Les avantages du silence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-1-1-jw-judas/) | 1 Janvier 2024
 Augustin | [Conseils pour le travail de Jeanne et Al en République dominicaine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-1-2-af-augustine/) | 1 Janvier 2024
 Augustin | [L'orientation continue](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-1-3-af-augustine/) | 1 Janvier 2024
 St Matthieu | [Vous êtes le fondement de la vérité sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-2-1-em-st-matthew/) | 2 Janvier 2024
@@ -429,7 +429,7 @@ Barbara Davies| [Souvenez-vous des âmes perdues - Un message de Noël ](/fr-con
 Judas | [La volonté de Dieu et le libre arbitre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-23-2-jw-judas/) | 23 Décembre 2024
 Jésus | [Bénédiction de la veille de Noël pour le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-24-1-af-jesus/) | 24 Décembre 2024
 Marie | [Bénédiction de Noël de son Fils au monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-24-2-af-mary/) | 24 Décembre 2024
-St Mathhieu | [Bénédiction de Noël](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-24-3-af-st-mathhew/) | 24 Décembre 2024
+St Matthieu | [Bénédiction de Noël](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-24-3-af-st-matthew/) | 24 Décembre 2024
 Michael Collier | [Chevauchez le pendule des bénédictions de Dieu vers la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-27-1-af-michael-collier/) | 27 Décembre 2024
 Orion | [Éloges pour nos efforts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-28-2-af-orion/) | 28 Décembre 2024
 Care Daby Walsh | [Rendre le banal spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-30-1-jw-care-daby-walsh/) | 30 Décembre 2024
