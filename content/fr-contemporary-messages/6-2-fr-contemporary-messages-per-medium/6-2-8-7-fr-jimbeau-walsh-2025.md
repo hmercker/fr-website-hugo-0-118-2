@@ -11,22 +11,21 @@ weight:
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-Thomas Merton | [Une once d'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-6-1-jw-thomas-morton/) | 6 Janvier 2025
+Thomas Merton | [Une once d'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-6-1-jw-thomas-merton/) | 6 Janvier 2025
 Eileen Caddy | [Pour le bien du monde, pour le bien de vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-13-1-jw-eileen-caddy/) | 13 Janvier 2025
 Care Darby Walsh | [Ma vie de prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-20-1-jw-care-darby-walsh/) | 20 Janvier 2025
 Claire d'Assise | [Prière et sanctuaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-23-1-jw-clare-of-assisi/) | 23 Janvier 2025
 Judas | [La persévérance au-delà du rituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-24-1-jw-judas/) | 24 Janvier 2025
-Nathanaêl | [Les Royaumes Spirituels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-27-1-jw-nathanaêl/) | 27 Janvier 2025
+Nathanaêl | [Les Royaumes Spirituels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-27-1-jw-nathanael/) | 27 Janvier 2025
 Claire d'Assise | [Le cercle des cœurs ouverts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-8-1-jw-clare-of-assisi/) | 8 Février 2025
-Judas | [Encourage la révision des messages de Judas pour renforcer la connaissance des vérités supérieures](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-8-3-jw-judas/) | 8 Février 2025
 Saint François d'Assise | [Créer un sanctuaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-15-1-jw-st-francis-of-assisi/) | 15 Février 2025
 Jésus | [Déposer votre amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-17-1-jw-jesus/) | 17 Février 2025
 Judas | [Ceci est le chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-25-1-jw-judas/) | 25 Février 2025
 Yogananda | [Les Voies du Monde et la Voie de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-3-1-jw-yogananda/) | 3 Mars 2025
 Care Darby Walsh | [Les bénédictions de la tragédie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-10-1-jw-care-darby-walsh/) | 10 Mars 2025
 Yogananda | [Dieu sert ceux qui Le servent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-17-1-jw-yogananda/) | 17 Mars 2025
-Mahatm Gandhi | [Vivre en paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-17-2-jw-gandhi/) | 17 Mars 2025
-Judas | [Dire la vérité au pouvoir et aux rêves](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-24-2-jw-judas/) | 24 Mars 2025
+Mahatma Gandhi | [Vivre en paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-17-2-jw-gandhi/) | 17 Mars 2025
+Judas | [Dire la vérité au pouvoir et aux rêves](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-24-1-jw-judas/) | 24 Mars 2025
 Jean le Bien Aimé | [Engagement de l'Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-26-2-jw-john-the-beloved/) | 26 Mars 2025 x31
 Care Darby Walsh | [Avec Dieu, il n'y a pas de distance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-31-1-jw-care-darby-walsh/) | 31 Mars 2025
 Saint Luc et Yogananda | [Offrez le don de la prière pour l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-8-1-jw-st-luke-yogananda/) | 8 Avril 2025 
@@ -40,7 +39,7 @@ Saint François d'Assise | [Laissez vos soucis de côté et accueillez-vous dans
 Claire d'Assise | [Utilisez vos mots avec sagesse et seulement si nécessaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-1-1-jw-clare-of-assisi/) | 1 Mai 2025
 Hafiz | [Un festin de ça](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-1-3-jw-hafiz/) | 1 Mai 2025 
 Care Darby Walsh | [Surmonter ses blessures (partie 1)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-2-1-jw-care-darby-walsh/) | 2 Mai 2025
-Care Darby Walsh | [Surmonter ses blessures (partie 1)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-2-2-jw-care-darby-walsh/) | 2 Mai 2025
+Care Darby Walsh | [Surmonter ses blessures (partie 2)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-2-2-jw-care-darby-walsh/) | 2 Mai 2025
 Yogananda et François d’Assise | [Désir et perception de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-5-1-jw-yogananda-st-francis-of-assisi/) | 5 Mai 2025
 Care Darby Walsh | [Comment créer des sanctuaires (Accueillir l'Abondance)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-9-1-jw-care-darby-walsh/) | 9 Mai 2025
 Simon Pierre | [Ouvrir les tombeaux de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-12-1-jw-simon-peter/) | 12 Mai 2025
@@ -75,12 +74,33 @@ James Padgett | [L'humilité est la clé](/fr-contemporary-messages/fr-contempor
 Arthur Conan Doyle | [Prier, c'est élémentaire !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-9-1-jw-arthur-conan-doyle/) | 9 Septembre 2025
 Care Darby Walsh | [Perdre l'esprit et être dans le coeur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-12--jw-care-darby-walsh/) | 12 Septembre 2025
 Yogananda | [Les yogas de l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-13--jw-yogananda/) | 13 Septembre 2025
-Yogananda et Care | [Que votre guidance soit Céleste plutôt que terrestre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-21-5-jw-yogananda-et-care/) | 21 Septembre 2025
+Yogananda et Care | [Que votre guidance soit Céleste plutôt que terrestre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-21-5-jw-yogananda-and-care/) | 21 Septembre 2025
 Care Darby Walsh | [Envisagez d'être occupé dans la prière ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-22-1-jw-care-darby-walsh/) | 22 Septembre 2025
 Judas | [Que la bénédiction de l'Amour de Dieu soit en ce lieu et touche chaque âme qui y entre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-23-1-jw-judas/) | 23 Septembre 2025
 Care Darby Walsh | [Les sanctuaires prospéreront si leurs fondations sont bâties sur l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-26-1-jw-care-darby-walsh/) | 26 Septembre 2025
 Eileen Caddy et François d'Assise | [Créer un sanctuaire commence par un petit pas.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-27-1-jw-eileen-caddy-and-francis-of-assisi/) | 27 Septembre 2025
-Paul | [La prière profonde crée un magnétisme qui attire chaque âme à Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-28-1-jw-paul/) | 28 Septembre 2025
+Paul | [La prière profonde crée un magnétisme qui attire chaque âme à Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-28-1-jw-st-paul/) | 28 Septembre 2025
+St Paul | [Quand l'âme est imprégnée de l'Amour de Dieu, tout est possible](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-10-6-1-jw-st-paul/) | 6 Octobre 2025
+Care Darby Walsh | [Tous les efforts accomplis dans l'Amour de Dieu sont louables](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-10-11-1-jw-care-darby-walsh/) | 11 Octobre 2025
+Charlie Chaplin | [L'Amour de Dieu restaure le sens de l'humour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-10-13-1-jw-charlie-chaplin/) | 13 Octobre 2025
+Judas | [Naviguer dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-10-20-1-jw-judas/) | 20 Octobre 2025
+Claire d'Assise | [Dans le silence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-11-3-1-jw-clara-of-assisi/) | 3 Novembre 2025
+Care Darby Walsh | [Chacun a une histoire, chacun est une âme unique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-11-4-1-jw-care-darby-walsh/) | 4 Novembre 2025
+St Luc | [La guérison dans les domaines physique et spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-11-4-1-jw-st-luke/) | 4 Novembre 2025
+Georges Washington | [Montrez-leur le chemin avec vérité et un cœur ouvert](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-11-5-1-jw-georges-washington/) | 5 Novembre 2025
+Jésus | [Laissez la grande bénédiction de l’Amour de Dieu imprégner votre être](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-11-6-1-jw-jesus/) | 6 Novembre 2025
+Judas | [Vous devez écouter](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-11-6-2-jw-judas/) | 6 Novembre 2025 
+Judas | [La bataille spirituelle gagnée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-11-10-1-jw-judas/) | 10 Novembre 2025
+Judas | [La Miséricorde de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-11-17-1-jw-judas/) | 17 Novembre 2025
+Eileen Caddy | [Faire le premier pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-11-22-1-jw-eileen-caddy/) | 22 Novembre 2025
+Claire d'Assise | [Réticence et Courage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-11-24-1-jw-clara-of-assisi/) | 24 Novembre 2025
+Anne Rollins | [Les murmures de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-11-26-1-jw-ann-rollins/) | 26 Novembre 2025
+Jean le Bien Aimé | [Les Dons de l'Esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-12-1-1-jw-john-the-beloved/) | 1er Décembre 2025
+Judas | [La signification d'être dans le monde sans être du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-12-8-1-jw-judas/) | 8 Décembre 2025
+St Luc | [Libérez-vous de ce qui vous retient aujourd'hui !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-12-15-1-jw-st-luke/) | 15 Décembre 2025
+Care Darby Walsh | [Il n'y a pas un cheveu entre vous et Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-12-22-1-jw-care-darby-walsh/) | 22 Décembre 2025
+Judas | [Connaître l'Esprit au-delà de la mort](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-12-29-1-jw-judas/) | 29 Décembre 2025
 
+[Lien vers les messages contemporains reçus par Jimbeau Walsh au cours de l’année 2026](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-8-6-fr-jimbeau-walsh-2026/)
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

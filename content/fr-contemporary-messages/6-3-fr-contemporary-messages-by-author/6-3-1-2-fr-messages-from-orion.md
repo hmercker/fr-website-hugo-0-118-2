@@ -11,7 +11,7 @@ weight:
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
-|| <p align="center"><span style="color:red">**Pour l'nnées 2021**</span></p> | |
+|| <p align="center"><span style="color:red">**Pour l'année 2021**</span></p> | |
 Orion | [Introduction d’une autre planète (Retraite Voix Directe 2021)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-7-2-af-orion/) | 7 Septembre 2021
 Orion | [Nous unifions le physique et l'âme, afin que personne ne soit laissé pour compte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-9-1-af-orion/) | 9 Septembre 2021
 Orion | [Affirme sa collaboration avec Seretta Kem](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-16-1-af-orion/) | 16 Septembre 2021

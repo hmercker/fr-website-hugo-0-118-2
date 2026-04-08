@@ -9,9 +9,9 @@ weight:
 ---
 ### J'ai rencontré Jésus sur Terre et continue de répandre la vérité de l'Amour de Dieu
 
-St Bartholomée - reçu par Albert Fike le 13 Janvier 2024, La Barbade.
+St Barthélémy - reçu par Albert Fike le 13 Janvier 2024, La Barbade.
 
-Je m’appelle Bartholomée et je viens du Royaume Céleste, loin de cet endroit. Je suis Africain d’origine. Ma peau est noire. J’ai eu l’expérience d’un Africain vivant au temps de Jésus. J’ai voyagé et rencontré le Maître alors qu’il était sur Terre.
+Je m’appelle Barthélémy et je viens du Royaume Céleste, loin de cet endroit. Je suis Africain d’origine. Ma peau est noire. J’ai eu l’expérience d’un Africain vivant au temps de Jésus. J’ai voyagé et rencontré le Maître alors qu’il était sur Terre.
 
 Je viens poursuivre les efforts et le ministère de Jésus pour apporter la vérité de l’Amour de Dieu au monde. Nous voici ensemble, beaux amis de la vérité, belles âmes aspirant à Dieu. Ici, nous venons nous ouvrir ensemble. La puissance de ce Cercle de Lumière, envoyant les aspirations de chaque âme vers Dieu, combinant cette lumière et ce désir d’apporter le don et les bénédictions à chacun.
 

@@ -30,9 +30,9 @@ Marie | [Partagez cette expérience avec vos frères et sœurs terrestres](/fr-c
 Jean le Bien Aimé | [Le Plan de Dieu en Action](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-11-2-em-john-the-beloved/) | 11 Décembre 2023
 Jeanne d'Arc | [Jeanne nous encourage à développer une relation avec nos guides ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-12-1-em-joan-of-arc/) | 12 Décembre 2023
 Jean Baptiste et Pierre | [Ne vous contentez pas de rechercher le repentir - Votre amour manifesté sur Terre produit déjà ses effets](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-14-1-em-john-the-baptist-peter/) | 14 Décembre 2023
-Jeanne d'Arc | [Comme Dieu le veut, ainsi cela sera ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-28-1-em-joan-of-arc/) | 28 Décembre 2023
 Jésus | [Apporter la vérité de l’amour de Dieu au monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-17-1-em-jesus/) | 17 Décembre 2023
 Jean le Bien Aimé | [Priez pour ceux qui sont encore fermés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-25-1-em-john-the-beloved/) | 25 Décembre 2023
+Jeanne d'Arc | [Comme Dieu le veut, ainsi cela sera ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-28-1-em-joan-of-arc/) | 28 Décembre 2023
 George Stokes | [Nous croyons en vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-29-1-em-george-stokes/) | 29 Décembre 2023
 Jean le Bien-Aimé et Jésus | [Nombreuses âmes se réunissetnt pour recevoir les bénédictions de Dieu et de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-31-1-em-john-the-beloved-jesus/) | 31 Décembre 2023
 

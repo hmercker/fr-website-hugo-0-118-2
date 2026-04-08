@@ -47,3 +47,5 @@ Jésus | [Nous vous demandons de briller en tant qu’instruments de Dieu ](/fr-
 Jésus | [Prière d'ouverture, but et bénédiction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-29-1-af-jesus/) | 29 Novembre 2023
 Jésus | [Une vérité, de nombreuses expressions ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-1-3-af-jésus/) | 1 Décembre 2023
 Jésus | [Une invitation aux membres de la Fédération Galactique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-3-2-em-jesus/) | 3 Décembre 2023
+Jésus | [Apporter la vérité de l’amour de Dieu au monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-17-1-em-jesus/) | 17 Décembre 2023
+Jean le Bien-Aimé et Jésus | [Nombreuses âmes se réunissent pour recevoir les bénédictions de Dieu et de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-31-1-em-john-the-beloved-jesus/) | 31 Décembre 2023

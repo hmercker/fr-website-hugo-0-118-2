@@ -9,7 +9,7 @@ weight:
 ---
 ### Beaucoup a été accompli ces derniers jours
 
-Serreta Kem - reçu par Albert Fike - le 22 Septembre 2025, Fontainebleau, France.
+Seretta Kem - reçu par Albert Fike - le 22 Septembre 2025, Fontainebleau, France.
 
 Mes amis, je suis Seretta Kem. Je souhaite vous féliciter pour vos efforts, pour le temps que vous avez consacré aux âmes en quête de vérité. Je tiens à vous assurer que vos efforts ont été très efficaces. Car, comme vous le savez, les nombreux niveaux et dimensions de l’impact que vous avez eu, tant dans le monde matériel que spirituel, ont engendré des ondes de lumière qui se sont propagées dans de nombreux endroits, touchant de nombreuses âmes.
 

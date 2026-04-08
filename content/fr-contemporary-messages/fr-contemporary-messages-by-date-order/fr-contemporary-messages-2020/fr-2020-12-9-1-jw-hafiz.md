@@ -11,7 +11,7 @@ weight:
 
 Hafiz<sup id="a1">[1](#f1)</sup> - reçu par Jimbeau Walsh le 9 Décembre 2020, Punalu’u, Oahu, Hawaii, USA.
 
-![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-haffiz.jpg)
+![Title](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-hafiz.jpg)
 
 Dieu dans son infinie patience attend votre arrivée
 Dans Sa grande salle de bal

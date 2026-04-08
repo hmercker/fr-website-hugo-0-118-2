@@ -34,3 +34,4 @@ L’amour est la clé. L’Amour Divin est la plus haute bénédiction, l’Esse
 Ce n’est pas un passage compliqué et difficile à comprendre. La vérité de l’amour est simple. Il peut être connu de tous, à condition d’y être ouvert et de venir en découvrir les merveilles. Vous affirmez ensemble cette vérité, affirmant la voie vers l’union avec Dieu. Je viens faire partie de vos efforts et de tous les efforts déployés pour apporter de la lumière, une plus grande lumière à votre monde, à notre monde.
 
 Je suis Jésus, votre frère et votre ami. Je ne vous quitterai jamais, bien-aimés, jamais. Puissions-nous marcher ensemble sur le chemin lumineux et beau qui mène toujours vers l’unité avec Dieu. Que Dieu vous bénisse. Mon amour est avec vous, mes amis bien-aimés. Je serai toujours là, toujours. Car nous sommes liés par la force la plus puissante de l’univers, l’Amour de Dieu. Que Dieu vous bénisse. Que Dieu vous bénisse tous, mes amis bien-aimés. Je vous aime pour toujours.
+

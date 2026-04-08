@@ -1,13 +1,13 @@
 ---
-title: "Guidance pour les médiums heureux"
+title: "Conseils pour les médiums heureux"
 menu_title: ""
-description: "Guidance pour les médiums heureux"
+description: "Conseils pour les médiums heureux"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### Guidance pour les médiums heureux
+### Conseils pour les médiums heureux
 
 Augustin -  reçu par Albert Fike - le 14 Mai 2025, Sechelt, Colombie-Britannique, Canada.
 

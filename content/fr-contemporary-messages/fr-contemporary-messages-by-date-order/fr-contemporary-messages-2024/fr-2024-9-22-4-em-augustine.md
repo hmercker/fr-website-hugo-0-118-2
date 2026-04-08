@@ -1,13 +1,13 @@
 ---
-title: "La Source de Tout Amour et de Toute Lumière"
+title: "Clôture de la Retraite de Poughkeepsie"
 menu_title: ""
-description: "La Source de Tout Amour et de Toute Lumière"
+description: "Clôture de la Retraite de Poughkeepsie"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### La Source de Tout Amour et de Toute Lumière
+### Clôture de la Retraite de Poughkeepsie
 
 Augustin - reçu par Elizabeth Mack le 22 Septembre 2024, Poughkeepsie, NY, États-Unis.
 

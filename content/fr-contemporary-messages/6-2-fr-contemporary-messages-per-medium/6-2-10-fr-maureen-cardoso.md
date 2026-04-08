@@ -15,6 +15,7 @@ Au 1er Juillet 2024, elle avait canalisé près de 90 messages disponibles par l
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
+|| <p align="center"><span style="color:red">**Pour l'année 2018**</span></p> | |
 Seretta Kem | [Permettez à l'Amour de Dieu de s'exprimer de manière unique à travers votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-6-13-1-mc-seretta-kem/) | 13 Juin 2018
 Keea Atta Kem | [La loyauté envers Dieu et votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-7-27-1-mc-keea-atta-kem/) | 27 Juillet 2018
 Faith | [Prendre soin de son corps physique et de son corps spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-27-3-mc-faith/) | 27 Août 2018
@@ -38,6 +39,7 @@ Augustin | [Remettez à Dieu les blessures et les fardeaux de votre âme](/fr-co
 Seretta Kem | [Les liens d'amour de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-14-2-mc-seretta-kem/) | 14 Novembre 2018
 Fleur de Lotus | [L’importance de vos Pensées, Émotions et Sentiments](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-22-3-mc-lotus-blossom/) | 22 Novembre 2018
 Keea Atta Kem | [Le don d’un mental discipliné](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-12-2-2-mc-keea-atta-kem/) | 2 Décembre 2018
+|| <p align="center"><span style="color:red">**Pour l'année 2019**</span></p> | |
 Augustin | [Prenez la résolution de faire grandir votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-4-2-mc-augustine/) | 4 Janvier 2019
 Marie | [Que l'Amour de Dieu vous submerge](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-15-2-mc-mary/) | 15 Janvier 2019
 James Padgett | [L’expérience de recevoir l’Amour Divin se fait par la perception](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-17-1-mc-james-padgett/) | 17 Janvier 2019
@@ -87,6 +89,7 @@ Pape Jean-Paul II | [Le pape Jean Paul II est dans le Royaume des Cieux](/fr-con
 Keea Atta Kem | [L'harmonie dans un groupe reflète l'harmonie entre les individus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-5-2-mc-keea-atta-kem/) | 5 Décembre 2019
 Marie | [Une grande lumière sur la Terre en cette période de l'année](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-12-1-mc-mary/) | 12 Décembre 2019
 Seretta Kem | [Conseils pour que le Cercle des Sept se réunisse en personne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-12-19-2-mc-seretta-kem/) | 19 Décembre 2019
+|| <p align="center"><span style="color:red">**Pour l'année 2020**</span></p> | |
 Keea Atta Kem | [Le treillis de lumière est comme un filet qui recouvre le monde et le relie tous ensemble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-31-3-mc-keea-atta-kem/) | 31 Janvier 2020
 Keea Atta Kem | [Le style de réception des messages est propre à l'individu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-3-2-mc-keea-atta-kem/) | 3 Avril 2020
 Guru Nanak | [Voyage pour apporter l'égalité et l'Amour à l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-4-7-1-mc-guru-nanak/) | 7 Avril 2020
@@ -94,6 +97,7 @@ Goldie | [Le ciel chante "Oh Holy One" (Cercles de prière en ligne 2020)](/fr-c
 Keea Atta Kem | [Les lois spirituelles de la prière et de l'activation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-14-1-mc-keea-atta-kem/) | 14 Mai 2020
 La Joya | [Éléments utilisés dans la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-8-2-mc-la-joya/) | 8 Octobre 2020
 Faith | [Être ouvert à l’essence du créateur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-8-3-mc-faith/) | 8 Octobre 2020
+|| <p align="center"><span style="color:red">**Pour les années 2021 à 2024**</span></p> | |
 Keea Atta Kem | [Les portails de lumière assistent le travail de guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-1-21-2-mc-keea-atta-kem/) | 21 Janvier 2021
 Mylora | [La loi du donner et du recevoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-16-4-mc-mylora/) | 16 Septembre 2021
 Anna (Grand mère de Jésus) | [La grand-mère de Jésus se présente](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-2-25-1-mc-anna-grandmother-of-jesus/) | 25 Février 2022
@@ -117,6 +121,7 @@ Mylora | [Respectez les dispositions de la Terre Mère](/fr-contemporary-message
 St Luc | [Force de la substance du Créateur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-12-2-mc-st-luke/) | 12 Septembre 2024
 Fleur de Lotus | [Votre état spirituel et son effet sur les cercles de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-10-1-mc-lotus-blossom/) | 10 Octobre 2024
 Fleur de Lotus | [L'espoir dans chaque âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-8-2-mc-lotus-blossom/) | 8 Décembre 2024
+|| <p align="center"><span style="color:red">**Pour l'année 2025**</span></p> | |
 Keea-atta-Kem | [Orientation concernant la retraite de développement pour vraiment reconnaître les murmures de Dieu dans vos âmes ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-12-2-mc-keea-atta-kem/) | 12 Janvier 2025
 Keea atta Kem | [Nous invite à l'unité avec Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-19-3-mc-keea-atta-kem/) | 19 Janvier 2025
 Fleur de Lotus | [Décrit les bienfaits de la respiration](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-23-6-mc-lottus-blossom/) | 23 Janvier 2025 

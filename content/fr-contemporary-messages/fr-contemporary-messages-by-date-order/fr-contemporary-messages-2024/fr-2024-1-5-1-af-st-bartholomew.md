@@ -9,7 +9,7 @@ weight:
 ---
 ### Le plan de Dieu pour unifier les Caraïbes
 
-Battholomée - reçu par Al Fike le 5 Janvier  2024, Trinidate.
+St Barthélémy - reçu par Al Fike le 5 Janvier  2024, Trinidate.
 
 Amis bien-aimés, je m’appelle Bartholomée (Barthélemy). Je suis très heureux de vous voir tous ensemble, de voir ce magnifique Cercle de Lumière et tous les efforts que vous avez déployés sur cette île, ouvrant la voie, étant l’exemple pour beaucoup. Vos efforts porteront des fruits qui contribueront à apporter la paix, l’harmonie et l’amour, non seulement dans votre nation mais aussi à cette partie du monde.
 

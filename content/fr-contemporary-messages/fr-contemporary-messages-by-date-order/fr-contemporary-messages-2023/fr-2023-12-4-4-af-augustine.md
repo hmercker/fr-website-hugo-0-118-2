@@ -9,7 +9,7 @@ weight:
 ---
 ### Les richesses de l’Amour de Dieu
 
-Augustin - reçu par Albert Fike 2023, Running Springs, Californie, États-Unis.
+Augustin - reçu par Albert Fike - le 04 Décembre 2023, Running Springs, Californie, États-Unis.
 
 Âmes bien-aimées, je suis votre maître, Augustin. Oui, vous avez accompli beaucoup. Vous avez établi des contacts précieux et reçu de nombreuses bénédictions. Que pourriez-vous demander de plus à un petit groupe comme celui-ci que tout ce qui a été béni, ouvert et accompli ?
 

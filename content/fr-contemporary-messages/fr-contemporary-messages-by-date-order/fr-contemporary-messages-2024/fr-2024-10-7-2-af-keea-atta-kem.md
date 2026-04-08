@@ -1,13 +1,13 @@
 ---
-title: "Les conseils s'appuient sur une base solide d'amour divin et de pratique"
+title: "Les conseils s'appuient sur une base solide d'Amour Divin et de pratique"
 menu_title: ""
-description: "Les conseils s'appuient sur une base solide d'amour divin et de pratique"
+description: "Les conseils s'appuient sur une base solide d'Amour Divin et de pratique"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### Les conseils s'appuient sur une base solide d'amour divin et de pratique
+### Les conseils s'appuient sur une base solide d'Amour Divin et de pratique
 
 Keea-atta-Kem - reçu par Albert Fike le 7 Octobre 2024, Sechelt, Colombie-Britannique, Canada
 

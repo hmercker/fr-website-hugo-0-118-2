@@ -84,7 +84,7 @@ Charlie Chaplin | [Agir avec Amour](/fr-contemporary-messages/fr-contemporary-me
 Robert James Lee | [Une synchronicite de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-1-1-jw-robert-james-lee/) | 1 Décembre 2022
 Yogananda | [Prière, méditation et guérison dans l'amour humain et Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-5-1-jw-yogananda/) | 5 Décembre 2022
 St François d'Assise | [Dons de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-12-1-jw-st-francis-of-assisi/) | 12 Décembre 2022
-Care Darby Walsh | [La connexion divine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-19-1-jw-care-derby-walsh/) | 19 Décembre 2022
+Care Darby Walsh | [La connexion Divine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-19-1-jw-care-derby-walsh/) | 19 Décembre 2022
 Elizabeth Barret Browning | [Comment Dieu vous aime t-il ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-12-31-2-jw-elizabeth-barret-browning/) | 31 Décembre 2022
 
 [Lien vers les messages contemporains reçus par Jimbeau Walsh au cours de l’année 2023](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/6-2-8-5-fr-jimbeau-walsh-2023/)

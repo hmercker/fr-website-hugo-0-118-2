@@ -18,7 +18,6 @@ Je suis heureux en esprit. Grâce à ce que j’ai appris dans cette église et 
 Dieu a prévu beaucoup de choses pour nous tous. Je veux que vous profitiez, pendant que vous êtes sur Terre, des enseignements et des incitations qui vous aideront à progresser beaucoup pendant que vous êtes ici. Car vous en serez largement récompensés plus tard, mes amis. Vous aurez tout ce qu’il vous faut pour progresser rapidement dans les sphères de l’esprit.
 
 Soyez bénis, mes amis. Rick est ici et vous aime. Je ne suis jamais parti. Je suis souvent ici. Je suis heureux de voir cette église grandir et prospérer. Que Dieu vous bénisse tous dans l’amour.
-
 <small>
 
 1. <large id="f1"> FUSC (Fédération des Églises Spirituelles Unies)[↩](#f1)

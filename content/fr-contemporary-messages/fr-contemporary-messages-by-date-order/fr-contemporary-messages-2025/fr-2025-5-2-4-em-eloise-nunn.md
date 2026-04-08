@@ -9,7 +9,7 @@ weight:
 ---
 ### Je vous donne ma fille
 
-Eloïse -  reçu par Albert Fike - le 2 Mai 2025, Retraite d'Anaheim, Anaheim, CA, États-Unis.
+Eloïse -  reçu par Elizabeth Mack - le 2 Mai 2025, Retraite d'Anaheim, Anaheim, CA, États-Unis.
 
 Je suis Éloïse. J’ai apprécié faire partie de ce groupe cette semaine. J’ai particulièrement apprécié aider ma fille dans sa progression. Ne vous inquiétez pas. Je ne serai pas là, car on m’a demandé de venir pour un but précis, qui est terminé.
 

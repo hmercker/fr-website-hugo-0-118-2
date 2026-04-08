@@ -1,13 +1,13 @@
 ---
-title: "Dieu murmure Son amour dans vos âmes"
+title: "Dieu murmure Son Amour dans vos âmes"
 menu_title: ""
-description: "Dieu murmure Son amour dans vos âmes"
+description: "Dieu murmure Son Amour dans vos âmes"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### Dieu murmure Son amour dans vos âmes
+### Dieu murmure Son Amour dans vos âmes
 
 Keea atta Kem -  reçu par Albert Fike - le 30 Mai 2025, Sechelt, Colombie-Britannique, Canada.
 
