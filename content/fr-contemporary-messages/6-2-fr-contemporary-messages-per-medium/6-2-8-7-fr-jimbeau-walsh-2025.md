@@ -26,7 +26,7 @@ Care Darby Walsh | [Les bénédictions de la tragédie](/fr-contemporary-message
 Yogananda | [Dieu sert ceux qui Le servent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-17-1-jw-yogananda/) | 17 Mars 2025
 Mahatma Gandhi | [Vivre en paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-17-2-jw-gandhi/) | 17 Mars 2025
 Judas | [Dire la vérité au pouvoir et aux rêves](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-24-1-jw-judas/) | 24 Mars 2025
-Jean le Bien Aimé | [Engagement de l'Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-26-2-jw-john-the-beloved/) | 26 Mars 2025 x31
+Jean le Bien Aimé | [Engagement de l'Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-26-2-jw-john-the-beloved/) | 26 Mars 2025 
 Care Darby Walsh | [Avec Dieu, il n'y a pas de distance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-31-1-jw-care-darby-walsh/) | 31 Mars 2025
 Saint Luc et Yogananda | [Offrez le don de la prière pour l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-8-1-jw-st-luke-yogananda/) | 8 Avril 2025 
 Care Darby Walsh | [Quand l'Âme est en Préséance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-13-2-jw-care-darby-walsh/) | 13 Avril 2025
@@ -69,7 +69,7 @@ St Luc | [Priez sans cesse](/fr-contemporary-messages/fr-contemporary-messages-b
 Judas | [Servir tous dans l'Amour Divin et l'amour naturel, et s'entraider au sein de la communauté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-11-1-jw-judas/) | 11 Août 2025
 Lao Tseu | [Vous avez abordé le sujet de l'immortalité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-18-1-jw-lao-tzu/) | 18 Août 2025
 Care Darby Walsh | [Lâcher prise](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-25-1-jw-care-darby-walsh/) | 25 Août 2025 
-André | [Vous ne mourrez pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-1-1-jw-andew/) | 1 Septembre 2025
+André | [Vous ne mourrez pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-1-1-jw-andrew/) | 1 Septembre 2025
 James Padgett | [L'humilité est la clé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-7-1-jw-james-padgett/) | 7 Septembre 2025
 Arthur Conan Doyle | [Prier, c'est élémentaire !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-9-1-jw-arthur-conan-doyle/) | 9 Septembre 2025
 Care Darby Walsh | [Perdre l'esprit et être dans le coeur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-12--jw-care-darby-walsh/) | 12 Septembre 2025

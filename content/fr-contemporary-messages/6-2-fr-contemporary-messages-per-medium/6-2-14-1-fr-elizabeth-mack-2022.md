@@ -15,7 +15,7 @@ Jésus | [Vous portez en vous des vérités sacrées](/fr-contemporary-messages/
 Joseph | [Bénédictions pour tous les passagers](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-20-2-em-joseph/) | 20 Avril 2022
 Anne (Grand mère de Jésus) | [Œuvres en coulisses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-21-1-em-anna-grandmother-of-jesus/) | 21 Avril 2022
 Marie | [Joyaux Inestimables en Mer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-22-1-em-mary/) | 22 Avril 2022
-St Pierre | [Recherche d'âmes à Puenta Delgado](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-24-11-em-st-peter/) | 24 Avril 2022
+St Pierre | [Recherche d'âmes à Puenta Delgado](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-24-1-em-st-peter/) | 24 Avril 2022
 St Pierre | [Construire une Église n'est pas chose facile](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-26-1-em-st-peter/) | 26 Avril 2022
 Orion | [Que l'Amour de Dieu nous protège ces prochains jours](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-30-1-em-orion/) | 30 Avril 2022
 Jacques et Jean le Bien Aimé | [Vous êtes comblés de grâces](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-6-2-em-james-john-the-beloved/) | 6 Mai 2022

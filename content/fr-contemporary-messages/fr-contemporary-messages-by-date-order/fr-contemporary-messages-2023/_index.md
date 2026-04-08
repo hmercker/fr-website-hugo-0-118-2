@@ -316,7 +316,7 @@ James Padgett | [L'impact considérable qu'une petite décision peut avoir](/fr-
 Samuel | [Le temps presse ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-30-2-af-samuel/) | 30 Novembre 2023
 Orion | [Nous sommes des âmes comme vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-1-1-af-orion/) | 1 Décembre 2023
 St François d'Assise | [Foi et Persévérance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-1-2-jw-st-francis-of-assisi/) | 1 Décembre 2023
-Jésus | [Une vérité, de nombreuses expressions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-1-3-af-jésus/) | 1 Décembre 2023
+Jésus | [Une vérité, de nombreuses expressions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-1-3-af-jesus/) | 1 Décembre 2023
 Confucius | [S'élever au-dessus de la corruption du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-1-4-af-confucius/) | 1 Décembre 2023
 Orion | [Accueille la diversité dans l’Amour Divin Universel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-3-1-af-orion/) | 3 Décembre 2023
 Care Darby Walsh | [Santé du corps et de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-4-1-jw-care-darby-walsh/) | 4 Décembre 2023
@@ -339,6 +339,10 @@ Jean le Baptiste | [Vous êtes l'accomplissement de la mission des Maîtres sur 
 Orion | [Bénédictions à l’approche de Noël et du Nouvel An](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-19-1-af-orion/) | 19 Décembre 2023
 Jean le Bien Aimé | [Le message de Noël reconnaît la mission de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-24-1-af-john-the-beloved/) | 24 Décembre 2023
 Jeanne d'Arc | [Comme Dieu le veut, ainsi cela sera](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-28-1-em-joan-of-arc/) | 28 Décembre 2023
+George Stokes | [Nous croyons en vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-29-1-em-george-stokes/) | 29 Décembre 2023
+Jean le Bien-Aimé et Jésus | [Nombreuses âmes se réunissetnt pour recevoir les bénédictions de Dieu et de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-31-1-em-john-the-beloved-jesus/) | 31 Décembre 2023
+
+
 
 ### [**Lien vers les messages des années 2024**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/)
 
