@@ -1,7 +1,7 @@
 ---
-title: "Clarté de l'âme"
+title: "Clarté de lâme"
 menu_title: ""
-description: "Clarté de l'âme"
+description: "Clarté de lâme"
 date: 2026-04-22 16:00:01+00:01
 draft: False
 hidden: True
