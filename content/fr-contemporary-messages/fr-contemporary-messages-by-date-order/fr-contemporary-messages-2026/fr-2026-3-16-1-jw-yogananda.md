@@ -1,8 +1,8 @@
 ---
-title: "Clarté de lâme"
+title: "Clarte de lame"
 menu_title: ""
-description: "Clarté de lâme"
-date: 2026-04-22 16:00:01+00:01
+description: "Clarte de lame"
+date: 2026-04-14 08:00:00+00:00
 draft: False
 hidden: True
 weight:
