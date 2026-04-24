@@ -1,5 +1,5 @@
 ---
-title: "Clarté de l'âme"
+title: "Clarte de lame"
 menu_title: ""
 description: "Clarté de l'âme"
 date: 2026-04-21 16:00:01+00:01
