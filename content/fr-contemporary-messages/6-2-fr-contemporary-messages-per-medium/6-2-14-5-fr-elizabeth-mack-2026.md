@@ -11,3 +11,4 @@ weight:
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
+George Stokes | [La Bénédiction de Servir Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-8-3-em-george-stokes/) | 8 Février 2026

@@ -23,3 +23,4 @@ George Stokes et Jésus | [Vous qui voulez être des canaux de lumière, vous av
 George Stoke | [Décrit ses progrès spirituels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-25-1-af-george-stoke/) | 25 Mars 2025 
 George Stokes | [Satisfait de nos progrès](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-1-5-em-george-stoke/) | 1 Mai 2025
 George Stokes | [L'importance de vos prières pour vous-mêmes et pour les esprits à bord de ce navire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-6-5-em-george-stokes/) | 6 Mai 2025 
+George Stokes | [La Bénédiction de Servir Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-8-3-em-george-stokes/) | 8 Février 2026

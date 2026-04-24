@@ -30,6 +30,10 @@ Abraham   | [Abraham et la Chaldée](/fr-contemporary-messages/fr-contemporary-m
 Daniel | [Le don de discernement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-28-1969-10-3-anonymous-daniel/) | 3 Octobre 1969
 Daniel | [Expérience de Daniel avec l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-26-1-fab-daniel/) | 26 Août 2007
 Daniel | [Rapport de progression](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-11-3-2-em-daniel/) | 3 Novembre 2025 
+David | [Le roi David et la guerre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-8-1-fab-king-david/) | 8 Février 2003
+David | [Participez au moins par Vos prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-3-20-1-pjr-king-david/) | 20 Mars 2003
+David | [David, roi des Juifs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-18-2-af-king-david/) | 18 Novembre 2017
+David | [Message de David de la Bible](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-22-1-af-david/) | 22 Février 2026
 Élie | [La véritable âme sœur de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-2-11-1-na-elijah/) | 11 Février 2008
 Élie | [C'est votre destin de mettre vos dons en avant pour l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-21-1-af-elijah/) | 21 Février 2019
 Élie | [Vous êtes appelés à vous réveiller](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-5-5-1-af-elijah/) | 5 Mai 2019
@@ -89,9 +93,6 @@ Joseph (AT) | [Saint François dans le monde des esprits](/fr-contemporary-messa
 Joseph | [Guérison et santé en relation avec les demandes adressées à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-23-5-em-joseph/) | 23 Janvier 2025
 Josué | [Réduire les différences avec amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-30-2-af-joshua/) | 30 Septembre 2017
 Judah Maccabee | [La sanction de la violence physique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-6-18-1-fab-judah-maccabee/) | 18 Juin 2010
-Le Roi David | [Le roi David et la guerre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-8-1-fab-king-david/) | 8 Février 2003
-Le Roi David | [Participez au moins par Vos prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-3-20-1-pjr-king-david/) | 20 Mars 2003
-Le Roi David | [David, roi des Juifs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-18-2-af-king-david/) | 18 Novembre 2017
 Michée | [Les encouragements d'un prophète biblique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-9-25-1-fab-micah/) | 25 Septembre 2008
 Miriam | [Continuez à être une lumière dans le monde de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-26-2-af-miriam/) | 26 Novembre 2024
 Noé | [Noé et le déluge](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-2-1-fab-noah/) | 2 Février 2003

@@ -211,6 +211,8 @@ Orion & Jésus | [Orion et Jésus encouragent les efforts pour de futures public
 Orion et Jésus | [La prière est un élément essentiel du plan divin pour la transformation du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-11-1-af-orion-and-jesus/) | 11 Mai 2025
 || <p align="center"><span style="color:red">**Pour l'année 2026**</span></p> | |
 Orion | [Cet Amour est Universel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-14-2-af-orion/) | 14 Janvier 2026
+Orion | [Vous ne pouvez pas vous permettre de prendre votre engagement sur cette voie à la légère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-17-1-af-orion/) | 17 Février 2026
+Orion | [Soyez courageux, priez et soyez attentifs en ce tournant crucial pour le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-3-1-af-orion/) | 3 Mars 2026
 
 
 

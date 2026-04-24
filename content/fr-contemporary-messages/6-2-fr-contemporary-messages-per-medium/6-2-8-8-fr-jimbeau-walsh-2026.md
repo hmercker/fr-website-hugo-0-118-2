@@ -21,7 +21,11 @@ Galilée | [Compagnons explorateurs](/fr-contemporary-messages/fr-contemporary-m
 George Vale Owen | [Progression spirituelle au-delà des réticences et de la religion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-2-1-jw-george-vale-owen/) | 2 Mars 2026
 Eileen Caddy | [Le grand bateau et le petit bateau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-4-1-jw-eileen-caddy/) | 4 Mars 2026
 Jésus | [Quand le cœur s'humilie, l'âme s'élève](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-9-1-jw-jesus/) | 9 Mars 2026
-Yogananda | [Clarté de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-16-11-jw-yogananda/) | 16 Mars 2026
+Yogananda | [Clarté de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-16-1-jw-yogananda/) | 16 Mars 2026
 St Luc | [La Chrysalide](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-23-1-jw-st-luke/) | 23 Mars 2026
+Judas | [Dieu étanchera la faim et la soif de chaque âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-30-1-jw-judas/) | 30 Mars 2026
+Charlie Chaplin | [Il est temps pour nous de collaborer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-13-1-jw-charlie-chaplin/) | 13 Avril 2026
+Care Darby Walsh | [Conversations avec Dieu, Prière et Magnétisme Spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-20-1-jw-care-darby-walsh/) | 20 Avril 2026
+
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

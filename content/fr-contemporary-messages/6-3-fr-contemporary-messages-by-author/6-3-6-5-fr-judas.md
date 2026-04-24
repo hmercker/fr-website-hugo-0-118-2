@@ -276,6 +276,7 @@ Judas | [Vos choix attirent à vous des esprits qui vivent et vibrent au même n
 Judas | [Servir tous dans l'Amour Divin et l'amour naturel, et s'entraider au sein de la communauté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-11-1-jw-judas/) | 11 Août 2025
 Judas | [Que la bénédiction de l'Amour de Dieu soit en ce lieu et touche chaque âme qui y entre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-23-1-jw-judas/) | 23 Septembre 2025
 Jésus et Judas | [Choisir l’Amour de Dieu / Jésus confirme Judas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-10-1-af-jesus-and-judas/) | 10 Janvier 2026
+Judas | [Dieu étanchera la faim et la soif de chaque âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-30-1-jw-judas/) | 30 Mars 2026
 
 
 

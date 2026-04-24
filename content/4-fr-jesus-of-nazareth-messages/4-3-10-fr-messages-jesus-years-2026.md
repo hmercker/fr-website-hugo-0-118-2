@@ -18,4 +18,7 @@ Jésus et Judas | [Choisir l’Amour de Dieu / Jésus confirme Judas](/fr-contem
 Jésus  | [Il y a beaucoup de choses que vous ignorez sur vous-mêmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-12-2-af-jesus/) | 12 Janvier 2026
 Jésus | [Il est essentiel de connaître et d'enseigner la vérité pour combattre l'erreur répandue dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-14-1-af-jesus/) | 14 Janvier 2026
 Jésus | [Nous marchons tous dans la même direction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-17-2-af-jesus/) | 17 Janvier 2026
+Jésus et Augustin | [Foi et Âme 1 : Avancez avec foi pour accomplir votre destinée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-8-1-af-jesus-and-augustine/) | 8 Février 2026
+Jésus | [Agents de Lumière : Marcher dans la Grâce de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-27-1-af-jesus/) | 27 Février 2026
+Jésus | [Le monde a besoin de vos prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-1-1-af-jesus/) | 1 Mars 2026
 Jésus | [Quand le cœur s'humilie, l'âme s'élève](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-9-1-jw-jesus/) | 9 Mars 2026

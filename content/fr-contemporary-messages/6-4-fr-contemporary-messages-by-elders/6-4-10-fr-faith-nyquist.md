@@ -44,3 +44,4 @@ Faith Nyquist | [L'importance de la prière](/fr-contemporary-messages/fr-contem
 Faith Nyquist | [Le chemin vers le véritable pardon](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-2-1-mc-faith-nyquist/) | 2 Avril 2025 
 Faith Nyquist | [Demande de service](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-3-1-af-faith-nyquist/) | 3 Juin 2025 
 Faith Nyquist | [Un appel à retrouver l'équilibre avec la création divine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-1-1-af-faith-nyquist/) | 1 Août 2025
+Faith Nyquist | [Éveillez-vous du sommeil du matérialisme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-24-1-af-faith-nyquist/) | 24 Février 2026
