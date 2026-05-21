@@ -23,6 +23,7 @@ Anne Rollins | [L'expiation et la loi de l'Amour Divin](/fr-contemporary-message
 Anne Rollins | [Influence spirituelle et loi de l’attraction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-14-1-jw-ann-rollins/) | 14 Août 2023
 Anne Rollins | [Priez avec nous pour apporter une plus grande lumière au monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-15-1-af-ann-rollins/) | 15 Janvier 2025
 Anne Rollins | [Les murmures de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-11-26-1-jw-ann-rollins/) | 26 Novembre 2025
+Anne Rollins | [La prière, votre âme et le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-15-1-jw-ann-rollins/) | 15 Avril 2026
 Hélène Padgett | [Détails de la vie d’Hélène Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-7-18-1-af-helen-padgett/) | 18 Juillet 2014
 Hélène Padgett | [Ceux qui servent dans l'amour feront des percées dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-17-2-af-helen-padgett/) | 17 Septembre 2017
 Hélène Padgett | [Buvez profondément ces eaux de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-10-4-2-af-helen-padgett/) | 4 Octobre 2022

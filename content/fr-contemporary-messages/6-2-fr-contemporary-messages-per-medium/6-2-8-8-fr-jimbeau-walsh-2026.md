@@ -25,7 +25,11 @@ Yogananda | [Clarté de l'âme](/fr-contemporary-messages/fr-contemporary-messag
 St Luc | [La Chrysalide](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-23-1-jw-st-luke/) | 23 Mars 2026
 Judas | [Dieu étanchera la faim et la soif de chaque âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-30-1-jw-judas/) | 30 Mars 2026
 Charlie Chaplin | [Il est temps pour nous de collaborer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-13-1-jw-charlie-chaplin/) | 13 Avril 2026
+Anne Rollins | [La prière, votre âme et le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-15-1-jw-ann-rollins/) | 15 Avril 2026
 Care Darby Walsh | [Conversations avec Dieu, Prière et Magnétisme Spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-20-1-jw-care-darby-walsh/) | 20 Avril 2026
-
+St Luc | [Progression de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-24-1-jw-st-luke/) | 24 Avril 2026
+Yogananda | [Un changement de cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-25-1-jw-yogananda/) | 25 Avril 2026
+Frederick Douglass | [Guérison des chaînes temporelles et spirituelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-4-1-jw-frederick-douglass/) | 4 Mai 2026
+Care Darby Walsh | [Attachements](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-11-1-jw-care-darby-walsh/) | 11 Mai 2026
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

@@ -30,11 +30,12 @@ Faith Nyquist | [Importance du Portail de Lumière au Centre Mondial de Guériso
 Faith  Nyquist| [Salutations de Faith (Atelier de la médiumnité 2020)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-4-4-hm-faith/) | 4 Mai 2020
 Faith Nyquist| [Être ouvert à l’essence du créateur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-10-8-3-mc-faith/) | 8 Octobre 2020
 Faith Nyquist| [Priez pour le monde, en particulier pour le Centre mondial de guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-10-1-af-faith/) | 10 Août 2021
-Faith  Nyquist| [Parler du service (Retraite Voix Directe 2021)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-12-1-af-faith/) | 12 Septembre 2021
-Faith  Nyquist| [Vivre la joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-12-2-af-faith/) | 12 Octobre 2021
-Faith  Nyquist| [Nous servons Dieu ensemble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-9-1-af-faith/) | 9 Mai 2022
-Faith  Nyquist| [Attribut d'âme de la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-4-1-mc-faith/) | 4 Février 2023
-Faith  Nyquist| [Les anges sont occupés à préparer les âmes du monde entier pour ce qui va arriver](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-21-1-af-faith/) | 21 Mars 2023
+Faith Nyquist| [Parler du service (Retraite Voix Directe 2021)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-12-1-af-faith/) | 12 Septembre 2021
+Faith Nyquist| [Vivre la joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-12-2-af-faith/) | 12 Octobre 2021
+Faith Nyquist | [Ce pays a grand besoin de nos prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-5-1-af-faith-nyquist/) | 5 Mai 2022
+Faith Nyquist| [Nous servons Dieu ensemble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-9-1-af-faith/) | 9 Mai 2022
+Faith Nyquist| [Attribut d'âme de la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-2-4-1-mc-faith/) | 4 Février 2023
+Faith Nyquist| [Les anges sont occupés à préparer les âmes du monde entier pour ce qui va arriver](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-21-1-af-faith/) | 21 Mars 2023
 Faith Nyquist| [Priera avec des liens d’Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-3-30-1-af-faith/) | 30 Mars 2023
 Faith Nyquist | [Vous avez fait quelque chose de magnifique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-7-1-af-faith/) | 7 Janvier 2024
 Faith Nyquist | [Marcher dans la foi et partager la vérité de l'Amour Divin ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-4-1-af-faith/) | 4 Juin 2024

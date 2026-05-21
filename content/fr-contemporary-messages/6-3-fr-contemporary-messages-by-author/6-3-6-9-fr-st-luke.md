@@ -79,5 +79,5 @@ Saint Luc et Yogananda | [Offrez le don de la prière pour l'Amour de Dieu](/fr-
 St Luc | [Priez sans cesse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-10-1-jw-st-luke/) | 10 Août 2025 
 St Luc | [Le baume guérisseur de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-1-1-jw-st-luke/) | 1 Janvier 2026
 St Luc | [La Chrysalide](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-23-1-jw-st-luke/) | 23 Mars 2026
-
+St Luc | [Progression de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-24-1-jw-st-luke/) | 24 Avril 2026
 

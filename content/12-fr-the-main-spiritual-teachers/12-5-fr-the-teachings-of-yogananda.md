@@ -145,3 +145,4 @@ Yogananda | [Les yogas de l'Amour](/fr-contemporary-messages/fr-contemporary-mes
 Yogananda et Care | [Que votre guidance soit Céleste plutôt que terrestre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-21-5-jw-yogananda-et-care/) | 21 Septembre 2025
 Yogananda | [Magnétisme Spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-12-1-jw-yogananda/) | 12 Janvier 2026
 Yogananda | [Clarté de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-16-1-jw-yogananda/) | 16 Mars 2026
+Yogananda | [Un changement de cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-25-1-jw-yogananda/) | 25 Avril 2026

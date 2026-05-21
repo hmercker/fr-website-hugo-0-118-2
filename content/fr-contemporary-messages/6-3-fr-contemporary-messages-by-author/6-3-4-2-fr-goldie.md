@@ -52,6 +52,7 @@ Goldie | [La beauté de la fleur](/fr-contemporary-messages/fr-contemporary-mess
 Goldie | [Tout est entre les mains de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-6-19-1-af-goldie/) | 19 Juin 2021
 Goldie | [Nous recevons tous des conseils, que nous en soyons conscients ou non](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-12-1-af-goldie/) | 12 Avril 2022
 Goldie | [Soyez joyeux dans l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-18-1-af-goldie/) | 18 Avril 2022
+Goldie | [Il n'y a pas de drapeaux au Ciel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-29-2-af-goldie/) | 29 Avril 2022
 Praying Bill | [Nous prions tous pour le Portail du Centre Mondial de Guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-6-1-em-praying-bill/) | 6 Mai 2022
 Goldie | [Nous demande de déposer des fleurs à l’autel de WHC](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-7-1-af-goldie/) | 7 Mai 2022
 Goldie | [Mangez de la crème glacée pour célébrer l'Amour de Dieu !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-17-1-af-goldie/) | 17 Novembre 2022
@@ -66,4 +67,5 @@ Goldie | [Vous défiez les conditions de ce monde par le rire et la joie](/fr-co
 André et Goldie | [Conseils pour la réunion du conseil d'administration de la DLSF](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-10-2-af-andrew-goldie/) | 10 Mars 2025 
 André et Goldie | [Conseils pour Al et Jeanne avant leur départ pour la Californie ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-24-1-af-andew-et-goldie/) | 24 Avril 2025 
 Augustin et Goldie | [Conseils au conseil d'administration de la DLSF / Gardez la joie et avancez d'un pas léger](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-21-1-af-augustine-and-goldie/) | 21 Mai 2025 
+Goldie, Augustin et Jésus | [Le Pouvoir de l'Amour Persévérant : Éveiller l'Âme à la Vérité de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2025-11-11-2--goldie-augustine-jesus/) | 11 Novembre 2025
 || <p align="center"><span style="color:red">**Pour les années 2026 à 2028**</span></p> |  |

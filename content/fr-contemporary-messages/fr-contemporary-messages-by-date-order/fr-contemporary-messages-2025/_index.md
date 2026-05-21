@@ -113,6 +113,7 @@ Jeanne d'Arc | [La force de l'Amour Divin stabilise votre monde](/fr-contemporar
 Augustin | [Seul votre esprit peut vous séparer de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-21-2-af-augustine/) | 21 Février 2025
 Orion | [Nous sommes à 100 % avec vous dans nos efforts pour vous maintenir dans la Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-22-1-af-orion/) | 22 Février 2025
 Jésus | [Désire démontrer la puissance de l'Amour de Dieu à tous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-23-1-af-jesus/) | 23 Février 2025
+Augustin | [Le Concept du Temps : Dans la Réalité de l'Âme, le Temps n'existe pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-23-2-mc-augustine/) | 23 Février 2025
 Judas | [Ceci est le chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-25-1-jw-judas/) | 25 Février 2025
 Barbara Davies | [Encouragez-nous au service de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-25-2-af-barbara-davies/) | 25 Février 2025
 Jésus | [Bénédiction pour le Cercle de Lumière en ligne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-25-3-em-jesus/) | 25 Février 2025
@@ -417,6 +418,7 @@ Michael Collier | [Bienvenue à la retraite de Harrow](/fr-contemporary-messages
 Estelle Roberts | [Ouverture de la retraite de Harrow : chantez votre chanson émouvante sur la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-5-1-af-estelle-roberts/) | 5 Septembre 2025
 Jésus | [Nous sommes tous enfants de Dieu et son amour est accessible à tous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-6-1-af-jesus/) | 6 Septembre 2025
 Isaïe | [Venez connaître la vérité, la puissance et la gloire de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-6-2-af-isaïe/) | 6 Septembre 2025
+Jésus | [Ce don vous guidera à travers les temps changeants à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-6-3-af-jesus/) | 6 Septembre 2025
 James Padgett | [L'humilité est la clé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-7-1-jw-james-padgett/) | 7 Septembre 2025
 Michael Collier | [Choisissez de faire partie d'un monde plus harmonieux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-7-2-af-michael-collier/) | 7 Septembre 2025
 Estelle Roberts | [Cette église sera un sanctuaire de lumière pour beaucoup](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-7-3-af-estelle-roberts/) | 7 Septembre 2025
@@ -513,6 +515,7 @@ Jésus | [Laissez la grande bénédiction de l’Amour de Dieu imprégner votre 
 Judas | [Vous devez écouter](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-11-6-2-jw-judas/) | 6 Novembre 2025 
 Judas | [La bataille spirituelle gagnée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-11-10-1-jw-judas/) | 10 Novembre 2025
 Andrew | [Semez les graines de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-11-11-1-af-andrew/) | 11 Novembre 2025
+Goldie, Augustin et Jésus | [Le Pouvoir de l'Amour Persévérant : Éveiller l'Âme à la Vérité de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2025-11-11-2-af-goldie-augustine-jesus/) | 11 Novembre 2025
 Jésus | [Il est temps que la vérité soit connue du monde entier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-11-14-1-af-jesus/) | 14 Novembre 2025
 Orion | [Ce lieu fait partie des nombreux centres de lumière du plan divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-11-14-2-af-orion/) | 14 Novembre 2025
 Marie | [Bénédictions de Paix pour l'ouverture du Centre de Retraite Happy Days Farm](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-11-14-3-af-mary/) | 14 Novembre 2025

@@ -1,3 +1,4 @@
+
 ---
 title: "Liste vers des sites amis en Anglais"
 menu_title: "Liste vers des sites amis en Anglais"
@@ -22,6 +23,8 @@ Brian Holmes | Divine Love Messages | https://divinelovemessages.blogspot.com/
 Ron Henderson | New Birth Ministry | https://newbirthministry.com/
 Foundation Church of the New Birth | Elizabeth  Morana | http://divinelove.org/
 Foundation Church of Divine Truth | Michael Nebdal | http://www.fcdt.org
+Jimbeau Walsh | Jimbeau Walsh | https://www.jimbeauwalsh.com/
+
 
 ### Chaines youtube
 

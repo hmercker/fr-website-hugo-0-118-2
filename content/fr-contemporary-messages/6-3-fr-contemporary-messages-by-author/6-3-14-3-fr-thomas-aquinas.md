@@ -24,4 +24,5 @@ Thomas d'Aquin | [Choisirez-vous de commencer le voyage de l’éveil de l’âm
 Thomas d'Aquin | [Connaître Dieu avec le mental de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-13-1-af-thomas-aquinas/) | 13 Octobre 2018
 Thomas d'Aquin | [Le travail se poursuit si vous restez dévoué à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-17-5-af-thomas-aquinas/) | 17 Octobre 2018
 Thomas d'Aquin | [Vous avez bien fait](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-26-5-af-thomas-aquinas/) | 26 Octobre 2018
+Thomas d'Aquin | [La Merveille de l'Éveil de l'Âme et l'Importance de l'Expiation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-13-2-af-thomas-of-aquinas/) | 13 Avril 2022
 Thomas d'Aquin | [Le véritable sens de Noël est l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-12-23-2-af-thomas-aquinas/) | 23 Décembre 2025

@@ -43,6 +43,7 @@ St Matthieu | [Choisir le droit chemin](/fr-contemporary-messages/fr-contemporar
 Augustin | [Cherchez l'Amour de Dieu pour réveiller vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-20-1-af-augustine/) | 20 Février 2018
 Jésus | [L'amour est la clé de l'épanouissement, de la joie et de la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-20-2-af-jesus/) | 20 Février 2018
 Isaïe | [L'Amour de Dieu vous ouvre les portes de l'entendement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-21-1-af-isaiah/) | 21 Février 2018
+André | [La Grande Famille de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-21-1-af-andrew/) | 21 Février 2018
 Augustin | [Un parcours de service](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-22-1-af-augustine/) | 22 Février 2018
 Goldie | [Apportez la musique !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-23-1-af-goldie/) | 23 Février 2018
 Jésus | [Le travail commence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-23-2-af-jesus/) | 23 Février 2018
@@ -311,6 +312,9 @@ Confucius | [Préparez-vous pour les temps qui viennent](/fr-contemporary-messag
 Seretta Kem | [Changements terrestres – Le temps est venu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-12-16-2-af-seretta-kem/) | 16 Décembre 2018
 Marie | [Beaucoup croient que leur mental apporte la conscience de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-12-17-1-af-mary/) | 17 Décembre 2018
 Seretta Kem | [Faites face aux changements à venir dans le monde avec la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-12-30-1-af-seretta-kem/) | 30 Décembre 2018
+Goldie | [La Joie de vivre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-12-30-2-af-goldie/) | 30 Décembre 2018
+Augustin | [Continuez d'être avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-12-30-3-af-augustine/) | 30 Décembre 2018
+Keea Atta Kem | [Le Réseau de Lumière : Un Soutien Magnifique pour la Croissance Spirituelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-12-30-4-mc-keea-atta-kem/) | 30 Décembre 2018
 
 ### [**Lien vers les messages des années 2019**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/)
 

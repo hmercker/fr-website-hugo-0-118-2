@@ -9,7 +9,7 @@ weight:
 ---
 ### Semez les graines de la vérité
 
-André - reçu par Albert Fike - le 11 Novembre 2025, Sechelt, BC, Canada.
+André - reçu par Albert Fike - le 11 Novembre 2025, Sechelt, Colombie-Britannique, Canada.
 
 Mes chers amis, le terrain est mûr pour être labouré. Je suis Andrew. Cela ne paraît peut-être pas évident. Pourtant, le moment est venu de semer les graines de la vérité. Le moment est venu de prendre la parole. Le moment est venu de témoigner de l'amour et de tout ce qui relève de l'Amour de Dieu.
 

@@ -1,0 +1,36 @@
+---
+title: "Le travail au sein des Cercles de Lumière se poursuit"
+menu_title: ""
+description: "Le travail au sein des Cercles de Lumière se poursuit"
+date: 2026-06-21 06:00:01+00:26
+draft: False
+hidden: True
+weight:
+---
+### Le travail au sein des Cercles de Lumière se poursuit
+
+Anne (Grand mère de Jésus) - reçu par Al Fike le 3 Mai 2022, Tournée d'Éveil de l'Âme, Barcelone, Espagne.
+
+Je suis Anne. Nous vous avons guidés vers tous les Cercles de Lumière auxquels vous appartenez. Nous avons utilisé les liens qui vous unissent à vos frères et sœurs afin que votre travail quotidien ne soit pas interrompu par vos voyages.
+
+Bien que vous n'en ayez peut-être pas conscience, car le poids de votre corps physique affecte vos perceptions subtiles et votre conscience spirituelle, vous êtes néanmoins utilisés de multiples façons. Que vous en preniez conscience ou non, cela reste une vérité. Je tiens à souligner que lors de ces voyages, ces périples pour aller à la rencontre des autres à travers le monde, votre travail n'est pas interrompu chez vous. Les liens que vous avez tissés au fil des ans avec les personnes que vous connaissez ne sont pas rompus par la distance.
+
+Âmes bien-aimées, lorsque le lien d'amour est fort et indissoluble, il n'y a plus de distance entre les âmes. Ainsi, vous constaterez que le travail auquel vous vous êtes consacrés au fil des ans, vos habitudes et vos voyages s'harmoniseront parfaitement. Avec le temps, vous le comprendrez pleinement, car de nombreux autres voyages vous attendent. À mesure que vous êtes appelés, la voie est ouverte pour ce service si important et nécessaire dans le monde.
+
+Vous observez une ville si profondément enracinée dans le matérialisme et les traditions séculaires qu'en apparence, rien de nouveau ne semble avoir changé en matière de spiritualité. Pourtant, en réalité, beaucoup de choses se sont produites. Votre lumière et votre rôle de canal de l'Amour et de la Lumière divine ont influencé de nombreuses âmes. Ces effets peuvent tarder à se manifester, mais l'empreinte est faite sur l'âme et une porte est prête à s'ouvrir. Ces âmes chères peuvent choisir d'ouvrir ou non cette porte, selon leur libre arbitre, mais vous avez été utilisés pour y imprimer cette vérité. Elles auront donc l'opportunité, un jour ou l'autre, d'accéder à cette vérité.
+
+Nous ne pouvons ni vous ni nous interposer pour imposer cette vérité à autrui, afin qu'il choisisse de l'explorer et de la comprendre. Mais dans le domaine de l'âme, il existe des possibilités et des connexions qui peuvent se créer, d'âme à âme, indépendamment de l'esprit. Ainsi, au fil du temps, à mesure que l'individu vit sa vie et progresse dans le monde matériel et le monde spirituel, ce don reçu finira par émerger et se révéler à sa conscience. Cela peut se produire rapidement et clairement, ou prendre des siècles, mais il ne vous appartient pas de juger ce processus ni d'avoir des attentes à son égard. Comme vous le savez, tel est le plan de Dieu pour le salut de l'humanité. Tout ce que vous pouvez faire, c'est être Son instrument, cheminer dans le monde comme Son instrument, être ouverts à Sa guidance, marcher toujours dans la Lumière de Son Amour, et aimer tous ceux que vous rencontrez. Dieu touchera ces âmes. Dieu sait mieux que quiconque ce qui est bon pour elles. Dieu les bénira en conséquence.
+
+Je vous exhorte à marcher dans la foi, à avoir une grande paix dans vos cœurs et à laisser Dieu agir en veillant à être dans la lumière, à ce que vos pensées soient élevées et vos intentions empreintes de service et d'amour. Ainsi, vous ouvrez la porte à Dieu pour qu'il agisse et à nous pour que nous nous rapprochions de Lui. Vous le savez lorsque vous êtes en harmonie, lorsque vous ressentez cet alignement avec tous ceux qui vous sont proches spirituellement, la présence divine insufflant la force à vos pas dans le monde. C'est un processus simple, mais entravé par votre nature physique et mentale, et par la condition humaine. C'est pourquoi ces choses ne s'accomplissent pas facilement. Elles exigent de chacun d'entre vous une grande concentration et un dévouement profond pour être en harmonie.
+
+Je vous exhorte donc à veiller sur vos pensées, à être en harmonie avec vous-même et avec les autres, à être fidèles à la vérité et à penser souvent à Dieu. Pensez à votre relation avec Dieu, à l'immensité de son amour pour vous. Pensez à votre relation avec nous, dans les royaumes célestes, et à l'immensité de notre amour pour vous. Voyez ce monde comme un lieu où chaque pas peut faire de vous un instrument de Dieu, un canal de son amour. Comme je l'ai dit, vous n'êtes peut-être pas conscient de ce que Dieu fait, ni de la manière dont il vous utilise comme instrument, mais si votre esprit est libre de tout obstacle et que vous continuez à prier et à vous aligner sur Dieu, alors toute lumière pourra jaillir, toutes les bénédictions pourront se manifester. Vous rayonnerez dans le monde comme une lumière, l'amour se répandra, l'harmonie régnera, vous serez protégés et guidés, libérés des soucis et des fardeaux qui accablent tant de vos frères et sœurs en ce monde.
+
+Chaque jour est un jour de pratique, d'effort, de concentration, de prière et d'intentions aimantes, afin que Dieu puisse vous utiliser pleinement chaque jour qui passe, à mesure que vous vous accordez davantage à cette vérité et à votre propre instrument unique. Vous œuvrerez pour Dieu de multiples façons. Certaines vous seront connues, d'autres, et beaucoup d'autres encore, déjà réalisées, resteront à jamais inconnues.
+
+Bien-aimés, chaque souffle est un souffle pour Dieu. Chaque instant est un engagement au service de Dieu. Chaque aspect de votre être peut contribuer à l'éveil de l'humanité. Car il y a en vous, âmes bien-aimées, beaucoup de choses qui attendent encore la transformation de l'amour intérieur, afin que vous puissiez véritablement être cet instrument clair et puissant pour Dieu. Ayez confiance et foi dans les intentions de Dieu pour vous. Son amour pour vous guérira tout ce qui est en vous et enlèvera ce qui n'est pas en harmonie avec l'amour. Dieu continue de vous servir par l'intermédiaire de ses anges, par le contact de son Esprit sur vous.
+
+Ainsi, vous poursuivez votre cheminement, un chemin d'éternité vers la réconciliation, l'harmonie et l'alignement avec Dieu. Ainsi va le cours de votre vie, mes bien-aimés. En vous remémorant votre existence, vous pouvez constater les progrès accomplis. Tournez-vous vers l'avenir avec espoir et désir pour tout ce qui vous attend et tout ce qui est attendu de vous. Puissiez-vous parcourir le monde avec l'intention d'être l'instrument de Dieu, d'être forts, clairvoyants et rayonnants d'amour. Ainsi le serez-vous, et il en résultera de grandes choses.
+
+Que Dieu vous bénisse, mes bien-aimés, sur votre propre chemin, à travers votre passage unique de la vie, et pour les grâces, les bénédictions et les dons qui l'accompagnent. Que l'Amour de Dieu continue de vous éveiller, de vous fortifier et de vous embellir de lumière et d'amour. Je suis votre amie, Anna. Je suis heureuse d'être avec vous aujourd'hui et je le serai tout au long de cette journée. Que Dieu vous bénisse, mes bien-aimés. Que Dieu vous comble d'un amour profond et magnifique.
+
+

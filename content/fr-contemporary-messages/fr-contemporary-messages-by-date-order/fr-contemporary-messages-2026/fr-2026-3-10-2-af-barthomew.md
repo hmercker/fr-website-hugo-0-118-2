@@ -1,0 +1,28 @@
+---
+title: "Le Chemin de la Prière du Cœur"
+menu_title: ""
+description: "Le Chemin de la Prière du Cœur"
+date: 2026-05-24 16:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Le Chemin de la Prière du Cœur
+
+Barthélémy - reçu par Al Fike le 10 Mars 2026, Cercle de prière de Sechelt, Colombie Britanique, Canada.
+
+Que Dieu vous bénisse, mes amis. Que la bénédiction de l’Amour du Père pénètre abondamment et puissamment dans vos âmes. Ouvrez vos âmes à cette bénédiction, mes chers amis. Je suis Barthélemy. Je viens vous encourager dans la prière. Je viens vous parler de la prière, car c’est ce que vous faites à chaque fois que vous vous réunissez. Je tiens à souligner l’importance de prier avec le cœur, car le cœur est plus proche de l’âme que l’esprit. Lorsque l’âme et le cœur sont en harmonie, la prière est sincère et, comme vous le diriez, authentique.
+
+Les mots de cette prière ne sont pas nécessairement choisis avec soin pour créer une phrase lyrique ou belle. Il peut s’agir de n’importe quel nombre de mots, mais l’important, ce sont les sentiments : se sentir véritablement en harmonie avec Dieu, ressentir son amour pour Lui, s’ouvrir à Son amour et être dans Sa grâce. Cette grâce naît d’une prière sincère. Cette prière peut même être dépourvue de mots, et se limiter à un simple sentiment. Ce qui n’est ni requis ni encouragé, c’est une prière mécanique, répétée inlassablement, issue de l’esprit matériel. C’est là que réside la satisfaction d’avoir prononcé les mots justes, d’avoir composé une prière qui ne vient pas du cœur, mais de l’esprit. Je vous en déconseille, mes chers amis, car être avec Dieu ne relève pas de l’esprit en soi, même si celui-ci peut être impliqué et souvent se contenter d’observer. C’est l’âme qui cherche son Créateur. C’est l’âme qui exprime ses désirs et ses sentiments. C’est l’âme qui perçoit et reconnaît la Présence de Dieu. C’est ce que l’on appelle souvent la grâce divine. Car c’est dans cette grâce, dans ce sentiment d’Amour qui se déverse sur vous, que réside le plus précieux et le plus efficace.
+
+Souvent, parce que vous vivez sur le plan terrestre, il est difficile de reconnaître, de maintenir et de nourrir cet alignement, cet état de réceptivité, cette expression du désir profond de l’âme. Pourtant, c’est pourquoi, mes amis, vous revenez sans cesse pratiquer cette prière, ce désir et cette expression. En appliquant cette vérité à votre vie de prière et à votre quotidien, la Présence de Dieu devient plus réelle, plus palpable et plus puissante. L’âme est alors comblée, joyeuse, nourrie par le Père Céleste, cette Âme Suprême débordante d’Amour, un Amour si abondant qu’il ne peut être pleinement perçu ni compris.
+
+Mes chers amis, réunissez-vous en prière. Lorsqu’une personne prie pour vous, unissez vos prières aux siennes. Ressentez avec elle la sincérité de ses paroles. Ne laissez pas votre esprit vagabonder, ne vous laissez pas distraire par le désir de votre groupe, de votre communauté d’âmes, car c’est dans cette unité de prière, cette communion de désir et d’intention, que les résultats sont puissants. Non seulement vous en bénéficiez, mais ceux qui vous entourent, vos proches, votre famille, vos amis, vos voisins, votre quartier, là où vous rayonnez, en profitent également. Plus vous êtes en harmonie avec Dieu, plus grande est la lumière qui se dégage.
+
+C’est un cheminement, un effort, un engagement. Chacun de vous sait au fond de son âme tout ce dont je parle et comprend pourquoi je prononce ces mots. Car il est important non seulement d’être en accord avec Dieu, mais aussi de progresser dans cette communication avec le Divin. Lorsque vous êtes tous unis en harmonie et que vous aspirez aux mêmes choses, cela crée un puissant portail, une fenêtre par laquelle Dieu peut s’exprimer et vous bénir. Exprimez clairement vos souhaits en matière de croissance et d’éveil spirituels, et notamment votre désir de servir Dieu et l’humanité.
+
+Car lorsque vous êtes en harmonie avec Dieu et que vous vous exprimez ainsi, vous concrétisez davantage ce qui peut arriver, le potentiel de votre vie quotidienne. Lorsque vous demandez à Dieu de vous bénir ou de vous utiliser d’une certaine manière, ces demandes peuvent se manifester car la clarté de votre âme et les désirs de votre cœur s’élèvent sur les ailes de la prière. Les bénédictions qui en découlent peuvent être puissantes et transformer des vies, non seulement la vôtre, mais aussi celle de ceux pour qui vous priez. En utilisant les Lois de la Prière, vous vous servez d’un outil très puissant pour le changement, l’éveil, les bénédictions, la paix, l’harmonie, la lumière et l’amour.
+
+Mes chers amis, écoutez attentivement ce que votre âme a à dire à Dieu. Laissez cette expression être claire et directe. Plongez-vous pleinement dans cette connexion, cette communion avec Dieu. Ne laissez pas votre mental vous détourner de cette expérience, mais restez concentrés, fidèles à votre intuition, et toutes les bénédictions qui en découleront vous appartiendront pleinement et en toute conscience. Voilà, mes amis, pourquoi vous priez et pourquoi vous êtes ensemble : pour que la vérité, la beauté, l’émerveillement et les bénédictions de Dieu, son Amour, viennent à vous et demeurent en vous, vous changent, vous éveillent et vous transforment.
+
+Que Dieu vous bénisse dans vos prières, dans la vérité que vous lui exprimez et dans votre vie quotidienne. Au Royaume des Cieux, nous sommes avec vous, mes amis. Nous cheminons à vos côtés, nous prions avec vous, nous vous encourageons et nous vous aimons tous. Belles âmes, puissiez-vous continuer ainsi à attirer les bénédictions de Dieu sur vous et sur le monde. Que Dieu vous bénisse. Je suis Barthélemy et je vous aime tous. Que Dieu vous bénisse.

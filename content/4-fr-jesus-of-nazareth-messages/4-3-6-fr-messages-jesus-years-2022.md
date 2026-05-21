@@ -16,6 +16,7 @@ Jésus | [Remettez vos soucis à Dieu](/fr-contemporary-messages/fr-contemporary
 Jésus | [Bénédiction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-2-22-3-af-jesus/) | 22 Février 2022
 Jésus | [Ne craignez rien, l’amour prévaudra et apportera la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-2-27-1-af-jesus/) | 27 Février 2022
 Jésus | [Bénédiction puissante et réassurance pour la tournée d'éveil de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-10-1-af-jesus/) | 10 Mars 2022
+Jésus | [Avancez au service des autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-28-2-af-jesus/) | 28 Mars 2022
 Jésus | [Examinez votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-7-1-jw-jesus/) | 7 Avril 2022
 Jésus | [Vous portez en vous des vérités sacrées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-18-4-em-jesus/) | 18 Avril 2022
 Jésus | [Bénédictions profondes de paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-23-1-af-jesus/) | 23 Avril 2022

@@ -9,7 +9,7 @@ weight:
 ---
 ### Venez connaître la vérité, la puissance et la gloire de l'amour
 
-Isaîe - reçu par Albert Fike - le 6 Septembre 2025, Harrow, Royaume-Uni
+Isaïe - reçu par Albert Fike - le 6 Septembre 2025, Harrow, Royaume-Uni
 
 (…) Que Son amour vous réveille. Je suis Isaïe. Je viens avec le Maître pour vous encourager à poursuivre le voyage de découverte de votre âme. Car c'est le voyage que chacun doit entreprendre pour découvrir, à sa manière, la vérité, la puissance et la gloire de l'amour.
 

@@ -54,6 +54,8 @@ Jésus | [Écouter la petite voix douce de Dieu](/fr-contemporary-messages/fr-co
 Jésus | [Unis dans la prière, transformés par l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-3-1-af-jesus/) | 3 Août 2025
 Jésus | [Ouvrez grand vos âmes pour recevoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-18-2-af-jesus/) | 18 Août 2025
 Jésus | [Nous sommes tous enfants de Dieu et son amour est accessible à tous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-6-1-af-jesus/) | 6 Septembre 2025
+Jésus | [Ce don vous guidera à travers les temps changeants à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-6-3-af-jesus/) | 6 Septembre 2025
 Jésus | [La flamme de la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-20-3-af-jesus/) | 20 Septembre 2025
 Jésus | [L'Amour de Dieu est la clé de toutes choses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-21-1-af-jesus/) | 21 Septembre 2025
 Jean le Bien Aimé et Jésus | [Message d'ouverture de la retraite de Fontainebleau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-18-2-af-john-the-beloved-and-jesus/) | 18 Septembre 2025
+Goldie, Augustin et Jésus | [Le Pouvoir de l'Amour Persévérant : Éveiller l'Âme à la Vérité de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2025-11-11-2--goldie-augustine-jesus/) | 11 Novembre 2025

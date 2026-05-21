@@ -23,6 +23,7 @@ Mylora | [Accueille Lorraine à la retraite Voix Directe](/fr-contemporary-messa
 Mylora | [La loi du donner et du recevoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-16-4-mc-mylora/) | 16 Septembre 2021
 Mylora | [L'amour allume la puissance des dons spirituels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-29-2-af-mylora/) | 29 Octobre 2021
 Mylora | [Bénédiction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-11-5-3-af-mylora/) | 5 Novembre 2021
+Mylora | [Un pas de plus au service des autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-28-3-af-mylora/) | 28 Mars 2022
 Mylora | [Bénédictions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-30-2-jw-mylora/) | 30 Mars 2022
 Mylora | [Comment Dieu veille sur nous tous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-14-1-af-mylora/) | 14 Juin 2022
 Mylora | [Honorer la terre merre qui nous aime tant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-2-1-af-mylora/) | 2 Septembre 2022

@@ -365,6 +365,7 @@ Augustin | [Ne dénigrez pas vos âmes : il existe une hiérarchie au Ciel](/fr-
 Augustin | [Soyez forts, confiants et impatients d'embrasser un monde nouveau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-8-5-af-augustine/) | 8 Février 2025
 Augustin | [Message de la Saint-Valentin pour tous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-14-1-af-augustine/) | 14 Février 2025
 Augustin | [Seul votre esprit peut vous séparer de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-21-2-af-augustine/) | 21 Février 2025
+Augustin | [Le Concept du Temps : Dans la Réalité de l'Âme, le Temps n'existe pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-23-1-mc-augustine/) | 23 Février 2025
 Augustin | [Vous êtes des anges sur Terre accomplissant l'œuvre de Dieu pour l'éternité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-2-27-3-af-augustine/) | 27 Février 2025
 Augustin | [Conseils pour l'Estonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-2-2-af-augustine/) | 2 Mars 2025
 Augustin | [Être dans le monde, mais pas du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-14-1-af-augustine/) | 14 Mars 2025 
@@ -388,11 +389,14 @@ Augustin  | [Tenez bon dans l'Amour de Dieu !](/fr-contemporary-messages/fr-cont
 Augustin | [Leçon sur le libre arbitre sur Terre et dans l'Esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-5-1-af-augustine/) | 5 Août 2025
 Augustin et Goldie | [Conseils au conseil d'administration de la DLSF / Gardez la joie et avancez d'un pas léger](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-21-1-af-augustine-and-goldie/) | 21 Mai 2025 
 Augustin  | [Le pouvoir de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-20-1-af-augustine/) | 20 Septembre 2025
+Goldie, Augustin et Jésus | [Le Pouvoir de l'Amour Persévérant : Éveiller l'Âme à la Vérité de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2025-11-11-2--goldie-augustine-jesus/) | 11 Novembre 2025
 Augustin | [Une leçon sur les multiples facettes de notre rôle d'instrumentalistes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-2-3-af-augustine/) | 2 Janvier 2026 
 Augustin  | [Recherchez l'amour infini de Dieu et ne vous retenez pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-7-4-af-augustine/) | 7 Janvier 2026 
 Augustin et Barbara Davies | [Leçon sur l'engagement / Réfléchissez au destin que vous vous forgez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-9-1-af-augustine-barbara-davies/) | 9 Janvier 2026
 Augustin | [Abandonnez la volonté de l'esprit et adoptez celle de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-9-2-af-augustine/) | 9 Janvier 2026 
 Augustin | [Chaque jour est une bénédiction et une occasion de progresser](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-14-3-af-augustine/) | 14 Janvier 2026 
+Jésus et Augustin | [Foi et Âme 1 : Avancez avec foi pour accomplir votre destinée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-8-1-af-jesus-and-augustine/) | 8 Février 2026
+Augustin | [Foi et Âme 3 : Efforcez-vous de connaître et d'avoir foi en votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-10-1-af-augustine/) | 10 Février 2026
 
 
 

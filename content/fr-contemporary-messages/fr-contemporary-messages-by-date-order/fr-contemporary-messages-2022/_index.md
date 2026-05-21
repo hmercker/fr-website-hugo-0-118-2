@@ -83,6 +83,8 @@ Judas | [Revisiter les messages Célestes](/fr-contemporary-messages/fr-contempo
 André | [Continuez à faire ressortir la Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-24-1-af-andrew/) | 24 Mars 2022
 Marie | [Tournée d'éveil de l'âme 2022](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-24-2-af-mary/) | 24 Mars 2022
 St François d'Assise | [S’épanouir dans la générosité de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-28-1-jw-st-francis-of-assisi/) | 28 Mars 2022
+Jésus | [Avancez au service des autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-28-2-af-jesus/) | 28 Mars 2022
+Mylora | [Un pas de plus au service des autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-28-3-af-mylora/) | 28 Mars 2022
 Flavius Josèphe | [Avertissement et réassurance pour des changements terrestres de plus en plus intenses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-29-1-af-josephus/) | 29 Mars 2022
 St Matthieu | [Encouragé à collaborer à la formation du noyau de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-30-1-af-st-matthew/) | 30 Mars 2022
 Mylora | [Bénédictions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-3-30-2-jw-mylora/) | 30 Mars 2022
@@ -94,6 +96,7 @@ Keea Atta Kem | [Bénédictions](/fr-contemporary-messages/fr-contemporary-messa
 Care Darby Walsh | [Le jeûne du drame](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-11-2-jw-care-derby-walsh/) | 11 Avril 2022
 Goldie | [Nous recevons tous des conseils, que nous en soyons conscients ou non](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-12-1-af-goldie/) | 12 Avril 2022
 Claire d'Assise | [La profondeur de votre désir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-12-2-jw-clare-of-assisi/) | 12 Avril 2022
+Thomas d'Aquin | [La Merveille de l'Éveil de l'Âme et l'Importance de l'Expiation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-13-2-af-thomas-of-aquinas/) | 13 Avril 2022
 Jean le Bien-Aimé | [Prier pour l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-16-1-af-john-the-beloved/) | 16 Avril 2022
 Goldie | [Soyez joyeux dans l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-18-1-af-goldie/) | 18 Avril 2022
 Robert Hugh Benson | [Croyance mentale et perception de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-18-2-jw-robert-hugh-benson/) | 18 Avril 2022
@@ -104,15 +107,19 @@ Orion | [Discussion sérieuse sur l’effondrement économique et l’élévatio
 Joseph | [Bénédictions pour tous les passagers](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-20-2-em-joseph/) | 20 Avril 2022
 Anne (Grand mère de Jesus) | [Œuvres en coulisses](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-21-1-em-anna-grandmother-of-jesus/) | 21 Avril 2022
 Marie | [Joyaux Inestimables en Mer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-22-1-em-mary/) | 22 Avril 2022
+Copernic | [Évoque le saut quantique que l'humanité est sur le point d'accomplir dans la conscience de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-22-2-af-copernicus/) | 22 Avril 2022
 Jésus | [Bénédictions profondes de paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-23-1-af-jesus/) | 23 Avril 2022
 St Pierre | [Recherche d'âmes à Puenta Delgado](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-24-1-em-st-peter/) | 24 Avril 2022
 Inayat Khan | [Gardez un chant dans votre cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-25-1-jw-inayat-khan/) | 25 Avril 2022
 Augustin | [Comment savez-vous que vous recevez l'Amour Divin ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-25-2-af-augustine/) | 25 Avril 2022
 Pierre | [Construire une Église n'est pas chose facile](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-26-1-em-st-peter/) | 26 Avril 2022
 André | [Choix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-29-1-af-andrew/) | 29 Avril 2022
+Goldie | [Il n'y a pas de drapeaux au Ciel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-29-2-af-goldie/) | 29 Avril 2022
 Orion | [Que l'Amour de Dieu nous protège ces prochains jours](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-4-30-1-em-orion/) | 30 Avril 2022
 Inayat Khan | [Le chant du cœur et la danse de l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-2-1-jw-inayat-khan/) | 2 Mai 2022
 Jésus | [Le monde est un lieu meurtri](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-2-2-af-jesus/) | 2 Mai 2022
+Anne | [Le travail au sein des Cercles de Lumière se poursuit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-3-1-af-anna-grandmother-of-jesus/) | 3 Mai 2022
+Faith Nyquist | [Ce pays a grand besoin de nos prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-5-1-af-faith-nyquist/) | 5 Mai 2022
 Orion | [Ici pour aider à éveiller le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-6-1-af-orion/) | 6 Mai 2022
 Jacques et Jean le Bien Aimé | [Vous êtes comblés de grâces](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-6-2-em-james-john-the-beloved/) | 6 Mai 2022
 Praying Bill | [Nous prions tous pour le Portail du Centre Mondial de Guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-6-1-em-praying-bill/) | 6 Mai 2022

@@ -1,13 +1,13 @@
 ---
-title: "Désire démontrer la puissance de l'amour de Dieu à tous"
+title: "Désire démontrer la puissance de l'Amour de Dieu à tous"
 menu_title: ""
-description: "Désire démontrer la puissance de l'amour de Dieu à tous"
+description: "Désire démontrer la puissance de l'Amour de Dieu à tous"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### Désire démontrer la puissance de l'amour de Dieu à tous
+### Désire démontrer la puissance de l'Amour de Dieu à tous
 
 Jésus - reçu par Albert Fike le 23 Février 2025, Sechelt, Colombie-Britannique, Canada.
 
