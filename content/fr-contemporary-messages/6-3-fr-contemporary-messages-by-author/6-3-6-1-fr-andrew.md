@@ -68,7 +68,7 @@ André | [Se tourner vers Dieu pour se nourrir](/fr-contemporary-messages/fr-con
 André | [S'unir dans l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-8-1-af-andrew/) | 8 Décembre 2017
 || <p align="center"><span style="color:red">**Pour les années 2018 à 2020**</span></p> |  |
 André | [Vous vous éveillez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-1-1-1-af-andrew/) | 1 Janvier 2018
-André | [La Grande Famille de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-21-1-af-andrew/) | 21 Février 2018
+André | [La Grande Famille de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-21-2-af-andrew/) | 21 Février 2018
 André | [Laissez l'âme s'exprimer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-2-1-af-andrew/) | 2 Mars 2018
 André | [Être dans le courant de l'Amour du Père ensemble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-12-1-af-andrew/) | 12 Mars 2018
 André | [S'ouvrir à la lumière de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-16-1-af-andrew/) | 16 Mars 2018

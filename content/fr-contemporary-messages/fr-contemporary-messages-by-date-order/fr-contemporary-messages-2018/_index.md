@@ -43,7 +43,7 @@ St Matthieu | [Choisir le droit chemin](/fr-contemporary-messages/fr-contemporar
 Augustin | [Cherchez l'Amour de Dieu pour réveiller vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-20-1-af-augustine/) | 20 Février 2018
 Jésus | [L'amour est la clé de l'épanouissement, de la joie et de la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-20-2-af-jesus/) | 20 Février 2018
 Isaïe | [L'Amour de Dieu vous ouvre les portes de l'entendement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-21-1-af-isaiah/) | 21 Février 2018
-André | [La Grande Famille de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-21-1-af-andrew/) | 21 Février 2018
+André | [La Grande Famille de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-21-2-af-andrew/) | 21 Février 2018
 Augustin | [Un parcours de service](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-22-1-af-augustine/) | 22 Février 2018
 Goldie | [Apportez la musique !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-23-1-af-goldie/) | 23 Février 2018
 Jésus | [Le travail commence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-23-2-af-jesus/) | 23 Février 2018
