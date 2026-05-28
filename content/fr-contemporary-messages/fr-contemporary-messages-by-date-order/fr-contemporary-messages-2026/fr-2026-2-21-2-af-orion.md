@@ -1,13 +1,13 @@
 ---
-title: "Soyez courageux et portez la flamme de la vérité"
+title: "C’est vous qui déterminez la vitesse de votre progression"
 menu_title: ""
-description: "Soyez courageux et portez la flamme de la vérité"
+description: "C’est vous qui déterminez la vitesse de votre progression"
 date: 2026-05-24 16:00:01+00:01
 draft: False
 hidden: True
 weight:
 ---
-### Soyez courageux et portez la flamme de la vérité
+### C’est vous qui déterminez la vitesse de votre progression
 
 Orion - reçu par Al Fike le 21 Février 2026, Cercle de prière de Sechelt, Colombie Britanique, Canada.
 
