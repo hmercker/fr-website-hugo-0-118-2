@@ -212,7 +212,13 @@ Orion et Jésus | [La prière est un élément essentiel du plan divin pour la t
 || <p align="center"><span style="color:red">**Pour l'année 2026**</span></p> | |
 Orion | [Cet Amour est Universel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-14-2-af-orion/) | 14 Janvier 2026
 Orion | [Vous ne pouvez pas vous permettre de prendre votre engagement sur cette voie à la légère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-17-1-af-orion/) | 17 Février 2026
+Orion | [C’est vous qui déterminez la vitesse de votre progression](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-21-2-af-orion/) | 21 Février 2026
+Orion | [Révéler l'existence d'amis stellaires ouvrira les portes de votre instrumentation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-24-1-af-orion/) | 24 Février 2026
+Orion | [Questions-Réponses : Orion ouvre la parole aux questions, aborde la conscience de l'âme et comment discerner les différentes influences stellaires/spirituelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-28-1-af-orion/) | 28 Février 2026
 Orion | [Soyez courageux, priez et soyez attentifs en ce tournant crucial pour le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-3-1-af-orion/) | 3 Mars 2026
+Orion | [Faites le choix authentique d'être la cloche retentissante de la vérité dans un monde en perpétuelle mutation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-7-1-af-orion/) | 7 Mars 2026
+Orion | [Redoublez de prières pour demeurer en harmonie dans un monde obscur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-14-1-af-orion/) | 14 Mars 2026
+Orion | [Vous devenez de plus en plus forts à mesure que vous vous tournez vers la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-17-2-af-orion/) | 17 Mars 2026
 
 
 

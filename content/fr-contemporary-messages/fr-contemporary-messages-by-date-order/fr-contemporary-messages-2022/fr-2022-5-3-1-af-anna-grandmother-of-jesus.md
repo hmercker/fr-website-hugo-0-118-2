@@ -2,7 +2,7 @@
 title: "Le travail au sein des Cercles de Lumière se poursuit"
 menu_title: ""
 description: "Le travail au sein des Cercles de Lumière se poursuit"
-date: 2026-06-21 06:00:01+00:26
+date: 2026-05-21 06:00:01+00:26
 draft: False
 hidden: True
 weight:

@@ -1,0 +1,24 @@
+---
+title: "Soyez la leçon vivante d'Amour et de Lumière"
+menu_title: ""
+description: "Soyez la leçon vivante d'Amour et de Lumière"
+date: 2026-02-21 16:00:01+00:01
+draft: False
+hidden: True
+weight: 
+---
+### Soyez la leçon vivante d'Amour et de Lumière
+
+Confucius - reçu par Albert Fike - le 14 Décembre 2025, Sechelt, BC, Canada.
+
+Que Dieu vous bénisse, âmes bien-aimées. Je suis Confucius. Oui, réjouissez-vous, bien-aimés. Réjouissez-vous, car vous connaissez la clé qui ouvre votre cœur et votre âme aux merveilles que Dieu a créées en vous, cette clé d’Amour qui guérit, qui vous rend entiers, qui vous emmène sur le chemin de la conscience de l’âme et vous éveille à l’existence de votre Créateur.
+
+Qu’est-ce qui, au monde, pourrait accomplir cela ? Rien. C’est la relation entre vous et votre Créateur qui rend cela possible. En recherchant l’Amour de Dieu, l’Essence de la grande Âme de Dieu, vous ouvrez la porte. Vous recevez alors la conscience, les bénédictions, les révélations et la joie. À mesure que votre foi, votre confiance et votre capacité à ressentir Dieu grandissent, la joie intérieure s’éveille, la capacité d’aimer s’éveille en votre âme et vous devenez véritablement un enfant racheté de Dieu.
+
+C’est simple. Dieu n’a pas créé un univers si complexe que seuls quelques-uns puissent accéder à la conscience divine, à l’éveil de l’âme et à sa transformation. Non, pas seulement vous, mais tous, vous tous, tous vos proches, tous les peuples du monde et les esprits du monde spirituel. Chacun a la possibilité de connaître cette vérité, de s’y éveiller, de l’appliquer et de l’intégrer pleinement à sa vie et à son expérience. Je vous demande, mes chers amis, de partager cette vérité avec vos frères et sœurs, de la transmettre de manière à les inspirer à la rechercher et à la connaître. La plus grande source d’inspiration est la lumière qui brille en votre âme, la joie qui émane de votre être, la vérité qui sort de vos lèvres. Tout cela constitue un exemple et un enseignement puissants pour autrui. Soyez cet exemple, âmes bien-aimées. Soyez cet exemple de vérité, ce messager de lumière, cette belle âme qui s’exprime dans le monde d’une manière véritablement crédible et comprise. Pouvez-vous y parvenir, âmes bien-aimées, même si beaucoup d’entre vous sont doux, humbles et quelque peu réticents à affronter le monde, ce lieu dur, plein de jugements, d’amour et parfois dépourvu d’amour ? En vous réside une force, une ténacité, une solidité propres à votre belle âme, et vous devez avoir confiance en cela. Ayez confiance en vous. Ayez confiance en qui vous êtes aux yeux de Dieu. Si vous y parvenez, mes chers amis, alors vous accomplirez l’œuvre de Dieu dans le monde, loin des sonneries de cloches, des voix qui s’élèvent, des jugements et des regards désapprobateurs. Non, rien de tout cela. C’est dans l’amour, cette douce lumière qui enveloppe autrui et apporte réconfort et confiance, que réside l’amour.
+
+Il vous appartient de trouver votre voie. Car chacun de vous est unique. Chacun de vous porte une mission. Chacun de vous possède ses propres dons et talents. À mesure que l’Amour de Dieu grandit en vous, vos dons et vos talents s’épanouiront dans toute leur beauté et leur singularité. Ayez confiance, mes âmes bien-aimées, car il est inévitable que Dieu vous utilise comme instruments de son Amour. Il en est ainsi. Mes chers amis, vous ignorez peut-être qui vous êtes vraiment et ce que vous pouvez offrir au monde, mais vous devez vous aventurer et tâter le terrain. Soyez forts et ayez une foi inébranlable, car chaque pas que vous ferez sera une épreuve pour votre foi et vos capacités. Vous découvrirez alors que Dieu vous guidera. Le monde s’ouvrira à vous de manières insoupçonnées, mais c’est la foi, la force et la volonté d’avancer qui produiront les résultats que je vous promets.
+
+Soyez avec Dieu, mes âmes bien-aimées, mes précieux enfants. Soyez Ses instruments, Ses enfants, Sa lumière dans un monde si dépourvu de lumière, un monde qui a tant besoin d’amour. Soyez cette lumière et exprimez cet amour. Vous verrez que les miracles de Dieu agiront à travers vous et toucheront de nombreuses âmes.
+
+Que Dieu vous bénisse, mes bien-aimés. Je suis Confucius. Je vous aime. Je suis avec vous. Nous sommes nombreux à être avec vous. Nous vous encourageons, nous vous protégeons et nous vous aimons. Que Dieu vous bénisse, âmes bien-aimées. Que Dieu vous bénisse dans Son Amour. Puissiez-vous porter la flamme de la vérité avec vous, où que vous alliez et qui que vous rencontriez. Soyez ce canal d’amour et vous serez bénis en agissant ainsi. Confucius vous aime. Que Dieu vous bénisse. Que Dieu vous bénisse tous.

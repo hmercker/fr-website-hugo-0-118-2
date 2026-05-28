@@ -169,4 +169,7 @@ Marie & Jean | [L’amour est notre cause](/fr-contemporary-messages/fr-contempo
 Jeanne d'arc, Marie et Keea Atta Kem | [Venez soutenir toutes les femmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-15-1-af-joan-of-arc-mary-keea-atta-kem/) | 15 Avril 2025 
 Marie | [Nous cherchons à servir Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-18-1-af-mary/) | 18 Septembre 2025
 Marie | [Votre transformation dans l’Amour de Dieu est possible dès votre séjour sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-12-3-af-mary/) | 12 Janvier 2026
+Marie | [Nous, du Royaume Céleste, désirons être proches de vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-15-1-af-mary/) | 15 Février 2026 
+Pierre, Marie et Jésus | [Ayez foi et efforcez-vous d'établir cette vérité dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-22-2-af-peter-maria-jesus/) | 22 Février 2026 
+Jésus et Marie | [La Puissance de la Prière Quotidienne / Une Bénédiction pour les Enfants de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-8-1-af-jesus-mary/) | 8 Mars 2026
  

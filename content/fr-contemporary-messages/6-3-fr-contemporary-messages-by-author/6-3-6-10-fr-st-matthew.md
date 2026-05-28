@@ -138,3 +138,4 @@ St Matthieu | [Bienvenue à Victoria et remercie les nombreuses prières pour l'
 St Matthieu | [Une leçon de compassion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-10-2-af-st-matthew/) | 10 Juin 2025
 St Matthieu | [Considérez avec patience et flexibilité les différents niveaux d'accompagnement dans vos efforts de planification](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-19-1-af-st-matthew/) | 19 Juin 2025
 St Matthieu | [Vivre chaque jour comme un instrument de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-3-2-af-st-matthew/) | 3 Mars 2026
+Matthieu | [Suivre les directives pour s'unir ouvre de grandes possibilités](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-21-1-af-st-matthew/) | 21 Mars 2026 

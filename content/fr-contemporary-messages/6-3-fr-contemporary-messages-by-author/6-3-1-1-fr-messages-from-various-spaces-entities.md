@@ -23,10 +23,7 @@ Shandor | [Commentaires de Shandor sur la Voix Directe](/fr-contemporary-message
 Shandor | [Une révolution dans votre monde est à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-15-2-af-shandor/) | 15 Mars 2018
 George et Will | [Une offre d’assistance/de confiance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-2-2-em-georges-and-will/) | 2 Janvier 2024
 George | [Se connecter avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-11-2-em-george/) | 11 Mars 2024
-Christine | [Se présente](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-16-1-af-christine/) | 16 Mars 2024
-Christine | [Conseils pour Matt partagés avec autorisation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-18-3-af-christine/) | 18 Mars 2024
-Christine | [Être est notre religion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-20-3-af-christine/) | 20 Septembre 2024
-Christine | [De nombreux amis stellaires dans l'univers sont là pour vous aide](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-24-1-af-christine/) | 24 Novembre 2024
+
 
 
 

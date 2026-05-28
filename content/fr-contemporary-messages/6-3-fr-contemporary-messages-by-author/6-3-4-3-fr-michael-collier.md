@@ -46,3 +46,4 @@ Michael Collier | [Choisissez de faire partie d'un monde plus harmonieux](/fr-co
 Michael Collier | [Comment se préparer à être des enseignants et des lumières dans les temps à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-18-1-af-michael-collier/) | 18 Janvier 2026
 Michael Collier | [Questions-Réponses ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-18-2-af-michael-collier/) | 18 Janvier 2026
 Michael Collier | [Foi et Âme 4 : Se libérer de l'emprise limitante du doute](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-11-1-af-michael-collier/) | 11 Février 2026
+Michael Collier | [La foi, l'élan et l'expansion de l'influence spirituelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-19-1-af-michael-collier/) | 19 Mars 2026 
