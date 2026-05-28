@@ -172,4 +172,6 @@ Marie | [Votre transformation dans l’Amour de Dieu est possible dès votre sé
 Marie | [Nous, du Royaume Céleste, désirons être proches de vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-15-1-af-mary/) | 15 Février 2026 
 Pierre, Marie et Jésus | [Ayez foi et efforcez-vous d'établir cette vérité dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-22-2-af-peter-maria-jesus/) | 22 Février 2026 
 Jésus et Marie | [La Puissance de la Prière Quotidienne / Une Bénédiction pour les Enfants de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-8-1-af-jesus-mary/) | 8 Mars 2026
+Marie | [La Foi d'une Mère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-5-1-em-mary/) | 5 Avril 2026
+Marie | [Reposez-vous dans l'Étreinte de l'Amour et de la Bénédiction Divins](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-7-1-af-mary/) | 7 Avril 2026
  

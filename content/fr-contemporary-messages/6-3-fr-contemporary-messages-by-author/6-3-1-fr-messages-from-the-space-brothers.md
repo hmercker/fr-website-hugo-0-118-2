@@ -17,7 +17,7 @@ Ces êtres ne sont pas des êtres spirituels mais des êtres qui vivent actuelle
 
 [Divers êtres stellaires](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-1-1-fr-messages-from-various-spaces-entities/)
 </br>
-[Orion](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-1-2-fr-messages-from-christine/)
+[Christine](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-1-2-fr-messages-from-christine/)
 </br>
 [Orion](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-1-3-fr-messages-from-orion/)
 

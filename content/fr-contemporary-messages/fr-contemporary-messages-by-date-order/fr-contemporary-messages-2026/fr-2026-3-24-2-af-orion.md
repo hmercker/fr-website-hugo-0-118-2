@@ -1,0 +1,28 @@
+---
+title: "Dépassez la première étape de l'éveil et élevez votre planète vers l'harmonie"
+menu_title: ""
+description: "Dépassez la première étape de l'éveil et élevez votre planète vers l'harmonie"
+date: 2026-05-28 16:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Dépassez la première étape de l'éveil et élevez votre planète vers l'harmonie
+
+Orion - reçu par Al Fike le 24 Mars 2026, Voix Directe, Cercle de prière de Sechelt, Colombie Britanique, Canada.
+
+Que Dieu vous bénisse, mes amis. Je suis Orion, de retour parmi vous. Le monde attend cela, mes amis. Alors que nous poursuivons notre chemin, que nous persévérons dans nos engagements et nos efforts de développement, nous nous rapprochons du moment où nous répondrons au monde d’une manière qui captivera son attention et suscitera son émerveillement.
+
+Mes amis, nous poursuivons ce voyage ardu. Vous continuez votre développement personnel, essentiel. Nous continuons tous à grandir dans l’éveil de l’âme, nourris par l’Amour universel de Dieu. Il est présent parmi nous. Il continue de faire partie de nos vies. Le but est d’informer et d’indiquer la voie pour que cet Amour, cette grâce, fasse partie de chaque vie. Voilà pourquoi nous venons de si loin, jusqu’à votre belle planète : pour répandre ce message, cette compréhension, cet éveil indispensable. Car chaque planète qui a évolué et grandi dans la lumière a compris la voie à suivre.
+
+C’est la voie de l’âme, qui s’éveille, se développe et se transforme. Car les facultés et les capacités de l’âme sont infiniment supérieures à celles du mental matériel. Lorsque ces deux aspects de votre être s’unissent par l’intermédiaire du mental spirituel, mes amis, il n’y a plus de limites à ce que vous pouvez accomplir, même sur le plan matériel. Car à mesure que vous continuez à grandir et à vous éveiller à tous ces niveaux de vie, la sagesse, les perceptions et les capacités de compréhension issues de la conscience de l’âme éclairent et nourrissent le reste de votre être. Tandis que vous et les autres continuez à grandir et à vous développer dans vos voies créatives, vos manières de vivre et d’être au monde, cette sagesse vous aide à modérer et à comprendre, de manière à harmoniser, les aspects créatifs et les outils de votre être, afin d’accompagner l’humanité sur le chemin du progrès et de lui apporter confort, paix et harmonie.
+
+Comme vous l’avez constaté, le simple développement de l’esprit, de l’esprit matériel, ne vous conduit pas à cet état d’harmonie. L’élément manquant est celui de l’âme, c’est pourquoi nous insistons sur le développement de l’âme et continuons de vous éduquer, de vous inspirer et de vous guider vers ce développement. C’est la clé de tout. En aspirant à ces choses, vous aspirez toujours plus à recevoir ce don précieux de l’Essence divine, et votre être accroît ainsi sa capacité à rayonner, à diffuser sa lumière, son inspiration et sa créativité dans le monde. Son alignement avec l’âme et l’esprit ouvre une voie d’expression formidable. En ces temps difficiles, il est essentiel de comprendre pleinement le pouvoir de l’amour. Avec amour, acceptation, paix et tout ce qui est lumière et conforme aux Lois de la Création, vous pourrez créer une atmosphère propice au progrès d’autres choses, de technologies et de modes de vie qui apporteront l’harmonie à votre monde.
+
+Cependant, vous devez d’abord comprendre l’élément clé : l’amour, non seulement l’amour humain que vous vivez, mais l’Amour spirituel qui vient de Dieu. Lorsque la puissance de l’amour s’exerce à travers vous dans le monde, elle transforme l’atmosphère, les molécules et les composantes mêmes de votre existence matérielle. Elle change tout et instaure une plus grande harmonie. Ainsi, l’harmonie engendre la paix, et la paix engendre un environnement lumineux et florissant qui permettra à l’humanité de se manifester, de recevoir ces dons et d’atteindre cet éveil. Nous nous concentrons principalement sur l’élément clé de l’amour : l’Amour Divin. Tant que celui-ci n’est pas véritablement compris et recherché, rien de ce dont je parle ne peut se réaliser.
+
+Il faut poser les fondations. Nous voici, mes amis, en train de créer ces fondations, de nous aligner sur les grandes vérités de l’univers, les grandes vérités du Créateur de l’univers, les grandes vérités de l’âme. À mesure que vous vous rapprochez de cet état, les possibilités d’autres réalisations, manifestations et accomplissements deviennent possibles et probables. Nous sommes encore au point de départ, à la première étape du véritable éveil et développement spirituels. Votre évolution vous attend. Le monde attend que vous évoluiez comme il se doit.
+
+Je vous encourage, mes amis, à persévérer afin que nous puissions dépasser la première étape et atteindre d’autres qui vous émerveilleront et vous impressionneront profondément, non seulement intellectuellement, mais aussi spirituellement. Des éveils se produiront, des compréhensions émergeront, une vérité sera vôtre et vous l’embrasserez de tout votre cœur. Tant de choses vous attendent, mes amis, et le monde entier compte sur vos efforts, sur les épreuves que vous traversez, sur les éveils et les révélations qui vous parviendront. Nous continuons. Nous continuons, et l’Amour, cet élément si vital, continue de grandir en vous, et vous continuez de comprendre son pouvoir et sa capacité à tout changer et à tout transformer.
+
+Que Dieu vous bénisse, mes amis. Je suis Orion et je vous aime de tout mon cœur. Je souhaite vous aider à comprendre véritablement ce qu’est l’amour. Que la paix soit avec vous, mes amis. Orion vous aime. Que Dieu vous bénisse.

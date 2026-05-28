@@ -11,7 +11,7 @@ weight:
 
 Parmi les nombreux esprits qui ont communiqué au cours des 50 dernières années, il convient de noter qu’une part importante d’entre eux étaient des figures religieuses de l’Ancien Testament Abraham, Sarah, Isaac, Daniel, Samuel, Saul, Salomon. Il est donc intéressant de noter que la progression dans le monde spirituel est totalement indépendante de l’appartenance religieuse mais est uniquement personnelle selon que l’individu ou non a été capable de s’affranchir de ses croyances religieuses.
 
-[MoIse](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-1-fr-moses/)
+[Moïse](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-1-fr-moses/)
 </br>
 [Salomon](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-2-fr-salomon/)
 </br>

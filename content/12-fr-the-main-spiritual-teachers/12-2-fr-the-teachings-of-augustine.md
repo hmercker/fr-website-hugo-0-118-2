@@ -397,6 +397,8 @@ Augustin | [Abandonnez la volonté de l'esprit et adoptez celle de l'âme](/fr-c
 Augustin | [Chaque jour est une bénédiction et une occasion de progresser](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-14-3-af-augustine/) | 14 Janvier 2026 
 Jésus et Augustin | [Foi et Âme 1 : Avancez avec foi pour accomplir votre destinée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-8-1-af-jesus-and-augustine/) | 8 Février 2026
 Augustin | [Foi et Âme 3 : Efforcez-vous de connaître et d'avoir foi en votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-10-1-af-augustine/) | 10 Février 2026
+Augustin | [Quand on a la foi, on peut plonger sans crainte dans l’immensité de la Création Divine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-31-1-af-augustine/) | 31 Mars 2026
+
 
 
 

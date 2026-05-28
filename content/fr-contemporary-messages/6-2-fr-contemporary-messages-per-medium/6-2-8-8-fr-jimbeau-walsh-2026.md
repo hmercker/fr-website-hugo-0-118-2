@@ -31,5 +31,6 @@ St Luc | [Progression de l'âme](/fr-contemporary-messages/fr-contemporary-messa
 Yogananda | [Un changement de cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-25-1-jw-yogananda/) | 25 Avril 2026
 Frederick Douglass | [Guérison des chaînes temporelles et spirituelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-4-1-jw-frederick-douglass/) | 4 Mai 2026
 Care Darby Walsh | [Attachements](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-11-1-jw-care-darby-walsh/) | 11 Mai 2026
+Yogananda | [La Joie Ailée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-18-1-jw-yogananda/) | 18 Mai 2026
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

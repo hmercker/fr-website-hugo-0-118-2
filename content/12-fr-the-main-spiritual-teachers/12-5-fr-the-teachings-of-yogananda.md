@@ -147,4 +147,5 @@ Yogananda | [Magnétisme Spirituel](/fr-contemporary-messages/fr-contemporary-me
 Yogananda | [Clarté de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-16-1-jw-yogananda/) | 16 Mars 2026
 Yogananda | [L'instant présent de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-6-1-af-yogananda/) | 6 Avril 2026
 Yogananda | [Un changement de cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-25-1-jw-yogananda/) | 25 Avril 2026
+Yogananda | [La Joie Ailée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-18-1-jw-yogananda/) | 18 Mai 2026
 
