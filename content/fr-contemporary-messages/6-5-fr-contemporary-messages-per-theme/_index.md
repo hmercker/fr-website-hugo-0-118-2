@@ -21,7 +21,7 @@ Comme vous avez pu découvrir le classement des messages contemporains par ordre
 8.	[Faire la Volonté de Dieu et être au service de Dieu](/fr-contemporary-messages/6-5-fr-contemporary-messages-per-theme/6-5-8-fr-doing-the-will-of-god-and-serving-god/)
 9.	[La condition humaine](/fr-contemporary-messages/6-5-fr-contemporary-messages-per-theme/6-5-9-fr-the-human-condition/)
 10. [Les Changements terrestres](/fr-contemporary-messages/6-5-fr-contemporary-messages-per-theme/6-5-10-fr-earth-changes/) 
-11.	[Expiation](/fr-contemporary-messages/6-5-fr-contemporary-messages-per-theme/6-5-11-fr-expiation/)
+11.	[Expiation](/fr-contemporary-messages/6-5-fr-contemporary-messages-per-theme/6-5-15-fr-expiation/)
 12.	[Le treillis de lumière](/fr-contemporary-messages/6-5-fr-contemporary-messages-per-theme/6-5-11-fr-the-lattice-of-light/)
 13.	[Messages d'orientation et d'inspiration](/fr-contemporary-messages/6-5-fr-contemporary-messages-per-theme/6-5-12-fr-messages-of-guidance-and-inspiration/)
 14.	[Leadership et médiumnité](/fr-contemporary-messages/6-5-fr-contemporary-messages-per-theme/6-5-13-fr-leadership-and-mediumnity/)
