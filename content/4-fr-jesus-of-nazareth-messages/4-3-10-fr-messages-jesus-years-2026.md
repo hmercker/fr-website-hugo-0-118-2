@@ -28,7 +28,7 @@ Jésus et Marie | [La Puissance de la Prière Quotidienne / Une Bénédiction po
 Jésus | [Quand le cœur s'humilie, l'âme s'élève](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-9-1-jw-jesus/) | 9 Mars 2026
 Christine et Jésus | [Devenir des instruments de lumière dans un monde en mutation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-27-1-af-christine-jesus/) | 27 Mars 2026
 Jésus | [Le moment est venu : Avancez comme une lumière dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-29-1-af-jesus/) | 29 Mars 2026
-Jésus | [Dimanche de Pâques : Vivre et partager la vérité de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-4-1-af-jesus/) | 5 Avril 2026
+Jésus | [Dimanche de Pâques : Vivre et partager la vérité de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-5-2-af-jesus/) | 5 Avril 2026
 Jésus | [Heureux ceux qui proclament la Parole de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-15-1-af-jesus/) | 15 Avril 2026
 Jésus | [Vous êtes la lumière : Appelés à recevoir et à partager l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-19-1-af-jesus/) | 19 Avril 2026
 

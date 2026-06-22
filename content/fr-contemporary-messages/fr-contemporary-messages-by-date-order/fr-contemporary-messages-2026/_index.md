@@ -106,14 +106,14 @@ Orion | [La Nature de la Réalité](/fr-contemporary-messages/fr-contemporary-me
 Jésus | [Le moment est venu : Avancez comme une lumière dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-29-1-af-jesus/) | 29 Mars 2026
 Judas | [Dieu étanchera la faim et la soif de chaque âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-30-1-jw-judas/) | 30 Mars 2026
 Copernic | [Au-delà de l'esprit : Le voyage sans fin de l'âme vers la connaissance de la création divine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-31-1-af-copernicus/) | 31 Mars 2026
-Augustin | [Quand on a la foi, on peut plonger sans crainte dans l’immensité de la Création Divine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-31-1-af-augustine/) | 31 Mars 2026
+Augustin | [Quand on a la foi, on peut plonger sans crainte dans l’immensité de la Création Divine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-31-2-af-augustine/) | 31 Mars 2026
 Orion | [Le Don d’un Monde Nouveau dans l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-4-1-af-orion/) | 4 Avril 2026
 Marie | [La Foi d'une Mère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-5-1-em-mary/) | 5 Avril 2026
-Jésus | [Dimanche de Pâques : Vivre et partager la vérité de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-4-1-af-jesus/) | 5 Avril 2026
+Jésus | [Dimanche de Pâques : Vivre et partager la vérité de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-5-2-af-jesus/) | 5 Avril 2026
 Yogananda | [L'instant présent de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-6-1-af-yogananda/) | 6 Avril 2026 
 Marie | [Reposez-vous dans l'Étreinte de l'Amour et de la Bénédiction Divins](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-7-1-af-mary/) | 7 Avril 2026
 Keea Atta Kem | [Cercles de Lumière : Comment ils nous unissent dans l'Amour Divin au-delà de la présence physique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-10-1-af-keea-atta-kem/) | 10 Avril 2026
-Isaïe | [Chacun doit trouver son chemin vers une relation avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-9-1-af-isaiah/) |12 Avril 2026
+Isaïe | [Chacun doit trouver son chemin vers une relation avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-12-1-af-isaiah/) |12 Avril 2026
 Charlie Chaplin | [Il est temps pour nous de collaborer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-13-1-jw-charlie-chaplin/) | 13 Avril 2026
 André | [Qu’est-ce qui vous empêche d’accomplir la mission de votre âme ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-13-2-af-andrew/) | 13 Avril 2026
 Anne Rollins | [La prière, votre âme et le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-15-1-jw-ann-rollins/) | 15 Avril 2026
@@ -127,7 +127,12 @@ Yogananda | [Un changement de cœur](/fr-contemporary-messages/fr-contemporary-m
 Frederick Douglass | [Guérison des chaînes temporelles et spirituelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-4-1-jw-frederick-douglass/) | 4 Mai 2026
 Orion | [Orion décrit le processus de réception de l'Amour Divin sur sa planète et exprime son admiration pour notre ténacité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-5-1-af-orion/) | 5 Mai 2026 
 Care Darby Walsh | [Attachements](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-11-1-jw-care-darby-walsh/) | 11 Mai 2026
+Augustin | [Le moment est venu : Libérez-vous des habitudes néfastes, sortez de votre cocon et avancez pour accomplir votre destinée ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-16-1-af-augustine/) | 16 Mai 2026
 Yogananda | [La Joie Ailée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-18-1-jw-yogananda/) | 18 Mai 2026
+Eileen Caddy | [La signification profonde du sanctuaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-20-1-jw-eileen-caddy/) | 20 Mai 2026
+Lao Tseu | [Un seul pas sur le chemin sans fin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-25-1-jw-lao-tseu/) | 25 Mai 2026
+Lao Tseu | [Les attentes sont spéculatives, la foi est certitude](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-5-1-jw-lao-tseu/) | 5 Juin 2026
+Judas | [Dieu prend en charge les tâches les plus difficiles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-7-1-jw-judas/) | 7 Juin 2026
 
 
 

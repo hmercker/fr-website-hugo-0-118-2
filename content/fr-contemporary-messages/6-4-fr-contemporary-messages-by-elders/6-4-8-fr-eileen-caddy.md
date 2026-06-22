@@ -55,3 +55,4 @@ Eileen Caddy | [Tendre la main à tous](/fr-contemporary-messages/fr-contemporar
 Barbara et Eileen Caddy | [Expressions d'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-13-2-af-barbara-and-eileen-caddy/) | 13 Juillet 2025
 Eileen Caddy et François d'Assise | [Créer un sanctuaire commence par un petit pas.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-27-1-jw-eileen-caddy-and-francis-of-assisi/) | 27 Septembre 2025
 Eileen Caddy | [Le grand bateau et le petit bateau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-4-1-jw-eileen-caddy/) | 4 Mars 2026
+Eileen Caddy | [La signification profonde du sanctuaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-20-1-jw-eileen-caddy/) | 20 Mai 2026

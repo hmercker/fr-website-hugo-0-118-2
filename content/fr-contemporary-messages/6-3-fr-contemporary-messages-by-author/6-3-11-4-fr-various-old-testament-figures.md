@@ -69,7 +69,7 @@ Jésus, Isaïe et Pierre | [Soyez fidèles à la volonté de Dieu : Un appel à 
 Isaïe, Jésus, Moïse | [Vous êtes les canaux vivants des bénédictions divines sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-12-12-1-af-isaiah-jesus-moses/) | 12 Décembre 2025
 Isaïe, Jésus, Moïse | [Le monde change](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-8-1-af-isaiah-jesus-moses/) | 8 Janvier 2026
 Isaïe | [Dieu vous offre une vie nouvelle dans Son Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-13-2-af-isaïe/) | 13 Janvier 2026 
-Isaïe | [Chacun doit trouver son chemin vers une relation avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-9-1-af-isaiah/) |12 Avril 2026
+Isaïe | [Chacun doit trouver son chemin vers une relation avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-12-1-af-isaiah/) |12 Avril 2026
 Jacob | [La foi de Jacob en Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-4-1-fab-jacob/) | 4 Février 2003
 Jacob | [Sur la Foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-5-6-1-hm-jacob/) | 6 Mai 2020
 Jacob | [L'Onction de votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-19-1-af-jacob/) | 19 Septembre 2025

@@ -32,5 +32,9 @@ Yogananda | [Un changement de cœur](/fr-contemporary-messages/fr-contemporary-m
 Frederick Douglass | [Guérison des chaînes temporelles et spirituelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-4-1-jw-frederick-douglass/) | 4 Mai 2026
 Care Darby Walsh | [Attachements](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-11-1-jw-care-darby-walsh/) | 11 Mai 2026
 Yogananda | [La Joie Ailée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-18-1-jw-yogananda/) | 18 Mai 2026
+Eileen Caddy | [La signification profonde du sanctuaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-20-1-jw-eileen-caddy/) | 20 Mai 2026
+Lao Tseu | [Un seul pas sur le chemin sans fin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-25-1-jw-lao-tseu/) | 25 Mai 2026
+Lao Tseu | [Les attentes sont spéculatives, la foi est certitude](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-5-1-jw-lao-tseu/) | 5 Juin 2026
+Judas | [Dieu prend en charge les tâches les plus difficiles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-7-1-jw-judas/) | 7 Juin 2026
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

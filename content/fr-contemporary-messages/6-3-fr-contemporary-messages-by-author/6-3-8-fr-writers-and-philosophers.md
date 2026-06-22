@@ -23,6 +23,6 @@ Comme il se doit, les écrivains et les philosophes ont été nombreux à s’ex
 </br>
 [Robert James Lees](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-8-6-fr-robert-james-lees/)
 </br>
-[William Shakespeare](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-8-7-fr-wiliiam-shakespeare/)
+[William Shakespeare](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-8-7-fr-william-shakespeare/)
 </br>
 [Ecrivains et Philosophes divers](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-8-8-fr-various-writers-and-philosophers/)
