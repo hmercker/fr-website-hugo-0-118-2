@@ -31,4 +31,6 @@ Jésus | [Le moment est venu : Avancez comme une lumière dans le monde](/fr-con
 Jésus | [Dimanche de Pâques : Vivre et partager la vérité de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-5-2-af-jesus/) | 5 Avril 2026
 Jésus | [Heureux ceux qui proclament la Parole de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-15-1-af-jesus/) | 15 Avril 2026
 Jésus | [Vous êtes la lumière : Appelés à recevoir et à partager l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-19-1-af-jesus/) | 19 Avril 2026
+Jésus | [La porte de l’Amour de Dieu vous est ouverte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-3-1-af-jesus/) | 3 Mai 2026
+Jésus | [Recherchez le don de l'Amour Divin et devenez une lumière dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-10-1-af-jesus/) | 10 Mai 2026
 

@@ -17,3 +17,4 @@ Christine | [Être est notre religion](/fr-contemporary-messages/fr-contemporary
 Christine | [De nombreux amis stellaires dans l'univers sont là pour vous aide](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-24-1-af-christine/) | 24 Novembre 2024
 Christine | [Frères et sœurs de l'Univers](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-15-1-af-christine/) | 15 Mars 2026
 Christine et Jésus | [Devenir des instruments de lumière dans un monde en mutation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-27-1-af-christine-jesus/) | 27 Mars 2026
+Christine | [Guérir le monde grâce au pouvoir et à la simplicité de l'amour ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-1-1-af-christine/) | 1 Mai 2026

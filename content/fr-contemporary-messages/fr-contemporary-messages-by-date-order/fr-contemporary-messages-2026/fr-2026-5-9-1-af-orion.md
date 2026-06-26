@@ -9,7 +9,7 @@ weight:
 ---
 ### Orion décrit le processus de réception de l'Amour Divin sur sa planète et exprime son admiration pour notre ténacité
 
-Orion - reçu par Al Fike le 05 Mai 2026, Voix Directe, Cercle de prière de Sechelt, Colombie Britanique, Canada.
+Orion - reçu par Al Fike le 09 Mai 2026, Voix Directe, Cercle de prière de Sechelt, Colombie Britanique, Canada.
 
 Que le grand don de l’Amour du Père continue de pénétrer vos âmes, mes chers amis. Je suis Orion. J’ai déjà dit que sur ma planète, il n’est pas nécessaire de mettre de côté la prière formelle pour recevoir ce don d’Amour Divin ; en effet, nous ne prions pas pour ce don, mais nous le recevons néanmoins. Certains, ayant lu et compris ce message, affirment que cela est impossible, car on vous a enseigné une manière de recevoir ce grand don, cette Essence de Dieu.
 
