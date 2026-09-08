@@ -111,5 +111,6 @@ Care Darby Walsh | [Les sanctuaires prospéreront si leurs fondations sont bâti
 Care Darby Walsh | [Maîtriser le service (Rayonner la lumière)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-16-1-jw-care-darby-walsh/) | 16 Février 2026
 Care Darby Walsh | [Conversations avec Dieu, Prière et Magnétisme Spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-20-1-jw-care-darby-walsh/) | 20 Avril 2026
 Care Darby Walsh | [Attachements](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-11-1-jw-care-darby-walsh/) | 11 Mai 2026
+Care Darby Walsh | [Une prière de Care](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-24-1-jw-care-darby-walsh/) | 24 Août 2026
 
 

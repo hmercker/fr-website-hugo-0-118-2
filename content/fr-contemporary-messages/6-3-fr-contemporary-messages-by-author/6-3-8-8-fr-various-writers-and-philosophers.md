@@ -18,6 +18,7 @@ Abdullah Latif | [Le pouvoir de la prière](/fr-contemporary-messages/fr-contemp
 Abdullah Latif | [L’humanité a le pouvoir de créer sa propre réalité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-27-1-af-abdullah-latif/) | 27 Janvier 2019
 Abdullah Latif | [L’importance du treillis de lumière pour percer les ténèbres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-14-1-af-abdullah-latif/) | 14 Mars 2021
 Aldous Huxley | [Briser les chaînes de l'erreur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-19-3-af-aldous-huxley/) | 19 Novembre 2017
+Alexander Pope | [Tout ce qui est donné par amour est béni](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-22-1-jw-alexander-pope/) | 22 Juin 2026
 Aristote | [Sur la réincarnation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1995-1999/fr-1999-11-19-2-Alfredo-aristotle/) | 19 Novembre 1999
 Aristote | [La progression d'Aristote, et l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2009/fr-2009-5-7-1-fab-aristotle/) | 7 Mai 2009
 Aristote | [L’âme a une capacité bien supérieure à celle de l’esprit matériel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-17-1-af-aristotle/) | 17 Novembre 2024

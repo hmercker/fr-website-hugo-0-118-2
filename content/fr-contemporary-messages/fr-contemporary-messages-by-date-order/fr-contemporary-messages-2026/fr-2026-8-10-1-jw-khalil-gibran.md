@@ -1,0 +1,25 @@
+---
+title: "La liberté de l'éternité"
+menu_title: ""
+description: "La liberté de l'éternité"
+date: 2026-09-08 16:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### La liberté de l'éternité
+
+Khalil Gibran - reçu par Jimbeau Walsh le 10 Août, Nashville, Tennesse, USA
+
+Mes chers amis, c'est moi, votre frère, Khalil Gibran.
+
+J'ai été attiré par l'idée de passer du temps avec mon frère ici présent, car il souhaite recevoir et partager des conseils pratiques pour l'âme. Je lui ai récemment adressé quelques mots, et je vais partager quelques lignes avec vous, bien que vous les connaissiez peut-être déjà. Vous aspirez à l'éternité sans savoir ce qu'elle est, tout en refusant ce qu'elle n'est pas, car le voyage éternel de l'âme est une splendeur intemporelle. Je tenais à évoquer ces paroles à l'intention de ceux qui se trouvent au-delà de ce cercle. Tout simplement, aspirer à l'éternité, c'est désirer poursuivre son chemin après son séjour sur terre. Quant au second volet — refuser ce qu'elle n'est pas — il s'adresse à ceux qui affirment : « Eh bien, tout s'arrête là. » On quitte son enveloppe mortelle et tout est fini. Pourtant, le voyage éternel de l'âme est magnifique et transcende toute limite.
+
+Lorsque j'ai effectué ma transition vers le monde spirituel — alors que j'étais une personnalité célèbre sur terre — j'ai dû affronter l'état de mon âme ; j'ai pris conscience de mes propres manquements, des aspects que mes lecteurs et ceux qui admiraient la beauté de mon œuvre ne voyaient pas. J'ai réalisé que je portais en moi de la culpabilité, de la honte, des remords, ainsi que certains attachements à ces sentiments. J'évoque ce point car tant d'âmes, en passant dans l'au-delà, ont le sentiment de mériter leurs souffrances à mesure que leur conscience s'éveille. C'est un peu comme sur terre, où l'on peut se sentir coupable de ne pas assez souffrir, de ne pas assez pleurer ou de ne pas être puni pour ce que l'on considère comme une faute grave. J'ai alors compris qu'au-delà de mes attachements aux plaisirs terrestres — ou même aux choses les plus simples — j'étais attaché à ma propre souffrance ; je ne pouvais supporter ni trop de lumière, ni trop de rires, ni trop de joie, car je m'en estimais indigne. Moi, un homme qui avait communié avec les anges à travers ses écrits... tout comme vous tous qui vous réunissez pour recevoir les vérités et la beauté que nous transmettons, nous qui vivons désormais dans la lumière et l'amour du Royaume Céleste. J'ai pris conscience que je m'accrochais à ces attaches avec une certaine ténacité ; désireux de me libérer de ce que l'on pourrait qualifier d'incrustations, d'attachements ou de blessures, il me fallait en comprendre la raison. Pourquoi me sentais-je indigne ? Pourquoi m'agrippais-je à ma tristesse alors que j'avais reçu tant de beauté et tant de vérité — des vérités qui m'avaient été révélées et que je partageais avec le monde ? Je me suis alors tourné vers une prière fervente ; celle-ci m'a apporté non seulement une prise de conscience, mais aussi la révélation de la manière dont on peut trouver du réconfort au sein même de sa tristesse, de son chagrin et de son sentiment d'indignité. 
+
+À mesure que je priais, l'Amour de Dieu inondait mon âme. Je recevais de précieux conseils, non seulement de la part des anges célestes, mais aussi du Maître lui-même — car j'avais écrit à son sujet dans mon livre *Jésus, Fils de l'Homme*, et *Le Prophète* y fait également allusion. Ces deux ouvrages regorgent de conseils pratiques et exaltent les vertus du détachement ; c'est ce qui m'a été rappelé. Ainsi, mes propres écrits — dont une grande partie fut canalisée, comme vous le savez peut-être — m'ont aidé à surmonter le désespoir et les remords qui m'entravaient. Car le grand Amour de Dieu libère véritablement l'être. Disposant de tout le temps nécessaire pour méditer, je n'avais plus à craindre l'éternité ni son absence ; je commençais au contraire à ressentir la liberté de l'intemporalité, l'immensité de la création divine et la compagnie des poètes célestes, de l'art, des artistes et des musiciens. 
+
+Certaines des expériences que j'ai vécues au cours de mon cheminement ont également été partagées par mon ami Charlie Chaplin, que j'avais connu sur terre. Nous fréquentions souvent les mêmes cercles d'âmes créatives, notamment à New York. Quel être merveilleux Charlie a été pour le monde, apportant tant de joie, de bonheur et d'allégresse ! Il réside désormais dans ce que j'appellerai le septième ciel ; nous sommes très proches et désirons vous servir, de quelque manière que vous nous le permettiez. 
+Je ne m'étendrai pas davantage sur la progression de l'âme ou sur les attachements, mais j'espère avoir apporté quelque lumière à ceux qui ont besoin d'être guidés. Je reviendrai vers mon frère ici présent pour partager avec vous la poésie de l'âme ; si vous en ressentez le besoin, faites appel à moi. Je viendrai. Je suis votre frère et votre ami, dans le Christ. Je vis dans le royaume céleste et je vous aime. Que Dieu vous bénisse tous. 
+
+Je suis votre frère, Khalil Gibran.

@@ -23,3 +23,4 @@ Kahlil Gibran | [Le désir de l'âme](/fr-contemporary-messages/fr-contemporary-
 Khalil Gibran | [Le réveil d'un rêve](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-13-1-jw-khalil-gibran/) | 13 Mai 2024
 Kahlil Gibran | [Amour Infini](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-6-25-1-jw-kahlil-gibran/) | 25 Juin 2024
 Khalil Gibran | [Le cadeau de l'amour intemporel ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-22-1-jw-khalil-gibran/) | 22 Juillet 2024
+Khalil Gibran | [La liberté de l'éternité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/>>>fr-2026-8-10-1-jw-khalil-gibran/) | 10 Août 2026
