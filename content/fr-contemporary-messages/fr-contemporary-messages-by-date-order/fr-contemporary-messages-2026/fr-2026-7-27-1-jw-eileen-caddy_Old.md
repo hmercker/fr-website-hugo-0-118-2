@@ -22,3 +22,4 @@ C'est pour nous une immense joie. Dans ce rassemblement, permettez à cette joie
 Je vous remercie pour ce moment et je tiens à vous rappeler que lorsque vous faites appel à nous, nous répondons présents. Si vous avez besoin d'aide, il vous suffira de la demander pour que nous vous assistions.
 
 Avec tout mon amour et les bénédictions de Dieu, je regagne votre magnifique cercle. Que votre chemin soit à jamais béni. Allez en paix. Je suis Eileen, et je vous aime.
+

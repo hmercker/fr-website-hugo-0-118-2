@@ -39,7 +39,7 @@ Judas | [Dieu prend en charge les tâches les plus difficiles](/fr-contemporary-
 Lao Tseu | [La Voie qui peut être exprimée par des mots n'est pas la Voie éternelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-15-1-jw-lao-tseu/) | 15 Juin 2026
 Alexander Pope | [Tout ce qui est donné par amour est béni](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-22-1-jw-alexander-pope/) | 22 Juin 2026
 Anne Rolllins | [Engagez votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-29-1-jw-ann-rollins/) | 29 Juin 2026
-François d'Assise | [Indulgences et distractions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-6-1-jw-francis-of-assisi/) | 6 Juillet 2026
+François d'Assise | [Indulgences et distractions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-6-1-jw-st-francis-of-assisi/) | 6 Juillet 2026
 Judas | [La joie spirituelle s'obtient dans la grâce](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-20-1-jw-judas/) | 20 Juillet 2026
 Charlie Chaplin | [Présenter au monde l'Amour de Dieu d'une manière qui résonne au-delà de la religion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-24-1-jw-charlie-chaplin/) | 24 Juillet 2026
 Eileen Caddy | [Les changements terrestres et la solitude au sein de la communauté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-27-1-jw-eileen-caddy/) | 27 Août 2026

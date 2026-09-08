@@ -9,7 +9,7 @@ weight:
 ---
 ### La liberté de l'éternité
 
-Khalil Gibran - reçu par Jimbeau Walsh le 10 Août 2026, Nashville, Tennesse, USA
+Khalil Gibran - reçu par Jimbeau Walsh le 10 Août, Nashville, Tennesse, USA
 
 Mes chers amis, c'est moi, votre frère, Khalil Gibran.
 

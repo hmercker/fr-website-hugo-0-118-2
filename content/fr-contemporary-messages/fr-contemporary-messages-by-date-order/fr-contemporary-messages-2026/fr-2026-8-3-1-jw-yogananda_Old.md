@@ -9,7 +9,7 @@ weight:
 ---
 ### Les Gunas et au-delà
 
-Yogananda - reçu par Jimbeau Walsh le 03 Août 2026, Nashville, Tennesse, USA
+Yogananda - reçu par Jimbeau Walsh le 03 Août, Nashville, Tennesse, USA
 
 Je viens dans l'Amour de Dieu. Je suis Yogananda.
 

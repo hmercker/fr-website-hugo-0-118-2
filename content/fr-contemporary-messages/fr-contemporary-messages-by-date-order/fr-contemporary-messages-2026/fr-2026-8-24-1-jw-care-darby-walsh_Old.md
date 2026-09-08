@@ -9,7 +9,7 @@ weight:
 ---
 ### Une prière de Care
 
-Care Darby Walsh - reçu par Jimbeau Walsh le 24 Août 2026, Nashville, Tennesse, USA
+Care Darby Walsh - reçu par Jimbeau Walsh le 17 Août, Nashville, Tennesse, USA
 
 Mes très chers, prenons ce moment pour nous reposer dans les bras de notre Créateur aimant, loin de l’agitation du monde et même de nos propres soucis. Si nous avons besoin de guérison, tendons la main avec notre âme, afin que les anges qui accomplissent cette œuvre viennent à nous. Éloignons-nous de notre esprit, de nos doutes et de nos interrogations, afin que Dieu puisse toucher chacun d’entre nous.
 Que nos âmes s’ouvrent afin que l’Esprit Saint puisse apporter cet Amour Divin dans chaque âme ici présente, et elles sont nombreuses. Que ce soit un moment de réconciliation intemporelle, d’éveil en douceur, de bienveillance, de sainte communion, permettant à nos cœurs, qui peuvent receler de nombreuses blessures, d’être bénis, d’être sacrés. Sentons la présence du Dieu Très Saint en cet instant qui dépasse les mots.

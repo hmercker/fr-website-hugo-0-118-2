@@ -9,7 +9,7 @@ weight:
 ---
 ### Libre arbitre et Volonté de Dieu
 
-Judas - reçu par Jimbeau Walsh le 17 Août 2026, Nashville, Tennesse, USA
+Judas - reçu par Jimbeau Walsh le 17 Août, Nashville, Tennesse, USA
 
 C'est moi, votre frère, Judas.
 
