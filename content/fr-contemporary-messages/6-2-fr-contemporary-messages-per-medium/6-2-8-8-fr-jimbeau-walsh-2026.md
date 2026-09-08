@@ -44,7 +44,7 @@ Judas | [La joie spirituelle s'obtient dans la grâce](/fr-contemporary-messages
 Charlie Chaplin | [Présenter au monde l'Amour de Dieu d'une manière qui résonne au-delà de la religion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-24-1-jw-charlie-chaplin/) | 24 Juillet 2026
 Eileen Caddy | [Les changements terrestres et la solitude au sein de la communauté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-27-1-jw-eileen-caddy/) | 27 Août 2026
 Yogananda | [Les Gunas et au-delà](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-3-1-jw-yogananda/) | 3 Août 2026
-Khalil Gibran | [La liberté de l'éternité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/>>>fr-2026-8-10-1-jw-khalil-gibran/) | 10 Août 2026
+Khalil Gibran | [La liberté de l'éternité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-10-1-jw-khalil-gibran/) | 10 Août 2026
 Judas | [Libre arbitre et Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-17-1-jw-judas/) | 17 Août 2026
 Care Darby Walsh | [Une prière de Care](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-24-1-jw-care-darby-walsh/) | 24 Août 2026
 
