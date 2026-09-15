@@ -126,6 +126,7 @@ Marie | [Sachez qje vous êtes aimés](/fr-contemporary-messages/fr-contemporary
 Marie | [Vient prier avec nous ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-7-21-1-af-mary/) | 21 Juillet 2023
 Marie | [Nous sommes la lumière et nous brillerons ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-13-4-af-mary/) | 13 Octobre 2023
 Marie | [Partagez cette expérience avec vos frères et sœurs terrestres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-10-1-em-mary/) | 10 Décembre 2023
+Marie | [Bénédiction de José en République Dominicaine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-30-1-af-mary/) | 30 Décembre 2023
 Marie | [Mon amour pour chacun de vous est grand](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-6-2-af-mary/) | 6 Janvier 2024
 Marie | [La transformation apportée par la grâce de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-10-1-mc-mary/) | 10 Janvier 2024
 Marie | [Une expérience de communion avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-18-2-em-mary/) | 18 Janvier 2024

@@ -44,6 +44,7 @@ Jésus | [Nous élève dans la prière et la louange ](/fr-contemporary-messages
 Jésus | [Des enfants de la paix sont nécessaires ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-22-1-af-jesus/) | 22 Octobre 2023
 Jésus | [Permettez à Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-30-1-jw-jésus/) | 30 Octobre 2023
 Jésus | [Nous vous demandons de briller en tant qu’instruments de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-5-1-af-jésus/) | 5 Novembre 2023
+Jésus | [Une puissante bénédiction, proclamant Son Amour pour nous !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-21-2-af-jesus/) | 21 Novembre 2023
 Jésus | [Prière d'ouverture, but et bénédiction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-29-1-af-jesus/) | 29 Novembre 2023
 Jésus | [Une vérité, de nombreuses expressions ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-1-3-af-jésus/) | 1 Décembre 2023
 Jésus | [Une invitation aux membres de la Fédération Galactique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-3-2-em-jesus/) | 3 Décembre 2023

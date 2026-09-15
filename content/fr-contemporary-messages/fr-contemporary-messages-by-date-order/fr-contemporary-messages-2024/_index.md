@@ -409,6 +409,7 @@ Christine | [De nombreux amis stellaires dans l'univers sont là pour vous aide]
 Judas | [Le plus grand cadeau que vous puissiez offrir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-26-1-jw-judas/) | 26 Novembre 2024
 Miriam | [Continuez à être une lumière dans le monde de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-26-2-af-miriam/) | 26 Novembre 2024
 Augustin | [Les illusions de votre mental se dissoudront avec la progression de l'âme ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-30-1-af-augustine/) | 30 Novembre 2024
+Orion | [Les rayons divins accélèrent les changements terrestres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-11-30-2-af-orion/) | 30 Novembre 2024
 Jésus | [Bénédiction pour le Cercle de Lumière en Ligne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-1-1-af-jesus/) | 1 Décembre 2024
 St Luc | [Diversité, unité et généalogie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-2-1-jw-st-luke/) | 2 Décembre 2024
 Orion | [Trois façons importantes de prier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-3-1-af-orion/) | 3 Décembre 2024

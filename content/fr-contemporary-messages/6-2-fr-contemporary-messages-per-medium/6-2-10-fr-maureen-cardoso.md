@@ -148,5 +148,10 @@ Fleur de Lotus | [Marchez dans la lumière et la grâce de l'amour de Dieu](/fr-
 Aliyah | [La Promesse de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-8-3-mc-aliyah/) | 8 Mai 2025
 Anna | [Abandonnez vos attentes de perfection](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-10-1-mc-anna/) | 10 Mai 2025
 Keea Atta Kem | [Les épreuves et les tribulations de l'homme n'ont aucune cause en Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-4-2-mc-keea-atta-kem/) | 4 Juin 2025
+Fleur de Lotus | [Avoir du respect pour le don du corps de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-24-1-mc-lotus-blossom/) | 24 Août 2025
+Keea Atta Kem | [La puissance de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-8-2-mc-keea-atta-kem/) | 8 Septembre 2025
+Jésus | [Plongez votre âme dans l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-11-2-mc-jesus/) | 11 Septembre 2025
+Fleur de Lotus | [Devenir l'Amour grâce à l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-12-5-mc-lotus-blossom/) | 12 Septembre 2025
+Grace Jordan | [Demandez à Dieu d'établir la conscience de l'Amour dans votre esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-14-4-mc-grace-jordan/) | 14 Septembre 2025
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

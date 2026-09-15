@@ -58,6 +58,7 @@ Moïse | [Vient nous soutenir et éclairer notre chemin](/fr-contemporary-messag
 Moïse | [L'Amour Divin est la plus grande de toutes les lois](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-9-26-2-em-moses/) | 26 Septembre 2022
 Moïse | [Surmonter les exigences du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-4-2-1-af-moses/) | 2 Avril 2023
 Moïse | [Tout est possible en amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-10-13-5-af-moses/) | 13 Octobre 2023
+Moïse | [Nous sommes tous d'innocents petits enfants aux yeux de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-19-1-af-moses/) | 19 Décembre 2023
 Moïse | [Votre responsabilité d’indiquer le chemin vers Dieu pour les autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-4-2-af-moses/) | 4 Février 2024
 Moïse | [La loi de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-21-1-em-moses/) | 21 Mars 2024
 Moïse et Jésus | [Nous sommes tous nécessaires comme annonciateurs pour soutenir la tente de la vérité, ajoute sa bénédiction au message de Moïse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-1-1-af-moses-jesus/) | 1 Septembre 2024

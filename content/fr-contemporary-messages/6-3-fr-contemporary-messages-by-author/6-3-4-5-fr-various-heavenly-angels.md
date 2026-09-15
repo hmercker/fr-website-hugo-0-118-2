@@ -55,6 +55,7 @@ Grace Jordan | [Décrit comment Barbara et elle ont suivi des chemins parallèle
 Grace Jordan | [Exprime sa gratitude pour la retraite Starpoint ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-26-1-af-grace-jordan/) | 26 Janvier 2025
 Grace Jordan | [Se connecter au sens des circonstances](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-11-2-mc-grace-jordan/) | 11 Avril 2025 
 Grace Jordan | [Soyez courageux face à vos défis](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-20-6-mc-grace-jordan/) | 20 Avril 2025
+Grace Jordan | [Demandez à Dieu d'établir la conscience de l'Amour dans votre esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-14-4-mc-grace-jordan/) | 14 Septembre 2025
 Grace Jordan | [Un acte de Foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-13-2-af-grace-jordan/) | 13 Janvier 2026
  ||<p align="center"><span style="color:red">**Autres Anges Célestes**</span></p> | |
 Isabelle | [Se présente comme la guide de Sonja pour son anniversaire ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-16-2-af-isabel/) | 16 Janvier 2025

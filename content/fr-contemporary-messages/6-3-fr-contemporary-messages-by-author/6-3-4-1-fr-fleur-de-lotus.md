@@ -43,3 +43,5 @@ Fleur de Lotus | [Décrit les bienfaits de la respiration](/fr-contemporary-mess
 Fleur de Lotus | [Décrit la transformation de l'âme avec l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-26-2-mc-lotus-blossom/) | 26 Janvier 2025
 Fleur de Lotus | [Bienvenue dans vos cœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-10-1-mc-lotus-blossom/) | 10 Avril 2025
 Fleur de Lotus | [Marchez dans la lumière et la grâce de l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-6-3-mc-lotus-blossom/) | 6 Mai 2025
+Fleur de Lotus | [Avoir du respect pour le don du corps de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-24-1-mc-lotus-blossom/) | 24 Août 2025
+Fleur de Lotus | [Devenir l'Amour grâce à l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-12-5-mc-lotus-blossom/) | 12 Septembre 2025

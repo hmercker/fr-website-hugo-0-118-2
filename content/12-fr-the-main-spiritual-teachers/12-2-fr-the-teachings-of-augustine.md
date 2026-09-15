@@ -316,7 +316,9 @@ Augustin | [Marchez dans la vraie réalité de Dieu ](/fr-contemporary-messages/
 Augustin | [Ne prenez pas les choses pour acquises ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-15-1-af-augustine/) | 15 Août 2023
 Augustin | [Il est temps de se préparer aux changements à venir dans le monde ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-8-29-2-af-augustine/) | 29 Août 2023
 Augustin | [Nous implore tous de « nous élever au-dessus des conditions terrestres au service de Dieu »](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-9-12-1-af-augustine/) | 12 Septembre 2023
+Augustin | [Chacun de vous choisit le cheminement de son âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-1-2-af-augustine/) | 1 Novembre 2023
 Augustin | [Les richesses de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-4-4-af-augustine/) | 4 Décembre 2023
+Augustin | [L’Amour de Dieu est illimité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-12-15-1-af-augustine/) | 15 Décembre 2023
 Augustin | [Conseils pour le travail de Jeanne et Al en République dominicaine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-1-2-af-augustine/) | 1 Janvier 2024
 Augustin | [L'orientation continue](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-1-3-af-augustine/) | 1 Janvier 2024
 Augustin | [Message puissant pour vivre la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-10-2-af-augustine/) | 10 Janvier 2024
