@@ -54,3 +54,4 @@ St Pierre | [Conseils et affirmations pour prendre au sérieux les conseils de J
 Simon Pierre | [Ouvrir les tombeaux de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-12-1-jw-simon-peter/) | 12 Mai 2025
 St Pierre | [La véritable Église est dans vos cœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-7-4-em-st-peter/)
 St Pierre | [Fidélité à la Vérité : Servir Dieu avec force et ténacité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-11-18-2-af-st-peter/) | 18 Novembre 2025
+St Pierre | [Vous développez votre capacité à exprimer la conscience de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-22-2-mc-st-peter/) | 22 Mars 2026 

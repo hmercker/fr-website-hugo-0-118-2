@@ -9,7 +9,7 @@ weight:
 ---
 ### Attachements
 
-Care Darby Walsh - reçu par Jimbeau Walsh le 11 Mai 2026, Nashville, Tennesse, USA.
+Claire d'Assise - reçu par Jimbeau Walsh le 11 Mai 2026, Nashville, Tennesse, USA.
 
 Que le souffle de Dieu vous accompagne en Sa sainte présence. Je suis Claire.
 

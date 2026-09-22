@@ -45,6 +45,7 @@ Faith Nyquist | [L'importance de la prière](/fr-contemporary-messages/fr-contem
 Faith Nyquist | [Le chemin vers le véritable pardon](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-2-1-mc-faith-nyquist/) | 2 Avril 2025 
 Faith Nyquist | [Demande de service](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-3-1-af-faith-nyquist/) | 3 Juin 2025 
 Faith Nyquist | [Un appel à retrouver l'équilibre avec la création divine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-1-1-af-faith-nyquist/) | 1 Août 2025
-Marie | [Nous, du Royaume Céleste, désirons être proches de vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-15-1-af-mary/) | 15 Février 2026 
+Faith Nyquist | [Libérez ce qui n'est pas aligné](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-11-2-mc-faith-nyquist/) | 11 Janvier 2026 
+Faith Nyquist | [Vous êtes sur une trajectoire de grands changements](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-22-3-mc-faith-nyquist/) | 22 Février 2026 
 Faith Nyquist | [Éveillez-vous du sommeil du matérialisme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-24-1-af-faith-nyquist/) | 24 Février 2026
 Faith Nyquist | [Ouvrez votre âme pour recevoir les abondantes bénédictions de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-24-1-af-faith-nyquist/) | 24 Mars 2026

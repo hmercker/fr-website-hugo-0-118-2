@@ -1,0 +1,26 @@
+---
+title: "Vient renforcer les aspirations de vos âmes"
+menu_title: ""
+description: "Vient renforcer les aspirations de vos âmes"
+date: 2026-09-15 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Vient renforcer les aspirations de vos âmes
+
+Matthieu - reçu par Albert Fike le 26 Novembre 2023, Sechelt, Colombie-Britannique, Canada.
+
+L’Amour de Dieu se déverse sur vous en cet instant même, âmes bien-aimées. **Je suis Matthieu** et je viens prier avec vous et vous soutenir dans vos prières. Je viens pour aider à renforcer l’aspiration de votre âme à être avec Dieu. Car combien de fois avez-vous l’occasion de prier véritablement ensemble, et de prier et d’être avec Dieu dans la paix et la tranquille sérénité de votre espace de prière ? Votre monde est un lieu si agité, qui vous impose tant d’exigences et de sollicitations. Pourtant, votre âme a besoin d’être nourrie. Elle désire la nourriture de Dieu, et vous devez prendre le temps de nourrir votre âme. D’être avec Dieu au plus profond de votre âme afin de trouver votre chemin à travers les méandres de la condition humaine. Afin que vous puissiez vous libérer de cette condition, ne serait-ce que pour un instant, et être avec Dieu dans la prière, en recevant Son Amour. En ouvrant vos âmes pour que Son Amour puisse y déferler.
+
+Ce faisant, votre âme est fortifiée. Vos capacités de prière s’intensifient. Les bénédictions qui surviennent sont plus aisément ressenties à mesure que vous mettez en pratique la voie et les moyens de recevoir l’Amour de Dieu, tels qu’ils vous ont été enseignés, et que vous exprimez l’amour en vous, à travers vous et autour de vous, comme il vous a été demandé de le faire. Ces choses sont si simples. Mais dans votre monde complexe, cette simplicité se perd, submergée par la condition humaine. Ainsi, votre vie — et ce dont vous avez véritablement besoin dans votre vie — devient une affaire complexe. C’est pourquoi nous venons vous rappeler, encore et encore, de rechercher ce don aussi souvent que possible. Il est important d’ancrer votre âme dans la lumière, l’amour et la Vérité de l’Amour de Dieu, afin que votre vie soit guidée et façonnée par cette Vérité qui réside en vous.
+
+Lorsque viendra le moment pour vous d’entrer dans notre monde, vous serez bien préparés. L’action de l’Amour de Dieu sur votre âme — la purifiant et la libérant des incrustations qui l’entourent — vous apportera de grands bienfaits. Où que vous soyez, que vous vous trouviez sur le plan terrestre ou dans le monde spirituel, vous connaîtrez les bienfaits de la puissance de l'amour agissant en vos âmes. Ne considérez pas cela comme acquis, mes amis bien-aimés. Recherchez-le plutôt avec ferveur et un désir ardent, afin de recevoir cet Amour en grande abondance et de connaître le Toucher de Dieu, la grâce de Dieu et la paix de Dieu sur vous. Que la Lumière de Dieu — cette Lumière issue de la création divine — soit toujours avec vous, vous protégeant, vous soutenant et vous apportant de nombreux dons et bénédictions merveilleux.
+
+Ce que je dis là sont des vérités simples. Pourtant, pour progresser et comprendre des choses plus complexes, il est nécessaire que vous fassiez vôtre ces vérités simples. Que vous viviez selon elles. Que vous demeuriez dans la grâce de Dieu pour avoir accepté et intégré ces vérités dans votre vie. Ainsi, vous serez grandement bénis. Vous posséderez ce que peu de gens dans votre monde possèdent : la paix intérieure, la sagesse intérieure et une plus grande capacité à aimer, non seulement vous-mêmes, mais aussi les autres. Ces choses sont importantes. Elles sont nécessaires pour trouver véritablement le bonheur et la joie que vous recherchez. Prions donc ensemble, mes amis bien-aimés. Priez pour obtenir ce don. Demandez à Dieu d'ouvrir grand vos âmes, afin que vous soyez bénis en conséquence. Plongez au plus profond de vous-mêmes et cherchez les aspirations véritables de votre âme. C'est ainsi que vous invoquez les lois et recevez les bénédictions.
+
+Que Dieu vous bénisse, âmes bien-aimées. Je suis Matthieu et je vous aime. Je vous honore, vous qui recherchez le plus haut, qui aspirez à être rachetés dans l'Amour, transformés dans l'Amour, éveillés dans l'Amour. Que Dieu vous bénisse. Mon amour vous accompagne. Que Dieu vous bénisse.
+
+**Jésus** : Votre frère Jésus a marché parmi vous et a béni chacun d'entre vous. Accueillez cette lumière et ces bénédictions, et mettez-les à profit dans votre vie pour être une lumière dans le monde. Ne refusez pas l'amour à vos frères et sœurs ; soyez forts dans la lumière et l'amour, dans la sagesse et la vérité. Bien que cette force puisse être calme et discrète, la force de la lumière — la force de votre présence dans le monde — aura un impact et des effets sur votre monde. Soyez en harmonie avec tous ceux que vous rencontrez. Soyez un canal d'amour pour Dieu et tout ira bien, mes amis bien-aimés. Tout ira bien.
+
+Je suis votre frère et ami, Jésus, et je viens pour vous soutenir à nouveau, pour être à nouveau avec vous dans la prière. Et pour faire descendre sur vous les bénédictions du ciel. Que Dieu vous bénisse, mes amis bien-aimés. Je suis toujours avec vous. Je ne vous abandonnerai jamais, mes amis ; je marcherai avec vous pour l'éternité. Que Dieu vous bénisse. Que Dieu vous bénisse tous dans Son Amour.

@@ -59,6 +59,7 @@ Grace Jordan | [Demandez à Dieu d'établir la conscience de l'Amour dans votre 
 Grace Jordan | [Un acte de Foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-13-2-af-grace-jordan/) | 13 Janvier 2026
  ||<p align="center"><span style="color:red">**Autres Anges Célestes**</span></p> | |
 Isabelle | [Se présente comme la guide de Sonja pour son anniversaire ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-16-2-af-isabel/) | 16 Janvier 2025
+James | [Découvrir le fonctionnement des lois spirituelles dans votre vie grâce à l'étude et à l'observation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-1-2-mc-james/) | 1 Mars 2026
 James Tudor Sr. | [Laissez les morts enterrer les morts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-21-2-af-james-tudor-sr/) | 21 Janvier 2024
 James Tudor Sr | [Exprime sa déception face aux changements culturels à la Barbade ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-22-2-af-james-tudor-sr/) | 22 Janvier 2025
 James Tudor Sr | [Qu’ils l’acceptent ou non, cette vérité s’enracine dans l’âme de ceux qui l’entendent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-8-2-af-james-tudor-sr/) | 8 Février 2026
@@ -106,3 +107,4 @@ Sam | [Retraite spirituelle - Hawaii_2](/fr-contemporary-messages/fr-contemporar
 Sarah Elizabeth Egelburg | [Nous rencontrons Sarah](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-10-11-1-ks-sarah-elizabeth-egelburg/) | 11 Octobre 2004
 Sashaquaha | [Honorer la Terre Mère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-2-4-1-af-sashaquaha/) | 4 Février 2022
 Shelayis | [La Création Unique des Archanges et le Rôle des Anges Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-13-2-af-shelayis/) | 13 Janvier 2025
+Wyndell Elderclaw | [Honorer la Terre-Mère : une voie vers un éveil spirituel plus profond](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-3-1-af-wyndell-elderclaw/) | 3 Avril 2026 

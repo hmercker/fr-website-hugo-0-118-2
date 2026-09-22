@@ -153,5 +153,21 @@ Keea Atta Kem | [La puissance de l’Amour de Dieu](/fr-contemporary-messages/fr
 Jésus | [Plongez votre âme dans l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-11-2-mc-jesus/) | 11 Septembre 2025
 Fleur de Lotus | [Devenir l'Amour grâce à l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-12-5-mc-lotus-blossom/) | 12 Septembre 2025
 Grace Jordan | [Demandez à Dieu d'établir la conscience de l'Amour dans votre esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-14-4-mc-grace-jordan/) | 14 Septembre 2025
+|| <p align="center"><span style="color:red">**Pour l'année 2026**</span></p> | |
+Keea Atta Kem  | [Chaque goutte de l’Amour de Dieu est transformatrice](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-8-3-mc-keea-atta-kem/) | 8 Janvier 2026 
+Marie | [Marie remet une rose rouge à chacun](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-10-3-mc-mary/) | 10 Janvier 2026
+Faith Nyquist | [Libérez ce qui n'est pas aligné](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-11-2-mc-faith-nyquist/) | 11 Janvier 2026
+Grace Jordan | [La conscience de l'âme plutôt que les croyances du mental](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-30-2-mc-grace-jordan/) | 30 Janvier 2026
+Augustin | [Hommage à Karen Swanson](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-1-2-mc-augustine/) | 1 Février 2026
+Keea Atta Kem | [Permettez l’intégration de l’Amour de Dieu en votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-1-3-mc-keea-atta-kem/) | 1 Février 2026
+Anne | [Mettre votre vie matérielle en pause aide à renforcer les perceptions de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-15-2-mc-anna/) | 15 Février 2026
+Faith Nyquist | [Vous êtes sur une trajectoire de grands changements](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-22-3-mc-faith-nyquist/) | 22 Février 2026
+James | [Découvrir le fonctionnement des lois spirituelles dans votre vie grâce à l'étude et à l'observation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-1-2-mc-james/) | 1 Mars 2026
+Fleur de Lotus | [L'épanouissement créatif de l'âme par l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-8-2-mc-lotus-blossom/) | 8 Mars 2026
+Jésus | [Il vient nous aider à reconnaître notre appel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-21-3-mc-jesus/) | 21 Mars 2026
+St Pierre | [Vous développez votre capacité à exprimer la conscience de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-22-2-mc-st-peter/) | 22 Mars 2026
+Keea Atta Kem | [Une conscience grandissante des perceptions et des attributs de l'âme qui vous guident](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-29-2-mc-keea-atta-kem/) | 29 Mars 2026
+St Luc | [L’univers est contenu dans l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-12-3-mc-st-luke/) | 12 Avril 2026
+Orion | [Orion décrit la dimension reliant toutes les âmes de l'univers](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-14-1-af-orion/) | 14 Avril 2026
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

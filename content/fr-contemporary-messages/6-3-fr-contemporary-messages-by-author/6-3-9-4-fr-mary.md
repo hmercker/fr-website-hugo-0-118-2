@@ -175,4 +175,5 @@ Pierre, Marie et Jésus | [Ayez foi et efforcez-vous d'établir cette vérité d
 Jésus et Marie | [La Puissance de la Prière Quotidienne / Une Bénédiction pour les Enfants de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-8-1-af-jesus-mary/) | 8 Mars 2026
 Marie | [La Foi d'une Mère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-5-1-em-mary/) | 5 Avril 2026
 Marie | [Reposez-vous dans l'Étreinte de l'Amour et de la Bénédiction Divins](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-7-1-af-mary/) | 7 Avril 2026
+Marie | [Marie remet une rose rouge à chacun](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-10-3-mc-mary/) | 10 Janvier 2026 
  

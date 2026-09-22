@@ -1,0 +1,22 @@
+---
+title: "Vous développez votre capacité à exprimer la conscience de l'âme"
+menu_title: ""
+description: "Vous développez votre capacité à exprimer la conscience de l'âme"
+date: 2026-09-22 06:00:00+00:00
+draft: False
+hidden: True
+weight:
+---
+### Vous développez votre capacité à exprimer la conscience de l'âme
+
+Pierre - reçu par Maureen Cardoso le 22 Mars 2026, Beams of Light, Abbotsford, C.-B., Canada.
+
+Que Dieu vous bénisse. Je suis Pierre, Pierre le Roc. Je ne me suis pas encore exprimé par l’intermédiaire de cet instrument. Je vous salue tous avec une bénédiction d’amour et de paix alors que vous vous réunissez pour renforcer vos liens, offrir votre instrument au développement et mieux comprendre le fonctionnement de votre âme. Chacun progresse ainsi, faisant l’expérience d’une conscience de l’âme plus vaste. Je vous encourage à en parler, à partager cela entre vous, car ce faisant, vous offrez à votre conscience matérielle l’occasion d’exprimer ce que vous ressentez et ce que vous savez grâce à votre âme. Souvent, en effet, les mots peinent à traduire le ressenti, la sensation et la compréhension lors de l’expression verbale.
+
+À mesure que vous vous développez, que vous vous éveillez et que vous allez vers le monde, il sera important de posséder cette capacité à vous exprimer de la sorte. Vous avez récemment vécu l’expérience où la chère âme Albert a donné sa conférence sur l’âme. Bien qu’il ne se soit pas nécessairement préparé, il a fait confiance et a eu foi que nous l’aiderions en lui fournissant les mots ; car telle est sa prière : « Cher Dieu, donne-moi les mots et mets-les dans ma bouche afin que je puisse transmettre ces vérités et aider de belles âmes à mieux se comprendre elles-mêmes. »
+
+Il est important, alors que les choses évoluent et changent au sein de votre conscience, que vous partagiez et que vous restiez ouverts, car c’est la prochaine étape du cheminement. Bien que ce voyage puisse ne pas sembler empreint de rituels, ces éveils qui se produisent en vous se déploient en harmonie, car vous portez l’essence de l’Amour de Dieu dans votre âme. Grâce à cette transformation, ces canaux de communion et de communication, ainsi que les transmissions de votre âme vers votre conscience, peuvent s’établir. Les transmissions provenant de l’Esprit peuvent également avoir lieu. C’est un travail qui s’opère à la fois de l’intérieur et de l’extérieur. C’est un grand plaisir de constater votre progression, de voir la voie que chacun empruntera grâce à ses choix. Il devient plus aisé de garder les deux pieds sur le Chemin Divin, car vous vous transformez et vous vous éveillez. Vous manifestez et expérimentez en vous-mêmes la preuve que votre nature change et qu’il existe un désir croissant de consulter la Volonté de Dieu avant d’agir selon la vôtre. Alors qu’il était parfois aisé d’agir selon votre propre volonté tout en vérifiant périodiquement sa conformité avec la Volonté de Dieu, la conscience de votre âme grandit et s’éveille désormais en vous ; vous savez que lorsque tous les choix — en toutes circonstances — sont faits et suivis en gardant à l’esprit la Volonté de Dieu, l’harmonie en découle.
+
+Vous vous sentirez forts. Vous vous sentirez ancrés. Vous vous sentirez intérieurement alignés, sans entrer en conflit avec votre propre volonté, car l’aspiration profonde de toute âme est d’être avec Dieu, de suivre Dieu et de servir Dieu. À mesure que les entraves liées à votre condition humaine sont transformées et guéries, vous constatez de plus en plus clairement que le désir véritable de l’âme peut vous conduire à suivre la Volonté de Dieu et vous aider à la discerner à tout moment, dans chaque décision et chaque circonstance. Plus vous vous autorisez à vous mettre à l’écoute et en harmonie avec la conscience de votre âme, plus vous découvrirez que la communication entre votre âme et l’Âme de Dieu gagne en pureté et en clarté au sein de vos perceptions et de votre compréhension. La transmission de cette sagesse, passant de l’esprit de l’âme vers le plan matériel, devient de plus en plus limpide à mesure que vos blocages et vos filtres sont purifiés et nettoyés.
+
+Chers amis, soyez forts, soyez vrais et soyez sincères. Accueillir l’Amour Divin au sein de vos âmes rend cela possible. Je suis Pierre et je suis heureux d’être avec vous, de partager, de guider et de prier avec vous dans l’Amour de Dieu, pour toujours. Que Dieu vous bénisse. 

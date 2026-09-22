@@ -314,6 +314,7 @@ Orion | [Le temps presse pour gagner la bataille](/fr-contemporary-messages/fr-c
 Jésus | [Une puissante bénédiction, proclamant Son Amour pour nous !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-21-2-af-jesus/) | 21 Novembre 2023
 André | [Nous sommes tous appelés à servir Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-24-1-af-andrew/) | 24 Novembre 2023
 Orion | [Reconnait l'évolution de notre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-25-1-af-orion/) | 25 Novembre 2023
+St Matthieu | [Vient renforcer les aspirations de vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-26-1-af-st-matthew/) | 26 Novembre 2023
 Judas | [Qu’emporterez-vous avec vous dans le monde des esprits ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-27-1-jw-judas/) | 27 Novembre 2023
 Orion | [Les vents du changement arrivent dans notre monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-27-2-af-orion/) | 27 Novembre 2023
 Judas | [Créatures d'habitude](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-11-28-1-jw-judas/) | 28 Novembre 2023

@@ -30,7 +30,7 @@ Care Darby Walsh | [Conversations avec Dieu, Prière et Magnétisme Spirituel](/
 St Luc | [Progression de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-24-1-jw-st-luke/) | 24 Avril 2026
 Yogananda | [Un changement de cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-25-1-jw-yogananda/) | 25 Avril 2026
 Frederick Douglass | [Guérison des chaînes temporelles et spirituelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-4-1-jw-frederick-douglass/) | 4 Mai 2026
-Care Darby Walsh | [Attachements](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-11-1-jw-care-darby-walsh/) | 11 Mai 2026
+Claire d'Assise | [Attachements](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-11-1-jw-clare-of-assisi/) | 11 Mai 2026
 Yogananda | [La Joie Ailée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-18-1-jw-yogananda/) | 18 Mai 2026
 Eileen Caddy | [La signification profonde du sanctuaire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-20-1-jw-eileen-caddy/) | 20 Mai 2026
 Lao Tseu | [Un seul pas sur le chemin sans fin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-25-1-jw-lao-tseu/) | 25 Mai 2026
