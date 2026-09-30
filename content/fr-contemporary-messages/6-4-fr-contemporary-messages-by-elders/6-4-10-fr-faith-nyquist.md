@@ -49,3 +49,5 @@ Faith Nyquist | [Libérez ce qui n'est pas aligné](/fr-contemporary-messages/fr
 Faith Nyquist | [Vous êtes sur une trajectoire de grands changements](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-22-3-mc-faith-nyquist/) | 22 Février 2026 
 Faith Nyquist | [Éveillez-vous du sommeil du matérialisme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-24-1-af-faith-nyquist/) | 24 Février 2026
 Faith Nyquist | [Ouvrez votre âme pour recevoir les abondantes bénédictions de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-24-1-af-faith-nyquist/) | 24 Mars 2026
+Faith Nyquist | [Les bénédictions illimitées de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-22-1-af-faith-nyquist/) | 22 Mai 2026 
+Faith Nyquist | [Qu'est-ce qu'une âme humble ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-24-2-mc-faith-nyquist/) | 24 Mai 2026 

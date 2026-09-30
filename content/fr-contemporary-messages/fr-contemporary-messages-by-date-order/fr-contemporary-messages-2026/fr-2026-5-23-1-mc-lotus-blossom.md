@@ -1,0 +1,20 @@
+---
+title: "Demandez à Dieu de vous révéler vos dons"
+menu_title: ""
+description: "Demandez à Dieu de vous révéler vos dons"
+date: 2026-09-30 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Demandez à Dieu de vous révéler vos dons
+
+Fleur de Lotus - reçu par Maureen Cardoso le 23 Mai 2026, Beams of Light, Christ Church, Barbade.
+
+Je suis Fleur de Lotus. Bienvenue, chers amis, dans votre Cercle de Lumière, alors que vous ouvrez vos âmes à ce grand flux de l'Amour de Dieu. Beaucoup se rassemblent avec vous, emplissant vos espaces, apportant leur état d'amour et des bénédictions particulières par lesquelles Dieu peut manifester Sa grâce. Chaque âme est créée de manière unique. Il n'existe pas deux âmes identiques. Dieu souhaite que vous appreniez à vous connaître, vous qui êtes Sa création particulière. Dieu désire que vous vous éveilliez à Son Amour, afin qu'Il puisse vous bénir de la puissance de l'Amour Divin, vous permettant d'agir comme un instrument d'amour, de vérité, de sagesse, de paix, de compassion et bien plus encore. Mais je me demande si vous vous tournez parfois vers Dieu pour Lui demander de vous révéler les dons qui ont été déposés dans votre âme, pour Lui demander de vous montrer votre caractère unique et les manières dont votre rôle d'instrument peut servir.
+
+Car dans le magnifique jardin des âmes que Dieu a créé, Il a besoin de chacune d'elles. Aucune n'est identique à une autre dans sa manière d'agir en tant qu'instrument, mais chaque âme est égale aux yeux de Dieu. Vous êtes aimés dans votre création ainsi que dans votre capacité et votre potentiel à manifester la puissance que vous incarnez en tant qu'âme créée à l'image de Dieu. Les nouvelles âmes chéries qui prient pour recevoir cet Amour Divin sont transformées : elles passent de l'image à l'Essence et à la Substance mêmes de Dieu. C'est ainsi que vos dons s'épanouiront. C'est ainsi que des portes d'opportunité s'ouvriront, permettant à Dieu d'apporter des bénédictions aux autres à travers vous, de manières qui vous sont propres. Méditez. Entrez en conversation avec Dieu. Demandez à Dieu. Cherchez la vérité de votre âme. Cherchez les réponses. Soyez curieux, soyez ouverts. Vous apprenez à connaître votre âme sous certains aspects, mais il reste encore tant à comprendre concernant l'univers de votre propre âme et le caractère unique qui réside en vous.
+
+Chers amis, alors que vous priez pour recevoir ce grand afflux de l’Amour de Dieu dans la Vérité, demandez à Dieu de vous révéler qui vous êtes véritablement et comment vous pouvez servir grâce à vos dons et à votre création unique ; puissiez-vous servir par le biais de l’Essence de l’Amour qui grandit en votre âme. En agissant ainsi, vous accomplirez votre mission jour après jour. Vous éprouverez un profond sentiment d’épanouissement et de contentement, celui de marcher sur une voie guidée par Dieu et soutenue par les anges. Vous verrez la lumière de votre âme rayonner avec éclat alors que vous êtes guidés et comblés par le grand don de l’Amour Divin. Puissiez-vous apprendre à mieux connaître votre âme et continuer à vous interroger sur votre véritable nature, sur la manière dont Dieu vous a créés et sur ce qu’Il ​​attend de vous en tant qu’instruments ; puissiez-vous découvrir comment Il souhaite toucher le monde, qu’il s’agisse du monde matériel ou du monde spirituel. Dieu touchera beaucoup de personnes à travers vous. Permettez à cet Amour et à votre rôle d’instrument de s’approfondir et de grandir, afin d’embellir votre monde, où que vous soyez. Car ainsi, vous ressentirez une satisfaction profonde et authentique à l’idée de suivre le chemin qui vous est exclusivement destiné.
+
+Je suis Fleur de Lotus. Puisse un grand flux de l’Amour de Dieu pénétrer votre âme alors que vous poursuivez votre voyage éternel dans l’Amour Divin. Que Dieu vous bénisse.

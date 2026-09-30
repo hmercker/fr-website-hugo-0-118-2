@@ -1,0 +1,22 @@
+---
+title: "Qu'est-ce qu'une âme humble ?"
+menu_title: ""
+description: "Qu'est-ce qu'une âme humble ?"
+date: 2026-09-30 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Qu'est-ce qu'une âme humble ?
+
+Faith - reçu par Maureen Cardoso le 24 Mai 2026, Beams of Light, Christ Church, Barbade.
+
+Que Dieu vous bénisse. Je suis Faith ; je suis heureuse de me joindre à vous alors que vous vous réunissez pour discuter, prier, recevoir et vous réjouir de tout ce qui a trait à l'inâme, à l'Amour Divin, à notre Père Céleste et au chemin de progression. Il est remarquable d'entendre ce qui émane de vous, de votre conscience et de vos échanges. Qu'est-ce qu'une âme humble ? Un sujet si puissant. En fin de compte, une âme humble est celle qui sait qu'elle ne peut accomplir les actes suprêmes d'amour et de bonté — ces manifestations ultimes de ces vertus — sans Dieu. Car lorsque la Substance de Dieu pénètre l'âme et que ce qui était autrefois inharmonieux se transforme en harmonie, la vie entière de cette âme en est changée. Elle emprunte une nouvelle voie.
+
+Une âme forte en humilité recherche toujours le Père, recherche toujours l'Amour du Père, cherche toujours à être guidée par le Père, tout en écoutant et en aspirant ardemment à la sagesse. Car à mesure que l'âme grandit dans l'Amour Divin et que l'humilité commence à imprégner son attitude, elle reconnaît et perçoit, par sa conscience, que la Source de tout réside dans le Créateur. La Source de toute bonté, de toute harmonie, provient de la puissance de Dieu. Une âme humble est celle qui permet aux autres d'être tels qu'ils sont, tout en étant capable de les aimer, de les apprécier et de les accepter. Elle n'exige pas qu'ils soient différents, car elle comprend qu'eux aussi suivent leur propre chemin vers l'union avec Dieu. Même si cette âme ne prie pas, elle parcourt tout de même son chemin ; et finalement, à un moment donné de son voyage, elle se tournera elle aussi vers Dieu. Elle se tournera elle aussi vers l'amour, car l'amour est la fréquence éternelle de la création et, à terme, l'amour peut imprégner toutes choses.
+
+Une âme humble est celle qui, lorsqu'elle perçoit un besoin et qu'elle est en mesure d'y répondre, le fait sans qu'on le lui demande. Elle voit ce qui se présente à elle et ressent cette impulsion intérieure qui lui dit : « Je peux apporter mon aide ici », quelle que soit l'ampleur de la tâche. Elle s'autorise à répondre au besoin qui se trouve devant elle. Comment cette âme continue-t-elle à grandir ? Comment cette âme continue-t-elle à progresser ? Je pose cette question maintenant. Quelle est votre réponse intérieure ? C’est l’amour, bien-aimés : recevoir la grâce de l’Amour de Dieu qui transformera tout ce qui n’est pas en harmonie pour l’amener à l’harmonie, à la fusion et à l’union, à la fraternité, à toute la création de Dieu œuvrant ensemble dans une harmonie parfaite. C’est ce que Dieu a créé : toutes choses, toutes choses œuvrant en harmonie. Lorsque vous voyez des disharmonies dans le monde, faites une prière ; priez pour que Dieu bénisse la situation, pour que Son Amour et Sa présence pénètrent cette situation et y déversent Sa Lumière, car c’est ce que vous pouvez faire, et une âme humble fait ce qui est en son pouvoir.
+
+Dieu ne vous demande pas de sauver le monde. Dieu vous demande d’entrer en harmonie, de trouver l’harmonie en vous-mêmes — dans cet univers qui réside en vous — et d’être en harmonie au sein de votre propre être. Vous verrez se refléter dans votre vie quotidienne, dans votre monde matériel, ce que vous êtes intérieurement. Sachez que l’Amour de Dieu en votre âme transforme toute chose. Demeurez humbles, demeurez en paix, faites preuve de compassion envers vous-mêmes et envers les autres tout au long de votre cheminement. Priez avec ferveur, âmes bien-aimées. Priez pour recevoir ce déversement de la Pentecôte en ce grand jour de Pentecôte. Je m’assiérai avec vous pour prier, vous donnant, à vous et à votre âme, la force de vous tourner plus profondément vers Dieu, de vous ouvrir et d’être réceptifs à un puissant déversement, chacun d’entre vous.
+
+Je suis Faith. Merci de m’avoir entendue, de m’avoir accueillie et de m’avoir permis de transmettre ce humble message, empreint d’humilité et d’amour. Que Dieu vous bénisse.

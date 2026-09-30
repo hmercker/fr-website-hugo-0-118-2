@@ -30,6 +30,7 @@ Anne | [Le travail au sein des Cercles de Lumière se poursuit](/fr-contemporary
 Anne | [Puissiez-vous développer la sagesse dans vos interactions avec vos frères et sœurs!](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-4-5-af-anna/) | 4 Mai 2025
 Anne | [Laissez briller votre lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-6-4-em-anna/) | 6 Mai 2025 
 Anne | [Mettre votre vie matérielle en pause aide à renforcer les perceptions de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-15-2-mc-anna/) | 15 Février 2026 
+Anne | [Reconnaissance de la création de la femme par Dieu en cette fête des Mères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-10-3-mc-anna/) | 10 Mai 2026
 ||<p align="center"><span style="color:red">**Messages d'Elizabeth**</span></p> | |
 Elizabeth | [Unis dans l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-6-16-2-jw-elizabeth/) | 16 Juin 2020
 Elizabeth | [Laissez l'Amour de Dieu vous guider](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-7-15-1-jw-elizabeth/) | 15 Juillet 2024

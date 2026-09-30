@@ -1,0 +1,20 @@
+---
+title: "Déposez vos fardeaux aux pieds de Dieu"
+menu_title: ""
+description: "Déposez vos fardeaux aux pieds de Dieu"
+date: 2026-09-30 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Déposez vos fardeaux aux pieds de Dieu
+
+Jésus - reçu par Maureen Cardoso le 10 Mai 2026, Cercle de lumière Starpoint, Christ Church, Barbade.
+
+Je viens. Je suis Jésus. Que la bénédiction de l'Amour du Père pénètre votre âme, permettant à votre esprit de rayonner de lumière. Je vous invite à déposer ces lourds fardeaux, ces inquiétudes, ces résistances que vous portez en votre esprit ; cette lourdeur et ces charges qui vous détournent de la véritable nature de votre âme, laquelle est amour, paix, compassion et joie. Ces attributs de votre âme sont ce que vous aspirez à ressentir au plus profond de votre esprit. Pour y parvenir, chers amis, vous devez apporter vos fardeaux aux pieds de Dieu avec sincérité, en acceptant que Dieu les retire de vous et vous bénisse d'un esprit de lumière. Ainsi, vous pourrez parcourir votre chemin avec la certitude et la confiance qui émanent de l'âme, tout en comprenant, appréciant et reconnaissant pleinement qui vous êtes réellement.
+
+Aux yeux de Dieu, vous êtes l'un de Ses enfants bien-aimés, Sa création parfaite, qu'Il désire tant voir devenir l'être humain parfait ou l'Ange Divin. Toutes les réponses qui résident en vous, mais qui n'ont pas encore atteint votre conscience, se révéleront grâce à la bénédiction de la purification de votre esprit et de l'éveil de votre âme dans l'Amour de Dieu. En entrant dans ce Cercle de Lumière, prenez le temps de vous ouvrir intentionnellement aux bénédictions que Dieu souhaite vous offrir et de célébrer votre vie dans la joie, la grâce et la fluidité ; traversez vos expériences quotidiennes en passant naturellement d'une activité à l'autre, avec la présence de votre âme en communion avec l'Âme de Dieu, alignant ainsi votre âme sur la Sienne. En agissant ainsi, et en portant votre attention consciente sur cet accomplissement — tant dans votre esprit mental que dans votre esprit spirituel et votre conscience matérielle —, vous pourrez faire l'expérience de la bénédiction de l'unité avec Dieu. Tout ce que vous ferez, penserez, direz, verrez et entendrez passera alors par le filtre de l'amour, de la vérité et de la sagesse.
+
+Que telle soit votre expérience. Permettez-vous d'être guéris dans l'Amour de Dieu. Toutes vos souffrances — qu’il s’agisse de malaises ou de maladies d’ordre émotionnel, mental ou physique — seront véritablement guéries et apaisées. Écoutez au plus profond de vous-même, avec les oreilles de votre âme, pour savoir ce qui est nécessaire à chaque instant de votre cheminement. Car lorsque vous êtes ainsi attentifs, la promesse de Dieu est que les réponses viendront. Portez votre attention sur la plénitude de votre expérience, là où votre corps et votre esprit — reflets de votre âme et de l’état de celle-ci — sont faits de lumière. Accordez-vous cette bénédiction. Permettez-vous de vous rapprocher de Celui qui vous a créés à Son image. Laissez Son Amour vous ramener à l’unité. Laissez Son Amour vous montrer la voie. Laissez Son Amour se manifester à travers vous, imprégnant votre âme et tout ce qui rayonne de votre être. Reconnaissez que l’Amour de Dieu est la réponse que vous cherchez. L’Amour de Dieu est l’antidote à tout ce qui manque d’harmonie. Ramenez-vous à l’harmonie, encore et encore, jusqu’à ce que cela devienne votre nature même : être l’Amour Divin dans l’âme, le corps et l’esprit.
+
+Je suis Jésus, Maître des Cieux célestes. Je viens vous apporter une bénédiction de guérison, de sagesse et de compréhension. Puisse la lecture de mes paroles vous permettre de les utiliser comme une boussole pour instaurer l’alignement et l’harmonie dans la grâce de Dieu. Que Dieu vous bénisse tous. Je suis Jésus et mon amour vous accompagne. Que Dieu vous bénisse.

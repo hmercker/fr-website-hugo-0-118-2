@@ -47,3 +47,4 @@ Fleur de Lotus | [Avoir du respect pour le don du corps de Dieu](/fr-contemporar
 Fleur de Lotus | [Devenir l'Amour grâce à l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-12-5-mc-lotus-blossom/) | 12 Septembre 2025
 ||<p align="center"><span style="color:red">**Pour l'année 2026**</span></p> | |
 Fleur de Lotus | [L'épanouissement créatif de l'âme par l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-8-2-mc-lotus-blossom/) | 8 Mars 2026 
+Fleur de Lotus | [Demandez à Dieu de vous révéler vos dons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-23-1-mc-lotus-blossom/) | 23 Mai 2026 

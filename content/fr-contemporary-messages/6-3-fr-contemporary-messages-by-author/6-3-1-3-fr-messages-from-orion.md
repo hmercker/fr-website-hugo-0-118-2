@@ -231,6 +231,11 @@ Orion | [Orion décrit la dimension reliant toutes les âmes de l'univers](/fr-c
 Orion | [Dieu a créé un voyage merveilleux et unique pour chacun de vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-21-1-af-orion/) | 21 Avril 2026
 Orion | [Votre capacité à dissiper les ténèbres de ce monde est plus puissante que vous ne le pensez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-2-1-af-orion/) | 2 Mai 2026
 Orion | [Orion décrit le processus de réception de l'Amour Divin sur sa planète et exprime son admiration pour notre ténacité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-9-1-af-orion/) | 9 Mai 2026
+Orion | [Il nous encourage à nous engager dans le monde et à affronter directement ses nombreuses épreuves](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-26-2-af-orion/) | 26 Mai 2026
+Orion | [Les dons de l'âme commencent sous forme de bourgeons petits et subtils avant de s'épanouir en de magnifiques fleurs, uniques à chaque individu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-30-1-af-orion/) | 30 Mai 2026
+Orion | [Accueillez chacun avec amour et faites preuve de douceur lorsque vous enseignez cette vérité aux autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-2-2-af-orion/) | 2 Juin 2026
+Orion | [Reconnaissez la puissance des bénédictions de Dieu sur vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-13-1-af-orion/) | 13 Juin 2026 
+Orion | [Faites le grand saut et nous vous attendrons de l'autre côté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-16-1-af-orion/) | 16 Juin 2026 
 
 
 

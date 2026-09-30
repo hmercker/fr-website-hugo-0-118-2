@@ -28,4 +28,5 @@ Hafez | [Poèmes de Haffiz](/fr-contemporary-messages/fr-contemporary-messages-b
 Hafez | [Soyez la vraie vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-25-1-jw-hafiz/) | 25 Octobre 2021
 Hafez | [Une fenêtre de temps](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-13-2-jw-hafiz/) | 13 Avril 2024
 Hafez | [Que pensera le monde de vous ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-8-1-jw-hafiz/) | 8 Septembre 2024
-Hafez | [Un festin de ça](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-1-3-jw-hafiz/) | 1 Mai 2025 
+Hafez | [Un festin de ça](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-1-3-jw-hafiz/) | 1 Mai 2025
+Hafez | [Sept grains de vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-1-2-jw-hafiz/) | 1 Mai 2026 

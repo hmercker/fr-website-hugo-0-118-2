@@ -268,6 +268,9 @@ Seretta Kem | [Guidance pour le chemin le moins fréquenté](/fr-contemporary-me
 Seretta Kem | [Beaucoup a été accompli ces derniers jours](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-22-2-af-seretta-kem/) | 22 Septembre 2025
 Seretta Kem | [Distinguer les perceptions spirituelles de la conscience de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-7-2-af-seretta-kem/) | 7 Janvier 2026 
 Seretta Kem | [Parle sur le développement personnel des participants à la retraite de la Barbade](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-12-4-mc-seretta-kem/) | 12 Janvier 2026
+Seretta Kem | [La Loi de la Connexion et de la Communication et la Préparation aux Temps à Venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-7-2-af-seretta-kem/) | 7 Juin 2026 
+Seretta Kem | [Au-delà de la vie terrestre : la sollicitude de Dieu pour l'âme ayant effectué sa transition](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-12-1-mc-serreta-kem/) | 12 Juin 2026
+
 
 
 

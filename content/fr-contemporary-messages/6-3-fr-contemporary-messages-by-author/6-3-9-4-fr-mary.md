@@ -176,4 +176,7 @@ Jésus et Marie | [La Puissance de la Prière Quotidienne / Une Bénédiction po
 Marie | [La Foi d'une Mère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-5-1-em-mary/) | 5 Avril 2026
 Marie | [Reposez-vous dans l'Étreinte de l'Amour et de la Bénédiction Divins](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-7-1-af-mary/) | 7 Avril 2026
 Marie | [Marie remet une rose rouge à chacun](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-10-3-mc-mary/) | 10 Janvier 2026 
+André, Jésus et Marie | [Messages d'amour, de guidance et de compagnonnage venant du monde spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-26-1-af-andrew-jesus-mary/) | 26 Mai 2026 
+Marie | [Marie nous parle du temps où l'Amour prend forme dans notre âme ; nos actions sont imprégnées d'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-7-3-mc-mary/) | 7 Juin 2026 
+Marie | [Hommage aux pères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-21-1-mc-mary/) | 21 Juin 2026
  

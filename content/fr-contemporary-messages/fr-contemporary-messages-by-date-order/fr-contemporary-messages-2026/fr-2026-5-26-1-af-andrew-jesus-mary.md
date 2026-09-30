@@ -1,0 +1,24 @@
+---
+title: "Messages d'amour, de guidance et de compagnonnage venant du monde spirituel"
+menu_title: ""
+description: "Messages d'amour, de guidance et de compagnonnage venant du monde spirituel"
+date: 2026-09-30 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Messages d'amour, de guidance et de compagnonnage venant du monde spirituel
+
+André, Jésus et Marie - reçu par Albert Fike le 26 Mai 2026, Cercle de Lumière en ligne, Sechelt, Colombie-Britannique, Canada
+
+**André** : En vérité, que l'Amour se déverse dans vos âmes, mes amis. Je suis André. Le monde manque d'une direction claire, d'une compréhension claire de sa raison d'être, de clarté et de vérité, de clarté sur lui-même. Si peu de choses sont claires dans votre monde, obscurci par la condition humaine, que vos prières sont effectivement importantes et nécessaires. Pourtant, au sein de chaque âme réside une aspiration à la vérité, à une direction et à un but. Au sein de chaque âme, il y a un sentiment de vide parce que ces éléments font défaut. Je vous exhorte à prier pour le monde, comme vous l'avez fait. Priez pour ce qui est nécessaire. Priez pour que chaque âme trouve ce dont elle a besoin pour être dans la lumière, pour être en harmonie ; pour que la Vérité de l'Amour du Père pénètre sa conscience ; pour qu'elle trouve le chemin vers Dieu et, ce faisant, trouve le chemin vers sa raison d'être, vers la vérité, vers ce qu'est le véritable amour et la manière de l'exprimer.
+
+Mes bien-aimés, mes chers amis, oui, il y a tant à faire, tant d'êtres sont perdus et sans but, manquant de direction et de compréhension. En vérité, alors que vous cheminez dans le monde, vous devenez un phare de lumière. Vous êtes un exemple grâce auquel la vérité, la raison d'être et l'amour peuvent être trouvés et éveillés au sein de chaque âme. Mes chers frères et sœurs, continuez à vous fortifier dans l'Amour du Père. Continuez à découvrir la vérité qui attend d'être donnée, qui attend d'être comprise et vécue. Il y a tant de choses à comprendre et à expérimenter pour vous. Il y a tant de choses que Dieu souhaite vous offrir. Soyez clairs dans vos désirs et vos prières. Recherchez ce à quoi vos âmes aspirent. Comprenez ce que vos âmes désirent et exprimez-le dans vos prières et votre vie quotidienne. Car c'est là que réside la raison d'être. C'est là que l'on peut trouver la vérité. C'est là que l'amour peut grandir, vous transformer, vous guérir et faire de vous un magnifique canal d'amour et de lumière dans le monde.
+
+Mes chers amis, nous sommes frères et sœurs. Nous sommes unis dans cette œuvre, dans ce cheminement. Chacun de vous a sa propre raison d'être et ses œuvres à accomplir. Dieu vous guidera sur votre chemin. Ainsi, vous découvrirez le dessein que la Main de Dieu a inscrit au plus profond de votre âme. Soyez fidèles à vous-mêmes. Soyez un canal d'amour pour autrui. Recherchez l'harmonie. Recherchez tout ce qui relève de la lumière, et vous deviendrez ce magnifique instrument que vous êtes destinés à être.
+
+Que Dieu vous bénisse, belles âmes. Je suis André. Je suis un ami et un enseignant. Je suis aux côtés de beaucoup d'entre vous. Je guide cet instrument, comme je l'ai fait tout au long de sa vie. Quel don, quelle bénédiction pour moi que d'avoir cette mission et cette responsabilité. Je continue, dans la joie, à les embrasser pleinement. Je serai bel et bien présent pour vous soutenir, vous aimer et vous reconnaître, car vous êtes tous mes frères et sœurs — chacun d'entre vous — et vous le serez pour l'éternité. Que Dieu vous bénisse. Andrew vous aime. Que Dieu vous bénisse.
+
+**Jésus** : Les bénédictions du Père reposent sur vous, mes bien-aimés. Sa bénédiction de l'âme vous est acquise dans la mesure où vous la désirez et la demandez par la prière. Je suis avec vous, moi, Jésus, votre frère et votre ami. Je suis avec vous dans la prière. Je suis souvent à vos côtés, comme vous le savez, mes beaux frères et sœurs de la Terre. Vous avez en moi un ami véritable et fidèle. Je suis avec vous. Je continuerai à marcher à vos côtés pour l'éternité. Que Dieu vous bénisse tous, mes bien-aimés.
+
+**Marie** : Les portes sont ouvertes, mes bien-aimés. Je suis Marie. Je me tiens sur le seuil avec vous. Je prendrai votre main. Je vous guiderai à l'intérieur. Ensemble, nous pourrons apprécier et nous baigner dans les gloires de l'Amour du Père et dans Ses bénédictions. Nous sommes tous Ses enfants, et Il nous aime d'un amour égal, profond et infini. Recherchez ce don. Il vous appartient dès lors que vous le demandez, et nous baignerons ensemble dans cet Amour glorieux. Que Dieu vous bénisse ; je suis Marie et je vous aime. Je suis avec vous. Prenez ma main et nous avancerons dans la lumière. Que Dieu vous bénisse, beaux enfants de Dieu.

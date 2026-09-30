@@ -404,6 +404,7 @@ Augustin | [Quand on a la foi, on peut plonger sans crainte dans l’immensité 
 Keea atta Kem &  Augustin | [La Trame de Lumière : Renforcer le réseau de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-8-1-af-keea-atta-kem-augustine/) | 8 Mai 2026
 Augustin | [Assumez la responsabilité de votre état et restez fidèles à la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-12-1-af-augustine/) | 12 Mai 2026 
 Augustin | [Le moment est venu : Libérez-vous des habitudes néfastes, sortez de votre cocon et avancez pour accomplir votre destinée ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-16-1-af-augustine/) | 16 Mai 2026
+Augustin | [Cette vérité vous offre l'opportunité de changer votre perspective sur la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-20-1-af-augustine/) | 20 Juin 2026 
 
 
 

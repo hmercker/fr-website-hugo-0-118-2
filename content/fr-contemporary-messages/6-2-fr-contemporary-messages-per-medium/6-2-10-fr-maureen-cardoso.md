@@ -169,5 +169,15 @@ St Pierre | [Vous développez votre capacité à exprimer la conscience de l'âm
 Keea Atta Kem | [Une conscience grandissante des perceptions et des attributs de l'âme qui vous guident](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-29-2-mc-keea-atta-kem/) | 29 Mars 2026
 St Luc | [L’univers est contenu dans l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-12-3-mc-st-luke/) | 12 Avril 2026
 Orion | [Orion décrit la dimension reliant toutes les âmes de l'univers](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-14-1-af-orion/) | 14 Avril 2026
+Jésus | [Déposez vos fardeaux aux pieds de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-10-2-mc-jesus/) | 10 Mai 2026
+Anne | [Reconnaissance de la création de la femme par Dieu en cette fête des Mères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-10-3-mc-anna/) | 10 Mai 2026 
+Jesus | [Je suis avec vous : L’éveil de l’âme par l’Amour divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-17-1-mc-jesus/) | 17 Mai 2026
+Barthélémy | [La créativité de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-17-2-mc-bartholomew/) | 17 Mai 2026
+Fleur de Lotus | [Demandez à Dieu de vous révéler vos dons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-23-1-mc-lotus-blossom/) | 23 Mai 2026
+Faith Nyquist | [Qu'est-ce qu'une âme humble ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-24-2-mc-faith-nyquist/) | 24 Mai 2026
+Yogananda | [Laissez les choses de l'âme vous stimuler](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-31-1-mc-yogananda/) | 31 Mai 2026
+Marie | [Marie nous parle du temps où l'Amour prend forme dans notre âme ; nos actions sont imprégnées d'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-7-3-mc-mary/) | 7 Juin 2026
+Seretta Kem | [Au-delà de la vie terrestre : la sollicitude de Dieu pour l'âme ayant effectué sa transition](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-12-1-mc-serreta-kem/) | 12 Juin 2026
+Marie | [Hommage aux pères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-21-1-mc-mary/) | 21 Juin 2026
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

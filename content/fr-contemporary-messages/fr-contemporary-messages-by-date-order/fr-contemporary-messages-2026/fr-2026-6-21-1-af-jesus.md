@@ -1,0 +1,24 @@
+---
+title: "La prière, l’Amour Divin et le fait d’être les instruments de Dieu dans le monde"
+menu_title: ""
+description: "La prière, l’Amour Divin et le fait d’être les instruments de Dieu dans le monde"
+date: 2026-09-30 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### La prière, l’Amour Divin et le fait d’être les instruments de Dieu dans le monde
+
+Jésus - reçu par Albert Fike le 21 Juin 2026, Cercle de Lumière en ligne, Sechelt, Colombie-Britannique, Canada
+
+Je viens, mes bien-aimés. Je suis votre frère et votre ami, Jésus. Je viens prier avec vous. Je viens être auprès de mes précieux et magnifiques frères et sœurs. Je viens parce que je vous aime. Je viens parce que je suis l’instrument de mon Père Céleste, un canal d’amour pour tous les peuples du monde, et vous avez invoqué ma présence par la prière et le désir. Les lois sont respectées — et je fais partie de ces lois, tout comme les anges du ciel — afin d’œuvrer avec diligence, d’être avec vous, de vous soutenir, de vous aimer et de vous apporter des bénédictions ; car c’est ainsi que fonctionne l’action du ciel. Nous participons tous au grand flux de l’intention de Dieu de guérir et d’élever toutes les âmes qui recherchent ces dons et ces bénédictions.
+
+Je suis ici, tout comme beaucoup d’autres. Chacun de vous a un ange à ses côtés. Chacun de vous est béni en cet instant même. Je vous exhorte à ouvrir grand vos âmes à la grande bénédiction du Père Céleste, Sa bénédiction d’Amour qui accompagne le Saint-Esprit. Nous sommes ensemble, unis dans la prière. Nous ne faisons véritablement qu’un dans le don et la Vérité de l’Amour du Père. Recherchez cela de tout votre cœur et de toute votre âme. Il n’y a pas de plus grand don ni de plus grande bénédiction. En effet, alors que vous avancez dans le monde, exercez le leadership qui réside en vous — cette sagesse de l’âme, cet amour et cette capacité à marcher dans le monde en tant qu’instruments de Dieu.
+
+Car le monde a besoin de vous, mes bien-aimés. Le monde a besoin de guidance, de leadership et de lumière, de la touche ferme mais douce de l’amour, exprimée de la multitude de manières qui caractérisent ce rassemblement : chacun apportant ses dons uniques, chacun capable d’utiliser ces dons pour apporter plus de lumière, d’harmonie et de paix au monde, pour porter la Vérité de l’Amour du Père à tous ceux qui sont prêts à écouter. À ce titre, vous êtes mes disciples. À ce titre, vous êtes les instruments de Dieu. Le grand voyage se poursuit, mes bien-aimés : ce voyage vers la paix et la lumière, l'harmonie et l'amour, non seulement en chacun de vous, mais aussi dans votre monde et dans tous les mondes de l'Esprit, afin qu'avec le temps s'établisse une unité de lumière, faisant partie intégrante de votre monde tout en se prolongeant dans tous les autres. Tel est le dessein de Dieu : unir l'humanité dans la lumière, la vérité, l'amour, l'harmonie et la paix.
+
+Je prie pour que chacun en prenne conscience. En effet, lorsque vous allez vers le monde pour y porter cette bénédiction — que ce soit par votre présence, vos paroles ou tous les dons que vous possédez — vous accomplissez mon œuvre. Vous accomplissez l'œuvre de Dieu et vous faites avancer Son plan pour le salut de l'humanité. Il vous appartient de choisir, jour après jour, les opportunités que Dieu place devant vous et les possibilités qui s'offrent à votre vie ; car nombreuses sont les possibilités et nombreuses les portes qui s'ouvrent. La manière dont vous réagissez et dont vous choisissez de franchir ces portes dépend entièrement de votre décision et de votre volonté. Si vous vous sentez démunis ou incapables, priez. Demandez à Dieu de vous guider et de vous soutenir, de vous protéger et de vous fortifier, de vous envelopper de Son amour. Ainsi, vous disposerez de tout ce qui est nécessaire pour avancer dans la lumière et pour être les instruments de Dieu en ces temps et circonstances particuliers.
+
+De nombreuses opportunités attendent chacun d'entre vous. Vous êtes de magnifiques lumières, et souvent, vous ne saisissez ni ne reconnaissez le potentiel, les possibilités, la force et les dons que vous portez en vous. À mesure que vous recevez le don de l'amour du Père, ces qualités se renforcent et se déploient. Ce don d'amour vous transforme, vous guérit et illumine davantage votre esprit. Mes disciples bien-aimés, mes frères et sœurs, nous cheminons ensemble sur la voie du service, dans un voyage d'éveil et de transformation — un voyage magnifique et sublime qui ne connaîtra jamais de fin. Mes bien-aimés, nous sommes véritablement les enfants de Dieu. Puissions-nous exprimer cette lumière et cette vérité à chaque souffle.
+
+Que Dieu vous bénisse, mes bien-aimés. Je suis Jésus et je suis avec vous dans l'amour. Que Dieu vous bénisse.

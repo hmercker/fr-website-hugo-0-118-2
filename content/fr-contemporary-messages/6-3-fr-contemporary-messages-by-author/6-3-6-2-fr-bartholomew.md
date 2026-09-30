@@ -36,5 +36,6 @@ Barthélémy | [Les prières à utiliser dans le service offrent des opportunit�
 Barthélémy | [Ne restez pas inactifs : Tenez ferme dans la simple Vérité de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-4-2-af-bartholomew/) | 4 Janvier 2026 
 Barthélemy | [Vos choix et vos désirs déterminent votre chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-4-1-af-bartholomew/) | 4 Février 2026
 Barthélémy et Keea Atta Kem | [Foi et Âme 2 : Ayez confiance en vous, en votre âme et en Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-9-2-af-bartholomew-keea-atta-kem/) | 9 Février 2026
+Barthélémy | [La créativité de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-17-2-mc-bartholomew/) | 17 Mai 2026 
 
 

@@ -81,5 +81,6 @@ St Luc | [Le baume guérisseur de l'Amour de Dieu](/fr-contemporary-messages/fr-
 St Luc | [La Chrysalide](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-23-1-jw-st-luke/) | 23 Mars 2026
 St Luc | [L’univers est contenu dans l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-12-3-mc-st-luke/) | 12 Avril 2026 
 St Luc | [Progression de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-24-1-jw-st-luke/) | 24 Avril 2026
+Saint Luc | [Cherchez à connaître les vérités de Dieu depuis votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-14-2-af-st-luke/) | 14 Juin 2026 
 
 

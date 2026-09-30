@@ -37,4 +37,11 @@ Jésus | [Vous êtes la lumière : Appelés à recevoir et à partager l’Amour
 Jésus | [La porte de l’Amour de Dieu vous est ouverte](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-3-1-af-jesus/) | 3 Mai 2026
 Jésus | [Éveillez-vous, recevez et devenez la Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-26-1-af-jesus/) | 26 Avril 2026 
 Jésus | [Recherchez le don de l'Amour Divin et devenez une lumière dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-10-1-af-jesus/) | 10 Mai 2026
+Jésus | [Déposez vos fardeaux aux pieds de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-10-2-mc-jesus/) | 10 Mai 2026 
+Jesus | [Je suis avec vous : L’éveil de l’âme par l’Amour divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-17-1-mc-jesus/) | 17 Mai 2026 
+Jésus | [La Pentecôte dans les œuvres que vous pouvez accomplir : L'appel à être des disciples de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-24-1-af-jesus/) | 24 Mai 2026 
+André, Jésus et Marie | [Messages d'amour, de guidance et de compagnonnage venant du monde spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-26-1-af-andrew-jesus-mary/) | 26 Mai 2026 
+Jésus | [Chaque âme ici présente porte la Lumière de l’Amour de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-4-1-af-jesus/) | 4 Juin 2026 
+Jésus | [Grâce à vos efforts et à votre engagement, Dieu amènera vers vous les âmes assoiffées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-14-1-af-jesus/) | 14 Juin 2026 
+Jésus | [La prière, l’Amour Divin et le fait d’être les instruments de Dieu dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-21-1-af-jesus/) | 21 Juin 2026 
 
