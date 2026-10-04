@@ -180,6 +180,6 @@ Yogananda | [Laissez les choses de l'âme vous stimuler](/fr-contemporary-messag
 Marie | [Marie nous parle du temps où l'Amour prend forme dans notre âme ; nos actions sont imprégnées d'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-7-3-mc-mary/) | 7 Juin 2026
 Seretta Kem | [Au-delà de la vie terrestre : la sollicitude de Dieu pour l'âme ayant effectué sa transition](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-12-1-mc-serreta-kem/) | 12 Juin 2026
 Marie | [Hommage aux pères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-21-1-mc-mary/) | 21 Juin 2026
-Luc | [L’Amour de Dieu éveillera en votre âme un désir et une réceptivité accrus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-5-2-mc-luke/) | 5 Juillet 2026
+Saint Luc | [L’Amour de Dieu éveillera en votre âme un désir et une réceptivité accrus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-5-2-mc-st-luke/) | 5 Juillet 2026
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)
