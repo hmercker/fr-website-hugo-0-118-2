@@ -70,3 +70,4 @@ Augustin et Goldie | [Conseils au conseil d'administration de la DLSF / Gardez l
 Goldie, Augustin et Jésus | [Le Pouvoir de l'Amour Persévérant : Éveiller l'Âme à la Vérité de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-11-11-2-af-goldie-augustine-jesus/) | 11 Novembre 2025
 || <p align="center"><span style="color:red">**Pour les années 2026 à 2028**</span></p> |  |
 Goldie | [L'attribut de la joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-17-3-af-goldie/) | 17 Mai 2026
+Goldie | [La joie d'être aimé par Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-11-2-af-goldie/) | 11 Août 2026

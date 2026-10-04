@@ -149,6 +149,7 @@ Aliyah | [La Promesse de l'Amour Divin](/fr-contemporary-messages/fr-contemporar
 Anna | [Abandonnez vos attentes de perfection](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-5-10-1-mc-anna/) | 10 Mai 2025
 Keea Atta Kem | [Les épreuves et les tribulations de l'homme n'ont aucune cause en Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-4-2-mc-keea-atta-kem/) | 4 Juin 2025
 Fleur de Lotus | [Avoir du respect pour le don du corps de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-24-1-mc-lotus-blossom/) | 24 Août 2025
+Keea Atta Kem | [La conscience des intentions : ce qui sous-tend les pensées, les paroles et les actions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-31-4-mc-keea-atta-kem/) | 31 Août 2025
 Keea Atta Kem | [La puissance de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-8-2-mc-keea-atta-kem/) | 8 Septembre 2025
 Jésus | [Plongez votre âme dans l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-11-2-mc-jesus/) | 11 Septembre 2025
 Fleur de Lotus | [Devenir l'Amour grâce à l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-12-5-mc-lotus-blossom/) | 12 Septembre 2025
@@ -179,5 +180,6 @@ Yogananda | [Laissez les choses de l'âme vous stimuler](/fr-contemporary-messag
 Marie | [Marie nous parle du temps où l'Amour prend forme dans notre âme ; nos actions sont imprégnées d'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-7-3-mc-mary/) | 7 Juin 2026
 Seretta Kem | [Au-delà de la vie terrestre : la sollicitude de Dieu pour l'âme ayant effectué sa transition](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-12-1-mc-serreta-kem/) | 12 Juin 2026
 Marie | [Hommage aux pères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-21-1-mc-mary/) | 21 Juin 2026
+Luc | [L’Amour de Dieu éveillera en votre âme un désir et une réceptivité accrus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-5-2-mc-luke/) | 5 Juillet 2026
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

@@ -107,4 +107,5 @@ Sam | [Retraite spirituelle - Hawaii_2](/fr-contemporary-messages/fr-contemporar
 Sarah Elizabeth Egelburg | [Nous rencontrons Sarah](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-10-11-1-ks-sarah-elizabeth-egelburg/) | 11 Octobre 2004
 Sashaquaha | [Honorer la Terre Mère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-2-4-1-af-sashaquaha/) | 4 Février 2022
 Shelayis | [La Création Unique des Archanges et le Rôle des Anges Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-13-2-af-shelayis/) | 13 Janvier 2025
+Tahlia | [Tahlia décrit son don de guérison et explique le chemin de l’âme vers la communion avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-7-2-af-tahlia/) | 07 Juillet 2026
 Wyndell Elderclaw | [Honorer la Terre-Mère : une voie vers un éveil spirituel plus profond](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-3-1-af-wyndell-elderclaw/) | 3 Avril 2026 

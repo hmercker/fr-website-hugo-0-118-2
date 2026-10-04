@@ -9,7 +9,7 @@ weight:
 ---
 ### Guérir le monde grâce au pouvoir et à la simplicité de l'amour
 
-Christine - reçu par Al Fike le 1er Mai 2026, Voix Directe, Cercle de prière de Sechelt, Colombie Britanique, Canada.
+Christine - reçu par Al Fike le <sup>er</sup> Mai 2026, Voix Directe, Cercle de prière de Sechelt, Colombie Britanique, Canada.
 
 Que Dieu vous bénisse, mes amis bien-aimés. Je m’appelle Christine. Je ne viens pas de votre monde. Je viens d’un autre monde, mais je viens pour soutenir le vôtre. Je viens pour aider à soutenir votre monde et pour apporter ma contribution à sa guérison. Car nombreux sont ceux, autour de votre planète, qui s’impliquent, se préoccupent et se consacrent à instaurer l’harmonie dans ce monde — un monde dont vous êtes une partie intégrante de l’harmonie de l’univers, en tant que l’une des magnifiques créations de Dieu. Lorsque votre monde manque d’harmonie, d’équilibre et de lumière, cette situation engendre un effet subtil dans tout l’univers. Ceux d’entre nous qui sont spirituellement et matériellement évolués cherchent à remédier à ces situations et à ces conditions.
 

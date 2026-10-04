@@ -42,3 +42,4 @@ Mylora | [Message de clôture : Bénédiction de guérison](/fr-contemporary-mes
 Mylora | [Honorez la Création de Dieu et la Création vous honorera](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-4-1-af-mylora/) | 4 Juillet 2025
 Mylora | [Il existe de nombreuses façons de servir comme Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-7-22-2-af-mylora/) | 22 Juillet 2025
 Mylora et Jésus | [Unis dans l'Amour de Dieu pour bénir le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-10-28-1-af-mylora-jesus/) | 28 Octobre 2025
+Mylora | [Honorer et accepter notre place dans un monde en mutation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-7-2-af-mylora/) | 7 Août 2026 

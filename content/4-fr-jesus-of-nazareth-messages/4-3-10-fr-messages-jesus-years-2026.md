@@ -44,4 +44,17 @@ André, Jésus et Marie | [Messages d'amour, de guidance et de compagnonnage ven
 Jésus | [Chaque âme ici présente porte la Lumière de l’Amour de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-4-1-af-jesus/) | 4 Juin 2026 
 Jésus | [Grâce à vos efforts et à votre engagement, Dieu amènera vers vous les âmes assoiffées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-14-1-af-jesus/) | 14 Juin 2026 
 Jésus | [La prière, l’Amour Divin et le fait d’être les instruments de Dieu dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-21-1-af-jesus/) | 21 Juin 2026 
+Marie et Jésus | [Marie décrit la bénédiction du toucher de Dieu sur elle ; Jésus bénit le groupe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-23-1-af-mary-and-jesus/) | 23 Juin 2026
+Jésus | [Recevez le don abondant de l’Amour du Père](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-26-1-af-jesus/) | 26 Juin 2026
+Copernic et Jésus | [La science de l’éveil de l’âme par l’Amour Divin et la bénédiction de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-28-1-af-copernic-and-jesus/) | 28 Juin 2026 
+Jésus | [Soyez un canal pour Dieu de toutes les manières possibles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-4-1-af-jesus/) | 4 Juillet 2026
+Jésus | [S'ouvrir à l'Amour du Père et à la transformation à venir de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-5-1-af-jesus/) | 5 Juillet 2026 
+Jésus | [Appel à devenir les agents de changement de Dieu par l'Amour Divi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-12-1-af-jesus/) | 12 Juillet 2026 
+Jésus | [Ouvrez votre âme au don de l'Amour Divi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-17-2-af-jesus/) | 17 Juillet 2026 
+Jésus | [Marcher ensemble vers le Royaume Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-19-2-af-jesus/) | 19 Juillet 2026 
+Jésus | [Des phares de lumière dans le grand plan de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-2-1-af-jesus/) | 2 Août 2026 
+Jésus | [Le chemin éternel de l'éveil de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-9-1-af-jesus/) | 9 Août 2026
+Jésus | [Bien-aimés instruments de Dieu : marcher dans l'amour et le service](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-16-1-af-jesus/) | 16 Août 2026 
+
+
 

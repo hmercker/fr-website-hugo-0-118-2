@@ -236,6 +236,18 @@ Orion | [Les dons de l'âme commencent sous forme de bourgeons petits et subtils
 Orion | [Accueillez chacun avec amour et faites preuve de douceur lorsque vous enseignez cette vérité aux autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-2-2-af-orion/) | 2 Juin 2026
 Orion | [Reconnaissez la puissance des bénédictions de Dieu sur vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-13-1-af-orion/) | 13 Juin 2026 
 Orion | [Faites le grand saut et nous vous attendrons de l'autre côté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-16-1-af-orion/) | 16 Juin 2026 
+Orion | [La transition de l'esprit matériel vers l'éveil de l'âme se fait progressivement et s'accompagne de nombreux défis](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-27-1-af-orion/) | 27 Juin 2026 
+Orion | [Suivez les inspirations de votre âme pour saisir les occasions de servir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-30-2-af-orion/) | 30 Juin 2026 
+Orion | [Maintenez une grande intensité de désir dans vos prières et votre dessein](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-7-1-af-orion/) | 7 Juillet 2026 
+Orion | [Accueillez les changements terrestres à venir comme étant nécessaires et bénis par Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-14-2-af-orion/) | 14 Juillet 2026 
+Orion | [Chacun doit faire son propre choix individuel de demeurer dans la Lumière, et les changements terrestres faciliteront ce processus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-18-2-af-orion/) | 18 Juillet 2026 
+Orion | [Vous êtes tous essentiels au processus de transformation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-1-1-af-orion/) | 1 Août 2026 
+Orion | [Affranchissez-vous de votre condition humaine pour devenir un véritable instrument de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-4-2-af-orion/) | 4 Août 2026
+Orion | [Être un véritable instrument exige courage et foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-7-1-af-orion/) | 7 Août 2026 
+Orion | [Prenez conscience de vos obstacles réflexes et inconscients](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-11-1-af-orion/) | 11 Août 2026
+Orion | [Des choses merveilleuses se produiront une fois que vous serez en parfaite harmonie avec la volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-14-1-af-orion/) | 14 Août 2026 
+
+
 
 
 

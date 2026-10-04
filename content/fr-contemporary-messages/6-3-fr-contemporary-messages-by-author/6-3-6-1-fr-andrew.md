@@ -175,3 +175,4 @@ André | [Vous bâtissez un pont entre vous et Dieu](/fr-contemporary-messages/f
 André | [Les vents du changement soufflent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-13-1-af-andrew/) | 13 Janvier 2026
 André | [Qu’est-ce qui vous empêche d’accomplir la mission de votre âme ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-13-2-af-andrew/) | 13 Avril 2026
 André, Jésus et Marie | [Messages d'amour, de guidance et de compagnonnage venant du monde spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-26-1-af-andrew-jesus-mary/) | 26 Mai 2026 
+André | [Reconnaissez les nombreuses étapes du Chemin Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-14-1-af-andrew/) | 14 Juillet 2026 

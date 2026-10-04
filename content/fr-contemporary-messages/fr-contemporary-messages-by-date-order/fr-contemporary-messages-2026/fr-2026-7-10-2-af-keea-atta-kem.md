@@ -1,0 +1,24 @@
+---
+title: "Dieu attend votre invitation et votre ouverture à recevoir Sa bénédiction"
+menu_title: ""
+description: "Dieu attend votre invitation et votre ouverture à recevoir Sa bénédiction"
+date: 2026-10-04 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Dieu attend votre invitation et votre ouverture à recevoir Sa bénédiction
+
+Keea Atta Kem - reçu par Albert Fike le 10 Juillet 2026, Cercle de Lumière en ligne, Sechelt, Colombie-Britannique, Canada.
+
+Je suis Keea Atta Kem. Je salue ma famille divine, cette famille d’âmes qui aspire à l’Amour de Dieu, qui reçoit cette grande bénédiction et la laisse affluer en elle ; un voyage d’éveil qui permet de grands changements, amenant toute chose en alignement et en harmonie avec la création de Dieu. Chacun de vous remarque, à sa manière, les changements qui s’opèrent dans sa nature. Là où vous éprouviez autrefois des difficultés, règne désormais la paix. Là où vous cherchiez autrefois à forcer les choses, il y a maintenant acceptation ; tout s’aligne sur l’Amour, l’Amour Divin.
+
+Découvrir qui vous êtes au plus profond de votre âme est un voyage précieux, que vous entreprenez avec Dieu selon votre propre voie unique, à votre rythme et selon votre propre timing, avec vos propres détours et péripéties. Dieu permet tout cela ; Il vous aime à travers chaque recoin, chaque virage, chaque détour, chaque chant et chaque danse que vous portez en votre cœur, ainsi qu’à travers les manières dont vous exprimez créativement la vie de votre âme. C’est une immense bénédiction pour vos amis célestes et stellaires de servir Dieu en accompagnant votre éveil, de vous aider sur votre chemin et de célébrer l’élargissement de votre perception ainsi que votre capacité croissante à percevoir la Volonté de Dieu.
+
+Tout commence progressivement. À chaque goutte de l’Amour de Dieu qui pénètre votre âme, vous avancez peu à peu dans le processus et la transformation que vit votre âme. Tel est le dessein de l’Amour de Dieu en vous : vous transformer, afin que cette Substance devienne pleinement ce que vous êtes. Je vous invite à me croire lorsque je dis que ce processus est à l’œuvre en chacun de vous ; peu importe que vous puissiez le ressentir, le percevoir ou le reconnaître. Car c’est une loi, c’est la Vérité : à mesure que cet Amour entre en vous, la transformation s’opère et se poursuit. Je vous encourage à ne pas chercher à précipiter votre cheminement. Soyez plutôt présents et conscients de l’endroit où vous vous trouvez, en observant les changements accomplis et en reconnaissant les domaines où vous pouvez encore évoluer. À l'égard de ces aspects de vous-même qui doivent encore être transformés, éprouvez de la compassion et offrez-les à Dieu, sachant qu'Il répondra à votre désir sincère. Dieu attend votre invitation et votre ouverture à recevoir Ses bénédictions — ce don d'Amour divin — à chaque instant. Vous prenez de plus en plus conscience de ce désir, ancré dans votre âme, de recevoir cet Amour et de communier avec Dieu en permanence.
+
+Célébrez cela, âmes bien-aimées. Célébrez votre cheminement et les transformations que vous avez vécues. Soyez de véritables partenaires pour Dieu en venant à Lui tels de petits enfants, en Lui confiant en toute sincérité votre cœur, vos vulnérabilités et votre sensibilité ; confiez-vous à Celui qui sait vous aimer, vous voir et vous accepter comme nul autre. Vous n'avez nul besoin de vous justifier auprès de Dieu pour recevoir Son Amour. Dieu veut que vous preniez conscience de votre valeur, simplement parce que vous êtes Son enfant. Vous êtes Sa création. Dieu désire que vous sachiez que tout ce qui est en harmonie vous sera offert librement. Ainsi, vous devenez une âme profondément unie à Dieu, éprise de Lui, éveillée à la bénédiction de pouvoir Le connaître dans Sa pureté originelle.
+
+À mesure que vous poursuivez votre cheminement, sachez qu'à chaque afflux de Son Amour reçu par votre âme, vous vous rapprochez d'une compréhension élargie de qui est Dieu, selon votre propre perspective unique. Cet Amour trouvera alors une forme d'expression créatrice à travers vous, car il fait partie intégrante de votre être. À mesure que cela grandit, vous incarnez de plus en plus pleinement votre véritable nature : une âme, une âme divine en harmonie et en accord avec Dieu, un instrument à l'unisson avec son Créateur. Cet Amour peut rayonner à travers vous, permettant au monde de tourner dans l'amour.
+
+Amis, soyez à l'écoute de votre âme, de ses aspirations et de son désir de développer sa capacité à être un instrument d'amour. En purifiant ce qui n'est pas en harmonie, vous vous percevrez comme un instrument marchant dans la grâce de Dieu, car l'Amour divin est votre essence même. Que chacun de vous soit profondément béni en ce moment de communion avec Dieu, alors que vous recevez cet Amour, l'Amour divin. Je suis Keea Atta Kem. Que Dieu vous bénisse tous. Que Dieu te bénisse.
