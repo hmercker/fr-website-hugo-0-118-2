@@ -212,7 +212,7 @@ Keea Atta Kem | [Dieu attend votre invitation et votre ouverture à recevoir Sa 
 Jesus | [Appel à devenir les agents de changement de Dieu par l'Amour Divi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-12-1-af-jesus/) | 12 Juillet 2026
 André | [Reconnaissez les nombreuses étapes du Chemin Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-14-1-af-andrew/) | 14 Juillet 2026
 Orion | [Accueillez les changements terrestres à venir comme étant nécessaires et bénis par Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-14-2-af-orion/) | 14 Juillet 2026
-Jésus | [Ouvrez votre âme au don de l'Amour Divi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-17-2-af-jesus/) | 17 Juillet 2026
+Jésus | [Ouvrez votre âme au don de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-17-2-af-jesus/) | 17 Juillet 2026
 Orion | [Chacun doit faire son propre choix individuel de demeurer dans la Lumière, et les changements terrestres faciliteront ce processus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-18-2-af-orion/) | 18 Juillet 2026
 Jésus | [Marcher ensemble vers le Royaume Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-19-2-af-jesus/) | 19 Juillet 2026
 Judas | [La joie spirituelle s'obtient dans la grâce](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-20-1-jw-judas/) | 20 Juillet 2026
@@ -221,22 +221,22 @@ Keea Atta Kem | [Dieu saisit chaque occasion pour bénir les autres](/fr-contemp
 Charlie Chaplin | [Présenter au monde l'Amour de Dieu d'une manière qui résonne au-delà de la religion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-24-1-jw-charlie-chaplin/) | 24 Juillet 2026
 Orion | [Vous êtes tous essentiels au processus de transformation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-1-1-af-orion/) | 1 Août 2026
 Jésus | [Des phares de lumière dans le grand plan de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-2-1-af-jesus/) | 2 Août 2026
+Yogananda | [Les Gunas et au-delà](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-3-1-jw-yogananda/) | 3 Août 2026
 Faith Nyquist | [Maintenez-vous dans un état de lumière et d'amour pour nourrir votre rôle d'instrument](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-4-1-af-faith-nyquist/) | 4 Août 2026
 Orion | [Affranchissez-vous de votre condition humaine pour devenir un véritable instrument de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-4-2-af-orion/) | 4 Août 2026
 Orion | [Être un véritable instrument exige courage et foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-7-1-af-orion/) | 7 Août 2026
 Mylora | [Honorer et accepter notre place dans un monde en mutation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-7-2-af-mylora/) | 7 Août 2026
 Jésus | [Le chemin éternel de l'éveil de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-9-1-af-jesus/) | 9 Août 2026
+Khalil Gibran | [La liberté de l'éternité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-10-1-jw-khalil-gibran/) | 10 Août 2026
 Orion | [Prenez conscience de vos obstacles réflexes et inconscients](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-11-1-af-orion/) | 11 Août 2026
 Goldie | [La joie d'être aimé par Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-11-2-af-goldie/) | 11 Août 2026
 Orion | [Des choses merveilleuses se produiront une fois que vous serez en parfaite harmonie avec la volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-14-1-af-orion/) | 14 Août 2026
 Aaron | [La clé de la guérison de l'humanité réside dans l'Amour divin, et non dans les efforts humains](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-14-2-af-aaron/) | 14 Août 2026
 Jésus | [Bien-aimés instruments de Dieu : marcher dans l'amour et le service](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-16-1-af-jesus/) | 16 Août 2026
+Judas | [Libre arbitre et Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-17-1-jw-judas/) | 17 Août 2026
 Marie | [Foi, service et bénédictions d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-18-1-af-mary/) | 18 Août 2026
 St Matthieu | [La douceur de la progression](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-20-1-em-st-mathhew/) | 20 Août 2026
 Eileen Caddy | [Les changements terrestres et la solitude au sein de la communauté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-27-1-jw-eileen-caddy/) | 27 Août 2026
-Yogananda | [Les Gunas et au-delà](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-3-1-jw-yogananda/) | 3 Août 2026
-Khalil Gibran | [La liberté de l'éternité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-10-1-jw-khalil-gibran/) | 10 Août 2026
-Judas | [Libre arbitre et Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-17-1-jw-judas/) | 17 Août 2026
 Care Darby Walsh | [Une prière de Care](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-24-1-jw-care-darby-walsh/) | 24 Août 2026
 
 

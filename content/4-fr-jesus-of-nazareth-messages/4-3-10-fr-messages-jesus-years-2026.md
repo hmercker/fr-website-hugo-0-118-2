@@ -49,8 +49,8 @@ Jésus | [Recevez le don abondant de l’Amour du Père](/fr-contemporary-messag
 Copernic et Jésus | [La science de l’éveil de l’âme par l’Amour Divin et la bénédiction de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-28-1-af-copernic-and-jesus/) | 28 Juin 2026 
 Jésus | [Soyez un canal pour Dieu de toutes les manières possibles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-4-1-af-jesus/) | 4 Juillet 2026
 Jésus | [S'ouvrir à l'Amour du Père et à la transformation à venir de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-5-1-af-jesus/) | 5 Juillet 2026 
-Jésus | [Appel à devenir les agents de changement de Dieu par l'Amour Divi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-12-1-af-jesus/) | 12 Juillet 2026 
-Jésus | [Ouvrez votre âme au don de l'Amour Divi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-17-2-af-jesus/) | 17 Juillet 2026 
+Jésus | [Appel à devenir les agents de changement de Dieu par l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-12-1-af-jesus/) | 12 Juillet 2026 
+Jésus | [Ouvrez votre âme au don de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-17-2-af-jesus/) | 17 Juillet 2026 
 Jésus | [Marcher ensemble vers le Royaume Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-19-2-af-jesus/) | 19 Juillet 2026 
 Jésus | [Des phares de lumière dans le grand plan de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-2-1-af-jesus/) | 2 Août 2026 
 Jésus | [Le chemin éternel de l'éveil de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-9-1-af-jesus/) | 9 Août 2026

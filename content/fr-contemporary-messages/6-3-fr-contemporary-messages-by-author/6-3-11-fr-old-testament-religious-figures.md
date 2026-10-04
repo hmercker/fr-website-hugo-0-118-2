@@ -17,6 +17,6 @@ Parmi les nombreux esprits qui ont communiqué au cours des 50 dernières année
 </br>
 [Samuel](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-3-fr-samuel/)
 </br>
-[Diverses figures historiques de l'Ancien Testament](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-4-fr-various-old-teastament-figures/)
+[Diverses figures historiques de l'Ancien Testament](/fr-contemporary-messages/6-3-fr-contemporary-messages-by-author/6-3-11-4-fr-various-old-testament-figures/)
 
 
