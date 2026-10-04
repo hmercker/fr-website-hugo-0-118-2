@@ -1,6 +1,6 @@
 ---
 title: "Accueillez les changements terrestres à venir comme étant nécessaires et bénis par Dieu"
-menu_title: """
+menu_title: ""
 description: "Accueillez les changements terrestres à venir comme étant nécessaires et bénis par Dieu"
 date: 2026-10-04 06:00:01+00:01
 draft: False
