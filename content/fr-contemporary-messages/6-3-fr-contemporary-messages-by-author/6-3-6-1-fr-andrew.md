@@ -40,8 +40,11 @@ André | [Les yeux de l’Amour](/fr-contemporary-messages/fr-contemporary-messa
 André | [La foi non compromise](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-8-9-1-ks-andrew/) | 9 Août 2002
 André | [Appel à une aide supérieure](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-11-9-1-ks-andrew/) | 9 Novembre 2003
 André | [L'or et l'argent vous entourent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-1-19-1-ks-andrew/) | 19 Janvier 2005
+André | [Nous ne pouvons pas interférer avec le libre arbitre de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-7-1-af-andrew/) | 7 Janvier 2014 
+André | [Le grand objectif est le salut de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-27-1-af-andrew/) | 27 Janvier 2014 
 André | [Priez ensemble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-17-1-af-andrew/) | 17 Mai 2014
 André | [Lutter contre les défis de ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-18-2-af-andrew/) | 18 Mai 2014
+André | [Qui suis-je vraiment ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-7-28-1-af-andrew/) | 28 Juillet 2014 
 André | [L’importance de permettre l’expiation de vos âmes dans l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-1-5-1-af-andrew/) | 5 Janvier 2015
 André | [Chaque âme humaine est endommagée par la condition de la Terre et doit être guérie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-3-27-1-af-andrew/) | 27 Mars 2015
 André | [Cherchez l'essence divine de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-5-11-1-af-andrew/) | 11 Mai 2015

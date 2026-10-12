@@ -12,7 +12,11 @@ weight: 702
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 || <p align="center"><span style="color:red">**Pour les années 1915 à 2015**</span></p> | |
-St Augustin | [St Augustin explique que l’on ne peut pas faire confiance aux enseignements de la Bible](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-7-2-jep-augustine/) | 7 Août 1915
+Augustin | [Les manifestations physiques du changement s'accompagneront de calamités et de perturbations](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-5-1-af-augustine/) | 5 Janvier 2014 
+Augustin | [Avec foi et confiance, Dieu vous mènera vers des lieux surprenants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-10-20-1-af-augustine/) | 20 Octobre 2014 
+Augustin | [Il est bien des oreilles qui ne veulent pas entendre, et pourtant, leurs âmes ressentiront l'appel retentissant à venir vers Dieu de cette manière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-22-1-af-augustine/) | 22 Décembre 2014
+Augustin | [Libérez-vous des conditions de ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-31-1-af-augustine/) | 31 Décembre 2014 
+Augustin | [Augustin explique que l’on ne peut pas faire confiance aux enseignements de la Bible](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-7-2-jep-augustine/) | 7 Août 1915
 Augustin | [Nous devons faire un plus grand effort pour recevoir de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1963/fr-1963-4-15-3-anonymous-augustine/) | 15 Avril 1963
 Augustin | [Vous connaissez les vôtres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-62-1969-anonymous-augustine/) |   1969
 Augustin | [Élevez votre vision vers le haut, vers le plus élevé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-63-1969-anonymous-augustine/) |   1969
@@ -406,6 +410,7 @@ Augustin | [Assumez la responsabilité de votre état et restez fidèles à la v
 Augustin | [Le moment est venu : Libérez-vous des habitudes néfastes, sortez de votre cocon et avancez pour accomplir votre destinée ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-16-1-af-augustine/) | 16 Mai 2026
 Augustin | [Cette vérité vous offre l'opportunité de changer votre perspective sur la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-20-1-af-augustine/) | 20 Juin 2026 
 Augustin | [Ne vous cachez pas de vos sentiments ; permettez plutôt à Dieu de remplacer la disharmonie par Son Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-21-1-af-augustine/) | 21 Juillet 2026 
+Augustin | [Vous devez tenir compte de nos avertissements et vous préparer à la tempête du changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-1-1-af-augustine/) | 1 Septembre 2026 
 
 
 

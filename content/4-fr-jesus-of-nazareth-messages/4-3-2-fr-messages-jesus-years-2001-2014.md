@@ -238,6 +238,7 @@ Jésus | [Paix, première partie](/fr-contemporary-messages/fr-contemporary-mess
 Jésus | [Paix, deuxième partie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-7-1-jg-jesus/) | 7 Mai 2013
 Jésus | [N’ayez pas peur de marcher sur le chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-2-1-bs-jesus/) | 2 Juin 2013
 Jésus | [L’Esprit de Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-29-1-af-jesus/) | 29 Juin 2013
+Jésus | [Vous avez une mission profonde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-13-1-bd-jesus/) | 13 Janvier 2014 
 Jésus | [Conseils](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-13-1-joseph-jesus/) | 13 Mai 2014
 Jésus | [Priez pour l’amour tous les jours](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-17-3-af-jesus/) | 17 Mai 2014
 Jésus | [Vous faites partie de mon troupeau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-19-4-af-jesus/) | 19 Mai 2014

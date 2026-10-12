@@ -1,0 +1,24 @@
+---
+title: "Le grand objectif est le salut de l'humanité"
+menu_title: ""
+description: "Le grand objectif est le salut de l'humanité"
+date: 2026-10-12 06:00:01+00:84
+draft: False
+hidden: True
+weight:
+---
+### Le grand objectif est le salut de l'humanité
+
+André - reçu par Al Fike le 27 Janvier 2014, Gibsons, Colombie-Britannique, Canada.
+
+Je vois que vous vous avancez tous dans le monde ; beaucoup souhaitent s'aligner sur vous, tandis que d'autres cherchent à vous abattre. Il y a de mesquines jalousies, de la fausseté et des difficultés à surmonter alors que vous franchissez vos prochaines étapes dans le monde ; je vous encourage à ne prêter aucune attention à ces distractions. N'accordez aucun crédit à ceux qui critiquent ou qui vous blâment. Car à mesure que vous avancez dans la lumière, mes amis, des forces négatives tenteront effectivement d'éteindre cette lumière, et beaucoup de ceux qui nourrissent en eux des sentiments inharmonieux et des jugements pourraient être utilisés par ces forces négatives pour tenter de vous déstabiliser ou de semer le doute en vous.
+
+Mon cher fils, cet instrument, est aux prises avec cela en ce moment ; je l'ai encouragé à écouter sa guidance et à être sûr de ses prochaines étapes, car la voie est clairement tracée pour qu'il assume ce rôle de leader avec humilité et grâce, sachant que Dieu vous guidera — vous guidera tous — vers les étapes suivantes requises pour ce merveilleux voyage, cette grande aventure. Car le grand objectif est le salut de l'humanité : apporter ces vérités au monde, manifester cet Amour, allumer en chaque âme la passion d'aller vers Dieu pour recevoir cette grande bénédiction et, ce faisant, guérir ce monde de tant de ténèbres, de tant de dilemmes et de difficultés.
+
+Bien entendu, le choix vous appartient toujours. « Vais-je mener une vie confortable, en priant pour l'Amour de Dieu et en m'isolant des conditions de ce monde pour ne pas voir ce qui doit y être accompli de toute urgence, ou vais-je m'avancer courageusement, avec confiance et dévouement envers la Volonté de Dieu, pour être guidé dans le monde en tant que canal de Son Amour et de Sa Vérité ? » Oui, je pense que ce choix réside en chacun de vous, et je suis certain qu'une partie de vous désire cette vie confortable, cette voie de facilité. Pourtant, Dieu vous pousse plus loin, vous faisant quitter ce lieu de confort pour un autre, plus exigeant mais riche de promesses, où vous pourrez donner et aimer dans ce monde.
+
+Vous êtes tous forts ; vous êtes capables de relever ce défi. Vous êtes tous des âmes belles et douées ; vous avez été nourris de vérités, instruits, guéris, aimés et guidés durant de nombreuses années. Le moment est venu de franchir cette porte, d'accepter avec joie l'invitation et d'exprimer pleinement votre capacité à aimer, à apporter amour, réconfort, guérison et vérité à ce monde plongé dans l'obscurité, en proie à une détresse, une tourmente et un dénuement extrêmes. Je crois qu'au fond de chacun de vous réside le désir de relever ce défi. Cela suscite un certain inconfort intérieur, alors que vous êtes aux prises avec la signification de cette démarche, ses possibilités, vos inquiétudes ainsi que vos besoins de confort et de sécurité.
+
+Pourtant, Dieu a promis de pourvoir à vos besoins, de vous protéger et de vous aimer ; au plus profond de votre âme, vous le savez bien, même si votre mental continue de douter et de s'inquiéter. Laissez cela de côté ; vous êtes pleinement inscrits dans le flux de l'Amour et de la Volonté de Dieu ; permettez-lui de vous porter vers des horizons surprenants, tant en vous-mêmes que dans le monde. Un grand voyage attend chacun d'entre vous. Il suffit d'accepter de s'avancer dans ce fleuve et de se laisser porter. Laissez-vous porter et ce sera une aventure magnifique ; certes, il y aura des défis, car la vie en ce monde en est jalonnée. Mais vous connaîtrez un accomplissement profond et merveilleux, la certitude d'avoir suivi la mission de votre âme et votre désir de servir Dieu. Quelle œuvre plus noble, quel voyage et quel service plus merveilleux pourraient exister ? Et lorsque viendra la fin de votre vie terrestre, vous regarderez en arrière avec joie et satisfaction, sachant que vous êtes restés fidèles à vous-mêmes et à la Volonté de Dieu.
+
+Je vous aime, mes amis, et je me réjouis à la perspective des années à venir, des événements dynamiques qui naîtront de votre engagement et de votre service envers Dieu, ainsi que des innombrables âmes qui seront touchées par la lumière et la vérité grâce à cet engagement et à ce service. Réjouissez-vous de ces perspectives merveilleuses et soyez en paix ; soyez en paix et sachez que Dieu vous guidera sur des voies harmonieuses. Il n'y a rien à craindre, et tant d'amour à apporter, à connaître et à incarner dans ce monde. Que Dieu vous bénisse. Je vous aime.fr-2014-2-3-1--faith-nyquist

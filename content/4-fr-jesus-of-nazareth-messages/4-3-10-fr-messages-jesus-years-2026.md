@@ -55,6 +55,9 @@ Jésus | [Marcher ensemble vers le Royaume Céleste](/fr-contemporary-messages/f
 Jésus | [Des phares de lumière dans le grand plan de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-2-1-af-jesus/) | 2 Août 2026 
 Jésus | [Le chemin éternel de l'éveil de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-9-1-af-jesus/) | 9 Août 2026
 Jésus | [Bien-aimés instruments de Dieu : marcher dans l'amour et le service](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-16-1-af-jesus/) | 16 Août 2026 
+Jésus | [Soyez prêts et préparés au changement imminent de la réalité de l’humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-23-1-af-jesus/) | 23 Août 2026
+Jésus | [De la confusion du mental à la sagesse de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-30-1-af-jesus/) | 30 Août 2026
+
 
 
 

@@ -102,3 +102,4 @@ Tony Curtis | [Le point de vue d’une star de cinéma dans le monde des esprits
 Will Rogers | [La paix et l'amour sont assurés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-8-3-1-fab-will-rogers/) | 3 Août 2006
 Wolfgang Amadeus Mozart | [Expériences de Mozart dans le monde des esprits](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-1-2-1-fab-wolfgang-amadeus-mozart/) | 2 Janvier 2003
 Wolfgang Amadeus Mozart | [Mozart complète son message precedent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-7-17-1-fab-wolfgang-amadeus-mozart/) | 17 Juillet 2007
+Inayat Khan | [Écoutez avec votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-7-1-jw-inayat-khan/) | 7 Septembre 2026 

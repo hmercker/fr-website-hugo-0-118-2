@@ -11,13 +11,22 @@ weight:
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
+Augustin | [Les manifestations physiques du changement s'accompagneront de calamités et de perturbations](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-5-1-af-augustine/) | 5 Janvier 2014
+Seretta Kem | [Vous aspirez à être en communion avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-6-1-af-seretta-kem/) | 6 Janvier 2014
+André | [Nous ne pouvons pas interférer avec le libre arbitre de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-7-1-af-andrew/) | 7 Janvier 2014
+Confucius | [Marcher sur le Chemin de la Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-8-1-af-confucius/) | 8 Janvier 2014 
 Woodrow Wilson | [L’idéalisme d’un président](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-10-1-fab-woodrow-wilson/) | 10 Janvier 2014
+Jésus | [Vous avez une mission profonde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-13-1-bd-jesus/) | 13 Janvier 2014 
 Pape Pie XII | [L’erreur d’un pape](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-26-1-fab-pope-pius-xii/) | 26 Janvier 2014
+André | [Le grand objectif est le salut de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-27-1-af-andrew/) | 27 Janvier 2014 
 Jean-Baptiste | [Les Cieux Célestes ont des âmes de toutes les croyances](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-30-1-wv-john-the-baptist/) | 30 Janvier 2014
 Sri Yukteswar | [Le gourou Hindou Sri Yukteswar parle de l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-30-2-fab-sri-yarisupta/) | 30 Janvier 2014
+Faith Nyquist | [Le maître de maison vous approuve](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-2-3-1-af-faith-nyquist/) | 3 Février 2014 
 Sri Yukteswar | [La loi de la création et Sathya Sai Baba](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-2-4-1-wv-sri-yarisupta/) | 4 Février 2014
+Confucius | [Vous êtes assis dans la Lumière et désirez que l’Amour de Dieu pénètre vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-2-10-1-af-confucius/) | 10 Février 2014 
 Joseph | [Mémoires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-2-11-1-wv-joseph/) | 11 Février 2014
 Joseph | [Récupérer des souvenirs traumatiques](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-2-18-1-wv-joseph/) | 18 Février 2014
+Confucius | [La vérité vient par la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-3-1-1-af-confucius/) | 1 Mars 2014 
 Jésus | [Conseils](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-13-1-joseph-jesus/) | 13 Mai 2014
 Inconnu | [Conditions des sessions de prières collectives](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-16-1-af-unknown/) | 16 Mai 2014
 André | [Priez ensemble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-17-1-af-andrew/) | 17 Mai 2014
@@ -45,18 +54,27 @@ Le Père Céleste| [L’Amour que je suis est l’Amour que tu es](/fr-contempor
 James Padgett | [Détails de la vie de James Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-7-17-1-af-james-padgett/) | 17 Juillet 2014
 Hélène Padgett | [Détails de la vie d’Hélène Padgett](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-7-18-1-af-helen-padgett/) | 18 Juillet 2014
 Augustin | [Le libre arbitre fait que le monde est libre. Rien n’est garanti](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-7-26-1-af-augustine/) | 26 Juillet 2014
+André | [Qui suis-je vraiment ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-7-28-1-af-andrew/) | 28 Juillet 2014 
+Confucius | [Parvenir à la Vérité et à la Clarté n'est pas chose aisée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-8-6-1-af-confucius/) | 6 Août 2014 
 Joseph | [Où sont mes propres limites ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-9-6-1-wv-joseph/) | 6 Septembre 2014
 Yogananda | [Êtes-vous prêts à faire briller votre lumière dans les moments d’obscurité ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-9-6-2-wv-yogananda/) | 6 Septembre 2014
 Judas | [Racheté par le pouvoir de l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-10-11-1-af-judas/) | 11 Octobre 2014
 Confucius | [La différence entre Amour Divin et l’Amour naturel et comment l’obtenir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-10-11-2-af-confucius/) | 11 Octobre 2014
+Augustin | [Avec foi et confiance, Dieu vous mènera vers des lieux surprenants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-10-20-1-af-augustine/) | 20 Octobre 2014 
+Goldie | [Oui, nous apportons de la joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-10-20-2-af-goldie/) | 20 Octobre 2014 
 Massoud | [Ne prenez pas les choses personnellement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-10-21-1-wv-massoud/) | 21 Octobre 2014
 St Jean | [Pourquoi Jésus était sans péché ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-11-28-1-wv-st-john/) | 28 Novembre 2014
 St Jean | [Le temps viendra où vous vous aimerez complètement et où vous aimerez ainsi toute l’humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-1-1-af-st-john/) | 1<sup>er</sup> Décembre 2014
+James  | [Vous êtes une lumière dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-1-2-af-james/) |1<sup>er</sup> Décembre 2014 
 John | [Pourquoi les gens se comportent-ils sans amour sans aucune raison ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-3-1-wv-john/) | 3 Décembre 2014
 Walter Teagle | [Commerce avec les Nazis](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-5-1-fab-walter-teagle/) | 5 Décembre 2014
 John | [Les péchés des parents et des grand parents](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-10-1-wv-john/) | 10 Décembre 2014
 Marie | [Utilisez votre don de la vie de manière optimale](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-15-1-af-mary/) | 15 Décembre 2014
 St Jean | [Volonté et Libre Arbitre et le sens de 666](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-21-1-wv-st-john/) | 21 Décembre 2014
+Augustin | [Il est bien des oreilles qui ne veulent pas entendre, et pourtant, leurs âmes ressentiront l'appel retentissant à venir vers Dieu de cette manière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-22-1-af-augustine/) | 22 Décembre 2014
+Augustin | [Libérez-vous des conditions de ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-31-1-af-augustine/) | 31 Décembre 2014
+Confucius | [Le monde a un besoin désespéré de Lumière et de Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-31-2-af-confucius/) | 31 Décembre 2014
+Marie | [L'amour régnera en maître](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-31-3-af-mary/) | 31 Décembre 2014 
 
 ### [**Lien vers les messages des années 2015**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/)
 

@@ -67,6 +67,7 @@ Marie | [Se soumetre à l'Amour](/fr-contemporary-messages/fr-contemporary-messa
 Marie | [Unis par l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-18-1-hm-mary/) | 18 Janvier 2013
 Marie | [Avancez dans cette rivière d’Amour et lâchez prise](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-19-1-af-mary/) | 19 Mai 2014
 Marie | [Utilisez votre don de la vie de manière optimale](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-15-1-af-mary/) | 15 Décembre 2014
+Marie | [L'amour régnera en maître](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-31-3-af-mary/) | 31 Décembre 2014 
 Marie | [Le changement nécessaire pour le monde commencera par les enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-8-20-3-af-mary/) | 20 Août 2015
 Marie | [Conférence sur les enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-14-1-af-mary/) | 14 Mars 2016
 Marie | [Les encouragements de Marie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-31-1-af-mary/) | 31 Mars 2016

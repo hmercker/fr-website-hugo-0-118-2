@@ -21,9 +21,14 @@ Confucius | [Confucius et le monde des esprits.](/fr-contemporary-messages/fr-co
 Confucius | [Le Confucianisme et le présent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-17-1-fab-confucius/) | 17 Avril 2006
 Confucius | [La sagesse ancienne de l'humanité et la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-11-18-1-fab-confucius/) | 18 Novembre 2007
 Confucius | [L'humanité construit ses fondations](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-6-7-1-fab-confucius/) | 7 Juin 2008
+Confucius | [Marcher sur le Chemin de la Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-8-1-af-confucius/) | 8 Janvier 2014 
+Confucius | [Vous êtes assis dans la Lumière et désirez que l’Amour de Dieu pénètre vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-2-10-1-af-confucius/) | 10 Février 2014
+Confucius | [La vérité vient par la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-3-1-1-af-confucius/) | 1 Mars 2014
 Confucius | [Recevoir l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-17-2-af-confucius/) | 17 Mai 2014
 Confucius | [L’amour est la chose la plus importante](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-21-1-af-confucius/) | 21 Mai 2014
+Confucius | [Parvenir à la Vérité et à la Clarté n'est pas chose aisée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-8-6-1-af-confucius/) | 6 Août 2014 
 Confucius | [La différence entre Amour Divin et l’Amour naturel et comment l’obtenir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-10-11-2-af-confucius/) | 11 Octobre 2014
+Confucius | [Le monde a un besoin désespéré de Lumière et de Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-31-2-af-confucius/) | 31 Décembre 2014 
 || <p align="center"><span style="color:red">**Pour les années 2016 à 2019**</span></p> | 
 Confucius | [Accepter les nouvelles prises de conscience d'une âme qui se libère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-4-1-af-confucius/) | 4 Janvier 2016
 Confucius | [Comment le don d’amour peut toucher une âme et changer le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-18-1-af-confucius/) | 18 Janvier 2016

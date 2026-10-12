@@ -59,6 +59,7 @@ Lao Tseu | [Vous avez abordé le sujet de l'immortalité](/fr-contemporary-messa
 Lao Tseu | [Un seul pas sur le chemin sans fin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-25-1-jw-lao-tseu/) | 25 Mai 2026
 Lao Tseu | [Les attentes sont spéculatives, la foi est certitude](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-5-1-jw-lao-tseu/) | 5 Juin 2026
 Lao Tseu | [La Voie qui peut être exprimée par des mots n'est pas la Voie éternelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-15-1-jw-lao-tseu/) | 15 Juin 2026
+Lao  Tseu | [Une leçon sur la sagesse de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-25-1-af-lao-tzu/) | 25 Août 2026 
 Leytergus | [Cet amour vous aidera à surmonter les obstacles sur votre chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-52-1970-1-26-anonymous-leytergus/) | 26 Janvier 1970
 Leytergus | [Relation entre le mental matériel et le mental de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-11-2-af-leytergus/) | 11 Septembre 2017
 Leytergus | [Les différences entre la Sixième Sphère et les Sphères Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-12-3-af-leytergus/) | 12 Septembre 2017

@@ -1,0 +1,24 @@
+---
+title: "Joie infinie, Amour infini"
+menu_title: ""
+description: "Joie infinie, Amour infini"
+date: 2026-10-12 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Joie infinie, Amour infini
+
+Goldie - reçu par Maureen Cardoso le 16 Août 2026, Beams of Light, Abbotsford, Colombie Britanique, Canada
+
+Je suis Goldie, et vous m'appelez parce que vous parliez de la joie, ce magnifique attribut de l'âme. C'est une expression d'expansion, car la véritable joie ne connaît pas de limites, tout comme l'amour pur est sans limites. Elle donne pour le simple plaisir de donner. Elle se répand pour la vie, pour la création et l'expression. C'est si beau, comme vous le savez tous, lorsque vous êtes alignés avec votre âme et que vous vivez l'expérience profonde d'être simplement dans l'unité de l'âme. Dans ces moments où vous parvenez à maintenir cette conscience, un grand désir s'éveille en l'âme de recevoir davantage du grand Amour de Dieu. Car cela éveille tous les attributs de votre âme ainsi que son expression. À mesure que l'âme progresse dans l'Amour divin et développe ses facultés, ses attributs s'ouvrent et fonctionnent sans aucune limite.
+
+Vous vous sentez libres. Vous n'êtes plus sur la défensive et ne cherchez plus à rien protéger. Vous êtes libres d'aimer. Votre âme n'est plus abritée derrière votre armure ; vous faites l'expérience de la puissance de l'amour de votre âme et de la force croissante de cet amour qui vous éveille — vous, l'âme — dans toute votre beauté et tout votre émerveillement. Vous développez une nouvelle conscience. Même votre conscience matérielle se transforme, car vous pouvez voir au-delà du matériel, au-delà des limites d'une vie matérielle et de la lourdeur inhérente à toute tentative de création fondée uniquement sur une perspective matérielle — une démarche lente, pesante et dense. À mesure que votre conscience s'élève, vous percevez les choses depuis un point de vue supérieur et pouvez créer votre vie à partir de ces sphères situées au-delà du matériel, depuis des dimensions différentes, des dimensions de conscience distinctes.
+
+Vous possédez la conscience de votre âme, ainsi que la conscience de votre esprit et celle de votre mental matériel. À mesure que ces schémas de peur qui vous freinent sont transmutés et transformés par l'Amour Divin, vous accédez à une perception plus élevée ; vous voyez le monde d'un autre regard et pouvez y évoluer — au sein même de la densité du monde matériel — sans nécessairement en être affecté, car vous êtes en résonance avec une dimension supérieure : celle de l'âme, celle de votre esprit. Cela influence votre mental matériel, car ces nouveaux schémas d'optimisme et de potentiel ont trouvé une forme concrète dans votre cerveau. Ainsi, ces nouveaux modèles de création se stabilisent, se matérialisent et se concrétisent dans votre existence ; c'est une expérience exaltante que beaucoup finissent par vivre, que ce soit pour une journée, un instant ou une longue période.
+
+C'est ainsi que vous voyez votre nature évoluer. Dans cette progression, vous vivez et expérimentez la vie depuis une perspective différente. Cela est, par certains aspects, lié à la foi. Lorsque la foi de l'âme s'exprime, votre esprit — tout comme votre mental matériel — est capable de la percevoir. Il s'établit une connexion, une prise de conscience lucide de la foi qui réside au cœur de l'âme. Vous faites l'expérience de l'harmonie entre ces trois aspects de l'esprit, de leur unité harmonieuse. À mesure que vous avancez sur votre chemin et vivez vos éveils, une lumière s'intensifie en vous ; elle éclaire la voie à suivre, habite vos pensées, porte la vérité, perçoit la sagesse et reçoit la guidance. Vous êtes alors libre de vous harmoniser avec cette lumière, permettant à votre mental matériel de laisser couler la joie et l'amour infinis en toute pureté, simplement parce que cela est possible. Sans besoin de raison ni de motif particulier.
+
+Cet amour et cette joie sont vivants en vous et animent votre expérience de la vie. Accueillez ces bénédictions dans votre vécu. Observez-les imprégner votre existence sans chercher à les contrôler depuis votre conscience matérielle ; permettez simplement au don de la vie, au don de l'amour et au don de la joie de vivre et d'exister en vous et à travers vous. Puissiez-vous être profondément bénis alors que vous poursuivez votre joyeux chemin d'union avec Dieu. Je suis Goldie, et il est rare que je me présente ainsi. Pourtant, c'est pour moi une joie de pouvoir partager sagesse et éclairages avec chacun d'entre vous tout au long de votre parcours.
+
+Que l'amour soit sans limites. Puissiez-vous le recevoir avec ouverture et le donner tout aussi librement. Que Dieu vous bénisse tous. Que Dieu vous bénisse. Je suis Goldie et je vous inonde d'une pluie de joie, chacun d'entre vous. Que Dieu vous bénisse.

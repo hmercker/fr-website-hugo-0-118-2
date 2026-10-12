@@ -17,6 +17,7 @@ Goldie | [S'exprimer en tant qu'enseignant](/fr-contemporary-messages/fr-contemp
 Goldie | [Vous ne pouvez grandir que pas à pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-34-1969-11-1-anonymous-goldie/) | 1 Novembre 1969
 Goldie | [Une mission spéciale de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-108-1969-anonymous-goldie/) |   1969
 Goldie | [Jésus vous veut pour un rayon de soleil](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-20-2-af-goldie/) | 20 Mai 2014
+Goldie | [Oui, nous apportons de la joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-10-20-2-af-goldie/) | 20 Octobre 2014 
 Goldie | [L’Amour Divin apporte des surprises](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-10-19-1-af-goldie/) | 19 Octobre 2016
 Goldie | [Pourquoi se compliquer la vie ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-28-4-af-goldie/) | 28 Novembre 2016
 Goldie | [L’enthousiasme et les encouragements de Goldie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-18-2-af-goldie/) | 18 Mai 2017
@@ -71,3 +72,4 @@ Goldie, Augustin et Jésus | [Le Pouvoir de l'Amour Persévérant : Éveiller l'
 || <p align="center"><span style="color:red">**Pour les années 2026 à 2028**</span></p> |  |
 Goldie | [L'attribut de la joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-17-3-af-goldie/) | 17 Mai 2026
 Goldie | [La joie d'être aimé par Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-11-2-af-goldie/) | 11 Août 2026
+Goldie | [Joie infinie, Amour infini](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-16-2-mc-goldie/) | 16 Août 2026 

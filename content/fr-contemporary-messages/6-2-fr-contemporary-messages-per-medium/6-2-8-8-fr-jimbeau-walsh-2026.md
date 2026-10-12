@@ -42,11 +42,18 @@ Anne Rolllins | [Engagez votre âme](/fr-contemporary-messages/fr-contemporary-m
 François d'Assise | [Indulgences et distractions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-6-1-jw-st-francis-of-assisi/) | 6 Juillet 2026
 Judas | [La joie spirituelle s'obtient dans la grâce](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-20-1-jw-judas/) | 20 Juillet 2026
 Charlie Chaplin | [Présenter au monde l'Amour de Dieu d'une manière qui résonne au-delà de la religion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-24-1-jw-charlie-chaplin/) | 24 Juillet 2026
-Eileen Caddy | [Les changements terrestres et la solitude au sein de la communauté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-27-1-jw-eileen-caddy/) | 27 Août 2026
+Eileen Caddy | [Les changements terrestres et la solitude au sein de la communauté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-27-1-jw-eileen-caddy/) | 27 Juillet 2026
 Yogananda | [Les Gunas et au-delà](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-3-1-jw-yogananda/) | 3 Août 2026
 Khalil Gibran | [La liberté de l'éternité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-10-1-jw-khalil-gibran/) | 10 Août 2026
 Judas | [Libre arbitre et Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-17-1-jw-judas/) | 17 Août 2026
 Care Darby Walsh | [Une prière de Care](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-24-1-jw-care-darby-walsh/) | 24 Août 2026
+Judas | [Élever chacun au sein du collectif spirituel de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-4-1-jw-judas/) | 4 Septembre 2026
+Inayat Khan | [Écoutez avec votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-7-1-jw-inayat-khan/) | 7 Septembre 2026
+St Luc | [La guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-10-1-jw-st-luke/) | 10 Septembre 2026
+Arthur Conan Doyle | [Détectives de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-13-1-jw-arthur-conan-doyle/) | 13 Septembre 2026
+George Vale Owen | [Il est temps pour les Églises spiritualistes de s'élever dans l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-14-1-jw-george-vale-owen/) | 14 Septembre 2026
+Care Darby Walsh | [Permettre à votre âme, à votre vie, d'être transformées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-5-1-jw-care-darby-walsh/) | 5 Octobre 202
+
 
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

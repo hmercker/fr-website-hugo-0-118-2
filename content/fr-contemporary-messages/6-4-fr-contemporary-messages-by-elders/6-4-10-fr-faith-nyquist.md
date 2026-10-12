@@ -17,6 +17,7 @@ Il est possible de découvrir une série de vidéos, en anglais, relatives  à F
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
+Faith Nyquist | [Le maître de maison vous approuve](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-2-3-1-af-faith-nyquist/) | 3 Février 2014 
 Faith Nyquist | [Le simple voyage vous attend](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-9-1-af-faith/) | 9 Janvier 2016
 Faith Nyquist | [Qu'est-ce que la foi ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-23-1-af-faith/) | 23 Septembre 2017
 Faith Nyquist | [L'émerveillement de l'Amour Divin de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-9-1-af-faith/) | 9 Octobre 2017

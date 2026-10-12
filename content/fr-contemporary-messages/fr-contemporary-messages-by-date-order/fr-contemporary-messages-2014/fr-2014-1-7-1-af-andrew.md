@@ -1,0 +1,22 @@
+---
+title: "Nous ne pouvons pas interférer avec le libre arbitre de l'humanité"
+menu_title: ""
+description: "Nous ne pouvons pas interférer avec le libre arbitre de l'humanité"
+date: 2026-10-12 06:00:01+00:84
+draft: False
+hidden: True
+weight:
+---
+### Nous ne pouvons pas interférer avec le libre arbitre de l'humanité
+
+André - reçu par Al Fike le 07 Janvier 2014, Gibsons, Colombie-Britannique, Canada.
+
+S'il vous plaît, ne blâmez pas Dieu pour cette issue décevante, car c'est le résultat de la condition humaine. Même nous, habitants des Cieux Célestes, ne pouvons contrôler les événements sur cette terre comme vous pourriez le supposer. Pourtant, vos prières étaient puissantes et la lumière dans cette pièce était intense, je dois vous l'assurer. Les anges étaient présents. Mais nous ne pouvons pas interférer avec le libre arbitre de l'humanité.
+
+Et bien que la pièce fût emplie d'amour, l'issue n'était pas en harmonie avec la Volonté de Dieu. Telle est la condition humaine, celle à laquelle vous devez faire face chaque jour de votre vie. Et oui, vous aimeriez croire que tout est positif et lumineux, empreint de bonté et de justice. Malheureusement, ce n'est pas le cas, et c'est pourquoi vous êtes si nécessaires dans ce monde : pour repousser ces ténèbres, pour défier l'erreur, pour apporter l'amour là où il est absent. À bien des égards et en maintes occasions, vous réussissez, mais parfois les ténèbres sont trop grandes, l'ignorance trop profonde, et la rage, la colère... le jugement... ainsi que le manque d'amour font peser de lourds fardeaux sur les innocents.
+
+Ne laissez pas cela vous accabler, mes enfants ; ne permettez pas aux ténèbres d'affecter votre lumière. Ayez la foi, soyez avec Dieu. Sachez que Dieu vit en vos âmes avec Son Amour et qu'Il vit aussi dans l'âme de votre fils. Cette période durant laquelle il n'est pas libre n'est qu'un battement de cils à l'échelle de l'éternité, et il tirera profit de ce temps — de cette continuité. Continuez à prier pour lui, à l'aimer et à affronter les ténèbres, car de nombreux défis vous attendent.
+
+Un si grand mur de ténèbres contre lequel pousser, pousser encore ; qu'il faut repousser pour y apporter la lumière. Vous devez être forts. Vous serez forts. Et votre fils sera réconforté ; il se défera de son amertume et de sa colère. Il continuera à aspirer au bien, car il a véritablement franchi ce cap. Il ne faillira pas. Grâce à votre amour et à vos prières, il se sentira soutenu. Et nous serons toujours à ses côtés ; telle est notre promesse : nous serons toujours là pour lui, le protégeant et l'encourageant à se tourner vers la lumière. Dieu touchera son âme lorsqu'il priera, et nous apporterons inspiration et paix à ses pensées. Ses efforts seront couronnés de succès. Et lorsque viendra pour lui le moment d'être libéré, il sera parfaitement préparé à sa nouvelle vie.
+
+Soyez rassurée, ma fille (Jeanne) : il est en sécurité, Dieu veille sur lui et il réussira. Bien que vous brûliez d'envie de le serrer dans vos bras et de le guider vers des horizons meilleurs, vous devez faire preuve de patience ; en fin de compte, la lumière triomphera des ténèbres. L'amour apportera la guérison ; la sagesse habitera son âme. Car il gagne en force et continuera de se renforcer au fil de cette épreuve. Ses actes inconsidérés du passé offrent en effet aux forces négatives l'occasion de tenter de l'étouffer, de l'accabler, de le tourmenter et de l'éloigner de la lumière... mais je vous le dis : la lumière l'emportera et la volonté de Dieu prévaudra. Encore un peu de patience, mon enfant, encore un peu de patience. Persévérez dans vos prières et votre vigilance constante. Nous sommes toujours auprès de vous et de lui. Et même si votre vie ne correspond pas tout à fait à vos souhaits, une grande lumière brille et une œuvre immense reste à accomplir en cette période. Nous nous réjouissons de ces opportunités et de ces possibilités. Ne laissez pas ce poids vous accabler ; ayez foi, car il est entre les mains de Dieu, tout comme vous et chacun d'entre vous ici. Que la paix soit sur vous, chères et douces âmes. Paix et amour, paix et amour, grâce guérisseuse et toucher bienveillant. Que la bénédiction soit sur vous. André vous aime. Bonne nuit.

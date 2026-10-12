@@ -246,6 +246,7 @@ Orion | [Affranchissez-vous de votre condition humaine pour devenir un véritabl
 Orion | [Être un véritable instrument exige courage et foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-7-1-af-orion/) | 7 Août 2026 
 Orion | [Prenez conscience de vos obstacles réflexes et inconscients](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-11-1-af-orion/) | 11 Août 2026
 Orion | [Des choses merveilleuses se produiront une fois que vous serez en parfaite harmonie avec la volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-14-1-af-orion/) | 14 Août 2026 
+Orion | [Enseignement sur les trois esprits : matériel, spirituel et celui de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-22-1-af-orion/) | 22 Août 2026 
 
 
 

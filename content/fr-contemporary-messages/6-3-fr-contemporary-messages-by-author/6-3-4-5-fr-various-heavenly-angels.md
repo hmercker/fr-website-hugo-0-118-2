@@ -59,6 +59,7 @@ Grace Jordan | [Demandez à Dieu d'établir la conscience de l'Amour dans votre 
 Grace Jordan | [Un acte de Foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-13-2-af-grace-jordan/) | 13 Janvier 2026
  ||<p align="center"><span style="color:red">**Autres Anges Célestes**</span></p> | |
 Isabelle | [Se présente comme la guide de Sonja pour son anniversaire ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-16-2-af-isabel/) | 16 Janvier 2025
+James  | [Vous êtes une lumière dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-1-2-af-james/) | 1 Décembre 2014 
 James | [Découvrir le fonctionnement des lois spirituelles dans votre vie grâce à l'étude et à l'observation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-1-2-mc-james/) | 1 Mars 2026
 James Tudor Sr. | [Laissez les morts enterrer les morts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-1-21-2-af-james-tudor-sr/) | 21 Janvier 2024
 James Tudor Sr | [Exprime sa déception face aux changements culturels à la Barbade ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-1-22-2-af-james-tudor-sr/) | 22 Janvier 2025

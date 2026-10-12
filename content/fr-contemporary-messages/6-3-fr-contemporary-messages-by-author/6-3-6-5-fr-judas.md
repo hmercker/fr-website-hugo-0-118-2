@@ -280,6 +280,7 @@ Judas | [Dieu étanchera la faim et la soif de chaque âme](/fr-contemporary-mes
 Judas | [Dieu prend en charge les tâches les plus difficiles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-7-1-jw-judas/) | 7 Juin 2026
 Judas | [La joie spirituelle s'obtient dans la grâce](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-20-1-jw-judas/) | 20 Juillet 2026
 Judas | [Libre arbitre et Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-17-1-jw-judas/) | 17 Août 2026
+Judas | [Élever chacun au sein du collectif spirituel de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-4-1-jw-judas/) | 4 Septembre 2026
 
 
 
