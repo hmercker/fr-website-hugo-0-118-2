@@ -1,0 +1,28 @@
+---
+title: "Lorsque vous marchez dans la Lumière, les autres réagissent ; certains avec Amour, d'autres avec Colère"
+menu_title: ""
+description: "Lorsque vous marchez dans la Lumière, les autres réagissent ; certains avec Amour, d'autres avec Colère"
+date: 2026-10-16 06:00:01+00:09
+draft: False
+hidden: True
+weight:
+---
+### Lorsque vous marchez dans la Lumière, les autres réagissent ; certains avec Amour, d'autres avec Colère
+
+André - reçu par Albert Fike le  1<sup>er</sup> Juin, Cercle de prière, Gibsons, Colombie-Britannique.
+
+[Cher Père Céleste ] *« …nous demandons une bénédiction pour chacune de ces âmes précieuses rassemblées dans ce lieu sanctuaire ; qu’elles soient bénies par Ton Amour, par un afflux abondant en leur sein ; et que cette bénédiction d’Amour s’accompagne d’une ouverture de leur conscience, de la dissipation de ce qui les sépare de Toi, cher Père, et d’une puissante communion avec Toi dans une paix aimante et bienveillante ; que leurs yeux s’ouvrent, qu’elles connaissent pleinement Ta présence, qu’elles voient la gloire de Ta création, de Ton Être, de Ton Amour ; qu’elles marchent dans cette lumière de conscience ; que Tu places en elles, cher Père, un désir ardent de recevoir Ton Amour à chaque souffle. Et tandis qu’elles marchent dans Ta lumière, qu’elles soient de purs canaux de Ton Amour. À chaque pas qu’elles font, à chaque souffle qu’elles prennent, qu’elles soient un canal de Ton Amour pour apporter l’harmonie, la guérison et la connaissance de la vérité dans ce monde. Guide-les, cher Père, sur le chemin. Aide-les à voir clairement la voie ; et que les doutes et les peurs inhérents à la condition humaine se dissipent grâce à l’afflux de cet Amour abondant, afin qu’elles connaissent la paix et la certitude, une foi profonde et la compréhension ; qu’elles marchent avec force ; qu’elles connaissent cette vérité simple : elles sont aimées, elles sont belles, elles T’appartiennent et sont Tes enfants. Père, guide-les afin qu’elles sachent avec certitude qu’elles sont aimées. »*
+
+Les anges vous entourent, mes enfants. L’Amour se déverse dans vos âmes. La guérison est abondante et dissipe les états que vous portez en vous alors que vous traversez ce monde. Puissiez-vous connaître la paix, mes enfants, cette paix qui dépasse toute compréhension ; puissiez-vous ouvrir les yeux à la vérité, à la puissance et à la gloire de l’Amour du Père, qui vous conduiront vers ce lieu de clarté, de force, de paix et de certitude.
+
+Oui, il n’y a rien à craindre ; et même si d’autres vous accablent de leurs attaques, la lumière en vous résistera à l’assaut, la sagesse intérieure vous donnera la force, la clarté de l’âme vous montrera la voie à suivre, et la compassion jaillira de votre être envers ceux qui vous agressent. Car derrière ces assauts négatifs se cachent la peur ainsi qu’un désir de pouvoir et de contrôle. Beaucoup ignorent tout de ces états intérieurs et s’en prennent aux autres sans comprendre l’origine de leurs actes. Leurs âmes souffrent et peinent à trouver ce que vous avez découvert.
+
+Oui, telles sont les réalités de ce monde, mes enfants. Tant de souffrance, tant de profonds malentendus. Lorsque vous marchez dans la lumière, les autres réagissent ; certains avec amour, d’autres avec colère. Quant à vous, mes enfants, vous devez avancer avec la certitude d’être auprès du Père céleste et avec le désir d’accomplir Sa volonté. Ainsi, vos prières, vos aspirations et les élans de votre âme s’harmoniseront avec l’Amour qui réside en vous.
+
+Suivez cette voie, mes enfants, suivez ce chemin d’Amour. Faites preuve de compassion. Soyez forts. Ne doutez pas. On tentera toujours d’éteindre la lumière. Il en a toujours été ainsi, mes enfants. C’est pourquoi il vous est demandé de prier pour recevoir cet Amour, cette protection, cette force, cette connaissance et cette sagesse. Car à mesure que vous grandirez dans l’Amour, ce que vous redoutiez et ce qui vous fait souffrir aujourd’hui perdra toute importance ; cela se détachera de vous sans causer ni douleur ni trouble. L’Amour vous donnera la force. L’Amour vous apportera cette clairvoyance. L’Amour vous inspirera la compassion.
+
+Enfants bénis, vous qui êtes de si belles lumières en ce monde, marchez avec nous. Marchez selon la volonté de Dieu, et tout sera harmonie, empli d’une exaltation aimante, d’une perception profonde et puissante, ainsi que d’un amour et d’une compassion grandissants pour votre prochain. Il n’y a rien à craindre. Une porte merveilleuse s’ouvre pour chacun d’entre vous. Puissiez-vous avoir la clairvoyance et la perception nécessaires pour franchir cette porte dans la foi et l’amour, et devenir un puissant canal de l’Amour du Père, un agent de changement dans ce monde, un porteur de vérité, apportant guérison et réconfort à beaucoup.
+
+Belles âmes, je suis André. Je vous aime. Je vous aime tendrement. Quant à cet instrument, qu’il ne doute pas de ses perceptions et ne vacille pas sous l’effet de la peur. Il accède à un nouveau niveau de compréhension, suscitant ainsi des ondes de réaction et de réponse. D’autres perceptions plus profondes et des réactions plus intenses suivront, mais il poursuit sa mission en restant fidèle au désir de son âme. Il est toujours nécessaire de cultiver une compréhension accrue et de faire preuve de sagesse en toutes choses. Il apprendra. L’harmonie, la force et l’humilité seront au rendez-vous.
+
+Soyez bénis, mes enfants. Soyez bénis pour vos aspirations, votre désir d’atteindre les sommets, votre intégrité et votre force, votre amour et votre bonne volonté. Soyez bénis. Je vous aime, tout comme tant d’autres.

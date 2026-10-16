@@ -75,6 +75,7 @@ Nuage Blanc | [L'importance de la Voix Directe](/fr-contemporary-messages/fr-con
 Nuage Blanc | [Apprenez à lancer des pensées d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-143-1970-anonymous-white-cloud/) |   1970
 Nuage Blanc | [Vivez ces vérités](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-158-1970-anonymous-white-cloud/) |   1970
 Nuage Blanc | [Conférence sur la guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-163-1970-anonymous-white-cloud/) |   1970
+Nuage Blanc | [Tant de gens dans ce monde se détournent de la Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-13-1-af-white-cloud/) | 13 Mai 2013 
 Nuage Blanc | [Le monde a besoin de vos prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-2-2-af-white-cloud/) | 2 Décembre 2016
 Nuage Blanc | [L'amour réveillera votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-28-2-af-white-cloud/) | 28 Septembre 2017
 Nuage Blanc | [Dites la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-11-2-af-white-cloud/) | 11 Novembre 2017

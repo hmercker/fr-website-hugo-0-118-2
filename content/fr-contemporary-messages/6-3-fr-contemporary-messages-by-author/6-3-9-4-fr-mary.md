@@ -65,6 +65,10 @@ Marie | [L'étoffe de l'éternité](/fr-contemporary-messages/fr-contemporary-me
 Marie | [Je suis la chaleur de ton cœur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-7-18-1-cog-mary/) | 18 Juillet 2012
 Marie | [Se soumetre à l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2012/fr-2012-12-7-1-hm-mary/) | 7 Décembre 2012
 Marie | [Unis par l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-18-1-hm-mary/) | 18 Janvier 2013
+Marie | [Soyez un exemple pour les autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-18-3-af-mary/) | 18 Mars 2013 
+Marie | [Aspirez à une dimension supérieure](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-10-1-af-mary/) | 10 Juin 2013
+Marie | [De nombreuses opportunités et expériences à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-29-2-af-mary/) | 29 Juin 2013 
+Marie | [La puissance de l'Amour divin est plus grande que toute bénédiction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-7-13-3-af-mary/) | 13 Juillet 2013 
 Marie | [Avancez dans cette rivière d’Amour et lâchez prise](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-19-1-af-mary/) | 19 Mai 2014
 Marie | [Utilisez votre don de la vie de manière optimale](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-15-1-af-mary/) | 15 Décembre 2014
 Marie | [L'amour régnera en maître](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-31-3-af-mary/) | 31 Décembre 2014 

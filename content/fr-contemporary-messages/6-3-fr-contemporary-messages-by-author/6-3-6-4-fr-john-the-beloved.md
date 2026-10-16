@@ -13,6 +13,9 @@ weight:
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
+Jean le Bien Aimé | [Continuez à suivre la Voie Divine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-18-2-af-john-the-beloved/) | 18 Mars 2013
+Jean le Bien Aimé | [La compréhension grandira et l'erreur tombera](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-20-3-af-john-the-beloved/) | 20 Avril 2013 
+Jean le Bien Aimé | [Cela fait partie de la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-24-2-af-john-the-beloved/) | 24 Juin 2013
 Jean le Bien Aimé | [Marchez dans la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-21-2-af-john-the-beloved/) | 21 Mai 2014
 Jean le Bien Aimé | [Luttant pour donner un sens au monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-3-16-1-af-john-the-beloved/) | 16 Mars 2015
 Jean le Bien Aimé | [Les vents du changement soufflent sur ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-7-25-1-af-john-the-beloved/) | 25 Juillet 2015

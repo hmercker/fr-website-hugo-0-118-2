@@ -21,6 +21,9 @@ Confucius | [Confucius et le monde des esprits.](/fr-contemporary-messages/fr-co
 Confucius | [Le Confucianisme et le présent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2006/fr-2006-4-17-1-fab-confucius/) | 17 Avril 2006
 Confucius | [La sagesse ancienne de l'humanité et la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-11-18-1-fab-confucius/) | 18 Novembre 2007
 Confucius | [L'humanité construit ses fondations](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-6-7-1-fab-confucius/) | 7 Juin 2008
+Confucius | [Ouvrez les yeux et soyez aimants dans ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-6-2-af-confucius/) | 6 Mars 2013
+Confucius | [L'humilité apporte l'harmonie, la grâce et la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-1-3-af-confucius/) | 1 Juin 2013
+Confucius | [Ayez de la compassion pour ceux qui se trouvent dans un état négatif](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-7-13-1-af-confucius/) | 13 Juillet 2013
 Confucius | [Marcher sur le Chemin de la Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-8-1-af-confucius/) | 8 Janvier 2014 
 Confucius | [Vous êtes assis dans la Lumière et désirez que l’Amour de Dieu pénètre vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-2-10-1-af-confucius/) | 10 Février 2014
 Confucius | [La vérité vient par la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-3-1-1-af-confucius/) | 1 Mars 2014

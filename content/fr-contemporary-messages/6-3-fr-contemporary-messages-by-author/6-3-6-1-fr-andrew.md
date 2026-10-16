@@ -40,6 +40,8 @@ André | [Les yeux de l’Amour](/fr-contemporary-messages/fr-contemporary-messa
 André | [La foi non compromise](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-8-9-1-ks-andrew/) | 9 Août 2002
 André | [Appel à une aide supérieure](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-11-9-1-ks-andrew/) | 9 Novembre 2003
 André | [L'or et l'argent vous entourent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-1-19-1-ks-andrew/) | 19 Janvier 2005
+André | [Soyez en paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-9-2-af-andrew/) | 9 Janvier 2013 
+André | [Lorsque vous marchez dans la Lumière, les autres réagissent ; certains avec Amour, d'autres avec Colère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-1-1-af-andrew/) | 1 Juin 2013 
 André | [Nous ne pouvons pas interférer avec le libre arbitre de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-7-1-af-andrew/) | 7 Janvier 2014 
 André | [Le grand objectif est le salut de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-27-1-af-andrew/) | 27 Janvier 2014 
 André | [Priez ensemble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-17-1-af-andrew/) | 17 Mai 2014

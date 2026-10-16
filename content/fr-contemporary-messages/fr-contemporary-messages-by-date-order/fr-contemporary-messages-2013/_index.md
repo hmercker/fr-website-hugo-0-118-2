@@ -20,6 +20,8 @@ Le Père Céleste | [L'Amour du Père](/fr-contemporary-messages/fr-contemporary
 Le Père Céleste | [Connaître la vraie liberté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-8-1-cog-father/) | 8 Janvier 2013
 Jésus | [Devenez un adepte de mes enseignements](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-8-2-hm-jesus/) | 8 Janvier 2013
 Le Père Céleste | [Le réseau d'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-9-1-hm-father/) | 9 Janvier 2013
+André | [Soyez en paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-9-2-af-andrew/) | 9 Janvier 2013
+Augustin | [Vos efforts, votre engagement et votre amour ont créé une grande lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-9-3-af-augustine/) | 9 Janvier 2013
 Le Père Céleste | [Unis à travers l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-15-1-hm-father/) | 15 Janvier 2013
 Père | [Seul l’amour peut dissoudre l’illusion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-16-1-cog-father/) | 16 Janvier 2013
 Le Père Céleste | [Je suis ta lumière directrice à tout moment](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-17-1-cog-father/) | 17 Janvier 2013
@@ -38,12 +40,17 @@ Le Père Céleste | [Ne laissez pas votre mental limiter votre pensée](/fr-cont
 Le Père Céleste | [Vous êtes uniques](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-2-10-1-cog-father/) | 10 Février 2013
 Le Père Céleste | [Gardez votre foi en moi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-2-14-1-michael-father/) | 14 Février 2013
 Le Père Céleste | [Je n'ai besoin que de ton désir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-2-16-1-cog-father/) | 16 Février 2013
+Judas | [C'est un fondement solide](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-2-18-1-af-judas/) | 18 Février 2013
 Allen Dulles | [La mort à l’américaine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-2-19-1-fab-allen-dulles/) | 19 Février 2013
 Allen Dulles | [La mort à l’américaine-2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-2-21-1-fab-allen-dulles/) | 21 Février 2013
 Walt Disney | [La mentalité de guerre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-2-21-2-fab-walt-disney/) | 21 Février 2013
+Augustin | [Priez plus intensément et plus souvent pour cet Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-2-23-1-af-augustine/) | 23 Février 2013
+Jésus | [Priez pour être guidés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-2-23-2-af-jesus/) | 23 Février 2013
+Jésus | [Priez pour que la puissance de l’Amour Divin emplisse votre monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-2-23-3-bd-jesus/) | 23 Février 2013
 Le Père Céleste | [Accordez vos cordes à la fréquence de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-2-24-1-cog-father/) | 24 Février 2013
 Prolotheos | [Évolution](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-2-1-vs-prolotheos/) | 2 Mars 2013
 Woodrow Wilson | [Un président s’explique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-6-1-fab-woodrow-wilson/) | 6 Mars 2013
+Confucius | [Ouvrez les yeux et soyez aimants dans ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-6-1-af-confucius/) | 6 Mars 2013
 John D Rockefeller | [John D. Rockefeller se décrit lui-même](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-11-1-fab-john-d-rockefeller/) | 11 Mars 2013
 Nelson Rockefeller | [Pas de solution pour les Rockefeller](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-11-2-fab-nelson-rockefeller/) | 11 Mars 2013
 John D Rockefeller | [John D. Rockefeller se décrit lui-même - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-13-1-fab-john-d-rockefeller/) | 13 Mars 2013
@@ -54,22 +61,48 @@ Frederick T. Gates | [Un collègue de John D. Rockefeller SR. confirme son chann
 John D Rockefeller | [Le regard de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-16-2-fab-john-d-rockefeller/) | 16 Mars 2013
 Le Père Céleste | [Vous êtes chez vous dans Mon Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-17-1-cog-father/) | 17 Mars 2013
 Jésus | [La relation réflétée de nos parents et de notre Père](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-17-2-cog-jesus/) | 17 Mars 2013
+Alec Gaunt | [Continuez à grandir dans l'Amour, continuez à cultiver votre lien avec le Créateur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-18-1-af-alec-gaunt/) | 18 Mars 2013
+Jean le Bien Aimé | [Continuez à suivre la Voie Divine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-18-2-af-john-the-beloved/) | 18 Mars 2013
+Marie | [Soyez un exemple pour les autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-18-3-af-mary/) | 18 Mars 2013
 Colonel Prouty | [Le Colonel Prouty décrit son travail](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-21-1-fab-colonel-prouty/) | 21 Mars 2013
 Jésus | [Encouragement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-22-1-fab-jesus/) | 22 Mars 2013
 John Fitzgerald Kennedy | [La pensée réconfortante d’un président](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-25-1-fab-john-f-kennedy/) | 25 Mars 2013
 Oscar Romero | [Le réconfort d’un martyr de la Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-29-1-fab-oscar-romero/) | 29 Mars 2013
 Le Père Céleste | [Vous êtes mes anges sur terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-1-1-cog-father/) | 1<sup>er</sup> Avril 2013
 Jackie Gleason | [Clarification de Jackie Gleason](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-5-1-fab-jackie-gleason/) | 5 Avril 2013
+Augustin | [Ce n’est pas une récompense ; c’est votre droit de naissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-6-1-af-augustine/) | 6 Avril 2013
+Jésus | [Bénis soyez-vous dans votre communion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-6-2-af-jesus/) | 6 Avril 2013
 Reine Liliuokalani | [Un message de réconfort d’une Reine](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-9-1-fab-queen-liliuokalani/) | 9 Avril 2013
+Augustin | [Apprenez à vous connaître](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-20-1-af-augustine/) | 20 Avril 2013
+Goldie | [Il est temps de danser la danse de la joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-20-2-af-goldie/) | 20 Avril 2013
+Jean le Bien Aimé | [La compréhension grandira et l'erreur tombera](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-20-3-af-john-the-beloved/) | 20 Avril 2013 
+Augustin | [À mesure que vous mettrez à l'épreuve vos dons et vos capacités, vous gagnerez en confiance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-29-1-af-augustine/) | 29 Avril 2013
+Keea Atta Kem | [Un pas à la fois](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-29-2-af-keea-atta-kem/) | 29 Avril 2013
 Jésus | [Paix, première partie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-30-1-jg-jesus/) | 30 Avril 2013
 Le Père Céleste | [Sois Mon Amour pour changer le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-1-1-cog-father/) | 1<sup>er</sup> Mai 2013
+Jésus | [Chacun de vous a un rôle à jouer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-4-1-af-jesus/) | 4 Mai 2013
+Joseph | [Ne craignez pas, mais aimez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-4-2-af-joseph/) | 4 Mai 2013
 Le Père Céleste | [Je touche ton âme avec un baiser silencieux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-5-1-cog-father/) | 5 Mai 2013
 Pablo Neruda | [Communistes – 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-5-2-fab-pablo-neruda/) | 5 Mai 2013
 Jésus | [Paix, partie II](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-7-1-jg-jesus/) | 7 Mai 2013
+Nuage Blanc | [Tant de gens dans ce monde se détournent de la Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-13-1-af-white-cloud/) | 13 Mai 2013 
 Le Père Céleste | [Ta joie est ma récompense](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-19-1-cog-father/) | 19 Mai 2013
 Le Père Céleste | [Tu as marché seul, maintenant réveille-toi à Mon Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-20-1-cog-father/) | 20 Mai 2013
+Jésus | [On a profondément besoin de vous dans ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-27-1-af-jesus/) | 27 Mai 2013
+Augustin | [La transformation de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-30-1-af-augustine/) | 30 Mai 2013
+André | [Lorsque vous marchez dans la Lumière, les autres réagissent ; certains avec Amour, d'autres avec Colère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-1-1-af-andrew/) | 1 Juin 2013
+Jésus | [Bénédictions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-1-2-af-jesus/) | 1 Juin 2013
+Confucius | [L'humilité apporte l'harmonie, la grâce et la paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-1-3-af-confucius/) | 1 Juin 2013
 Jésus | [N’ayez pas peur de marcher sur le chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-2-1-bs-jesus/) | 2 Juin 2013
+Marie | [Aspirez à une dimension supérieure](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-10-1-af-mary/) | 10 Juin 2013
+Jésus | [Guérison profonde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-10-2-af-jesus/) | 10 Juin 2013
+Augustin | [Voir au-delà des créations superficielles de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-24-1-af-augustine/) | 24 Juin 2013
+Jean le Bien Aimé | [Cela fait partie de la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-24-2-af-john-the-beloved/) | 24 Juin 2013
 Jésus | [L’Esprit de Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-29-1-af-jesus/) | 29 Juin 2013
+Marie | [De nombreuses opportunités et expériences à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-29-1-af-mary/) | 29 Juin 2013 
+Confucius | [Ayez de la compassion pour ceux qui se trouvent dans un état négatif](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-7-13-1-af-confucius/) | 13 Juillet 2013
+Goldie | [Sachez que Dieu vous aime tellement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-7-13-2-af-goldie/) | 13 Juillet 2013
+Marie | [La puissance de l'Amour divin est plus grande que toute bénédiction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-7-13-3-af-mary/) | 13 Juillet 2013 
 Le Père Céleste | [Vos mots sont les vôtres comme ils sont les miens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-7-19-1-cog-father/) | 19 Juillet 2013
 Le Père Céleste | [Ton cœur est le lieu où repose Mon Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-7-21-1-cog-father/) | 21 Juillet 2013
 Le Père Céleste | [Mon amour vit et tu le sens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-7-28-1-cog-father/) | 28 Juillet 2013

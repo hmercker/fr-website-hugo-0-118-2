@@ -23,6 +23,7 @@ Alec Gaunt est décédé en 1970.
 
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
+Alec Gaunt | [Continuez à grandir dans l'Amour, continuez à cultiver votre lien avec le Créateur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-18-1-af-alec-gaunt/) | 18 Mars 2013
 Alec Gaunt | [Le monde change](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-7-6-1-af-alec-gaunt/) | 6 Juillet 2015
 Alec Gaunt | [Vous devez être des exemples](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-17-1-af-alec-gaunt/) | 17 Mars 2016
 Alec Gaunt | [La loi du changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-27-1-af-alec-gaunt/) | 27 Avril 2016

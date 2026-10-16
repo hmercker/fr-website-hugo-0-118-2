@@ -45,7 +45,6 @@ Judas | [Expérience de Judas des enfers](/fr-contemporary-messages/fr-contempor
 Judas | [Lumière spirituelle ou Vibrations spirituelles ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-7-1-hr-judas/) | 7 Septembre 2001
 Judas | [La zone crépusculaire et Summerland](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-8-1-hr-judas/) | 8 Septembre 2001
 Judas | [Diverses questions concernant le passage vers l’au-delà](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-9-1-hr-judas/) | 9 Septembre 2001
-Judas | [Recommencer à zéro](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-9-3-jw-judas/) | 9 Septembre 2021
 Judas | [Une question sur l’épître aux Éphésiens](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-10-1-hr-judas/) | 10 Septembre 2001
 Judas | [Que pouvons-nous faire pour compenser les effets du mal ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-15-1-hr-judas/) | 15 Septembre 2001
 Judas | [La seconde sphère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-16-1-hr-judas/) | 16 Septembre 2001
@@ -201,6 +200,7 @@ Judas | [La parabole des deux chambres](/fr-contemporary-messages/fr-contemporar
 Judas | [Contenants de pensée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-5-24-1-hr-judas/) | 24 Mai 2003
 Judas | [Le monde d’un enfant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-6-29-1-hr-judas/) | 29 Juin 2003
 Judas | [La suite des pensées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-6-30-1-hr-judas/) | 30 Juin 2003
+Judas | [C'est un fondement solide](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-2-18-1-af-judas/) | 18 Février 2013
 Judas | [Racheté par le pouvoir de l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-10-11-1-af-judas/) | 11 Octobre 2014
 Judas | [Le but de l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-31-2-af-judas/) | 31 Mars 2016
 Judas | [Mettez de côté les objectifs et les ambitions de votre mental](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-29-2-af-judas/) | 29 Novembre 2016
@@ -224,6 +224,7 @@ Judas | [Représentations du monde des esprits au cinéma](/fr-contemporary-mess
 Judas | [La prière est la réponse à tous les problèmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-22-2-jw-judas/) | 22 Juillet 2021
 Judas | [La présence de l’Amour dans nos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-7-26-1-jw-judas/) | 26 Juillet 2021
 Judas | [Dieu aime tous Ses enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-8-30-1-jw-judas/) | 30 Août 2021
+Judas | [Recommencer à zéro](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-9-3-jw-judas/) | 9 Septembre 2021
 Judas | [Énergie Céleste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-10-18-1-jw-judas/) | 18 Octobre 2021
 Judas | [Astronautes spirituels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-1-11-1-jw-judas/) | 11 Janvier 2022
 Judas | [Soyez des explorateurs de l’âme !](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-1-20-1-jw-judas/) | 20 Janvier 2022

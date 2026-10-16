@@ -1,7 +1,7 @@
 ---
-title: "Il est temps pour les Églises spiritualistes de s'élever dans l'amour de Dieu"
+title: "Il est temps pour les Églises spiritualistes de s'élever dans l'Amour de Dieu"
 menu_title: ""
-description: "Il est temps pour les Églises spiritualistes de s'élever dans l'amour de Dieu"
+description: "Il est temps pour les Églises spiritualistes de s'élever dans l'Amour de Dieu"
 date: 2026-10-12 06:00:01+00:01
 draft: False
 hidden: True

@@ -16,6 +16,8 @@ weight:
 Goldie | [S'exprimer en tant qu'enseignant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-7-1969-3-25-anonymous-goldie/) | 25 Mars 1969
 Goldie | [Vous ne pouvez grandir que pas à pas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-34-1969-11-1-anonymous-goldie/) | 1 Novembre 1969
 Goldie | [Une mission spéciale de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-108-1969-anonymous-goldie/) |   1969
+Goldie | [Il est temps de danser la danse de la joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-20-2-af-goldie/) | 20 Avril 2013
+Goldie | [Sachez que Dieu vous aime tellement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-7-13-2-af-goldie/) | 13 Juillet 2013
 Goldie | [Jésus vous veut pour un rayon de soleil](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-20-2-af-goldie/) | 20 Mai 2014
 Goldie | [Oui, nous apportons de la joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-10-20-2-af-goldie/) | 20 Octobre 2014 
 Goldie | [L’Amour Divin apporte des surprises](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-10-19-1-af-goldie/) | 19 Octobre 2016

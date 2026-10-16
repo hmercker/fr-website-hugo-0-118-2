@@ -31,6 +31,7 @@ Joseph | [Suivre les conseils](/fr-contemporary-messages/fr-contemporary-message
 Joseph | [La prière, la meilleure préparation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-9-30-1-ks-joseph/) | 30 Septembre 2001
 Joseph | [Vivre dans l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2001/fr-2001-12-2-1-ks-joseph/) | 2 Décembre 2001
 Joseph | [C’est vous qui fixez le rythme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-3-23-1-ks-joseph/) | 23 Mars 2004
+Joseph | [Ne craignez pas, mais aimez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-4-2-af-joseph/) | 4 Mai 2013
 Joseph | [Mémoires](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-2-11-1-wv-joseph/) | 11 Février 2014
 Joseph | [Récupérer des souvenirs traumatiques](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-2-18-1-wv-joseph/) | 18 Février 2014
 Joseph | [Où sont mes propres limites ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-9-6-1-wv-joseph/) | 6 Septembre 2014

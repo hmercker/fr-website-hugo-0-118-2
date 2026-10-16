@@ -13,7 +13,7 @@ Judas - reçu par Jimbeau Walsh le 9 Septembre 2021, Punalu’u, Oahu, Hawaii, U
 
 C’est moi, Judas.
 
-Bonne année, mes chers amis, Rosh Hashanah <sup id=a1">[1](#f1)</sup> ! C’est un bon moment pour recommencer, pour changer de cap, pour marcher dans la foi.
+Bonne année, mes chers amis, Rosh Hashanah <sup id="a1">[1](#f1)</sup> ! C’est un bon moment pour recommencer, pour changer de cap, pour marcher dans la foi.
 
 La Volonté de Dieu permet que tout soit en harmonie dans l’ensemble du tableau. Et malgré toutes les in-harmonies créées par le libre arbitre, aucune force ne peut perturber la structure harmonieuse et l’être de l’univers créé dans l’amour et la lumière par Dieu. Quelle sera votre résolution pour la nouvelle année ? Que souhaitez-vous pour votre propre âme ? Car comme vous l’avez dit, une âme transformée, une âme vivant dans la Grâce, attire à elle toutes les choses bonnes et parfaites. Ce magnétisme est la grande attraction, pour tous les êtres, du désir d’amour.
 

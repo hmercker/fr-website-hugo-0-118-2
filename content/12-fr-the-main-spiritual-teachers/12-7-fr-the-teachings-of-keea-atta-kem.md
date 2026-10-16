@@ -28,6 +28,7 @@ Keea Atta Kem | [Plus vous donnez de l'amour et de la compréhension aux autres,
 Keea Atta Kem | [St. Augustin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-152-1970-anonymous-keea-atta-kem/) |   1970
 Keea Atta Kem | [C'est le développement de l'âme qui est important pour l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-49-1970-1-8-anonymous-keea-atta-kem/) | 8 Janvier 1970
 Keea Atta Kem | [Effet curatif des couleurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-54-1970-7-26-anonymous-keea-atta-kem/) | 26 Juillet 1970
+Keea Atta Kem | [Un pas à la fois](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-29-2-af-keea-atta-kem/) | 29 Avril 2013
 Keea Atta Kem | [Utiliser la gratitude pour éliminer les pensées négatives](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-9-14-1-af-keea-atta-kem/) | 14 Septembre 2015
 || <p align="center"><span style="color:red">**Pour les années 2016 à 2019**</span></p> | |
 Keea Atta Kem | [Accepter chaque âme unique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-16-1-af-keea-atta-kem/) | 16 Janvier 2016

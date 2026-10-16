@@ -37,6 +37,13 @@ Augustin | [Atteindre le plus haut](/fr-contemporary-messages/fr-contemporary-me
 Augustin | [Enseigner de manière simple](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-106-1970-anonymous-augustine/) |   1970
 Augustin | [Le plus grand cadeau de tous est l'Amour Divin de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-140-1970-anonymous-augustine/) |   1970
 Augustin | [La raison pour laquelle l'âme est née sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-151-1970-anonymous-augustine/) |   1970
+Augustin | [Vos efforts, votre engagement et votre amour ont créé une grande lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-9-3-af-augustine/) | 9 Janvier 2013
+Augustin | [Priez plus intensément et plus souvent pour cet Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-2-23-1-af-augustine/) | 23 Février 2013
+Augustin | [Ce n’est pas une récompense ; c’est votre droit de naissance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-6-1-af-augustine/) | 6 Avril 2013
+Augustin | [Apprenez à vous connaître](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-20-1-af-augustine/) | 20 Avril 2013
+Augustin | [À mesure que vous mettrez à l'épreuve vos dons et vos capacités, vous gagnerez en confiance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-29-1-af-augustine/) | 29 Avril 2013
+Augustin | [La transformation de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-30-1-af-augustine/) | 30 Mai 2013
+Augustin | [Voir au-delà des créations superficielles de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-24-1-af-augustine/) | 24 Juin 2013
 Augustin | [Marcher sur le chemin Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-18-3-af-augustine/) | 18 Mai 2014
 Augustin | [Les vents du changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-22-1-af-augustine/) | 22 Mai 2014
 Augustin | [Le libre arbitre fait que le monde est libre. Rien n’est garanti](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-7-26-1-af-augustine/) | 26 Juillet 2014
