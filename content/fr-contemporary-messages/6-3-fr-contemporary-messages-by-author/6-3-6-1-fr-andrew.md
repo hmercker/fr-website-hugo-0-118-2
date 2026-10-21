@@ -42,7 +42,7 @@ André | [Appel à une aide supérieure](/fr-contemporary-messages/fr-contempora
 André | [L'or et l'argent vous entourent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2005/fr-2005-1-19-1-ks-andrew/) | 19 Janvier 2005
 André | [Soyez en paix](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-9-2-af-andrew/) | 9 Janvier 2013 
 André | [Lorsque vous marchez dans la Lumière, les autres réagissent ; certains avec Amour, d'autres avec Colère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-1-1-af-andrew/) | 1 Juin 2013 
-André | [Entrez dans la Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-9-9-1-af-andrew/) | 9 Septembre 
+André | [Entrez dans la Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-9-9-1-af-andrew/) | 9 Septembre 2013
 André | [Suivre ce chemin, c’est marcher dans la véritable Vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-9-21-1-af-andrew/) | 21 Septembre 2013
 André | [Sachez que vous marchez dans la Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-10-4-1-af-andrew/) | 4 Octobre 2013
 André | [Nous ne pouvons pas interférer avec le libre arbitre de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-7-1-af-andrew/) | 7 Janvier 2014 

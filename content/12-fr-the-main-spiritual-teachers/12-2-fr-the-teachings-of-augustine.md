@@ -12,11 +12,6 @@ weight: 702
 **Auteur** | **Titre du message** | **Date du message**  
 ---|---|---
 || <p align="center"><span style="color:red">**Pour les années 1915 à 2015**</span></p> | |
-Augustin | [Les manifestations physiques du changement s'accompagneront de calamités et de perturbations](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-5-1-af-augustine/) | 5 Janvier 2014 
-Augustin | [Avec foi et confiance, Dieu vous mènera vers des lieux surprenants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-10-20-1-af-augustine/) | 20 Octobre 2014 
-Augustin | [Il est bien des oreilles qui ne veulent pas entendre, et pourtant, leurs âmes ressentiront l'appel retentissant à venir vers Dieu de cette manière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-22-1-af-augustine/) | 22 Décembre 2014
-Augustin | [Libérez-vous des conditions de ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-31-1-af-augustine/) | 31 Décembre 2014 
-Augustin | [Augustin explique que l’on ne peut pas faire confiance aux enseignements de la Bible](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-7-2-jep-augustine/) | 7 Août 1915
 Augustin | [Nous devons faire un plus grand effort pour recevoir de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1963/fr-1963-4-15-3-anonymous-augustine/) | 15 Avril 1963
 Augustin | [Vous connaissez les vôtres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-62-1969-anonymous-augustine/) |   1969
 Augustin | [Élevez votre vision vers le haut, vers le plus élevé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-63-1969-anonymous-augustine/) |   1969
@@ -49,9 +44,14 @@ Augustin | [Les vents du changement apportent de nombreuses bénédictions et pe
 Augustin | [Marchez dans l’innocence, la simplicité et la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-9-9-3-af-augustine/) | 9 Septembre 2013
 Augustin | [Là où se manifeste la Volonté de Dieu, il y aura harmonie, éveil joyeux et transformation merveilleuse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-9-16-2-af-augustine/) | 16 Septembre 2013 
 Augustin | [L'amour sera la monnaie de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-10-5-1-af-augustine/) | 5 Octobre 2013
+Augustin | [Les manifestations physiques du changement s'accompagneront de calamités et de perturbations](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-5-1-af-augustine/) | 5 Janvier 2014 
 Augustin | [Marcher sur le chemin Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-18-3-af-augustine/) | 18 Mai 2014
 Augustin | [Les vents du changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-22-1-af-augustine/) | 22 Mai 2014
 Augustin | [Le libre arbitre fait que le monde est libre. Rien n’est garanti](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-7-26-1-af-augustine/) | 26 Juillet 2014
+Augustin | [Avec foi et confiance, Dieu vous mènera vers des lieux surprenants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-10-20-1-af-augustine/) | 20 Octobre 2014 
+Augustin | [Il est bien des oreilles qui ne veulent pas entendre, et pourtant, leurs âmes ressentiront l'appel retentissant à venir vers Dieu de cette manière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-22-1-af-augustine/) | 22 Décembre 2014
+Augustin | [Libérez-vous des conditions de ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-31-1-af-augustine/) | 31 Décembre 2014 
+Augustin | [Augustin explique que l’on ne peut pas faire confiance aux enseignements de la Bible](/fr-james-padgett-messages/fr-padgett-messages-date-order/fr-padgett-messages-1915-1/fr-1915-8-7-2-jep-augustine/) | 7 Août 1915
 Augustin | [Il y a le destin sans avoir le destin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-3-24-1-af-augustine/) | 24 Mars 2015
 Augustin | [Le conflit entre les pensées et l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-5-18-1-af-augustine/) | 18 Mai 2015
 Augustin | [La liberté par l'activation de l'âme-mental](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-8-14-1-af-augustine/) | 14 Août 2015

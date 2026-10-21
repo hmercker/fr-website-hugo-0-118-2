@@ -234,14 +234,14 @@ Jésus | [Salutations pour la Nouvelle Année](/fr-contemporary-messages/fr-cont
 Jésus | [Devenez un adepte de mes enseignements](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-1-8-2-hm-jesus/) | 8 Janvier 2013
 Jésus | [Priez pour être guidés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-2-23-2-af-jesus/) | 23 Février 2013
 Jésus | [Priez pour que la puissance de l’Amour Divin emplisse votre monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-2-23-3-bd-jesus/) | 23 Février 2013
-Jésus | [Bénis soyez-vous dans votre communion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-6-2-af-jesus/) | 6 Avril 2013
-Jésus | [Chacun de vous a un rôle à jouer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-4-1-af-jesus/) | 4 Mai 2013
-Jésus | [On a profondément besoin de vous dans ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-27-1-af-jesus/) | 27 Mai 2013
-Jésus | [Bénédictions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-1-2-af-jesus/) | 1 Juin 2013
 Jésus | [La relation réflétée de nos parents et de notre Père](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-17-2-cog-jesus/) | 17 Mars 2013
 Jésus | [Encouragement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-22-1-fab-jesus/) | 22 Mars 2013
+Jésus | [Bénis soyez-vous dans votre communion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-6-2-af-jesus/) | 6 Avril 2013
 Jésus | [Paix, première partie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-4-30-1-jg-jesus/) | 30 Avril 2013
+Jésus | [Chacun de vous a un rôle à jouer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-4-1-af-jesus/) | 4 Mai 2013
 Jésus | [Paix, deuxième partie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-7-1-jg-jesus/) | 7 Mai 2013
+Jésus | [On a profondément besoin de vous dans ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-5-27-1-af-jesus/) | 27 Mai 2013
+Jésus | [Bénédictions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-1-2-af-jesus/) | 1 Juin 2013
 Jésus | [N’ayez pas peur de marcher sur le chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-2-1-bs-jesus/) | 2 Juin 2013
 Jésus | [Guérison profonde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-10-2-af-jesus/) | 10 Juin 2013
 Jésus | [L’Esprit de Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-29-1-af-jesus/) | 29 Juin 2013
