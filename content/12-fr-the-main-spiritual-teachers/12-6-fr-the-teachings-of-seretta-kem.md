@@ -13,6 +13,9 @@ weight: 716
 ---|---|---
 || <p align="center"><span style="color:red">**Pour les années 1969 à 2019**</span></p> | |
 Seretta Kem | [Produits chimiques de guérison (Chimiste en chef Egyptien du groupe)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-35-1969-11-10-anonymous-seretta-kem/) | 10 Novembre 1969
+Seretta Kem | [Être en bonne condition physique et spirituelle aide à apporter des bénédictions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-8-19-3-af-seretta-kem/) | 19 Août 2013 
+Seretta Kem | [Tant de choses dépendent de vos efforts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-8-24-4-af-seretta-kem/) | 24 Août 2013 
+Seretta Kem | [Cultivez des pensées positives, divines et empreintes d’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-9-21-3-af-seretta-kem/) | 21 Septembre 2013 
 Seretta Kem | [Vous aspirez à être en communion avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-6-1-af-seretta-kem/) | 6 Janvier 2014 
 Seretta Kem | [La plus grande de toutes les formes de guérison est la guérison par l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-3-29-1-af-seretta-kem/) | 29 Mars 2015
 Seretta Kem | [Être un réconfort dans ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-4-2-af-seretta-kem/) | 4 Janvier 2016

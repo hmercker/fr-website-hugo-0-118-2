@@ -245,6 +245,16 @@ Jésus | [Paix, deuxième partie](/fr-contemporary-messages/fr-contemporary-mess
 Jésus | [N’ayez pas peur de marcher sur le chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-2-1-bs-jesus/) | 2 Juin 2013
 Jésus | [Guérison profonde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-10-2-af-jesus/) | 10 Juin 2013
 Jésus | [L’Esprit de Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-29-1-af-jesus/) | 29 Juin 2013
+Jésus | [Votre monde a cruellement besoin de vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-8-10-1-bd-jesus/) | 10 Août 2013
+Jésus | [Soyez en paix, sachez que vous marchez dans la Lumière et que vous êtes aimé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-8-19-2-af-jesus/) | 19 Août 2013
+Jésus | [Encouragement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-9-14-2-af-jesus/) | 14 Septembre 2013
+Jésus | [Bénédictions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-9-14-4-bd-jesus/) | 14 Septembre 2013
+Jésus | [Soyez unis dans une joie pleine de grâce et dans un engagement empreint d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-10-4-2-af-jesus/) | 4 Octobre 2013
+Jésus | [Voulez-vous vous baigner avec moi dans l’Amour de Dieu ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-10-5-3-af-jesus/) | 5 Octobre 2013 
+Jésus | [Vous trouverez votre chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-10-5-5-bd-jesus/) | 5 Octobre 2013 
+Jésus | [La vérité est sans paroles ; c’est une connaissance intérieure](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-10-6-1-af-jesus/) | 6 Octobre 2013
+Jésus | [Ne vous laissez pas limitez pas par votre mental sur ce qui est possible](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-10-26-2-af-jesus/) | 26 Octobre 2013
+Jésus | [Sachez que vous avez un don](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-10-26-3-bd-jesus/) | 26 Octobre 2013 
 Jésus | [Vous avez une mission profonde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-1-13-1-bd-jesus/) | 13 Janvier 2014 
 Jésus | [Conseils](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-13-1-joseph-jesus/) | 13 Mai 2014
 Jésus | [Priez pour l’amour tous les jours](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-17-3-af-jesus/) | 17 Mai 2014

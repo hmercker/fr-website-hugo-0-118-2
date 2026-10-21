@@ -9,7 +9,7 @@ weight:
 ---
 ### À mesure que vous mettrez à l'épreuve vos dons et vos capacités, vous gagnerez en confiance
 
-Augustin - reçu par Albert Fike le 29 Avril, Cercle de prière, Gibsons, Colombie-Britannique.
+Augustin - reçu par Albert Fike le 29 Avril 2013, Cercle de prière, Gibsons, Colombie-Britannique.
 
 Soyez bénis, mes enfants, alors que vous vous réunissez pour recevoir l’Amour du Père — cette grande bénédiction d’Amour — et que vous vous rassemblez dans la communion fraternelle, unis dans vos efforts pour être des canaux d’Amour dans le monde. Votre vie sur ce plan matériel est bien courte, mes enfants, et beaucoup d’entre vous ont déjà dépassé la moitié de ce voyage ; nous vous exhortons donc à faire bon usage du temps qu’il vous reste pour vous préparer à la prochaine étape de votre périple.
 

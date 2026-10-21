@@ -40,6 +40,7 @@ Moïse | [La mort de Moïse](/fr-contemporary-messages/fr-contemporary-messages-
 Moïse | [La relation de Moïse avec les femmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-10-20-1-fab-moses/) | 20 Octobre 2010
 Moïse | [Les conseils de Moïse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-11-21-1-fab-moses/) | 21 Novembre 2010
 || <p align="center"><span style="color:red">**Après les années 2010**</span></p> | |
+Moïse | [Vivre dans l'Amour, la Compassion, la Sensibilité, la Conscience](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-8-24-3-af-moïse/) | 24 Août 2013
 Moïse | [Leçon sur la fausseté de l’expiation indirecte et la nature incertaine de la vérité personnelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-12-2-af-moses/) | 12 Avril 2016
 Moïse | [Les adeptes de l’Amour Divin doivent s’unir au nom de l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-28-2-af-moses/) | 28 Novembre 2016
 Moïse | [Cherchez la source de tout amour, vérité et lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-24-3-af-moses/) | 24 Février 2018

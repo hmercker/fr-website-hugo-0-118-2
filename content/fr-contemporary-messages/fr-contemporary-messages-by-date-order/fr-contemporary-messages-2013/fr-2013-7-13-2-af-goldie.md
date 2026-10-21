@@ -9,6 +9,6 @@ weight:
 ---
 ### Sachez que Dieu vous aime tellement
 
-Goldie - reçu par Albert Fike le 13 Juillet, Cercle de prière, Gibsons, Colombie-Britannique.
+Goldie - reçu par Albert Fike le 13 Juillet 2013, Cercle de prière, Gibsons, Colombie-Britannique.
 
 Goldie vous aime. Il y a ici ce soir des âmes si précieuses et si belles, et je vous aime. Sachez que Dieu vous aime énormément et que vous êtes précieux à Ses yeux, tout comme vous l’êtes à nos yeux. Belles enfants, laissez-vous porter par l’Amour et sachez que vous êtes magnifiques. Vous tous, belles âmes, âmes aimantes. Que Dieu vous bénisse. Goldie vous aime.

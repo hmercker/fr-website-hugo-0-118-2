@@ -9,7 +9,7 @@ weight:
 ---
 ### Cela fait partie de la Volonté de Dieu
 
-Jean le Bien Aimé - reçu par Albert Fike le 24 Juin, Cercle de prière, Gibsons, Colombie-Britannique.
+Jean le Bien Aimé - reçu par Albert Fike le 24 Juin 2013, Cercle de prière, Gibsons, Colombie-Britannique.
 
 Que Dieu vous bénisse. Je vous demande de vous préparer, mes enfants, pour ce voyage vers cette terre anglaise. Le moment est venu de vous préparer, de vous placer dans un état de lumière et d’harmonie, dans l’Amour, car la plupart d’entre vous ici présents y seront. Et il est important que vous soyez là-bas. Votre présence aura des répercussions considérables dans cette partie du monde ; en y apportant ce que vous possédez ici, vous rendrez possible l’ouverture d’un canal permettant à la lumière et à l’amour de toucher les nombreuses âmes qui vivent dans cette région de votre planète.
 

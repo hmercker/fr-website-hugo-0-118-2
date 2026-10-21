@@ -54,6 +54,7 @@ Ezéchiel | [Heureux ceux qui sont prêts à aimer](/fr-contemporary-messages/fr
 Ézéchiel | [Dieu rassemble des lumières du monde entier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-3-16-1-af-ezekiel/) | 16 Mars 2021
 Ezéchiel | [Répandez la vérité de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-4-21-1-af-ezekiel/) | 21 Avril 2024
 Hakan | [Le maître d’œuvre Égyptien confirme le message de Moïse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-10-6-1-fab-hakan/) | 6 Octobre 2007
+Isaïe | [Priez avec ferveur, priez souvent, priez sans cesse, à chaque souffle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-9-16-3-af-isaiah/) | 16 Septembre 2013
 Isaïe | [Vous aurez besoin les uns des autres dans les temps à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-19-3-af-isaiah/) | 19 Mai 2014
 Isaïe | [Dieu apportera une nouvelle lumière dans ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-12-1-2-af-isaiah/) | 1 Décembre 2017
 Isaïe | [L'Amour de Dieu vous ouvre les portes de l'entendement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-2-21-1-af-isaiah/) | 21 Février 2018

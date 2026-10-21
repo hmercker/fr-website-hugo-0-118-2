@@ -9,7 +9,7 @@ weight:
 ---
 ### L'humilité apporte l'harmonie, la grâce et la paix
 
-Confucius - reçu par Albert Fike le  1<sup>er</sup> Juin, Cercle de prière, Gibsons, Colombie-Britannique.
+Confucius - reçu par Albert Fike le  1<sup>er</sup> Juin 2013, Cercle de prière, Gibsons, Colombie-Britannique.
 
 Que Dieu vous bénisse, mes enfants ; c’est Confucius. Bienvenue à ce rassemblement de lumière et d’amour.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Guérison profonde
 
-Jésus - reçu par Albert Fike le  10 Juin, Cercle de prière, Gibsons, Colombie-Britannique.
+Jésus - reçu par Albert Fike le  10 Juin 2013, Cercle de prière, Gibsons, Colombie-Britannique.
 
 Vous êtes bénis par la puissance du profond Amour du Créateur et vous, mes bien-aimés, êtes comme des anges dans votre monde, votre monde tourmenté. Je suis Jésus et je vous soutiendrai toujours, mes êtres précieux.
 

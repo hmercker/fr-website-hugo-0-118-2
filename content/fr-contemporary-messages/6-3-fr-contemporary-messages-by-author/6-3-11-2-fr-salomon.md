@@ -18,6 +18,7 @@ Salomon | [L'Amour de Dieu a un pouvoir illimité - Shalom - Solomon](/fr-contem
 Salomon | [Bouclez votre ceinture](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-6-30-2-cc-solomon/) | 30 Juin 2003
 Salomon | [Humilité et confiance](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-9-4-1-cc-solomon/) | 4 Septembre 2003
 Salomon | [Appel à tous les médiums](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-12-4-1-cc-solomon/) | 4 Décembre 2003
+Salomon | [La chaîne d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-9-14-3-af-solomon/) | 14 Septembre 2013 
 Salomon | [Il n'y a pas de différences entre nous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-18-1-af-solomon/) | 18 Novembre 2017
 Salomon | [La confiance dans la sagesse de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-8-6-1-af-solomon/) | 6 Août 2018
 Salomon | [La sagesse de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-17-4-af-solomon/) | 17 Octobre 2018

@@ -50,7 +50,7 @@ Jésus | [Priez pour que la puissance de l’Amour Divin emplisse votre monde](/
 Le Père Céleste | [Accordez vos cordes à la fréquence de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-2-24-1-cog-father/) | 24 Février 2013
 Prolotheos | [Évolution](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-2-1-vs-prolotheos/) | 2 Mars 2013
 Woodrow Wilson | [Un président s’explique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-6-1-fab-woodrow-wilson/) | 6 Mars 2013
-Confucius | [Ouvrez les yeux et soyez aimants dans ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-6-1-af-confucius/) | 6 Mars 2013
+Confucius | [Ouvrez les yeux et soyez aimants dans ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-6-2-af-confucius/) | 6 Mars 2013
 John D Rockefeller | [John D. Rockefeller se décrit lui-même](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-11-1-fab-john-d-rockefeller/) | 11 Mars 2013
 Nelson Rockefeller | [Pas de solution pour les Rockefeller](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-11-2-fab-nelson-rockefeller/) | 11 Mars 2013
 John D Rockefeller | [John D. Rockefeller se décrit lui-même - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-13-1-fab-john-d-rockefeller/) | 13 Mars 2013
@@ -99,7 +99,7 @@ Jésus | [Guérison profonde](/fr-contemporary-messages/fr-contemporary-messages
 Augustin | [Voir au-delà des créations superficielles de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-24-1-af-augustine/) | 24 Juin 2013
 Jean le Bien Aimé | [Cela fait partie de la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-24-2-af-john-the-beloved/) | 24 Juin 2013
 Jésus | [L’Esprit de Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-29-1-af-jesus/) | 29 Juin 2013
-Marie | [De nombreuses opportunités et expériences à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-29-1-af-mary/) | 29 Juin 2013 
+Marie | [De nombreuses opportunités et expériences à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-29-2-af-mary/) | 29 Juin 2013 
 Confucius | [Ayez de la compassion pour ceux qui se trouvent dans un état négatif](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-7-13-1-af-confucius/) | 13 Juillet 2013
 Goldie | [Sachez que Dieu vous aime tellement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-7-13-2-af-goldie/) | 13 Juillet 2013
 Marie | [La puissance de l'Amour divin est plus grande que toute bénédiction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-7-13-3-af-mary/) | 13 Juillet 2013 
@@ -112,8 +112,46 @@ Charles T. Russell | [Charles T. Russell parle des Témoins de Jéhovah](/fr-con
 Le Père Céleste | [Laissez vos larmes couler comme des diamants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-8-3-1-cog-father/) | 3 Août 2013
 Le Père Céleste | [Mon amour va guérir tes blessures](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-8-7-1-cog-father/) | 7 Août 2013
 Le Père Céleste | [Je t'ai entendu et j'ai répondu à ton appel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-8-8-1-cog-father/) | 8 Août 2013
+Jésus | [Votre monde a cruellement besoin de vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-8-10-1-bd-jesus/) | 10 Août 2013
+Augustin | [Il vous suffit de demander pour recevoir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-8-17-1-af-augustine/) | 17 Août 2013
+Confucius | [Soyez joyeux, soyez confiants, soyez courageux et soyez humbles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-8-17-2-af-confucius/) | 17 Août 2013
+Marie | [La puissance de la prière d'un groupe d'âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-8-17-3-af-mary/) | 17 Août 2013
+Augustin | [Les vents du changement apportent de nombreuses bénédictions et perturbations](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-8-19-1-af-augustine/) | 19 Août 201
+Jésus | [Soyez en paix, sachez que vous marchez dans la Lumière et que vous êtes aimé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-8-19-2-af-jesus/) | 19 Août 2013
+Seretta Kem | [Être en bonne condition physique et spirituelle aide à apporter des bénédictions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-8-19-3-af-seretta-kem/) | 19 Août 2013 
+Confucius | [Connaître la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-8-24-1-af-confucius/) | 24 Août 2013
+Goldie | [De nombreuses occasions de joie, de service et d’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-8-24-2-af-goldie/) | 24 Août 2013
+Moïse | [Vivre dans l'Amour, la Compassion, la Sensibilité, la Conscience](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-8-24-3-af-moïse/) | 24 Août 2013
+Seretta Kem | [Tant de choses dépendent de vos efforts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-8-24-4-af-seretta-kem/) | 24 Août 2013
 Le Père Céleste | [Laissez Mon Amour être votre fondement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-9-3-1-cog-father/) | 3 Septembre 2013
 John Wilkes Booth | [Comprendre un fanatique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-9-5-1-fab-john-wilkes-booth/) | 5 Septembre 2013
+André | [Entrez dans la Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-9-9-1-af-andrew/) | 9 Septembre 2013
+Anonyme | [Ne résistez pas aux désirs de votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-9-9-2-af-anonymous/) | 9 Septembre 2013
+Augustin | [Marchez dans l’innocence, la simplicité et la foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-9-9-3-af-augustine/) | 9 Septembre 2013
+Confucius | [Vous portez le message de l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-9-14-1-af-confucius/) | 14 Septembre 2013
+Jésus | [Encouragement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-9-14-2-af-jesus/) | 14 Septembre 2013
+Salomon | [La chaîne d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-9-14-3-af-solomon/) | 14 Septembre 2013
+Jésus | [Bénédictions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-9-14-4-bd-jesus/) | 14 Septembre 2013
+Alec Gaunt | [Lorsque l'un de vous fait un pas en avant, vous avancez tous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-9-16-1-af-alec-gaunt/) | 16 Septembre 2013
+Augustin | [Là où se manifeste la Volonté de Dieu, il y aura harmonie, éveil joyeux et transformation merveilleuse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-9-16-2-af-augustine/) | 16 Septembre 2013
+Isaïe | [Priez avec ferveur, priez souvent, priez sans cesse, à chaque souffle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-9-16-3-af-isaiah/) | 16 Septembre 201
+André | [Suivre ce chemin, c’est marcher dans la véritable Vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-9-21-1-af-andrew/) | 21 Septembre 2013
+Confucius | [Persévérez dans vos efforts pour rechercher la Vérité et pour comprendre véritablement votre vraie nature](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-9-21-2-af-confucius/) | 21 Septembre 2013
+Seretta Kem | [Cultivez des pensées positives, divines et empreintes d’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-9-21-3-af-seretta-kem/) | 21 Septembre 2013
+André | [Sachez que vous marchez dans la Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-10-4-1-af-andrew/) | 4 Octobre 2013
+Jésus | [Soyez unis dans une joie pleine de grâce et dans un engagement empreint d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-10-4-2-af-jesus/) | 4 Octobre 2013
+Faith Nyquist | [Mettez de côté vos peurs et vos préjugés](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-10-4-3-af-faith-nyquist/) | 4 Octobre 2013 
+Augustin | [L'amour sera la monnaie de l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-10-5-1-af-augustine/) | 5 Octobre 2013
+Confucius | [Recherchez l'Amour de Dieu à chaque souffle, et vous connaîtrez la gloire du vol](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-10-5-2-af-confucius/) | 5 Octobre 2013
+Jésus | [Voulez-vous vous baigner avec moi dans l’Amour de Dieu ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-10-5-3-af-jesus/) | 5 Octobre 2013
+Marie | [Soyez charitables, soyez bienveillants, soyez aimants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-10-5-4-af-mary/) | 5 Octobre 2013
+Jésus | [Vous trouverez votre chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-10-5-5-bd-jesus/) | 5 Octobre 2013 
+Jésus | [La vérité est sans paroles ; c’est une connaissance intérieure](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-10-6-1-af-jesus/) | 6 Octobre 2013
+Jean le Bien Aimé | [Les anges vous entourent en grand nombre, plus qu'il n'y en a jamais eu dans ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-10-6-2-af-john-the-beloved/) | 6 Octobre 2013
+Marie | [Ce sera un voyage joyeux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-10-6-3-af-mary/) | 6 Octobre 2013
+Confucius | [L'Amour coulera et la guidance sera claire](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-10-26-1-af-confucius/) | 26 Octobre 2013
+Jésus | [Ne vous laissez pas limitez pas par votre mental sur ce qui est possible](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-10-26-2-af-jesus/) | 26 Octobre 2013
+Jésus | [Sachez que vous avez un don](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-10-26-3-bd-jesus/) | 26 Octobre 2013 
 Yogananda | [Transcender ses émotions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-11-15-1-wv-yogananda/) | 15 Novembre 2013
 
 ### [**Lien vers les messages des années 2014**](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/)

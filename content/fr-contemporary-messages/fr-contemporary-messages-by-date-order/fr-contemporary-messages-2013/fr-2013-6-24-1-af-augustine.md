@@ -9,7 +9,7 @@ weight:
 ---
 ### Voir au-delà des créations superficielles de l'humanité
 
-Augustin - reçu par Albert Fike le 24 Juin, Cercle de prière, Gibsons, Colombie-Britannique.
+Augustin - reçu par Albert Fike le 24 Juin 2013, Cercle de prière, Gibsons, Colombie-Britannique.
 
 Que Dieu vous bénisse, mes enfants. Je suis votre enseignant, Augustin.
 

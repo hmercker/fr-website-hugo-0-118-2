@@ -9,7 +9,7 @@ weight:
 ---
 ### Un pas à la fois
 
-Keea Atta Kem - reçu par Albert Fike le 29 Avril, Cercle de prière, Gibsons, Colombie-Britannique.
+Keea Atta Kem - reçu par Albert Fike le 29 Avril 2013, Cercle de prière, Gibsons, Colombie-Britannique.
 
 Cette âme chère que vous avez côtoyée par le passé a besoin de vos prières. Lorsque vous entrez en contact avec d’autres personnes — d’autres âmes qui désirent l’Amour et se tournent vers Dieu tout comme vous le faites —, un lien merveilleux se crée ; grâce à ce lien, à cette connexion d’amour, beaucoup de choses peuvent être accomplies. Vos prières gagnent en puissance lorsque vous priez pour ces belles âmes et qu’elles prient pour vous. Ce réseau porte la lumière et permet aux bénédictions de se manifester de manière plus tangible, tant pour elles que pour vous.
 

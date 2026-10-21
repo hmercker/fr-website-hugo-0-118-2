@@ -69,6 +69,9 @@ Marie | [Soyez un exemple pour les autres](/fr-contemporary-messages/fr-contempo
 Marie | [Aspirez à une dimension supérieure](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-10-1-af-mary/) | 10 Juin 2013
 Marie | [De nombreuses opportunités et expériences à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-6-29-2-af-mary/) | 29 Juin 2013 
 Marie | [La puissance de l'Amour divin est plus grande que toute bénédiction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-7-13-3-af-mary/) | 13 Juillet 2013 
+Marie | [La puissance de la prière d'un groupe d'âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-8-17-3-af-mary/) | 17 Août 2013
+Marie | [Soyez charitables, soyez bienveillants, soyez aimants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-10-5-4-af-mary/) | 5 Octobre 2013
+Marie | [Ce sera un voyage joyeux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-10-6-3-af-mary/) | 6 Octobre 2013
 Marie | [Avancez dans cette rivière d’Amour et lâchez prise](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-19-1-af-mary/) | 19 Mai 2014
 Marie | [Utilisez votre don de la vie de manière optimale](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-15-1-af-mary/) | 15 Décembre 2014
 Marie | [L'amour régnera en maître](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-31-3-af-mary/) | 31 Décembre 2014 

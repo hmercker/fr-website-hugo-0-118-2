@@ -9,7 +9,7 @@ weight:
 ---
 ### La compréhension grandira et l'erreur tombera
 
-Jean le Bien Aimé - reçu par Albert Fike le 20 Avril, Cercle de prière, Gibsons, Colombie-Britannique.
+Jean le Bien Aimé - reçu par Albert Fike le 20 Avril 2013, Cercle de prière, Gibsons, Colombie-Britannique.
 
 Magnifiques lumières, enfants de l’amour, que Dieu vous bénisse. Alors que vous vous rassemblez, la lumière même qui est en vous — celle de vos âmes — invoque la présence des anges, le flux de l’Amour de Dieu, la grande lumière qui vous entoure et la présence de Dieu au milieu de vous. Car le désir est en vous, en chacun de vous ici présents : être proches de Dieu, être ouverts au flux de Son Amour, rechercher la guidance et la compréhension, et lever les voiles de l’incompréhension et de l’erreur afin que vous puissiez tous connaître la vérité avec clarté, que vous puissiez tous saisir et intégrer en vous une grande vérité, une grande compréhension, une grande conscience de votre lien et de votre connexion avec le Créateur. Il aspire, au plus profond de Son Âme, à être avec vous, à déverser Son Amour sur vous, à vous amener en présence de ce magnifique flux d’amour et de lumière, de guérison et de paix.
 

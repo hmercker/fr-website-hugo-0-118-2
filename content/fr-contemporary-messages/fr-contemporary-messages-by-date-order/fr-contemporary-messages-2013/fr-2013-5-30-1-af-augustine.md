@@ -9,7 +9,7 @@ weight:
 ---
 ### La transformation de l’âme
 
-Augustin - reçu par Albert Fike le 30 Mai, Cercle de prière, Gibsons, Colombie-Britannique.
+Augustin - reçu par Albert Fike le 30 Mai 2013, Cercle de prière, Gibsons, Colombie-Britannique.
 
 Mes chers enfants, c’est Augustin. Je viens de nouveau m’exprimer, maintenant que les rires se sont apaisés, et je souhaite m’adresser à vous tous au sujet des changements qui s’opèrent en vous et autour de vous. Vous ne réalisez pas la puissance de cet Amour, ni sa capacité à transformer ce qui vous entoure ainsi que ce qui vous revêt — votre chair et votre esprit. Cet Amour changera tout, mes enfants ; à mesure que vous recevez cette grande bénédiction, chaque cellule de votre corps, chaque aspect de votre esprit et chaque recoin de votre âme sont influencés et transformés par l’Amour Divin. Cette transformation, cette progression et ce cheminement sont infinis à mesure que vous vous rapprochez du Père, la source même de l’Amour. Toutes les parties de votre être changeront pour que vous soyez davantage en harmonie avec Dieu, à mesure qu’elles seront purifiées, transformées et imprégnées du Divin.
 

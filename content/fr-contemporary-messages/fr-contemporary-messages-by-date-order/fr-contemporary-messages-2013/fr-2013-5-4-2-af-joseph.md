@@ -9,7 +9,7 @@ weight:
 ---
 ### Ne craignez pas, mais aimez
 
-Joseph - reçu par Albert Fike le 04 Mai, Cercle de prière, Gibsons, Colombie-Britannique.
+Joseph - reçu par Albert Fike le 04 Mai 2013, Cercle de prière, Gibsons, Colombie-Britannique.
 
 Mon fils A___ : Je suis Joseph, le père de Jésus, et je suis ton guide. Je t’enjoins d’abandonner tes résistances et tes peurs, car tu es bercé dans la main de Dieu et tu seras guidé vers l’avant.
 

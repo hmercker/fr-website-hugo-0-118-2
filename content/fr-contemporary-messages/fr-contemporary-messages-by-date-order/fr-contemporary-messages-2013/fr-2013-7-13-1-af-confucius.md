@@ -9,7 +9,7 @@ weight:
 ---
 ### Ayez de la compassion pour ceux qui se trouvent dans un état négatif
 
-Confucius - reçu par Albert Fike le 13 Juillet, Cercle de prière, Gibsons, Colombie-Britannique.
+Confucius - reçu par Albert Fike le 13 Juillet 2013, Cercle de prière, Gibsons, Colombie-Britannique.
 
 Bénédictions à vous, mes enfants ; je suis Confucius. Chacun de vous aspire à la lumière. Chacune de vos âmes désire ardemment se trouver dans la lumière de Dieu. Pourtant, de nombreuses forces conspirent pour vous éloigner de cette lumière. Certaines proviennent de vos propres choix, mes enfants, mais d’autres découlent des conditions générales de ce monde et du désir de pouvoir et de contrôle d’autrui.
 
