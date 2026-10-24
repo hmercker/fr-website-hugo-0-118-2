@@ -13,12 +13,17 @@ weight:
 ---|---|---
 Confucius | [Accepter les nouvelles prises de conscience d'une âme qui se libère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-4-1-af-confucius/) | 4 Janvier 2016
 Seretta Kem | [Être un réconfort dans ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-4-2-af-seretta-kem/) | 4 Janvier 2016
+Jacques | [Connaître la vérité par l’éveil des facultés de votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-4-3-af-james/) | 4 Janvier 2016 
 Jésus | [Les encouragements de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-8-1-af-jesus/) | 8 Janvier 2016
 Faith | [Le simple voyage vous attend](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-9-1-af-faith/) | 9 Janvier 2016
+Augustin | [Un jardin rempli de nombreuses fleurs magnifiques et uniques](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-9-2-af-augustine/) | 9 Janvier 2016
+Confucius | [Agissez selon les conseils que Dieu donne à chacun](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-9-3-af-confucius/) | 9 Janvier 2016
 St Matthieu | [L'année à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-11-1-af-st-matthew/) | 11 Janvier 2016
 André | [Le chemin que vous parcourez ensemble](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-13-1-af-andrew/) | 13 Janvier 2016
 Keea Atta Kem | [Accepter chaque âme unique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-16-1-af-keea-atta-kem/) | 16 Janvier 2016
+Jésus | [Demeurez, en toute simplicité, au service de l’Amour et accomplissez la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-16-2-af-jesus/) | 16 Janvier 2016
 Confucius | [Comment le don d’amour peut toucher une âme et changer le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-18-1-af-confucius/) | 18 Janvier 2016
+Marie | [Soyez un canal de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-18-2-af-mary/) | 18 Janvier 2016
 Augustin | [Le pouvoir de la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-23-1-af-augustine/) | 23 Janvier 2016
 Augustin | [Leçon sur le désir de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-24-1-af-augustine/) | 24 Janvier 2016
 St Pierre | [Un sanctuaire de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-25-1-af-st-peter/) | 25 Janvier 2016
@@ -27,9 +32,11 @@ St François d'Assise | [Marchez dans ce monde guidé par votre Père](/fr-conte
 Jésus | [Permettez à Dieu de toucher les recoins blessés et sombres de vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-2-2-1-af-jesus/) | 2 Février 2016
 Confucius | [N'oubliez pas de nourrir votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-2-10-1-af-confucius/) | 10 Février 2016
 Augustin | [Forgez ce chemin vers vos âmes et par là vers Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-2-15-1-af-augustine/) | 15 Février 2016
+Confucius | [Mettez de côté toute résistance et tout doute concernant ce grand don](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-2-15-2-af-confucius/) | 15 Février 2016
 St Luc | [Combattre l’obscurité des conditions de la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-2-29-1-af-st-luke/) | 29 Février 2016
 Confucius | [Vous luttez mais vous faites des progrès](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-2-29-2-af-confucius/) | 29 Février 2016
 Jésus | [Une salutation de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-6-1-af-jesus/) | 6 Mars 2016
+Goldie | [Soyez unis dans l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-6-2-af-goldie/) | 6 Mars 2016
 Augustin | [Les âmes sensibles sont les sauveurs de ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-7-1-af-augustine/) | 7 Mars 2016
 Victor Summers | [Salutations de Victor Summers](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-7-2-af-victor-summers/) | 7 Mars 2016
 Confucius | [Lutte du mental](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-10-1-af-confucius/) | 10 Mars 2016
@@ -39,28 +46,40 @@ Jacques | [Bénédiction de la fête du travail à la maison de Selah](/fr-conte
 Jean le bien-aimé | [La touche de Dieu dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-12-2-af-john-the-beloved/) | 12 Mars 2016
 Marie | [Conférence sur les enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-14-1-af-mary/) | 14 Mars 2016
 Jésus | [La résonance de l'amour parmi vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-16-1-af-jesus/) | 16 Mars 2016
+Seretta Kem | [Je vais tenter de réitérer ce message](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-16-2-af-seretta-kem/) | 16 Mars 2016
 Alec Gaunt | [Vous devez être des exemples](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-17-1-af-alec-gaunt/) | 17 Mars 2016
 Jean le Bien Aimé | [Au service de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-18-1-af-john-the-beloved/) | 18 Mars 2016
 St Luc | [Le pouvoir de la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-19-1-af-st-luke/) | 19 Mars 2016
 Augustin | [L’éveil de l’Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-21-1-af-augustine/) | 21 Mars 2016
+Augustin | [Selon vos dons, vous recevrez le soutien et les bénédictions d’un ange qui vous accompagnera](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-24-1-af-augustine/) | 24 Mars 2016
 Augustin | [L’importance de la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-25-1-af-augustine/) | 25 Mars 2016
+Marie | [Avec amour en cette période de Pâques](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-25-2-af-mary/) | 25 Mars 2016
 André | [Service – Aider les autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-26-1-af-andrew/) | 26 Mars 2016
+Goldie | [Découvrez toutes les magnifiques fleurs qui éclosent de votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-26-2-af-goldie/) | 26 Mars 2016 
 Seretta Kem | [Médiumnité, communication et rapport](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-27-1-af-seretta-kem/) | 27 Mars 2016
 Joseph | [Joseph sur le pouvoir de l’engagement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-28-1-af-joseph/) | 28 Mars 2016
 Jacques | [Le don de la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-29-1-af-james/) | 29 Mars 2016
 Augustin | [Une leçon sur le pouvoir de l’humilité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-30-1-af-augustine/) | 30 Mars 2016
+Alec Gaunt | [Continuez à exprimer ces merveilleuses Vérités dans vos vies](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-30-2-af-alec-gaunt/) | 30 Mars 2016 
+Confucius | [Attirez la Lumière à vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-30-3-af-confucius/) | 30 Mars 2016 
 Marie | [Les encouragements de Marie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-31-1-af-mary/) | 31 Mars 2016
 Judas | [Le but de l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-31-2-af-judas/) | 31 Mars 2016
 Jésus | [Le ministère de Jésus et les enseignements de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-2-1-af-jesus/) | 2 Avril 2016
 Jésus | [Il y a une route plus élevée de service - une qui reconnaît un batteur différent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-4-1-af-jesus/) | 4 Avril 2016
 Keea Atta Kem | [Le prisme de nos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-4-2-af-keea-atta-kem/) | 4 Avril 2016
+Augustin | [Exprimez-vous avec intégrité, équilibre, équité et amour ; alors, tout vous sera fourni](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-4-3-af-augustine/) | 4 Avril 2016
 Mahatma Gandhi | [La faim spirituelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-5-1-af-mahatma-gandhi/) | 5 Avril 2016
 Augustin | [Attentes de l’esprit – Libérer le contrôle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-12-1-af-augustine/) | 12 Avril 2016
 Moïse | [Leçon sur la fausseté de l’expiation indirecte et la nature incertaine de la vérité personnelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-12-2-af-moses/) | 12 Avril 2016
 André | [Soyez les pourvoyeurs de la joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-12-3-af-andrew/) | 12 Avril 2016
+Keea Atta Kem | [Discours sur la réception de conseils](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-12-4-af-keea-atta-kem/) | 12 Avril 2016
 Seretta Kem | [L’utilisation de la guérison par l’Amour Divin par rapport aux autres énergies de la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-13-1-af-seretta-kem/) | 13 Avril 2016
+Confucius | [Le Souffle de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-13-2-af-confucius/) | 13 Avril 2016
 Jean le Bien Aimé | [Chaque jour a le potentiel d’apporter la lumière si les intentions sont bonnes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-14-1-af-john-the-beloved/) | 14 Avril 2016
+Marie | [Prenez soin de ceux que vous rencontrez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-14-2-af-mary/) | 14 Avril 2016
 St François d'Assise | [La voie simple de l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-17-1-af-st-francis-of-assisi/) | 17 Avril 2016
+Augustin | [Vous serez réunis à nouveau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-19-1-af-augustine/) | 19 Avril 2016
+Goldie | [Avec Dieu dans le jardin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-19-2-af-goldie/) | 19 Avril 2016 
 Alec Gaunt | [La loi du changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-27-1-af-alec-gaunt/) | 27 Avril 2016
 Marie | [Comment marcher sur le Chemin Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-5-2-1-af-mary/) | 2 Mai 2016
 André | [André sur deux choix – deux voies](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-5-2-2-af-andrew/) | 2 Mai 2016
@@ -84,13 +103,26 @@ Frère Mandus Nyquist | [Vous allez remplir votre mandat de canal de l’Amour c
 Jésus | [Aimer avec le cœur d'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-6-27-2-af-jesus/) | 27 Juin 2016
 St François d'Assise | [L’amour est la vraie monnaie de la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-7-4-1-af-st-francis-of-assisi/) | 4 Juillet 2016
 Jésus | [Recevoir des conseils](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-7-4-2-af-jesus/) | 4 Juillet 2016
+Confucius | [Priez quotidiennement pour une âme éveillée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-7-9-1-af-confucius/) | 9 Juillet 2016 
 Augustin | [Choisissez le mental ou l'âme pour votre voyage spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-7-10-1-af-augustine/) | 10 Juillet 2016
+Confucius | [Priez quotidiennement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-7-11-1-af-confucius/) | 11 Juillet 2016
 Seretta Kem | [Expiation et purification de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-7-13-1-af-seretta-kem/) | 13 Juillet 2016
 Martin Luther | [A la poursuite de la Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-7-18-1-af-martin-luther/) | 18 Juillet 2016
 Seretta Kem | [La puissance exponentielle des prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-7-25-1-af-seretta-kem/) | 25 Juillet 2016
+Confucius | [Soyez un maillon dans la chaîne des bénédictions de Dieu envers autrui](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-7-27-1-af-confucius/) | 27 Juillet 2016
+Augustin | [Enseigner la leçon de l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-8-2-1-af-augustine/) | 2 Août 2016
+Alec Gaunt | [Vos obstacles vous renforcent dans la Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-8-11-1-af-alec-gaunt/) | 11 Août 2016
+Alec Gaunt | [La réticence à s’avancer pleinement dans la Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-8-15-1-af-alec-gaunt/) | 15 Août 2016
+Confucius | [Chaque jour peut être rempli de Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-8-15-2-af-confucius/) | 15 Août 2016
+Jésus | [Apportez la Lumière aux âmes perdues](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-8-15-3-af-jesus/) | 15 Août 2016
+Jésus | [Éveillez-vous de votre somnolence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-8-15-4-af-jesus/) | 15 Août 2016
+Marie | [Vous jouerez tous un rôle déterminant sur le Chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-8-15-5-af-mary/) | 15 Août 2016 
 James Padgett | [Chacun de vous fait l’expérience de Dieu et de la Vérité d’une manière unique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-8-17-1-af-james-padgett/) | 17 Août 2016
 St Matthieu | [La différence entre le mental et l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-8-25-1-af-st-matthew/) | 25 Août 2016
+Augustin | [Recherchez la Lumière de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-8-26-1-af-augustine/) | 26 Août 2016
+Jésus | [Vous faites partie du salut de Dieu pour l’humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-8-26-2-af-jesus/) | 26 Août 2016 
 Frère Mandus Nyquist | [Une description de l’âme et de sa nature durable](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-8-27-1-af-brother-mandus/) | 27 Août 2016
+Martin Luther | [Bienvenue à Francfort](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-8-31-1-af-martin-luther/) | 31 Août 2016
 Seretta Kem | [La prière de groupe multiplie les bénédictions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-1-1-af-seretta-kem/) | 1<sup>er</sup> Septembre 2016
 Jésus | [Soyez ouverts à l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-1-2-af-jesus/) | 1 Septembre 2016
 Augustin | [L’amour naturel et l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-2-1-af-augustine/) | 2 Septembre 2016
@@ -103,6 +135,7 @@ Jean le Bien Aimé | [L’Amour de Dieu est la clé](/fr-contemporary-messages/f
 André | [Soyez en sécurité sur le chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-5-1-af-andrew/) | 5 Septembre 2016
 Joseph | [Être avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-6-1-af-joseph/) | 6 Septembre 2016
 Marie | [Tu seras guérie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-6-2-af-mary/) | 6 Septembre 2016
+Marie | [Tu seras guérie_2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-6-3-af-mary/) | 6 Septembre 
 Confucius | [Vous êtes bercés par Ses soins](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-7-1-af-confucius/) | 7 Septembre 2016
 Jésus | [Tu es mon disciple ici](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-8-1-af-jesus/) | 8 Septembre 2016
 André | [Rangez votre bouclier et votre armure et dirigez avec amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-9-1-af-andrew/) | 9 Septembre 2016
@@ -111,6 +144,7 @@ Augustin | [L’Amour Divin va changer le monde, en commençant par vous](/fr-co
 André | [Vous avez rejoint un réseau de Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-10-2-af-andrew/) | 10 Septembre 2016
 St François d'Assise | [Beaucoup sont avec vous dans vos efforts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-11-1-af-st-francis-of-assisi/) | 11 Septembre 2016
 Jérôme | [Vous êtes soutenu dans vos luttes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-12-1-af-jerome/) | 12 Septembre 2016
+Goldie | [Évoluer dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-13-1-af-goldie/) | 13 Septembre 2016
 Augustin | [Être dans la lumière demande un effort conscient](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-14-1-af-augustine/) | 14 Septembre 2016
 Jésus | [A propos de la Vérité Absolue](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-14-2-bettina-jesus/) | 14 Septembre 2016
 Augustin | [La réaction à votre lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-15-1-af-augustine/) | 15 Septembre 2016
@@ -133,7 +167,8 @@ André | [Être un canal de l’Amour de Dieu](/fr-contemporary-messages/fr-cont
 Augustin | [Attirer vers vous de nombreuses âmes-sœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-27-1-af-augustine/) | 27 Novembre 2016
 Confucius | [Confucius accueille le troupeau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-27-2-af-confucius/) | 27 Novembre 2016
 James Reid | [La valeur de la connaissance de vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-27-3-af-james-reid/) | 27 Novembre 2016
-Jésus | [Jésus apporte sa bénédiction au groupe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-27-4-af-jesus/) | 27 Novembre 2016
+James Reid | [James R est très heureux](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2016-11-27-4-af-james-reid/) | 27 Novembre 2016
+Jésus | [Jésus apporte sa bénédiction au groupe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-27-5-af-jesus/) | 27 Novembre 2016
 Seretta Kem | [Car le changement doit venir, l’amour doit apporter l’harmonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-28-1-af-seretta-kem/) | 28 Novembre 2016
 Moïse | [Les adeptes de l’Amour Divin doivent s’unir au nom de l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-28-2-af-moses/) | 28 Novembre 2016
 St Luc | [Luc souhaite la bienvenue à ceux qui font partie du rassemblement de Punnalu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-28-3-af-st-luke/) | 28 Novembre 2016
@@ -148,10 +183,13 @@ Confucius | [Bienvenue dans ce cercle d’Amour](/fr-contemporary-messages/fr-co
 Nuage Blanc | [Le monde a besoin de vos prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-2-2-af-white-cloud/) | 2 Décembre 2016
 Augustin | [Se tourner vers l’âme plutôt que vers l’esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-2-3-af-augustine/) | 2 Décembre 2016
 Jésus | [Une prière pour ceux qui sont sur le chemin de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-2-4-af-jesus/) | 2 Décembre 2016
+Goldie | [Un cadeau de joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-2-5-af-goldie/) | 2 Décembre 2016
 St Matthieu | [Ouvrez vos âmes à l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-3-1-af-st-matthew/) | 3 Décembre 2016
 Confucius | [Bénédictions de guérison et d’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-4-1-af-confucius/) | 4 Décembre 2016
 Augustin | [Les défis qui accompagnent la croissance de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-5-1-af-augustine/) | 5 Décembre 2016
 Keea Atta Kem | [Soyez des scientifiques de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-5-2-af-keea-atta-kem/) | 5 Décembre 2016
+Care Darby Walsh | [J’apprécie vraiment vos prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-5-3-af-care-derby-walsh/) | 5 Décembre 2016 
+Goldie | [Dansez à la lumière de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-5-4-af-goldie/) | 5 Décembre 2016 
 Seretta Kem | [La médiumnité et l’atteinte de ce qui est le plus élevé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-6-1-af-seretta-kem/) | 6 Décembre 2016
 André | [Soyez calmes dans les tempêtes à venir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-7-1-af-andrew/) | 7 Décembre 2016
 Augustin | [Soyez pleinement avec Dieu dans vos prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-7-2-af-augustine/) | 7 Décembre 2016

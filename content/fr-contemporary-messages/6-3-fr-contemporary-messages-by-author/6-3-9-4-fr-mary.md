@@ -76,11 +76,16 @@ Marie | [Avancez dans cette rivière d’Amour et lâchez prise](/fr-contemporar
 Marie | [Utilisez votre don de la vie de manière optimale](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-15-1-af-mary/) | 15 Décembre 2014
 Marie | [L'amour régnera en maître](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-31-3-af-mary/) | 31 Décembre 2014 
 Marie | [Le changement nécessaire pour le monde commencera par les enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-8-20-3-af-mary/) | 20 Août 2015
+Marie | [Soyez un canal de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-18-2-af-mary/) | 18 Janvier 2016
 Marie | [Conférence sur les enfants](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-14-1-af-mary/) | 14 Mars 2016
+Marie | [Avec amour en cette période de Pâques](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-25-2-af-mary/) | 25 Mars 2016 
 Marie | [Les encouragements de Marie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-31-1-af-mary/) | 31 Mars 2016
+Marie | [Prenez soin de ceux que vous rencontrez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-14-2-af-mary/) | 14 Avril 2016
 Marie | [Comment marcher sur le Chemin Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-5-2-1-af-mary/) | 2 Mai 2016
+Marie | [Vous jouerez tous un rôle déterminant sur le Chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-8-15-5-af-mary/) | 15 Août 2016 
 Marie | [L’amour apporte une solution aux problèmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-3-2-af-mary/) | 3 Septembre 2016
 Marie | [Tu seras guérie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-6-2-af-mary/) | 6 Septembre 2016
+Marie | [Tu seras guérie_2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-6-3-af-mary/) | 6 Septembre 2016
 Marie | [Je vous réunirai](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-21-2-af-mary/) | 21 Mai 2017
 Marie | [Dieu se sert de vous comme d'un canal](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-27-2-af-mary/) | 27 Septembre 2017
 Marie | [Beaucoup de travail en perspective](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-21-1-af-mary/) | 21 Octobre 2017

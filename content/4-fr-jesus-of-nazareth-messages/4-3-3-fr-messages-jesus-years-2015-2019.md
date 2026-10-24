@@ -16,6 +16,7 @@ Jésus | [Vous marcherez le chemin de la renaissance de l'âme](/fr-contemporary
 Jésus | [Le monde s’approche rapidement d’une période de chaos](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-8-17-1-af-jesus/) | 17 Août 2015
 Jésus | [Il commence à l'ouest et s'étend dans le monde entier](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-11-23-1-af-jesus/) | 23 Novembre 2015
 Jésus | [Les encouragements de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-8-1-af-jesus/) | 8 Janvier 2016
+Jésus | [Demeurez, en toute simplicité, au service de l’Amour et accomplissez la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-16-2-af-jesus/) | 16 Janvier 2016
 Jésus | [Permettez à Dieu de toucher les recoins blessés et sombres de vos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-2-2-1-af-jesus/) | 2 Février 2016
 Jésus | [Une salutation de Jésus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-6-1-af-jesus/) | 6 Mars 2016
 Jésus | [La résonance de l'amour parmi vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-16-1-af-jesus/) | 16 Mars 2016
@@ -24,6 +25,9 @@ Jésus | [Il y a une route plus élevée de service - une qui reconnaît un batt
 Jésus | [Marchez avec moi dans la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-5-11-3-af-jesus/) | 11 Mai 2016
 Jésus | [Aimer avec le cœur d'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-6-27-2-af-jesus/) | 27 Juin 2016
 Jésus | [Recevoir des conseils](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-7-4-2-af-jesus/) | 4 Juillet 2016
+Jésus | [Apportez la Lumière aux âmes perdues](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-8-15-3-af-jesus/) | 15 Août 2016
+Jésus | [Éveillez-vous de votre somnolence](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-8-15-4-af-jesus/) | 15 Août 2016
+Jésus | [Vous faites partie du salut de Dieu pour l’humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-8-26-2-af-jesus/) | 26 Août 2016 
 Jésus | [Soyez ouverts à l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-1-2-af-jesus/) | 1 Septembre 2016
 Jésus | [Je suis votre frère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-2-3-af-jesus/) | 2 Septembre 2016
 Jésus | [Tu es mon disciple ici](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-8-1-af-jesus/) | 8 Septembre 2016

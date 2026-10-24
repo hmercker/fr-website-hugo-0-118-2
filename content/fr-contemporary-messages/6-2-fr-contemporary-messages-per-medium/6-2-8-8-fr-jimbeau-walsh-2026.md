@@ -52,7 +52,7 @@ Inayat Khan | [Écoutez avec votre âme](/fr-contemporary-messages/fr-contempora
 St Luc | [La guérison](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-10-1-jw-st-luke/) | 10 Septembre 2026
 Arthur Conan Doyle | [Détectives de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-13-1-jw-arthur-conan-doyle/) | 13 Septembre 2026
 George Vale Owen | [Il est temps pour les Églises spiritualistes de s'élever dans l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-14-1-jw-george-vale-owen/) | 14 Septembre 2026
-Care Darby Walsh | [Permettre à votre âme, à votre vie, d'être transformées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-5-1-jw-care-darby-walsh/) | 5 Octobre 202
+Care Darby Walsh | [Permettre à votre âme, à votre vie, d'être transformées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-5-1-jw-care-darby-walsh/) | 5 Octobre 2026
 
 
 

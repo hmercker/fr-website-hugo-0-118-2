@@ -19,6 +19,6 @@ Ainsi, la voie de l’Amour Divin est, bien entendu, la prière. Il s’agit de 
 
 Je souhaite transmettre non seulement la simplicité de la Voie, mais aussi sa grandeur. La magnificence, la joie et la liberté qui accompagnent l’afflux de l’essence de notre Créateur ; tout cela est à portée de main, il suffit de le demander. Point n’est besoin de gravir une montagne, mais il faut faire preuve d’humilité dans sa demande afin d’être béni en recevant.
 
-Soyez dans la joie et l’allégresse. Nous ne vous abandonnerons pas et nous répondons toujours à l’appel. Je vous remercie de m’avoir permis de revenir, ainsi que mon frère, une fois de plus, pour recueillir ce message. Je me retire maintenant, avec tout mon amour et mes bénédictions. Que les bénédictions du grand amour de Dieu soient avec vous tous.
+Soyez dans la joie et l’allégresse. Nous ne vous abandonnerons pas et nous répondons toujours à l’appel. Je vous remercie de m’avoir permis de revenir, ainsi que mon frère, une fois de plus, pour recueillir ce message. Je me retire maintenant, avec tout mon amour et mes bénédictions. Que les bénédictions du grand Amour de Dieu soient avec vous tous.
 
 Je suis Lao-Tseu.

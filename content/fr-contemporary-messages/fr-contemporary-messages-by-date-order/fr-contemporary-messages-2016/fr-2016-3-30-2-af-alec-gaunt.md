@@ -1,0 +1,18 @@
+---
+title: "Continuez à exprimer ces merveilleuses Vérités dans vos vies"
+menu_title: ""
+description: "Continuez à exprimer ces merveilleuses Vérités dans vos vies"
+date: 2026-10-24 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Continuez à exprimer ces merveilleuses Vérités dans vos vies
+
+Alec Gaunt - reçu par Al Fike le 26 Mars 2016, Gibsons, Colombie-Britannique, Canada.
+
+Bonsoir, mes amis, ici Alec. Nombre d’entre vous ont les pieds fermement ancrés sur le Sentier Divin. Rien ne peut vous en détourner ; vous devez continuer à avancer sur ce chemin, car Dieu vous y pousse par Son Amour, afin que vous grandissiez dans vos âmes. Exprimez votre engagement, tandis que le canal de l’Amour développe en vous cette profonde compréhension — une compréhension que vous avez acquise par vos prières, vos expériences et l’affirmation de la Vérité en votre for intérieur. Continuez à exprimer ces merveilleuses vérités dans vos vies. Ceux qui sont plus avancés sur ce chemin doivent aider ceux qui le sont moins : guidez-les, montrez-leur la voie. Quant à vous qui débutez, je vous encourage à poser des questions, à reconnaître ce qui s’éveille au fond de votre âme, à découvrir la nature de cet élan, de ce mouvement intérieur, de ce désir.
+
+Vous pouvez vous sentir vulnérables, mais au sein de ce cercle empreint d’amour, vous ne l’êtes pas. Vous êtes parmi des amis. Vous vous trouvez dans un espace d’Amour, de sécurité, de soutien et de bienveillance, entourés d’autres chercheurs, d’autres âmes désireuses d’apporter davantage de Lumière dans leur vie comme dans la vôtre. Dieu bénira chacun d’entre vous, en fonction de vos aspirations, des efforts que vous déployez dans la prière, des élans de votre âme et des actions que vous entreprenez sur ce sentier spirituel — ce chemin qui consiste à chercher Dieu et à découvrir votre véritable nature, c’est-à-dire votre âme. Cette part de vous-même que beaucoup ignorent, ou qu’ils ont tant de mal à reconnaître, dans un monde où tout est si souvent régi par le mental, et si peu influencé par l’âme. Il est important que vous mettiez de côté les doutes qui habitent votre esprit et que vous preniez le risque d’écouter ces élans intérieurs ; accueillez avec ouverture et amour vos amis au sein de ce cercle, et soyez à l’écoute de ce qu’ils ont à partager. Il y a tant à échanger, tant de questions à explorer, et un chemin qui regorge de merveilles, de surprises et de rencontres joyeuses — autant d’éléments qui sauront éveiller votre âme, ainsi qu’ouvrir votre cœur et votre esprit.
+
+Je vous encourage donc, chères et précieuses âmes qui découvrez ce cheminement, à faire preuve d’ouverture d’esprit et à accueillir en vous ce désir, ce besoin profond de demeurer dans la Lumière, de connaître la Vérité et d’être auprès de Dieu. Ce cheminement se déploie lentement, mais sûrement ; un effort de votre part suscitera, de la part de Dieu, une réponse magnifique et merveilleuse. Elle vous accompagnera tout au long de votre vie, vous aidant à discerner ce qui est essentiel et à prendre conscience des ressources qui s’offrent à vous — il suffit pour cela de les demander dans la prière, de vous ouvrir à l’action bienveillante et à la guidance de Dieu. De nombreuses bénédictions se déverseront alors sur vous. Que Dieu vous bénisse. Que Dieu bénisse chacun et chacune d’entre vous, présents ici avec un cœur sincère et le désir profond de s’inscrire dans le flux de l’Amour divin, et de connaître cette immense et joyeuse bénédiction. Que Dieu vous bénisse. Votre ami Alec est toujours là pour vous aider et vous accompagner. Que Dieu vous bénisse. Je vous aime.

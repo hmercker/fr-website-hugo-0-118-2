@@ -33,6 +33,7 @@ Keea Atta Kem | [Utiliser la gratitude pour éliminer les pensées négatives](/
 || <p align="center"><span style="color:red">**Pour les années 2016 à 2019**</span></p> | |
 Keea Atta Kem | [Accepter chaque âme unique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-16-1-af-keea-atta-kem/) | 16 Janvier 2016
 Keea Atta Kem | [Le prisme de nos âmes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-4-2-af-keea-atta-kem/) | 4 Avril 2016
+Keea Atta Kem | [Discours sur la réception de conseils](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-12-4-af-keea-atta-kem/) | 12 Avril 2016
 Keea Atta Kem | [Comment l’Amour Divin change l’Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-5-16-1-af-keea-atta-kem/) | 16 Mai 2016
 Keea atta Kem | [Faites briller votre lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-10-17-1-af-keea-atta-kem/) | 17 Octobre 2016
 Keea Atta Kem | [Soyez des scientifiques de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-5-2-af-keea-atta-kem/) | 5 Décembre 2016

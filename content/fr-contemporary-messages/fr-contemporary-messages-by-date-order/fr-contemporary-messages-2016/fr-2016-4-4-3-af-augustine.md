@@ -1,0 +1,22 @@
+---
+title: "Exprimez-vous avec intégrité, équilibre, équité et amour ; alors, tout vous sera fourni"
+menu_title: ""
+description: "Exprimez-vous avec intégrité, équilibre, équité et amour ; alors, tout vous sera fourni"
+date: 2026-10-24 06:00:01+00:01
+draft: False
+hidden: True
+weight: 
+---
+### Exprimez-vous avec intégrité, équilibre, équité et amour ; alors, tout vous sera fourni
+
+Augustin - reçu par Al Fike le 4 Avril 2016, Gibsons, Colombie-Britannique, Canada.
+
+J’ai entendu les échanges entre mes étudiants concernant le soutien qu’ils souhaitent obtenir pour accomplir l’œuvre de Dieu. Ils ont demandé des conseils, et je suis ici pour les leur offrir. Avant toute chose, lorsqu’un enfant entreprend une mission guidée par Dieu, tout ce qui est nécessaire lui est fourni, à tous les niveaux — y compris sur le plan matériel. Il n’y a donc aucune raison de nourrir des conflits, des inquiétudes ou un sentiment de culpabilité, ni de craindre que les ressources matérielles ou spirituelles fassent défaut ; car, en vérité, tout sera pourvu. Ne dressez pas d’obstacles sur votre propre chemin. Sachez toutefois que les serviteurs de Dieu doivent agir avec humilité, grâce et équilibre.
+
+Il arrive parfois, lorsque vous vous laissez entraîner par la condition humaine, que vous recherchiez bien plus que ce dont vous avez réellement besoin ; cela n’est pas en harmonie. Lorsque vous vous exprimez avec intégrité, équilibre, équité et amour, la question de vos besoins réels ne se pose même plus. Certes, des choix doivent être faits, mais vos efforts ne devraient susciter aucune réaction négative ni entraîner de conséquences fâcheuses. Vous devriez, au contraire, ressentir un sentiment d’accomplissement, de satisfaction et de paix, dans la certitude que Dieu vous guide sur le chemin que vous avez choisi d’emprunter. Il n’y a alors plus de conflit, mais de la joie et une profonde gratitude, car Dieu prend véritablement soin de Ses enfants. Il pourvoit à leurs besoins, en fonction des exigences propres à chacun, à mesure qu’ils avancent sur leur voie de service. Lorsque la main de Dieu accompagne une action entreprise sous Sa guidance et dans le désir de servir, l’harmonie est toujours présente.
+
+Et même si des réactions négatives surviennent de la part de personnes extérieures au cercle d’influence que vous portez en vous, n’y prêtez aucune attention. Il ne s’agit là que d’une réaction face à des actes accomplis dans la Lumière — une Lumière à laquelle certains résistent. Certains restent attachés à leur propre condition, qui finit par leur peser. Alors qu’ils pourraient trouver guérison, répit et soulagement, ils s’accrochent obstinément à ce qu’ils portent. Pour cette raison, vous n’avez aucune responsabilité quant à leur choix ; chaque âme est responsable de ce qu’elle choisit, tout comme vous êtes responsables de vos propres choix.
+
+Ne laissez aucune pensée négative s’installer à ce sujet. Que toutes vos actions soient empreintes d’Amour. Vous êtes tous capables de percevoir le flux de la Volonté et de l’Amour de Dieu dans tout ce que vous entreprenez ; vous pouvez choisir d’emprunter cette voie élevée dont parle notre maître, de cheminer au sein de ce flux, de vous laisser porter par lui, et de permettre à Dieu de pourvoir à vos besoins, en plaçant votre confiance en Lui et en ayant foi en Son dessein.
+
+Que Dieu vous bénisse, mes élèves. Puissiez-vous demeurer à jamais portés par le flux de l’Amour divin, en choisissant de toujours rester au sein de ce courant, sans jamais laisser un sentiment d’indignité influencer vos décisions. Vous êtes tous dignes de la sollicitude infinie de Dieu. Vous marchez tous dans cette Lumière, et vous recevrez, chacun, l’abondance de Ses bénédictions dans votre vie. Que Dieu vous bénisse, mes élèves. Votre maître Augustin vous porte un grand amour ; il continuera de vous accompagner sur votre chemin, restant à vos côtés lorsque vous servez Dieu, que vous voyagez et que vous touchez tant d’âmes. Une multitude d’anges vous entoure. Il n’y a rien à craindre, aucun motif d’inquiétude, car vous êtes fermement tenus entre les mains de Dieu. Que Dieu vous bénisse. Votre maître Augustin vous aime. Que Dieu vous bénisse.

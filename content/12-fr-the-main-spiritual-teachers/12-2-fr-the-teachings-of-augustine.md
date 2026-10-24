@@ -61,6 +61,7 @@ Augustin | [La différence entre le mental matériel et le mental de l’âme](/
 Augustin | [Commencez à connaître votre but](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-11-30-1-af-augustine/) | 30 Novembre 2015
 Augustin | [Libre arbitre contre Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-12-14-1-af-augustine/) | 14 Décembre 2015
 || <p align="center"><span style="color:red">**Pour les années 2016 à 2019**</span></p> | |
+Augustin | [Un jardin rempli de nombreuses fleurs magnifiques et uniques](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-9-2-af-augustine/) | 9 Janvier 2016
 Augustin | [Le pouvoir de la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-23-1-af-augustine/) | 23 Janvier 2016
 Augustin | [Leçon sur le désir de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-24-1-af-augustine/) | 24 Janvier 2016
 Augustin | [Forgez ce chemin vers vos âmes et par là vers Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-2-15-1-af-augustine/) | 15 Février 2016
@@ -68,14 +69,19 @@ Augustin | [Les plaisirs physiques](/fr-contemporary-messages/fr-contemporary-me
 Augustin | [Les âmes sensibles sont les sauveurs de ce monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-7-1-af-augustine/) | 7 Mars 2016
 Augustin | [Lutte de l’âme et du mental](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-10-2-af-augustine/) | 10 Mars 2016
 Augustin | [L’éveil de l’Âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-21-1-af-augustine/) | 21 Mars 2016
+Augustin | [Selon vos dons, vous recevrez le soutien et les bénédictions d’un ange qui vous accompagnera](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-24-1-af-augustine/) | 24 Mars 2016
 Augustin | [L’importance de la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-25-1-af-augustine/) | 25 Mars 2016
 Augustin | [Une leçon sur le pouvoir de l’humilité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-30-1-af-augustine/) | 30 Mars 2016
+Augustin | [Exprimez-vous avec intégrité, équilibre, équité et amour ; alors, tout vous sera fourni](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-4-3-af-augustine/) | 4 Avril 2016
 Augustin | [Se laisser utiliser par Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-4-7-1-af-augustine/) | 7 Avril 2019
 Augustin | [Attentes de l’esprit – Libérer le contrôle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-12-1-af-augustine/) | 12 Avril 2016
+Augustin | [Vous serez réunis à nouveau](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-19-1-af-augustine/) | 19 Avril 2016
 Augustin | [Se débarrasser de plusieurs peaux alors que l’Amour vous transforme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-5-9-1-af-augustine/) | 9 Mai 2016
 Augustin | [Comment être un canal d’amour sans peur dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-5-12-1-af-augustine/) | 12 Mai 2016
 Augustin | [Rester dans la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-5-30-2-af-augustine/) | 30 Mai 2016
 Augustin | [Choisissez le mental ou l'âme pour votre voyage spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-7-10-1-af-augustine/) | 10 Juillet 2016
+Augustin | [Enseigner la leçon de l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-8-2-1-af-augustine/) | 2 Août 2016
+Augustin | [Recherchez la Lumière de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-8-26-1-af-augustine/) | 26 Août 2016
 Augustin | [La réaction à votre lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-15-1-af-augustine/) | 15 Septembre 2016
 Augustin | [L’amour naturel et l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-2-1-af-augustine/) | 2 Septembre 2016
 Augustin | [Continuez à servir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-4-1-af-augustine/) | 4 Septembre 2016

@@ -40,11 +40,19 @@ Confucius | [La différence entre Amour Divin et l’Amour naturel et comment l�
 Confucius | [Le monde a un besoin désespéré de Lumière et de Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-12-31-2-af-confucius/) | 31 Décembre 2014 
 || <p align="center"><span style="color:red">**Pour les années 2016 à 2019**</span></p> | 
 Confucius | [Accepter les nouvelles prises de conscience d'une âme qui se libère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-4-1-af-confucius/) | 4 Janvier 2016
+Confucius | [Agissez selon les conseils que Dieu donne à chacun](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-9-3-af-confucius/) | 9 Janvier 2016
 Confucius | [Comment le don d’amour peut toucher une âme et changer le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-1-18-1-af-confucius/) | 18 Janvier 2016
 Confucius | [N'oubliez pas de nourrir votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-2-10-1-af-confucius/) | 10 Février 2016
+Confucius | [Mettez de côté toute résistance et tout doute concernant ce grand don](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-2-15-2-af-confucius/) | 15 Février 2016
 Confucius | [Vous luttez mais vous faites des progrès](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-2-29-2-af-confucius/) | 29 Février 2016
 Confucius | [Lutte du mental](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-10-1-af-confucius/) | 10 Mars 2016
+Confucius | [Attirez la Lumière à vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-30-3-af-confucius/) | 30 Mars 2016 
+Confucius | [Le Souffle de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-13-2-af-confucius/) | 13 Avril 2016
 Confucius | [Soyez forts dans la lumière et résistez aux défis](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-6-4-1-af-confucius/) | 4 Juin 2016
+Confucius | [Priez quotidiennement pour une âme éveillée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-7-9-1-af-confucius/) | 9 Juillet 2016 
+Confucius | [Priez quotidiennement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-7-11-1-af-confucius/) | 11 Juillet 2016
+Confucius | [Soyez un maillon dans la chaîne des bénédictions de Dieu envers autrui](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-7-27-1-af-confucius/) | 27 Juillet 2016
+Confucius | [Chaque jour peut être rempli de Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-8-15-2-af-confucius/) | 15 Août 2016
 Confucius | [Dieu a allumé une étincelle en vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-2-2-af-confucius/) | 2 Septembre 2016
 Confucius | [Vous êtes bercés par Ses soins](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-7-1-af-confucius/) | 7 Septembre 2016
 Confucius | [Vous avez un but](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-10-15-1-af-confucius/) | 15 Octobre 2016

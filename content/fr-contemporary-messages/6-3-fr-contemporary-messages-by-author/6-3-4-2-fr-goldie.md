@@ -21,8 +21,14 @@ Goldie | [Sachez que Dieu vous aime tellement](/fr-contemporary-messages/fr-cont
 Goldie | [De nombreuses occasions de joie, de service et d’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-8-24-2-af-goldie/) | 24 Août 2013
 Goldie | [Jésus vous veut pour un rayon de soleil](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-20-2-af-goldie/) | 20 Mai 2014
 Goldie | [Oui, nous apportons de la joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-10-20-2-af-goldie/) | 20 Octobre 2014 
+Goldie | [Soyez unis dans l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-6-2-af-goldie/) | 6 Mars 2016
+Goldie | [Découvrez toutes les magnifiques fleurs qui éclosent de votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-26-2-af-goldie/) | 26 Mars 2016 
+Goldie | [Avec Dieu dans le jardin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-19-2-af-goldie/) | 19 Avril 2016 
+Goldie | [Évoluer dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-9-13-1-af-goldie/) | 13 Septembre 2016
 Goldie | [L’Amour Divin apporte des surprises](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-10-19-1-af-goldie/) | 19 Octobre 2016
 Goldie | [Pourquoi se compliquer la vie ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-11-28-4-af-goldie/) | 28 Novembre 2016
+Goldie | [Un cadeau de joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-2-5-af-goldie/) | 2 Décembre 2016
+Goldie | [Dansez à la lumière de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-5-4-af-goldie/) | 5 Décembre 2016 
 Goldie | [L’enthousiasme et les encouragements de Goldie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-18-2-af-goldie/) | 18 Mai 2017
 Goldie | [Un conseil de Goldie : « Soyez joyeux »](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-6-14-2-af-goldie/) | 14 Juin 2017
 Goldie | [Quand les saints entrent en scène](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-8-6-4-af-goldie/) | 6 Août 2017

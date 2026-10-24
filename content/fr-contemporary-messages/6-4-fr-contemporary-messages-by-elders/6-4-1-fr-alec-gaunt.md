@@ -27,9 +27,12 @@ Alec Gaunt | [Continuez à grandir dans l'Amour, continuez à cultiver votre lie
 Alec Gaunt | [Lorsque l'un de vous fait un pas en avant, vous avancez tous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-9-16-1-af-alec-gaunt/) | 16 Septembre 2013
 Alec Gaunt | [Le monde change](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2015/fr-2015-7-6-1-af-alec-gaunt/) | 6 Juillet 2015
 Alec Gaunt | [Vous devez être des exemples](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-17-1-af-alec-gaunt/) | 17 Mars 2016
+Alec Gaunt | [Continuez à exprimer ces merveilleuses Vérités dans vos vies](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-3-30-2-af-alec-gaunt/) | 30 Mars 2016 
 Alec Gaunt | [La loi du changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-4-27-1-af-alec-gaunt/) | 27 Avril 2016
 Alec Gaunt | [Débarrassez-vous de vos peurs et de ce qui vous encombre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-5-12-2-af-alec-gaunt/) | 12 Mai 2016
 Alec Gaunt | [Ne jugez pas la voie naturelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-5-25-1-af-alec-gaunt/) | 25 Mai 2016
+Alec Gaunt | [Vos obstacles vous renforcent dans la Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-8-11-1-af-alec-gaunt/) | 11 Août 2016
+Alec Gaunt | [La réticence à s’avancer pleinement dans la Lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-8-15-1-af-alec-gaunt/) | 15 Août 2016
 Alec Gaunt | [En progressant à l’intérieur de votre âme, vous serez en mesure de recevoir les changements qui arrivent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-21-1-af-alec-gaunt/) | 21 Décembre 2016
 Alec Gaunt | [Cherchez la vérité dans votre propre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-28-1-af-alec-gaunt/) | 28 Décembre 2016
 Alec Gaunt | [Les changements que vous allez vivre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-1-23-1-af-alec-gaunt/) | 23 Janvier 2017
