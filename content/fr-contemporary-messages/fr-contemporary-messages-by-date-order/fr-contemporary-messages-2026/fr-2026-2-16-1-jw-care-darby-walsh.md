@@ -1,7 +1,7 @@
 ---
 title: "Maîtriser le service (Rayonner la lumière"
 menu_title: ""
-description: "Maîtriser le service (Rayonner la lumière"
+description: "Maîtriser le service (Rayonner la lumière)"
 date: 2026-02-22 16:00:01+00:01
 draft: False
 hidden: True
@@ -17,7 +17,7 @@ Ainsi, vous commencez à voir que ces petits gestes accomplis avec foi, le parta
 
 Portez cet Amour et laissez vos soucis matériels au second plan. Et je me souviens de ces paroles du Maître à l'homme qui lui avait demandé : *« Comment puis-je vous suivre ? »* Bien sûr, il lui avait répondu avec force : *« Vends tous tes biens et donne l'argent aux pauvres. »* À moins d'être déjà extrêmement pauvre, c'est un véritable défi. Mais en réalité, le Maître m'a dit qu'il voulait simplement nous dire : *« Fais de Dieu ta priorité. »* Posséder des biens matériels peut faire beaucoup de bien dans le monde, et il est bon de réfléchir à ses besoins à un moment donné. Alors, si vous voulez suivre Jésus, prenez ces biens matériels qui vous sont superflus et donnez-les à tous ceux qui sont dans le besoin, et faites-le avec l'Amour de Dieu dans votre cœur.
 
-Je sais que mon bien-aimé préfère que l'on ne parle pas de lui, mais j'étais avec lui aujourd'hui chez le dentiste. Il décrivait au dentiste notre rencontre avec les anges quand j'étais sur terre et il disait avoir été très attiré par ma lumière, qu'il la voyait autour de moi. Le dentiste a répondu : *« Eh bien, c'est ce que je vois autour de vous. »* Et je ne veux gêner personne car, vraiment, je vous dis cela parce que cela vous concerne tous. Que votre lumière brille sur chaque être, comme le dit la chanson, afin que Dieu, qui vous a bénis, puisse toucher la vie de chacun.
+Je sais que mon bien-aimé préfère que l'on ne parle pas de lui, mais j'étais avec lui aujourd'hui chez le dentiste. Il décrivait au dentiste notre rencontre avec les anges lorsque j'étais sur terre et il disait avoir été très attiré par ma lumière, qu'il la voyait autour de moi. Le dentiste a répondu : *« Eh bien, c'est ce que je vois autour de vous. »* Et je ne veux gêner personne car, vraiment, je vous dis cela parce que cela vous concerne tous. Que votre lumière brille sur chaque être, comme le dit la chanson, afin que Dieu, qui vous a bénis, puisse toucher la vie de chacun.
 
 Je vous remercie et je vous aime de tout mon cœur. Je suis votre sœur et votre amie, pour l'éternité. Que Dieu vous bénisse.
 

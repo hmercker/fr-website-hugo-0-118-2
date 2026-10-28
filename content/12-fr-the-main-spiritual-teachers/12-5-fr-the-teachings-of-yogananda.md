@@ -16,6 +16,7 @@ Yogananda | [Transcender ses émotions](/fr-contemporary-messages/fr-contemporar
 Yogananda | [Le monde n’est qu’une illusion de notre imagination](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-31-1-wv-yogananda/) | 31 Mai 2014
 Yogananda | [Êtes-vous prêts à faire briller votre lumière dans les moments d’obscurité ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-9-6-2-wv-yogananda/) | 6 Septembre 2014
 Yogananda | [Accepter la diversité que Dieu a créée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-13-1-af-yogananda/) | 13 Mai 2017
+Yogananda | [Apporter l’éveil dans d’autres régions du monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-15-2-af-yogananda/) | 15 Septembre 2017 
 Yogananda | [Accepter la Volonté de Dieu de servir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-25-2-af-yogananda/) | 25 Octobre 2017
 Yogananda | [Vous construisez votre lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-16-3-af-yogananda/) | 16 Novembre 2017
 Yogananda | [Être un vecteur de l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-21-2-af-yogananda/) | 21 Novembre 2018
@@ -151,4 +152,6 @@ Yogananda | [Diffuseurs de lumière dans un monde en plein chaos](/fr-contempora
 Yogananda | [La Joie Ailée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-18-1-jw-yogananda/) | 18 Mai 2026
 Yogananda | [Laissez les choses de l'âme vous stimuler](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-31-1-mc-yogananda/) | 31 Mai 2026
 Yogananda | [Les Gunas et au-delà](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-3-1-jw-yogananda/) | 3 Août 2026
+Yogananda | [Nous ne souhaitons pas que vous rattachiez vos prières à une religion quelconque](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-14-2-af-yogananda/) | 14 Octobre 2026
+Yogananda | [La véritable paix au-delà de la peur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-19-2-af-yogananda/) | 19 Octobre 2026
 

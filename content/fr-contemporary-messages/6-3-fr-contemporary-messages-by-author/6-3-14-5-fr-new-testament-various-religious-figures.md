@@ -47,7 +47,6 @@ Joseph Smith | [L’imagination et les idées des hommes créent des faussetés 
 Joseph Smith | [Il est important d'apporter la Vérité à l'humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-16-5-af-joseph-smith/) | 16 Novembre 2017
 Laila | [Marchez chaque jour dans Sa lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-19-3-af-laila/) | 19 Mai 2017
 Maharishi Mahesh Yogi | [Utilisez vos dons](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-16-4-af-maharishi-mahesh-yogi/) | 16 Novembre 2017
-Martin Luther | [Bienvenue à Francfort](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-8-31-1-af-martin-luther/) | 31 Août 2016
 Mère Teresa | [Servir dans l’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-1-19-1-na-mother-teresa/) | 19 Janvier 2008
 Mère Teresa | [Les possibilités du service](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-23-3-af-mother-teresa/) | 23 Novembre 2017
 Osho Bhagwan | [L'Amour de Dieu est la véritable voie de la libération](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-2-12-1-af-osho-bhagwan/) | 12 Février 2019

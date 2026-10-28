@@ -224,11 +224,12 @@ Orion | [Soyez courageux, priez et soyez attentifs en ce tournant crucial pour l
 Orion | [Faites le choix authentique d'être la cloche retentissante de la vérité dans un monde en perpétuelle mutation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-7-1-af-orion/) | 7 Mars 2026
 Orion | [Redoublez de prières pour demeurer en harmonie dans un monde obscur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-14-1-af-orion/) | 14 Mars 2026
 Orion | [Vous devenez de plus en plus forts à mesure que vous vous tournez vers la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-17-2-af-orion/) | 17 Mars 2026
-Orion | [Dépassez la première étape de l'éveil et élevez votre planète vers l'harmonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-24-1-af-orion/) | 24 Mars 2026
+Orion | [Dépassez la première étape de l'éveil et élevez votre planète vers l'harmonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-24-2-af-orion/) | 24 Mars 2026
 Orion | [La Nature de la Réalité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-28-1-af-orion/) | 28 Mars 2026
 Orion | [Le Don d’un Monde Nouveau dans l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-4-1-af-orion/) | 4 Avril 2026 
 Orion | [Orion décrit la dimension reliant toutes les âmes de l'univers](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-14-1-af-orion/) | 14 Avril 2026 
 Orion | [Dieu a créé un voyage merveilleux et unique pour chacun de vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-21-1-af-orion/) | 21 Avril 2026
+Orion | [Persévérez pour atteindre ceux qui sont perdus dans les distractions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-28-2-af-orion/) | 28 Avril 2026
 Orion | [Votre capacité à dissiper les ténèbres de ce monde est plus puissante que vous ne le pensez](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-2-1-af-orion/) | 2 Mai 2026
 Orion | [Orion décrit le processus de réception de l'Amour Divin sur sa planète et exprime son admiration pour notre ténacité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-9-1-af-orion/) | 9 Mai 2026
 Orion | [Il nous encourage à nous engager dans le monde et à affronter directement ses nombreuses épreuves](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-26-2-af-orion/) | 26 Mai 2026
@@ -236,6 +237,7 @@ Orion | [Les dons de l'âme commencent sous forme de bourgeons petits et subtils
 Orion | [Accueillez chacun avec amour et faites preuve de douceur lorsque vous enseignez cette vérité aux autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-2-2-af-orion/) | 2 Juin 2026
 Orion | [Reconnaissez la puissance des bénédictions de Dieu sur vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-13-1-af-orion/) | 13 Juin 2026 
 Orion | [Faites le grand saut et nous vous attendrons de l'autre côté](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-16-1-af-orion/) | 16 Juin 2026 
+Orion | [Recherchez la réalité de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-23-2-af-orion/) | 23 Juin 2026
 Orion | [La transition de l'esprit matériel vers l'éveil de l'âme se fait progressivement et s'accompagne de nombreux défis](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-27-1-af-orion/) | 27 Juin 2026 
 Orion | [Suivez les inspirations de votre âme pour saisir les occasions de servir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-30-2-af-orion/) | 30 Juin 2026 
 Orion | [Maintenez une grande intensité de désir dans vos prières et votre dessein](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-7-1-af-orion/) | 7 Juillet 2026 
@@ -246,6 +248,7 @@ Orion | [Affranchissez-vous de votre condition humaine pour devenir un véritabl
 Orion | [Être un véritable instrument exige courage et foi](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-7-1-af-orion/) | 7 Août 2026 
 Orion | [Prenez conscience de vos obstacles réflexes et inconscients](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-11-1-af-orion/) | 11 Août 2026
 Orion | [Des choses merveilleuses se produiront une fois que vous serez en parfaite harmonie avec la volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-14-1-af-orion/) | 14 Août 2026 
+Orion | [Vous bénéficiez d’un soutien immense](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-18-2-af-orion/) | 18 Août 2026
 Orion | [Enseignement sur les trois esprits : matériel, spirituel et celui de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-22-1-af-orion/) | 22 Août 2026 
 
 

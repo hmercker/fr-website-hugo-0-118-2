@@ -37,4 +37,5 @@ Marc | [Marcher au service de Dieu](/fr-contemporary-messages/fr-contemporary-me
 Marc | [Savoir demander ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-3-10-3-em-mark/) | 10 Mars 2024
 Marc | [Le gardien spirituel de la FUSC bénit la congrégation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-30-3-af-mark/) | 30 Mars 2025 
 Marc | [Soyez fortifiés par l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-6-29-1-af-mark/) | 29 Juin 2025
+Marc | [Recherchez l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-31-2-af-mark/) | 31 Mai 2026
 

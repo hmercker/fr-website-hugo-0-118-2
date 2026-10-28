@@ -64,6 +64,7 @@ Confucius | [Bénédictions de guérison et d’amour](/fr-contemporary-messages
 Confucius | [N’ayez pas peur d’exprimer ce qui est dans votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-8-2-af-confucius/) | 8 Décembre 2016
 Confucius | [Notre âme et la loi de l’attraction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-2-15-1-af-confucius/) | 15 Février 2017
 Confucius | [S’abreuver de l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-3-8-1-af-confucius/) | 8 Mars 2017
+Confucius| [Vous saurez quand Dieu placera une âme sur votre chemin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-4-10-2-af-confucius/) | 10 Avril 2017
 Confucius | [Les conseils du vieux sage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-6-24-1-af-confucius/) | 24 Juin 2017
 Confucius | [Cherchez la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-7-2-1-af-confucius/) | 2 Juillet 2017
 Confucius | [La vérité passe par l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-7-29-1-af-confucius/) | 29 Juillet 2017
@@ -139,4 +140,5 @@ Confucius | [Message de clôture de la retraite de Fontainebleau](/fr-contempora
 || <p align="center"><span style="color:red">**Pour les années 2026 à 2028**</span></p> | 
 Confucius | [Soyez consciencieux et faites de grands efforts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-7-3-af-confucius/) | 7 Janvier 2026 
 Confucius | [Trouver l'humour dans nos conversations sur la Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-10-2-af-confucius/) | 10 Janvier 2026 
+Confucius | [Votre cheminement vers Dieu et vers votre âme est amplifié grâce aux efforts de vos amis Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-6-2-af-confucius/) | 6 Juin 2026 
 

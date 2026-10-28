@@ -278,10 +278,13 @@ Judas | [Servir tous dans l'Amour Divin et l'amour naturel, et s'entraider au se
 Judas | [Que la bénédiction de l'Amour de Dieu soit en ce lieu et touche chaque âme qui y entre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-23-1-jw-judas/) | 23 Septembre 2025
 Jésus et Judas | [Choisir l’Amour de Dieu / Jésus confirme Judas](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-10-1-af-jesus-and-judas/) | 10 Janvier 2026
 Judas | [Dieu étanchera la faim et la soif de chaque âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-30-1-jw-judas/) | 30 Mars 2026
+Judas | [Le pouvoir du libre arbitre : renforcer ou contrarier l’harmonie de l’univers de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-28-1-af-judas/) | 28 Avril 2026
 Judas | [Dieu prend en charge les tâches les plus difficiles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-7-1-jw-judas/) | 7 Juin 2026
 Judas | [La joie spirituelle s'obtient dans la grâce](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-20-1-jw-judas/) | 20 Juillet 2026
 Judas | [Libre arbitre et Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-17-1-jw-judas/) | 17 Août 2026
+Judas | [Aller vers Dieu pour ceux qui ne vont pas vers Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-31-1-jw-judas/) | 31 Août 2026
 Judas | [Élever chacun au sein du collectif spirituel de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-4-1-jw-judas/) | 4 Septembre 2026
+Judas  & Luc | [Cercles de prière en présentiel (Amour Divin)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-9-2-af-judas-luc/) | 9 Octobre 2026
 
 
 

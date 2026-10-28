@@ -101,6 +101,7 @@ Marie | [Permettez à vos cœurs d'être tendres](/fr-contemporary-messages/fr-c
 Marie | [Au service de la Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-9-28-2-af-mary/) | 28 Septembre 2018
 Marie | [Bénédiction de Marie - Cercle de prière en ligne](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-21-3-af-mary/) | 21 Octobre 2018
 Marie | [Les anges prient pour nous dans notre éveil](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-22-5-mc-mary/) | 22 Octobre 2018
+Marie | [Puisez dans l’espérance à mesure que vous commencez à vous éveiller](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-18-2-mc-mary/) | 18 Novembre 2018
 Marie | [Beaucoup croient que leur mental apporte la conscience de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-12-17-1-af-mary/) | 17 Décembre 2018
 Marie | [Que l'Amour de Dieu vous submerge](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-1-15-2-mc-mary/) | 15 Janvier 2019
 Marie | [Le plan de Dieu est magnifique](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-3-9-3-af-mary/) | 9 Mars 2019
@@ -189,6 +190,7 @@ Jésus et Marie | [La Puissance de la Prière Quotidienne / Une Bénédiction po
 Marie | [La Foi d'une Mère](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-5-1-em-mary/) | 5 Avril 2026
 Marie | [Reposez-vous dans l'Étreinte de l'Amour et de la Bénédiction Divins](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-7-1-af-mary/) | 7 Avril 2026
 Marie | [Marie remet une rose rouge à chacun](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-10-3-mc-mary/) | 10 Janvier 2026 
+Marie | [Dieu n’a jamais voulu que la souffrance existe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-23-3-af-mary/) | 23 Mai 2026
 André, Jésus et Marie | [Messages d'amour, de guidance et de compagnonnage venant du monde spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-26-1-af-andrew-jesus-mary/) | 26 Mai 2026 
 Marie | [Marie nous parle du temps où l'Amour prend forme dans notre âme ; nos actions sont imprégnées d'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-7-3-mc-mary/) | 7 Juin 2026 
 Marie | [Hommage aux pères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-21-1-mc-mary/) | 21 Juin 2026

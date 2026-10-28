@@ -27,6 +27,7 @@ St Luc | [Luc souhaite la bienvenue à ceux qui font partie du rassemblement de 
 St Luc | [Leçons sur le pardon et la compassion](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2016/fr-2016-12-9-2-af-st-luke/) | 9 Décembre 2016
 St Luc | [Débarrassez-vous de ces choses qui ne sont pas d’Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-1-11-1-af-st-luke/) | 11 Janvier 2017
 St Luc | [Se lier d’amitié avec son âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-3-5-1-af-st-luke/) | 5 Mars 2017
+St Luc | [Agneaux de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-5-8-1-af-st-luke/) | 8 Mai 2017
 St Luc | [Introduction à la création d'un cercle de lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-12-2-af-st-luke/) | 12 Mars 2018
 St Luc | [Soyez des guerriers contre l’obscurité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-3-21-2-af-st-luke/) | 21 Mars 2018
 St Luc | [Une intervention sur les péchés des parents](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-4-4-1-af-st-luke/) | 4 Avril 2018

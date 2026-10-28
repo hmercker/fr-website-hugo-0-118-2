@@ -21,3 +21,4 @@ Claire d'Assise | [Dans le silence](/fr-contemporary-messages/fr-contemporary-me
 Claire d'Assise | [Réticence et Courage](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-11-24-1-jw-clara-of-assisi/) | 24 Novembre 2025
 || <p align="center"><span style="color:red">**Pour l'année 2026**</span></p> | |
 Claire d'Assise | [Attachements](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-11-1-jw-clare-of-assisi/) | 11 Mai 2026
+Claire d'Assise | [Le silence est d’or](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-12-2-af-clare-of-assisi/) | 12 Octobre 2026

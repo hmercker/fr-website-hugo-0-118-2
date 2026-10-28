@@ -51,6 +51,8 @@ Jésus | [Que vos âmes brillent de l'Amour du Père](/fr-contemporary-messages/
 Jésus | [L'avancée de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-8-5-1-hm-jesus/) | 5 Août 2017
 Jésus | [Prier pour recevoir la Sainte Essence de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-8-6-1-af-jesus/) | 6 Août 2017
 Jésus | [Jésus confirme son intention de se matérialiser](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-8-6-2-af-jesus/) | 6 Août 2017
+Jésus | [Les changements à venir et votre préparation spirituelle](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-8-17-2-af-jesus/) | 17 Août 2017
+Martin Luther & Jésus | [À propos du nom du mouvement « Amour Divin »](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-8-17-3-anonyme-martin-luther-jesus/) | 17 Août 2017
 Jésus | [C'est un chemin béni](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-24-2-af-jesus/) | 24 Septembre 2017
 Jésus | [Tout est fait dans l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-9-25-2-af-jesus/) | 25 Septembre 2017
 Jésus | [Dieu murmure en vous](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-10-14-4-af-jesus/) | 14 Octobre 2017

@@ -1,0 +1,22 @@
+---
+title: "Dieu attend votre choix"
+menu_title: ""
+description: "Dieu attend votre choix"
+date: 2026-10-28 06:00:01+00:435
+draft: False
+hidden: True
+weight:
+---
+### Dieu attend votre choix
+
+Augustin - reçu par Al Fike le 17 Décembre 2018, Gibsons, Colombie-Britannique, Canada.
+
+Je suis votre enseignant, Augustin. Dieu attend votre choix, bien-aimés. Dieu attend le choix de toute l’humanité, pour que vos frères et sœurs, et vous, choisissiez la lumière et l’harmonie, la paix et l’amour plutôt que les conditions dans lesquelles vous vous trouvez actuellement, dans ce monde, un monde qui porte un fardeau, un monde qui souffre, un monde qui continue d’être soumis aux choix de l’humanité qui apportent davantage d’obscurité et de privations. Dieu attend votre choix, âmes bien-aimées.
+
+Choisirez-vous la lumière ? Choisirez-vous de marcher en harmonie avec les Lois de la Création ? Choisirez-vous de vous rapprocher de la Présence de Dieu et de rechercher les bénédictions et les guérisons, la Vérité et la sagesse, l’Amour de Dieu ? Dieu attend votre choix chaque jour et vous, au début de chaque journée, devez vous demander :  » Que vais-je choisir ce jour ? Comment vais-je me conduire ce jour ? Suis-je prêt à être proche de Dieu ? Est-ce que je désire le plus haut ? Suis-je assez fort pour résister aux conditions et aux pressions de ce monde qui peuvent m’amener à un lieu de désespoir ou de confusion ou à un sentiment de manque d’amour en moi-même ?  » Ces choses, âmes bien-aimées, sont les défis auxquels chacun de vous est confronté chaque jour. Le choix continue d’être confronté à chaque individu dans ce monde. Dans votre âme, vous connaissez les réponses. Vous savez ce que vous devez faire, ce que vous devez penser et être dans ce monde. Pourtant, pour beaucoup, l’esprit continue de dominer. L’esprit continue d’être attiré par les conditions, la condition humaine qui ne vient pas de Dieu mais de la création de l’homme.
+
+Vous avez le choix et vous êtes tout à fait capable de choisir. Je vous le demande, âmes bien-aimées, choisissez la Lumière. Choisissez d’écouter les idées et les désirs de votre âme afin que vous puissiez effectivement faire ce pas en avant pour vous rapprocher de la lumière et de l’harmonie, de l’amour et de la paix. Vous avez le choix. Êtes-vous capable de marcher dans la lumière, ou êtes-vous faible et opprimé par la condition humaine ? Si vous vous sentez faibles, âmes bien-aimées, priez et demandez de la force à Dieu. Demandez à nous, qui sommes les anges du Ciel, de venir vous soutenir. Demandez à Dieu de vous aider à connaître les désirs de votre âme et ce qui est dans votre âme, cette grande richesse de sagesse et de force, pour sortir et vous fortifier et vous élever afin que vous puissiez être dans la Lumière, que vous puissiez marcher près de Dieu, que vous puissiez effectivement être un serviteur de Dieu, un serviteur de la Lumière, un serviteur de la Vérité, un serviteur pour apporter amour et réconfort, compassion et amour aux autres.
+
+De cette façon, non seulement vous annulez les conditions de ce monde pour vous-même, mais vous renforcez également les autres. Vous avez le choix, que vous pouvez choisir judicieusement, âmes bien-aimées. Choisissez que Dieu touche votre âme avec Son Amour, qu’en cela vienne la force et la sagesse, que les choix soient faciles et clairs afin qu’il n’y ait pas de confusion. Il n’y a pas d’angoisse. Il n’y a pas de douleur mais de la joie et de la force, de la sagesse et de l’amour. Choisissez judicieusement, bien-aimés, car il y a toujours un choix et il y a toujours une solution. Il y a toujours une bénédiction à donner à ceux qui sont assez humbles pour chercher Dieu, connaître sa présence et être dans le flux de son amour. Recherchez la Vérité, bien-aimés. Choisissez la Vérité. Soyez dans le flux de l’Amour de Dieu et vous connaîtrez toutes les grandes bénédictions, tous les afflux, toutes les guérisons et toutes les vérités que vous pourriez éventuellement recevoir dans votre vie.
+
+Que Dieu vous bénisse, bien-aimés. Je suis votre enseignant, Augustin, et je suis avec vous. Mon amour est avec vous. Beaucoup sont avec vous dans vos efforts pour atteindre la lumière. Que Dieu te bénisse. Que Dieu vous bénisse, âmes bien-aimées. Votre enseignant vous aime. Que Dieu vous bénisse.

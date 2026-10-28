@@ -91,6 +91,7 @@ André | [Cherchez à connaître l'Amour de Dieu](/fr-contemporary-messages/fr-c
 André | [Marcher dans la lumière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-8-1-af-andrew/) | 8 Octobre 2018
 André | [Recherchez l'harmonie grâce à l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-23-1-af-andrew/) | 23 Octobre 2018
 André | [André apportera des messages d'Amour et de Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-22-3-af-andrew/) | 22 Octobre 2018
+André | [L’Amour de Dieu vous fortifiera et vous guidera vers l’avant](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-3-2-af-andrew/) | 3 Novembre 2018
 André | [Prier pour les vivants et les défunts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-5-1-af-andrew/) | 5 Novembre 2018
 André | [L'univers a besoin de variété](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-19-1-af-andrew/) | 19 Novembre 2018
 André | [Il est encore temps de réveiller vos âmes par l’Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-12-1-1-af-andrew/) | 1 Décembre 2018
@@ -183,4 +184,5 @@ André | [Vous bâtissez un pont entre vous et Dieu](/fr-contemporary-messages/f
 André | [Les vents du changement soufflent](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-13-1-af-andrew/) | 13 Janvier 2026
 André | [Qu’est-ce qui vous empêche d’accomplir la mission de votre âme ?](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-13-2-af-andrew/) | 13 Avril 2026
 André, Jésus et Marie | [Messages d'amour, de guidance et de compagnonnage venant du monde spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-26-1-af-andrew-jesus-mary/) | 26 Mai 2026 
+André | [Le pouvoir de l’amour vous unit en tant que frères et sœurs sur ce chemin : André clôture la retraite de Johnson City](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-7-4-af-andrew/) | 7 Juin 2026
 André | [Reconnaissez les nombreuses étapes du Chemin Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-14-1-af-andrew/) | 14 Juillet 2026 

@@ -27,6 +27,7 @@ Jésus | [Le monde a besoin de vos prières](/fr-contemporary-messages/fr-contem
 Jésus et Marie | [La Puissance de la Prière Quotidienne / Une Bénédiction pour les Enfants de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-8-1-af-jesus-mary/) | 8 Mars 2026
 Jésus | [Quand le cœur s'humilie, l'âme s'élève](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-9-1-jw-jesus/) | 9 Mars 2026
 Jésus | [Il vient nous aider à reconnaître notre appel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-21-3-mc-jesus/) | 21 Mars 2026 
+Jésus | [Soyez des instruments de paix par l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-22-3-af-jesus/) | 22 Mars 2026
 Christine et Jésus | [Devenir des instruments de lumière dans un monde en mutation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-27-1-af-christine-jesus/) | 27 Mars 2026
 Jésus | [Le moment est venu : Avancez comme une lumière dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-29-1-af-jesus/) | 29 Mars 2026
 Jésus | [Dimanche de Pâques : Vivre et partager la vérité de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-4-5-2-af-jesus/) | 5 Avril 2026

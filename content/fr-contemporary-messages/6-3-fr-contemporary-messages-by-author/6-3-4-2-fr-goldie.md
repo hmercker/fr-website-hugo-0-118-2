@@ -52,6 +52,7 @@ Goldie | [Les esprits Célestes dansent avec joie](/fr-contemporary-messages/fr-
 Goldie | [L'Amour de Dieu apporte la plus grande joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-17-1-af-goldie/) | 17 Octobre 2018
 Goldie | [Tant de choses continueront à être données](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-10-27-3-af-goldie/) | 27 Octobre 2018
 Goldie | [Le cadeau de Goldie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-4-2-af-goldie/) | 4 Novembre 2018
+Goldie | [Un grand amour et une grande joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-11-17-2-af-goldie/) | 17 Novembre 2018
 Goldie | [La Joie de vivre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2018/fr-2018-12-30-2-af-goldie/) | 30 Décembre 2018
 Goldie | [Soyez dans la joie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2019/fr-2019-6-28-2-mc-goldie/) | 28 Juin 2019
 Goldie | [Ouvrez vos cœurs à la joie de l'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2020/fr-2020-1-31-2-af-goldie/) | 31 Janvier 2020
