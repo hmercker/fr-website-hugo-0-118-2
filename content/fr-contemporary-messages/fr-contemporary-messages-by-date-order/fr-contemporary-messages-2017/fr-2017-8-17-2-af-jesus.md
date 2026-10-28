@@ -9,7 +9,7 @@ weight:
 ---
 ### Les changements à venir et votre préparation spirituelle
 
-Jésus - reçu par Al Fike le 10 17 Juillet 2017, Gibsons, Colombie-Britannique, Canada
+Jésus - reçu par Al Fike le 17 Août 2017, Gibsons, Colombie-Britannique, Canada
 
 **[Note du médium : Chacun peut interpréter ce message de différentes manières. N’oubliez pas qu’il est important qu’un message résonne en vous, au sein de votre propre perception de l’âme.]**
 

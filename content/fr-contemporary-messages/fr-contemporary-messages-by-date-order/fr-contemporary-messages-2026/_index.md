@@ -114,6 +114,7 @@ Jésus | [Soyez des instruments de paix par l’Amour Divin](/fr-contemporary-me
 St Luc | [La Chrysalide](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-23-1-jw-st-luke/) | 23 Mars 2026
 Faith Nyquist | [Ouvrez votre âme pour recevoir les abondantes bénédictions de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-24-1-af-faith-nyquist/) | 24 Mars 2026
 Orion | [Dépassez la première étape de l'éveil et élevez votre planète vers l'harmonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-24-2-af-orion/) | 24 Mars 2026
+Augustin | [Selon vos dons, vous recevrez le soutien et les bénédictions d’un ange qui vous accompagnera](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-24-3-af-augustine/) | 24 Mars 2026
 Christine et Jésus | [Devenir des instruments de lumière dans un monde en mutation](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-27-1-af-christine-jesus/) | 27 Mars 2026
 Orion | [La Nature de la Réalité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-28-1-af-orion/) | 28 Mars 2026
 Jésus | [Le moment est venu : Avancez comme une lumière dans le monde](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-29-1-af-jesus/) | 29 Mars 2026
