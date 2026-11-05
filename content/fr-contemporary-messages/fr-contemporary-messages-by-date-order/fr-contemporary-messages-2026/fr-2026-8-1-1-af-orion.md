@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous êtes tous essentiels au processus de transformation
 
-Orion - reçu par Albert Fike le <sup>er</sup> Août 2026, Cercle de Lumière en ligne, Sechelt, Colombie-Britannique, Canada.
+Orion - reçu par Albert Fike le 1<sup>er</sup> Août 2026, Cercle de Lumière en ligne, Sechelt, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse. Je suis votre ami, votre frère et votre compagnon dans ce magnifique voyage. Je suis Orion. Nous poursuivons nos efforts pour votre développement individuel et collectif, des efforts visant à transformer votre monde — cette planète — en le faisant passer des ténèbres à la lumière, à dissiper le voile des ténèbres et les illusions humaines, et à révéler la réalité de Dieu à chaque âme de votre monde. Chacun de vous qui a choisi d'accomplir cette tâche fait partie intégrante de l'œuvre. Il est demandé à chacun de s'efforcer d'être une lumière, de libérer les ténèbres intérieures et de laisser la pureté et la bonté de Dieu devenir vôtres.
 

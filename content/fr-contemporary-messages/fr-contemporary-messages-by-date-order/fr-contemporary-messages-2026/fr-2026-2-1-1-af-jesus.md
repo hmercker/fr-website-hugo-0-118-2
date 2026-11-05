@@ -9,7 +9,7 @@ weight:
 ---
 ### Vos prières ont illuminé Trinité-et-Tobago
 
-Jésus - reçu par Albert Fike le 31 Janvier 2026, Grand Couva, Trinité.
+Jésus - reçu par Albert Fike le 1<sup>er</sup> Février 2026, Grand Couva, Trinité.
 
 Que Dieu vous bénisse, âmes bien-aimées. Je viens à vous comme votre frère et ami. Je suis Jésus, Maître du Royaume Céleste. Je me réjouis de votre présence et de votre prière commune. La force et la beauté de vos prières, les aspirations profondes de votre âme, les bénédictions que Dieu vous a accordées et qu’il continuera de répandre sur vous, ont illuminé ce lieu. Que cette lumière soit une bénédiction pour vos familles, vos proches et tous ceux qui font partie de ce lieu, de cette nation.
 

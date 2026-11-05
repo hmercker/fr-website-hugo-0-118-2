@@ -1,0 +1,26 @@
+---
+title: "Cette église sera préservée dans la lumière et l’amour"
+menu_title: ""
+description: "Cette église sera préservée dans la lumière et l’amour"
+date: 2026-11-05 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Cette église sera préservée dans la lumière et l’amour
+
+Ruth de Wimbledon - reçu par Albert Fike le xx Septembre 2026, Cercle de Lumière en ligne, Sechelt, Colombie-Britannique, Canada
+
+Je m’appelle Ruth. J’ai été membre de cette église il y a quelques décennies, et je suis heureuse d’être de nouveau parmi vous, avec ces belles âmes qui se sont rassemblées. Je tiens à vous assurer que cette église sera préservée et qu’elle prospérera, à condition que vous offriez ce que les gens recherchent — non pas ce que vous pensez être leurs besoins, mais ce qu’ils désirent au plus profond de leur cœur. Si vous leur ouvrez votre cœur, ils seront réceptifs et vous écouteront. Mais avant tout, il doit y avoir de l’amour. En vérité, cette église ne manque pas d’amour ; elle en est emplie.
+
+Continuez à cultiver cet état d’esprit, cette perspective, afin que ceux qui franchissent vos portes se sentent chaleureusement accueillis et pleinement acceptés. À mesure qu’ils se sentiront à l’aise, rassurés par votre présence et par les esprits qui viendront s’adresser à eux, ils s’ouvriront et deviendront réceptifs aux paroles de sagesse que vous pourriez partager. Le monde actuel est bien différent, en constante mutation ; il est temps d’apporter de la stabilité, une force de caractère, une sagesse solide et un amour profond dans la vie des âmes égarées — et elles sont des milliers autour de vous, mes amis, profondément perdues. Êtes-vous capables d’empathie ? Pouvez-vous faire preuve de compassion ? Êtes-vous en mesure de comprendre leurs dilemmes ?
+
+Chacun d’entre vous souhaite servir Dieu, servir cette église, qui est une maison de Dieu. Je vous encourage à rechercher votre propre guidance — celle qui émane de votre cœur et de votre âme, ainsi que celle de Dieu — et vous trouverez votre chemin. De nouvelles perspectives et inspirations s’offriront à vous ; vous en serez revigorés, bien que cela puisse aussi représenter un défi. Le changement est difficile, mais des portes s’ouvriront dès lors que vos cœurs seront ouverts et disposés à écouter vos frères et sœurs, qui aspirent à trouver un refuge, un sanctuaire de lumière. Leurs cœurs seront attirés ; et lorsque suffisamment de personnes auront été ainsi attirées, elles en attireront d’autres à leur tour, et l’assemblée grandira. En fait, avec le temps, vous manquerez de chaises pour accueillir tout le monde, et il vous faudra organiser des offices par groupes successifs. Ne serait-ce pas une immense joie pour vous, mes amis, que le message spirituel soit transmis et entendu dans toute sa plénitude, dans toute sa gloire et sa lumière ?
+
+Mes amis, recherchez Dieu. Cherchez Dieu au fond de vos cœurs. Recherchez Son Amour ; par ce biais, tout le reste deviendra possible. Car seule une âme repentante, emplie d’amour, est capable d’entendre la Volonté de Dieu, de la reconnaître et de la vivre. L’Amour de Dieu est offert à chacun d’entre vous, avec une abondance inimaginable et une puissance capable de vous transformer, de vous métamorphoser. Vous saurez quel chemin emprunter. Vous trouverez les mots justes. Vous transmettrez des messages d’amour et de réconfort à ceux qui sont en quête de sens ou qui se sentent perdus.
+
+Mes chers amis, nous avons conduit ces âmes précieuses vers vous afin de vous aider à percevoir la voie qui mène à l’accomplissement de la mission de cette église. La Main de Dieu repose sur elle. Vous ressentez la lumière présente en ces lieux. Vous connaissez la puissance de l’Esprit qui s’y est manifestée. Tous les signes et les prodiges vous accompagnent. Il est désormais temps d’avancer avec audace, en accord avec la Volonté de Dieu — Son dessein, Son désir — pour que chacun de vous devienne un canal d’amour, de vérité et de lumière. Avancez avec courage, foi et confiance ; nous accomplirons alors le travail, mes amis.
+
+Nous accomplirons l’œuvre nécessaire pour attirer les âmes, et une joie immense, une joie retentissante, naîtra de ce qui adviendra dans cette magnifique église. Car, grâce à sa beauté, à son ouverture, à son accueil chaleureux et à son désir de servir dans la lumière, une cloche retentira en ce lieu, attirant les âmes vers vous. Vous percevrez, ressentirez et exprimerez tout ce qui vous sera transmis, tout ce qui se déploiera au nom de la vérité, de la lumière et de l’amour. Écoutez les paroles de Dieu. C’est simple. C’est direct. Cela invite votre âme à répondre. Vous le devez, mes chers amis. Vous le devez.
+
+Que Dieu vous bénisse. Je suis Ruth, et je suis très heureuse de m’adresser à vous aujourd’hui. Je suis très heureuse que vous soyez à l’écoute. Je suis très heureuse d’être parmi vous — vous qui êtes de si belles âmes — au sein de cette église qui constitue une magnifique lumière ; telle est sa vocation, tel est son désir : être une lumière pour le monde. Et ainsi en sera-t-il. Que Dieu vous bénisse tous dans l’Amour de Dieu, dans la lumière de la vérité, et sur ce chemin qui est celui du service. Que Dieu vous bénisse tous.

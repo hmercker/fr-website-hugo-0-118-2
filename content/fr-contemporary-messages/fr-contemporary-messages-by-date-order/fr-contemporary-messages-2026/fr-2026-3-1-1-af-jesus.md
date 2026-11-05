@@ -9,7 +9,7 @@ weight:
 ---
 ### Le monde a besoin de vos prières
 
-Jésus - reçu par Al Fike le <sup>er</sup> Mars 2026, Cercle de prière de Sechelt, BC, Canada.
+Jésus - reçu par Al Fike le 1<sup>er</sup> Mars 2026, Cercle de prière de Sechelt, BC, Canada.
 
 Mes bien-aimés, le monde a grand besoin de vos prières. Je viens. Je suis Jésus, votre frère, votre ami. Ô doux agneaux de Dieu, belles âmes de lumière, continuez de rayonner et d'apporter votre lumière au monde. Cette Lumière est la Lumière de Dieu. Cette Lumière vient de votre Créateur, elle vous est offerte comme un don, un don d'Amour. Il vous appartient de porter cette lampe dans le monde, de marcher comme Ses instruments et canaux d'amour, d'être pleinement en accord avec Sa Volonté, afin d'aider Dieu à transformer le monde. En accueillant les bénédictions et les changements qui vous sont offerts par Son don d'Amour, vous devenez des agents de changement dans le monde. Vous êtes ce bel instrument que Dieu peut utiliser pour toucher de nombreuses personnes. Vous laissez Son Amour se répandre à travers vous vers les autres, le don de guérison donné abondamment et purement à travers chacun de vous.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### La véritable paix au-delà de la peur
 
-Orion - reçu par Albert Fike le 16 Juin 2026, Voix directe, Sechelt, Colombie-Britannique, Canada.
+Yogananda - reçu par Jimbeau Walsh le 19 Octobre 2026, Nashville, Tennesse, USA.
 
 Je vais développer quelque peu le message que notre chère sœur a lu, reçu il y a quelques années par mon frère<sup id="a1">[1](#f1)</sup>. Nous savons que l’Amour de Dieu porte en lui une paix qui dépasse l’entendement intellectuel, une paix qui transcende le monde tout en l’enveloppant. Le monde entier parle de paix, et beaucoup prient pour elle. Les dirigeants mondiaux négocient en faveur de la paix ; il est juste de dire que, au sein de la condition humaine — par la prière, la méditation, et même par le biais de l’amour naturel — la paix est une possibilité. Cependant, cette paix peut fluctuer au gré de la condition humaine. Ainsi, si vous aspirez à trouver cette grande paix dont parlait le Maître, sachez qu’elle est accessible dans la communion avec Dieu, en recevant le don parfait de Son amour, de Sa joie et de la sagesse de l’âme. Cette âme se transforme en vue de l’immortalité, s’élevant au-dessus du monde terrestre tout en continuant à l’embrasser.
 

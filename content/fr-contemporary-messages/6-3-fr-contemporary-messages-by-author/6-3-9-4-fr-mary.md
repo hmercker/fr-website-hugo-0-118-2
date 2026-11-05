@@ -196,4 +196,8 @@ Marie | [Marie nous parle du temps où l'Amour prend forme dans notre âme ; nos
 Marie | [Hommage aux pères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-21-1-mc-mary/) | 21 Juin 2026
 Marie et Jésus | [Marie décrit la bénédiction du toucher de Dieu sur elle ; Jésus bénit le groupe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-23-1-af-mary-and-jesus/) | 23 Juin 2026
 Marie | [Foi, service et bénédictions d'amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-18-1-af-mary/) | 18 Août 2026 
+Marie | [Tout commence et tout finit en Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-1-2-af-mary/) | 1 Septembre 2026
+Marie | [Lorsque vous vous sentez en déséquilibre, prenez un moment pour retrouver la paix de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-9-2-mc-mary/) | 9 Septembre 2026
+Marie | [Permettez à cette substance vivante de l’Amour Divin de vous transformer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-12-2-mc-mary/) | 12 Septembre 2026 
+Marie | [Marie se présente en tant que gardienne de l’Église spiritualiste de Wimbledon](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-14-2-mc-mary/) | 14 Septembre 2026
  

@@ -432,7 +432,9 @@ Augustin | [Assumez la responsabilité de votre état et restez fidèles à la v
 Augustin | [Le moment est venu : Libérez-vous des habitudes néfastes, sortez de votre cocon et avancez pour accomplir votre destinée ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-16-1-af-augustine/) | 16 Mai 2026
 Augustin | [Cette vérité vous offre l'opportunité de changer votre perspective sur la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-20-1-af-augustine/) | 20 Juin 2026 
 Augustin | [Ne vous cachez pas de vos sentiments ; permettez plutôt à Dieu de remplacer la disharmonie par Son Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-21-1-af-augustine/) | 21 Juillet 2026 
+Augustin | [Lorsque vous priez ensemble, chacun de vous apporte une dimension unique que nul autre ne peut offrir](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-31-3-af-augustine/) | 31 Août 2026
 Augustin | [Vous devez tenir compte de nos avertissements et vous préparer à la tempête du changement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-1-1-af-augustine/) | 1 Septembre 2026 
+Augustin | [C’est une voie qui englobe tout ; il n’existe rien de plus élevé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-7-2-af-augustine/) | 7 Septembre 2026
 
 
 

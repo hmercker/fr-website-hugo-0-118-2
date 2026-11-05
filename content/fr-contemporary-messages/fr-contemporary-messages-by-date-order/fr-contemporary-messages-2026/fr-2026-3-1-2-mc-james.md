@@ -9,7 +9,7 @@ weight:
 ---
 ### Découvrir le fonctionnement des lois spirituelles dans votre vie grâce à l'étude et à l'observation
 
-James - reçu par Maureen Cardoso le 1<sup>er</sup> Mars 2026, Beams of Light, Abbotsford, C.-B., Canada.
+Jacques - reçu par Maureen Cardoso le 1<sup>er</sup> Mars 2026, Beams of Light, Abbotsford, C.-B., Canada.
 
 Que Dieu vous bénisse, mes chers amis. Je suis James. Vous m'attirez parmi vous par les désirs de votre âme, votre aspiration à l'Amour de Dieu, votre réceptivité à cet Amour, ainsi que par les changements qui s'opèrent et la transformation que chacun de vous traverse. Je suis heureux d'être avec vous. Je suis heureux de vous soutenir, de vous guider et de contribuer à influencer votre cheminement sur la Voie Divine ; je vous aide à comprendre le véritable sens de cette marche et à découvrir la lumière, l'amour, la vérité, la puissance et la sagesse de ce que vous êtes réellement : une âme magnifique créée à l'image de Dieu, créée dans la perfection.
 

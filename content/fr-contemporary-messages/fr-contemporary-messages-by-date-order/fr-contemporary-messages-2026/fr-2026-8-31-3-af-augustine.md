@@ -1,0 +1,24 @@
+---
+title: "Lorsque vous priez ensemble, chacun de vous apporte une dimension unique que nul autre ne peut offrir"
+menu_title: ""
+description: "Lorsque vous priez ensemble, chacun de vous apporte une dimension unique que nul autre ne peut offrir"
+date: 2026-11-05 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Lorsque vous priez ensemble, chacun de vous apporte une dimension unique que nul autre ne peut offrir
+
+Augustin - reçu par Albert Fike le 31 Août 2026, Cercle de Lumière en ligne, Sechelt, Colombie-Britannique, Canada.
+
+Que Dieu vous bénisse, mes chers élèves. C’est Augustin, votre enseignant. Il est bon que vous preniez le temps de prier ensemble, en personne. Vos prières, lorsque vous êtes ainsi réunis, revêtent une qualité et une substance particulières. Elles créent une lumière autour de vous et à travers vous, qui pénètre dans ce monde et dissipe une grande part des ténèbres. Puisque vous faites tous partie de ce vaste réseau — la « Trame de Lumière » (Lattice of Light) — vous contribuez, ensemble, à charger cette trame de manière efficace et puissante.
+
+Il est également bon de prier seul, afin de communier avec votre Père céleste ; c’est là le fondement, le pilier de votre vie quotidienne, de votre vie de prière. Cependant, à mesure que vous instaurez ces conditions dans votre existence de chaque jour, et que vous continuez à grandir et à prospérer dans l’Amour de Dieu, vous apportez quelque chose d’unique lorsque vous vous rassemblez au sein de ces « Cercles de Lumière ». Vous y ajoutez un aspect, une dimension que nul autre ne peut apporter ; ainsi, ensemble, vous formez un tout plus complet. Ces Cercles de Lumière recèlent davantage de puissance, de beauté et de lumière que si vous priiez isolément.
+
+Il demeure essentiel, pour chacun d’entre vous, de solliciter auprès de Dieu cette immense bénédiction qu’est Son Amour — de le faire avec une sincérité et un désir profonds, de cheminer dans cette lumière qui constitue la grâce divine, et de demeurer en harmonie avec la Volonté de Dieu. Vous, mes chers et magnifiques élèves, vous le savez. Je vous le rappelle néanmoins, pour le bien des nombreux esprits que vous amenez avec vous dans ce Cercle de Lumière. Je souhaite bénir cet instrument, qui s’apprête à entreprendre un nouveau voyage afin d’aider à former d’autres Cercles de Lumière. Qu’il sache que nous sommes tout près, et que tout ira bien. Qu’il laisse de côté toute anxiété et trouve la paix.
+
+Quant à vous tous, si certaines choses viennent troubler votre esprit ou introduire des ondes de disharmonie dans votre conscience, écartez-les et remplacez-les par la foi. Remplacez-les par la Lumière de l’Amour de Dieu, et vous connaîtrez une paix véritable. Vous tirerez un réel bénéfice de votre choix et de votre désir de demeurer dans la grâce de Dieu — de ne pas vous en exclure, de ne pas vous laisser entièrement absorber par les préoccupations du monde matériel, mais de goûter à cette paix qui dépasse toute intelligence, et de savoir que vos amis les anges sont à vos côtés. La main de Dieu repose sur vous, et vous baignez dans la Lumière. Seules les préoccupations et les anxiétés du mental viennent amoindrir cette expérience, cet état. Vous devez apprendre à maîtriser ces pensées, à écarter cette anxiété, ce besoin de plaire — ce besoin qui s’accompagne souvent de la crainte d’être réprimandé, rejeté ou de susciter une réaction négative chez autrui.
+
+Pourtant, lorsque vous êtes avec Dieu, ces choses perdent toute importance, même si elles continuent d’exister. Dieu ne vous rejettera jamais, ne vous réprimandera jamais, et ne vous fera jamais passer de la lumière vers les ténèbres. Au contraire, Il vous conduit toujours des ténèbres vers la lumière. Ayez donc foi en cela : vous faites bel et bien partie de ce vaste réseau de « porteurs de lumière » dans le monde ; vous y apportez votre vérité, vous y jouez votre rôle, vous y offrez votre état intérieur et votre lumière, et vous y témoignez de votre foi pour manifester la vérité. Que Dieu vous bénisse, mes bien-aimés, mes merveilleux élèves, sur ce chemin de transformation par l’Amour de Dieu. Ce processus se déroule au rythme que vous déterminez, qu’il soit rapide ou lent. Ce sont votre volonté, vos efforts, votre désir, votre persévérance et vos prières qui font toute la différence et qui enrichissent ce cheminement.
+
+Puissiez-vous tous trouver votre voie au sein de l’harmonie, de la beauté et de l’amour qui constituent la présence de Dieu auprès de vous, et Son Amour en vous. Que Dieu vous bénisse. Je suis votre enseignant, Augustin. Mon amour vous accompagne. Je suis réellement avec vous. Que Dieu vous bénisse.

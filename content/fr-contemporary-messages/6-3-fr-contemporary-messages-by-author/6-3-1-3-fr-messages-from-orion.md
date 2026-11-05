@@ -250,6 +250,7 @@ Orion | [Prenez conscience de vos obstacles réflexes et inconscients](/fr-conte
 Orion | [Des choses merveilleuses se produiront une fois que vous serez en parfaite harmonie avec la volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-14-1-af-orion/) | 14 Août 2026 
 Orion | [Vous bénéficiez d’un soutien immense](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-18-2-af-orion/) | 18 Août 2026
 Orion | [Enseignement sur les trois esprits : matériel, spirituel et celui de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-22-1-af-orion/) | 22 Août 2026 
+Orion | [Le processus de nettoyage de l’âme et la possibilité de purification sur Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-29-1-af-orion/) | 29 Août 2026
 
 
 

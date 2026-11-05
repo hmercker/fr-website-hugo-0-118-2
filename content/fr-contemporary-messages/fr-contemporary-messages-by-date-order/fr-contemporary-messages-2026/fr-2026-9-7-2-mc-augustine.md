@@ -1,0 +1,24 @@
+---
+title: "C’est une voie qui englobe tout ; il n’existe rien de plus élevé"
+menu_title: ""
+description: "C’est une voie qui englobe tout ; il n’existe rien de plus élevé"
+date: 2026-11-05 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### C’est une voie qui englobe tout ; il n’existe rien de plus élevé
+
+Augustin - reçu par Maureen Cardoso le 7 Septembre 2026, Cercle de Lumière en ligne, Sechelt, Colombie-Britannique, Canada.
+
+Que Dieu vous bénisse. C’est votre enseignant, Augustin. Nous prenons plaisir à observer votre curiosité, vos connaissances et votre sagesse, au fil de vos questions, de vos réponses et de vos échanges, car c’est ainsi que vous progressez, dans une certaine mesure. Un mouvement se produit au sein de l’âme en réponse à ce qui a été exprimé. De cette façon, vous vous aidez les uns les autres. Lorsqu’une question est posée par quelqu’un que vous pourriez considérer comme « nouveau » dans la découverte de ces connaissances et de ces vérités, ceux qui possèdent davantage d’expérience, qui ont progressé dans leur âme et qui portent en elle une certaine sagesse, peuvent alors répondre. Vous vous apportez ainsi une aide mutuelle, car il y a une différence entre le fait, pour l’âme, de porter en elle une sagesse, et le fait que cette sagesse s’exprime à travers les mots et les concepts de l’individu.
+
+Cette voie, comme vous le savez, est celle de l’âme. Lorsque vous vous exprimez depuis votre essence et que vous permettez à votre conscience matérielle de résider au sein de la conscience de votre âme, vous êtes en mesure de transmettre des vérités plus profondes que lorsque vous utilisez des mots issus de vos seules connaissances matérielles — lesquelles ne touchent pas aussi intensément. Vous grandissez tous dans cette expérience de l’éveil de votre âme aux vérités, où les facettes et les qualités de votre âme se développent grâce à la Substance de Dieu. En vous ouvrant à votre âme et en accueillant ce grand afflux, vous recevez une part de cette Substance qui porte en elle la sagesse et la connaissance de la vérité.
+
+C’est pourquoi une âme qui choisit la voie de l’Amour Divin accède également aux vérités universelles — ces dimensions, ces aspects de la vérité vers lesquels se sentent très attirées les personnes qui suivent la voie de l’amour naturel, et pour lesquels elles consacrent beaucoup de temps au développement de leurs facultés mentales. Celui qui suit la voie de l’Amour Divin, en absorbant la Substance de Dieu et en se laissant transformer par elle, accède lui aussi à des vérités spirituelles et universelles. Il s’agit donc d’une voie qui englobe tout, qui ne connaît aucune limite et qui permet une union éternelle avec le Créateur. Cela ne signifie pas que vous atteignez un état de fusion totale et définitive, mais plutôt que vous vous développez continuellement dans la vérité. Car il n’y a pas de fin.
+
+Bénissez-vous chaque jour en accueillant un vaste afflux de l’Amour de Dieu. Ayez foi — et mettez cette foi en pratique — dans le fait qu’en tant qu’âme, vous êtes directement nourris par Dieu, dans l’Amour et la Vérité ; car cette Substance devient ce que vous êtes. Vous ferez l’expérience d’une transformation de votre nature : vous deviendrez, par essence, emplis d’amour et de compassion. Vous n’aurez plus besoin de « fabriquer » de la patience ou de la joie ; car ces qualités constituent votre être véritable lorsque votre âme s’éveille dans l’Amour de Dieu.
+
+Il n’existe pas de maître, de force de transformation ou de source de réconfort plus élevés que l’Amour Divin — la Substance même de Dieu. Prendre le temps, chaque jour — et à divers moments de la journée — de s’imprégner de cette Substance d’Amour, vous engagera sur un véritable chemin d’éveil, un chemin empli de joie. Cela vous transforme et vous libère des conditionnements humains que vous portez en vous ; en les transmutant, cela vous ouvre aux bénédictions de la joie et aux sommets de l’euphorie. Continuez ainsi, chers élèves. Poursuivez votre chemin, et permettez à vos facultés mentales de manifester une grande curiosité quant à votre véritable nature et à l’éveil de votre âme. Parcourez votre chemin vers Dieu, et avec Dieu. Nous serons à vos côtés pour vous guider, vous aider, vous aimer, vous réconforter et vous enseigner ; car cela fait partie de notre mission — une mission qui se déploie et s’accomplit au sein de chacun d’entre vous.
+
+Que la lumière de votre âme continue de rayonner à mesure que vous accueillez l’Amour Divin. Je suis Augustin, votre enseignant. Je suis très heureux d’être parmi vous et de transmettre ce message d’amour et de vérité à chacun d’entre vous. Que Dieu vous bénisse.

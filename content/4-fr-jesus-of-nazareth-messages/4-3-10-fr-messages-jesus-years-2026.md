@@ -57,7 +57,15 @@ Jésus | [Des phares de lumière dans le grand plan de Dieu](/fr-contemporary-me
 Jésus | [Le chemin éternel de l'éveil de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-9-1-af-jesus/) | 9 Août 2026
 Jésus | [Bien-aimés instruments de Dieu : marcher dans l'amour et le service](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-16-1-af-jesus/) | 16 Août 2026 
 Jésus | [Soyez prêts et préparés au changement imminent de la réalité de l’humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-23-1-af-jesus/) | 23 Août 2026
+Jésus | [Il est temps d’avancer dans le service Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-28-1-af-jesus/) | 28 Août 2026
 Jésus | [De la confusion du mental à la sagesse de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-30-1-af-jesus/) | 30 Août 2026
+Jésus | [Obstacles de l’esprit et de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-31-2-af-jesus/) | 31 Août 2026
+Jésus | [Bien que nous commencions par le plan physique, beaucoup sont bénis dans l’esprit](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-2-1-af-jesus/) | 2 Septembre 2026
+Jésus | [Laissez les aspirations de votre âme rayonner vers Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-5-1-af-jesus/) | 5 Septembre 2026
+Jésus | [Le ministère de l’âme s’accomplit par le partage de vos expériences et la création de liens personnels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-6-1-af-jesus/) | 6 Septembre 2026
+Michael Collier & Jésus | [Après cette période de répit, il est temps d’entamer le travail](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-10-2-af-michael-collier-jesus/) | 10 Septembre 2026
+Jésus | [Jésus inaugure la retraite de Harrow](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-11-1-af-jesus/) | 11 Septembre 2026
+
 
 
 

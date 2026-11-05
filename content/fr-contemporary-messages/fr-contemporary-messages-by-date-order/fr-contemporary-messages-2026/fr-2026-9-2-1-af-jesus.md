@@ -1,0 +1,22 @@
+---
+title: "Bien que nous commencions par le plan physique, beaucoup sont bénis dans l’esprit"
+menu_title: ""
+description: "Bien que nous commencions par le plan physique, beaucoup sont bénis dans l’esprit"
+date: 2026-11-05 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Bien que nous commencions par le plan physique, beaucoup sont bénis dans l’esprit
+
+Jésus - reçu par Albert Fike le 2 Septembre 2026, Cercle de Lumière en ligne, Sechelt, Colombie-Britannique, Canada.
+
+Que Dieu vous bénisse. Je viens. Je suis votre frère et ami, Jésus. Ceux qui sont mes disciples seront bénis en conséquence ; ils seront protégés, guidés, inspirés et rendus capables d’agir comme des canaux de l’amour de Dieu dans le monde. À mesure que chacun de vous s’engage à servir, ces bénédictions se manifesteront, mes bien-aimés ; vous connaîtrez alors la lumière, l’élévation et la plénitude de la présence de Dieu à vos côtés. Tout ce qui est nécessaire pour servir — pour devenir ce canal de vérité et d’amour dans le monde — vous sera accordé.
+
+Vous le constatez à travers cet instrument, ce bel enfant, ce disciple qui est le mien. Il en sera de même pour vous, mes bien-aimés, à mesure que vous approfondirez votre engagement à servir et à vous inscrire dans ce courant de service au sein du monde — un monde qui a tant besoin de vous, un monde si dépourvu de lumière, de vérité et d’amour. Nous poursuivons notre cheminement ensemble. La bénédiction de l’Amour et de la Vérité de Dieu sera portée sur les ailes de l’amour, accompagnée des bénédictions divines, ainsi que de ma protection et de mes bénédictions personnelles — tant pour cet instrument que pour tous ceux qui participent à faire connaître la Vérité de l’Amour de Dieu aux autres.
+
+Lorsqu’ils pénètrent dans la salle, le nombre de personnes présentes peut sembler restreint ; mais n’oubliez pas que les esprits, eux, sont nombreux. Bien que ceux qui incarnent la chair ne soient souvent pas pleinement conscients de la vérité — et ne l’intègrent pas dans leur cœur et leur esprit de manière à transformer leur existence —, les esprits qui les entourent — par centaines, voire par milliers — reçoivent, quant à eux, des bénédictions profondes et intenses. C’est là une part essentielle de notre œuvre. Nous commençons par le plan physique, mais, en réalité, une grande partie des bénédictions se déploie sur le plan spirituel. Nous poursuivons notre périple pour apporter la vérité au monde — non seulement au monde matériel, mais aussi au monde des esprits. Il en est ainsi, et il en sera toujours ainsi, jusqu’à ce que l’humanité ouvre ses oreilles et ses yeux, et qu’elle soit désireuse d’écouter, d’apprendre et d’en venir à connaître Dieu.
+
+Bien que ceux qui vivent dans la chair ne soient peut-être pas pleinement conscients — au sens d’un éveil spirituel — de ce qui se passe, leurs âmes, elles, reçoivent la vérité. Leurs âmes connaîtront la vérité et y répondront comme il se doit. Mes disciples bien-aimés, frères dans la vérité, cela exige de la patience et de l’humilité ; cela demande la capacité de servir l’humanité sans jugement, mais avec le désir d’aimer et d’apporter du réconfort — de réconforter le plus grand nombre, de réconforter ceux qui sont perdus. Réconfortez ceux qui sont dans l’ignorance. Réconfortez tous ceux qui cherchent à faire entrer la chaleur de l’Amour de Dieu parmi eux, afin qu’ils puissent se baigner dans cette lumière et en connaître la bénédiction ; qu’elle puisse entrouvrir leurs âmes, leur permettant de recevoir une part de ce don. Avec le temps, ce don agira comme un levain au sein de l’âme, y éveillant un désir — conscient et sincère — de Dieu.
+
+Oui, des bénédictions. Même ceux d’entre vous qui ne font pas partie de ce cercle béni, mais qui sont en chemin, peuvent offrir leurs prières de soutien et d’amour. Elles seront accueillies avec gratitude et transmises à ces belles âmes qui cheminent, ainsi qu’à celles qui attendent avec impatience leur arrivée. Que Dieu vous bénisse, mes bien-aimés, frères et sœurs sur le sentier. Nous poursuivons notre route. Lorsque l’un avance, tous avancent. Une bénédiction pour tous. Un don d’Amour venant de Dieu. Que Dieu vous bénisse, mes bien-aimés. Je suis votre frère et votre ami, Jésus. Je vous aime. Je vous aime tant.

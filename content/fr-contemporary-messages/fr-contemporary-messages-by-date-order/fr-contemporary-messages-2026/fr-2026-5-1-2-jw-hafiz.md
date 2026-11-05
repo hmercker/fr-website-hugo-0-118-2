@@ -9,7 +9,7 @@ weight:
 ---
 ### Sept grains de vérité
 
-Hafiz - reçu par Jimbeau Walsh le <sup>er</sup> Mai 2026, Cercle de Lumière en ligne, Anaheim, Californie, États-Unis.
+Hafiz - reçu par Jimbeau Walsh le 1<sup>er</sup> Mai 2026, Cercle de Lumière en ligne, Anaheim, Californie, États-Unis.
 
 Ce qui est créé dans les ténèbres peut regarder sans voir. Ce qui est créé dans le chaos peut écouter sans entendre. Car un cœur en état de quiétude éveille les sens, et l'esprit se retire en l'âme.
 

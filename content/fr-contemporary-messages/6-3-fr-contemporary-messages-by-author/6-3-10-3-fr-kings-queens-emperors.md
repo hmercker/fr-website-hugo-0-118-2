@@ -38,6 +38,7 @@ Reine Victoria | [Parle de la loyauté (Reine d'Angleterre)](/fr-contemporary-me
 Reine Victoria | [Soyez fidèles, mais surtout, soyez forts et sages dans l'amour de Dieu.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-162-1970-anonymous-queen-victoria/) |   1970
 Reine Victoria | [Beaucoup travaillent ensemble pour la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-3-2-af-queen-victoria/) | 3 Novembre 2017
 Reine Victoria | [Désire l’harmonie, la lumière, l’amour et la joie pour tous dans son pays : Guernesey](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-15-5-af-queen-victoria/) | 15 Mai 2022
+Reine Victoria | [La reine Victoria décrit son cheminement dans le monde spirituel et exprime son espoir de voir la Vérité de Dieu partagée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-4-3-af-queen-victoria/) | 4 Septembre 2026 
 || <p align="center"><span style="color:red">**communications de Robert Kennedy**</span></p> | |
 Robert Kennedy | [Guidance divine d'un Kennedy](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-29-1-fab-robert-kennedy/) | 29 Août 2008
 Robert Kennedy | [Guidance divine d'un Kennedy - 2](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2008/fr-2008-8-30-1-fab-robert-kennedy/) | 30 Août 2008

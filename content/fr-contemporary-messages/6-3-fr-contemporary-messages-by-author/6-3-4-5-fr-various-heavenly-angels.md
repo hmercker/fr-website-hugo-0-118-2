@@ -44,6 +44,8 @@ Esprit Céleste Elevé | [Tendre l’autre joue](/fr-contemporary-messages/fr-co
 Estelle Roberts et Augustin | [Les Anges se préparent à nous accueillir à Harrow](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-8-13-1-af-estelle-roberts-augustine/) | 13 Août 2025
 Estelle Roberts | [Ouverture de la retraite de Harrow : chantez votre chanson émouvante sur la vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-5-1-af-estelle-roberts/) | 5 Septembre 2025 
 Estelle Roberts | [Cette église sera un sanctuaire de lumière pour beaucoup](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-9-7-3-af-estelle-roberts/) | 7 Septembre 2025
+Estelle Roberts | [Ancrez-vous en Dieu avant de passer dans le monde spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-12-1-af-estelle-roberts/) | 12 Septembre 2026 
+Estelle Roberts | [L’Amour Divin est tout ce dont vous avez besoin, et bien plus encore](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-13-2-af-estelle-roberts/) | 13 Septembre 2026 
 Frederick Douglass | [Guérison des chaînes temporelles et spirituelles](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-4-1-jw-frederick-douglass/) | 4 Mai 2026
 Frère Mandus | [Foi et Âme 5 : Frère Mandus parle du WHC et nous exhorte à surmonter nos réticences](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-12-1-af-brother-mandus/) | 12 Février 2026
 Grace | [Un message de réconfort](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-11-24-3-af-grace/) | 24 Novembre 2022
@@ -86,6 +88,7 @@ Martha | [Prière d'ouverture de Konda Coast](/fr-contemporary-messages/fr-conte
 Marthe et Serreta Kem | [Prière d’ouverture de la grande île d’Hawaï](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-2-27-2-af-martha-and-serreta-kem/) | 27 Février 2024
 Meera | [L’espoir change la réalité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-2-4-2-wv-meera/) | 4 Février 2004
 Meera | [Importance de la dualité et des limites](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2004/fr-2004-2-19-1-wv-meera/) | 19 Février 2004
+Melvina | [L’influence de notre cheminement sur nos proches dans le monde spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-23-2-mc-melvina/) | 23 Août 2026
 Mère du médium | [Dieu est juste](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-8-1-fab-mother-of-medium/) | 8 Août 2007
 Naari et Jésus | [Se présente comme l'un des anges Célestes anonymes qui viennent nous administrer à tous la guérison, la bénédiction de la guérison ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-7-2-af-naari-and-jesus/) | 7 Mai 2024
 Ophélius | [La couleur dans la mosaïque de la vie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2011/fr-2011-9-4-1-chris-ophelius/) | 4 Septembre 2011
@@ -101,6 +104,7 @@ Riannon | [Restez connectés](/fr-contemporary-messages/fr-contemporary-messages
 Richard | [Donner, recevoir, émotions et pensées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2013/fr-2013-3-15-1-jr-richard/) | 15 Mars 2013
 Richard | [Gratitude](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2014/fr-2014-5-18-1-jr-richard/) | 18 Mai 2014
 Rick Minckler | [Son rêve pour FUSC s'est réalisé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-30-1-af-rick-minckler/) | 30 Mars 2025 
+Ruth de Wimbledon | [Cette église sera préservée dans la lumière et l’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-14-4-af-ruth-of-wimbledon/) | 14 Septembre 2026 
 Salome | [Les désirs de notre âme en alignement avec la volonté de Dieu (2021 Voix directe II)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-9-17-1-af-salome/) | 17 Septembre 2021
 Salome | [Le monde a besoin de vos prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-6-21-2-af-salome/) | 21 Juin 2022
 Sam | [Retraite spirituelle - Hawaii](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2002/fr-2002-6-6-1-fab-sam/) | 6 Juin 2002

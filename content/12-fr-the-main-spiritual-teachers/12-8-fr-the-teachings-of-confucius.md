@@ -141,4 +141,5 @@ Confucius | [Message de clôture de la retraite de Fontainebleau](/fr-contempora
 Confucius | [Soyez consciencieux et faites de grands efforts](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-7-3-af-confucius/) | 7 Janvier 2026 
 Confucius | [Trouver l'humour dans nos conversations sur la Vérité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-10-2-af-confucius/) | 10 Janvier 2026 
 Confucius | [Votre cheminement vers Dieu et vers votre âme est amplifié grâce aux efforts de vos amis Célestes](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-6-2-af-confucius/) | 6 Juin 2026 
+Confucius | [L’amour est la réponse](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-8-1-af-confucius/) | 8 Septembre 2026
 

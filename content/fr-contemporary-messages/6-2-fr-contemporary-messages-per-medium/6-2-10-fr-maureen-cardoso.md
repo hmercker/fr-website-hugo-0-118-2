@@ -182,5 +182,11 @@ Seretta Kem | [Au-delà de la vie terrestre : la sollicitude de Dieu pour l'âme
 Marie | [Hommage aux pères](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-6-21-1-mc-mary/) | 21 Juin 2026
 Saint Luc | [L’Amour de Dieu éveillera en votre âme un désir et une réceptivité accrus](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-5-2-mc-st-luke/) | 5 Juillet 2026
 Goldie | [Joie infinie, Amour infini](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-16-2-mc-goldie/) | 16 Août 2026 
+Melvina | [L’influence de notre cheminement sur nos proches dans le monde spirituel](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-23-2-mc-melvina/) | 23 Août 2026
+Keea Atta Kem | [L’espoir des anges pour nous, depuis la retraite de Bassingham](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-4-2-mc-keea-atta-kem/) | 4 Septembre 2026
+Augustin | [C’est une voie qui englobe tout ; il n’existe rien de plus élevé](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-7-2-mc-augustine/) | 7 Septembre 2026
+Marie | [Lorsque vous vous sentez en déséquilibre, prenez un moment pour retrouver la paix de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-9-2-mc-mary/) | 9 Septembre 2026
+Marie | [Permettez à cette substance vivante de l’Amour Divin de vous transformer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-12-2-mc-mary/) | 12 Septembre 2026 
+Marie | [Marie se présente en tant que gardienne de l’Église spiritualiste de Wimbledon](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-14-2-mc-mary/) | 14 Septembre 2026
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)
