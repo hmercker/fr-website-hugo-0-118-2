@@ -1,7 +1,7 @@
 ---
 title: "Le Chemin de la Prière du Cœur"
 menu_title: ""
-description: "Le Chemin de la Prière du Cœur"
+description: "Barthélémy, reçu par Al Fike : « Que la bénédiction de l’Amour du Père pénètre abondamment et puissamment dans vos âmes. Je tiens à souligner l’importance … »"
 date: 2026-05-24 16:00:01+00:01
 draft: False
 hidden: True

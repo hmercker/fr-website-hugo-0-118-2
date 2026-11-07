@@ -1,7 +1,7 @@
 ---
 title: "Créer un sanctuaire dans une communauté de cœur"
 menu_title: ""
-description: "Créer un sanctuaire dans une communauté de cœur"
+description: "Yogananda, reçu par Jimbeau Walsh : « Car, à mesure que les événements dans le monde deviennent plus polarisés, le besoin de sanctuaire, le besoin de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

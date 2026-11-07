@@ -1,7 +1,7 @@
 ---
 title: "Nous venons partager la lumière"
 menu_title: ""
-description: "Nous venons partager la lumière"
+description: "Jésus, reçu par Albert Fike : « Les bénédictions de l’Amour du Père continuent à remplir vos âmes. Vous avez attiré une foule d’anges parmi vous. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

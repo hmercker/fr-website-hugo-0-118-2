@@ -1,7 +1,7 @@
 ---
 title: "24ème Révélation : Jésus explique les passages de La Prière et corrige plus de passages de l’Évangile de Jean"
 menu_title: ""
-description: "24ème Révélation : Jésus explique les passages de La Prière et corrige plus de passages de l’Évangile de Jean"
+description: "Jésus, reçu par Dr Samuels : « Padgett - la seule nécessaire pour obtenir l’Amour du Père ; et le Docteur doit vraiment être félicité pour sa perspicacité … »"
 date: 2022-06-01 06:00:01+00:24
 draft: False
 hidden: True

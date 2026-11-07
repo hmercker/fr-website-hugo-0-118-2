@@ -1,7 +1,7 @@
 ---
 title: "Permettre à l’Amour de Dieu d’entrer dans nos âmes"
 menu_title: ""
-description: "Permettre à l’Amour de Dieu d’entrer dans nos âmes"
+description: "Jeanne d'Arc, reçu par Elizabeth Mack : « Chaque fois que vous vous réunirez pour prier, je serai avec vous, ombrageant ce cercle que vous créez. »"
 date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Suivez vos rêves"
 menu_title: ""
-description: "Suivez vos rêves"
+description: "Yogananda, reçu par Jimbeau Walsh : « Je voudrais parler des rêves. Vous êtes-vous déjà demandé pourquoi les gens disent « poursuivez vos rêves » , « que … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Servir les enfants du monde"
 menu_title: ""
-description: "Servir les enfants du monde"
+description: "Fred Rogers, reçu par reçu par Jimbeau Walsh : « Retraite d’Amour Divin en Floride N’est-ce pas une belle journée dans le quartier ? »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

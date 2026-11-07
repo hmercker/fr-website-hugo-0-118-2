@@ -1,7 +1,7 @@
 ---
 title: "Jésus sur la « Nouvelle Pensée ». L’importance pour l’humanité de connaître la vérité sur la Nouvelle Naissance"
 menu_title: ""
-description: "Jésus sur la « Nouvelle Pensée ». L’importance pour l’humanité de connaître la vérité sur la Nouvelle Naissance"
+description: "Jésus, reçu par James Padgett : « Ils sont sincères dans leurs efforts pour obtenir la connaissance de la vérité, mais la difficulté est que, bien qu’ils … »"
 date: 2022-06-01 06:00:01+00:33
 draft: False
 hidden: True

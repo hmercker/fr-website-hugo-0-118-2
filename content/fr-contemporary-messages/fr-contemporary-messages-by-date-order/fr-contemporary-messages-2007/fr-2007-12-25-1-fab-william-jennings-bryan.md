@@ -1,7 +1,7 @@
 ---
 title: "Égalité et liberté"
 menu_title: ""
-description: "Égalité et liberté"
+description: "William Jennings Bryan, reçu par FAB : « Je sais qu'une partie de vous est d'accord avec le message que j'ai transmis hier, mais une autre partie de vous … »"
 date: 2022-06-01 06:00:01+00:187
 draft: False
 hidden: True

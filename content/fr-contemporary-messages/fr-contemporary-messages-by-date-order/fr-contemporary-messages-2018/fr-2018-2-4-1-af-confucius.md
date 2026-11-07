@@ -1,7 +1,7 @@
 ---
 title: "Cherchez Dieu avec votre cœur"
 menu_title: ""
-description: "Cherchez Dieu avec votre cœur"
+description: "Confucius, reçu par Al Fike : « Ce fut une bénédiction pour moi de vous parler sur terre, à vous qui êtes prêts à écouter, car j’ai consacré ma vie et mon … »"
 date: 2022-06-01 06:00:01+00:313
 draft: False
 hidden: True

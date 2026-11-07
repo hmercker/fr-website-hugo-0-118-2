@@ -1,7 +1,7 @@
 ---
 title: "Un message de confirmation du père de James Padgett"
 menu_title: ""
-description: "Un message de confirmation du père de James Padgett"
+description: "John Padgett, reçu par James Padgett : « Il était avec toi et tu es celui qui doit se sentir très honoré. Tu dois croire que c’était lui. »"
 date: 2022-06-01 06:00:01+00:14
 draft: False
 hidden: True

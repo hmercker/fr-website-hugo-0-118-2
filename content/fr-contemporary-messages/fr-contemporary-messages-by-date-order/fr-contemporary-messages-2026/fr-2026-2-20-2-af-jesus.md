@@ -1,7 +1,7 @@
 ---
 title: "Puissiez-vous comprendre combien vous êtes aimés"
 menu_title: ""
-description: "Puissiez-vous comprendre combien vous êtes aimés"
+description: "Jésus, reçu par Al Fike : « Tous les anges vous aiment. Que votre univers, votre conscience, soient emplis de la certitude de l’amour que vous portez à Dieu. »"
 date: 2026-05-24 16:00:01+00:01
 draft: False
 hidden: True

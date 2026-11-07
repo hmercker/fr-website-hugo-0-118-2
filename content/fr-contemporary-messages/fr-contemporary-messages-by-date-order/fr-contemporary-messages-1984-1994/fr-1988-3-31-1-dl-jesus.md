@@ -1,7 +1,7 @@
 ---
 title: "Les guérisons ne se font pas toujours instantanément"
 menu_title: ""
-description: "Les guérisons ne se font pas toujours instantanément"
+description: "Jésus, reçu par Révérend Dave Lampron : « R. bien sûr, qui désirent connaître plus clairement les rouages de la volonté du Père en ce qui concerne la … »"
 date: 2022-06-01 06:00:01+00:34
 draft: False
 hidden: True

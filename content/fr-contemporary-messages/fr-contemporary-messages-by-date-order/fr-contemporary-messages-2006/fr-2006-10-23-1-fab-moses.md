@@ -1,7 +1,7 @@
 ---
 title: "Moïse sur le Judaïsme"
 menu_title: ""
-description: "Moïse sur le Judaïsme"
+description: "Moïse, reçu par FAB : « Permettez-moi de commenter la déclaration que j’ai faite (et je l’ai vraiment fait) dans un message que j’ai communiqué à James … »"
 date: 2022-06-01 06:00:01+00:58
 draft: False
 hidden: True

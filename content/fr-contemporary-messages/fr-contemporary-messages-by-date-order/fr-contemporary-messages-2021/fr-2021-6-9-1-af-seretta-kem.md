@@ -1,7 +1,7 @@
 ---
 title: "Les efforts des anges pour apporter la vérité sur Terre"
 menu_title: ""
-description: "Les efforts des anges pour apporter la vérité sur Terre"
+description: "Seretta Kem, reçu par Al Fike : « Car il y a beaucoup de choses impliquées dans cette communication. Mais soyez assurés qu’elle est alimentée par l’amour … »"
 date: 2022-06-01 06:00:01+00:1536
 draft: False
 hidden: True

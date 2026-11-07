@@ -1,7 +1,7 @@
 ---
 title: "Comment cela s'aligne-t-il sur la Volonté de Dieu?"
 menu_title: ""
-description: "Comment cela s'aligne-t-il sur la Volonté de Dieu?"
+description: "St Matthieu, reçu par Al Fike : « Au fur et à mesure que vous progressez dans ces entreprises, il est important que vous vous posiez ces questions  … »"
 date: 2022-06-01 06:00:01+00:1363
 draft: False
 hidden: True

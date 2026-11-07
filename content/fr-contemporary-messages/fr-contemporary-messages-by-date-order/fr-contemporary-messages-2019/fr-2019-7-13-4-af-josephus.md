@@ -1,7 +1,7 @@
 ---
 title: "Q&R : L'impact sur un mortel d'être pleinement transformé"
 menu_title: ""
-description: "Q&R : L'impact sur un mortel d'être pleinement transformé"
+description: "Flavius Josèphe, reçu par Al Fike : « Je continue à vous servir avec la possibilité d’élucider vos questions et vos émerveillements de la vie concernant … »"
 date: 2022-06-01 06:00:01+00:788
 draft: False
 hidden: True

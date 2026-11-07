@@ -1,7 +1,7 @@
 ---
 title: "Marcher dans la Volonté de Dieu"
 menu_title: ""
-description: "Marcher dans la Volonté de Dieu"
+description: "Augustin, reçu par Al Fike : « Beaucoup de ceux qui ont été avec vous dans les Cercles de Lumière ont été quelque peu déconcertés. »"
 date: 2022-06-01 06:00:01+00:917
 draft: False
 hidden: True

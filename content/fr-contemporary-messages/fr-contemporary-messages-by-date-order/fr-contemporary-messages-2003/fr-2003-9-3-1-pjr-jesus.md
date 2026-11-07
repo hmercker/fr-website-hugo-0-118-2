@@ -1,7 +1,7 @@
 ---
 title: "Anxieux pour demain"
 menu_title: ""
-description: "Anxieux pour demain"
+description: "Jésus, reçu par PJR : « Un grand merci à vous tous, et au Père, pour m’aider à rester capable de suivre aussi bien que je le fais. »"
 date: 2022-06-01 06:00:01+00:29
 draft: False
 hidden: True

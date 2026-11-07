@@ -1,7 +1,7 @@
 ---
 title: "Il y a beaucoup de travail à faire et le temps presse"
 menu_title: ""
-description: "Il y a beaucoup de travail à faire et le temps presse"
+description: "St Barthélémy, reçu par Albert Fike : « C’est bien que vous soyez réunis de cette façon. Les lumières que vous transportez se combinent pour créer une … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

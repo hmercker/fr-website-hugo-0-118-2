@@ -1,7 +1,7 @@
 ---
 title: "Un court message d’Hélène"
 menu_title: ""
-description: "Un court message d’Hélène"
+description: "Hélène Padgett, reçu par James Padgett : « Il a dit tu as très bien réussi et il est satisfait. Ta propre vraie et bien-aimée, Hélène. »"
 date: 2022-06-01 06:00:01+00:248
 draft: False
 hidden: True

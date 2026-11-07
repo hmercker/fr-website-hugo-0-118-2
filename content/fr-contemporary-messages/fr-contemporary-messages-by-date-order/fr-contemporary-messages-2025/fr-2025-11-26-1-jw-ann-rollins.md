@@ -1,7 +1,7 @@
 ---
 title: "Les Murmures de Dieu"
 menu_title: ""
-description: "Les Murmures de Dieu"
+description: "Anne Rollins, reçu par Jimbeau Walsh : « Vous vivez dans un monde où tout est instantané et où semble se poursuivre sans fin les biens matériels, la … »"
 date: 2025-12-12 16:00:01+00:01
 draft: False
 hidden: True

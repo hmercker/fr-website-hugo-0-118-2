@@ -1,7 +1,7 @@
 ---
 title: "Affirme l'Amour Divin. Les médiums construisent une fondation essentielle selon la Volonté de Dieu"
 menu_title: ""
-description: "Affirme l'Amour Divin. Les médiums construisent une fondation essentielle selon la Volonté de Dieu"
+description: "Jésus, reçu par Albert Fike : « Bien que les mots prononcés, les messages transmis, ne soient que le début de la vérité à partager, lorsque les mots … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

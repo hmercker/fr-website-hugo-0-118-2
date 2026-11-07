@@ -1,7 +1,7 @@
 ---
 title: "Helène Padgett commente la fatigue de M. Padgett"
 menu_title: ""
-description: "Helène Padgett commente la fatigue de M. Padgett"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, tu as reçu un beau discours de la part du professeur, et ce fut un discours merveilleux. »"
 date: 2022-06-01 06:00:01+00:73
 draft: False
 hidden: True

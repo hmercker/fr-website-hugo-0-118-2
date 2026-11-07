@@ -1,7 +1,7 @@
 ---
 title: "Dr Stome est devenu un ami de Nathan Plummer au cours des 3 dernières années de sa vie sur le terre et il a continué à l’aider après qu’il soit passé dans le monde des esprits"
 menu_title: ""
-description: "Dr Stome est devenu un ami de Nathan Plummer au cours des 3 dernières années de sa vie sur le terre et il a continué à l’aider après qu’il soit passé dans le monde des esprits"
+description: "Nathan Plummer, reçu par James Padgett : « Je dois écrire un message, car j’étais avec vous à la séance et j’ai vu ce qui se passait, et je vous dis qu’il … »"
 date: 2022-06-01 06:00:01+00:85
 draft: False
 hidden: True

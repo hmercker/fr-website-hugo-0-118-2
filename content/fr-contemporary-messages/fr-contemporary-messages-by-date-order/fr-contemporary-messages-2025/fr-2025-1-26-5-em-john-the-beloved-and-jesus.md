@@ -1,7 +1,7 @@
 ---
 title: "Bénédiction de Dieu délivrée"
 menu_title: ""
-description: "Bénédiction de Dieu délivrée"
+description: "Jean le Bien Aimé, reçu par Elizabteh Mack : « Nous vous remercions pour votre prière. Ouvrez-vous complètement, très chers. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

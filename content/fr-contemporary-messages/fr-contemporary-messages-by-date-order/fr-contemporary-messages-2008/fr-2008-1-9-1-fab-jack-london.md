@@ -1,7 +1,7 @@
 ---
 title: "La Loi Morale"
 menu_title: ""
-description: "La Loi Morale"
+description: "Jack London, reçu par FAB : « Beaucoup de temps s’est écoulé depuis le temps où j’ai vécu sur la terre, j’ai changé sur certains points, tout en restant … »"
 date: 2022-06-01 06:00:01+00:03
 draft: False
 hidden: True

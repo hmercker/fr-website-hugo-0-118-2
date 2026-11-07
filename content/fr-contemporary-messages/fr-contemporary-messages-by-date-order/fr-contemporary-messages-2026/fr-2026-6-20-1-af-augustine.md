@@ -1,7 +1,7 @@
 ---
 title: "Cette vérité vous offre l'opportunité de changer votre perspective sur la vie"
 menu_title: ""
-description: "Cette vérité vous offre l'opportunité de changer votre perspective sur la vie"
+description: "Augustin, reçu par Albert Fike : « La porte vous est ouverte, âmes bien-aimées. En ces moments passés ensemble, vous avez l'opportunité de changer votre … »"
 date: 2026-09-30 06:00:01+00:01
 draft: False
 hidden: True

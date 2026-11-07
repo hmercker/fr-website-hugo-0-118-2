@@ -1,7 +1,7 @@
 ---
 title: "Canalisation sur la guerre"
 menu_title: ""
-description: "Canalisation sur la guerre"
+description: "Jésus, reçu par FAB : « Ne doutez pas de votre capacité à canaliser. Tu as canalisé correctement les différents messages sur la guerre. »"
 date: 2022-06-01 06:00:01+00:129
 draft: False
 hidden: True

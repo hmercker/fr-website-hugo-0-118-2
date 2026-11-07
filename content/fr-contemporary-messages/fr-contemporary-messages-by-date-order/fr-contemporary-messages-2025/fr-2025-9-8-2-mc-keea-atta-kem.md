@@ -1,7 +1,7 @@
 ---
 title: "La puissance de l’Amour de Dieu"
 menu_title: ""
-description: "La puissance de l’Amour de Dieu"
+description: "Keea Atta Kem, reçu par Maureen Cardoso : « Pardonnez-moi de vous interrompre alors que vous accueillez l’amour de Dieu dans vos âmes, mais je tiens à … »"
 date: 2023-09-15 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Encouragements donnés à Alfredo"
 menu_title: ""
-description: "Encouragements donnés à Alfredo"
+description: "St Pierre, reçu par Alfredo : « Le vrai, dans l’Amour du Père Céleste, Divin dans sa nature. Ne t’inquiète pas pour ton avenir, car le travail a déjà été … »"
 date: 2022-06-01 06:00:01+00:39
 draft: False
 hidden: True

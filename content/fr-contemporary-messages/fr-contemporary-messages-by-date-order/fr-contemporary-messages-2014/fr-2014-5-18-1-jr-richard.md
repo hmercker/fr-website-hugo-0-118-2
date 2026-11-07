@@ -1,7 +1,7 @@
 ---
 title: "Gratitude"
 menu_title: ""
-description: "Gratitude"
+description: "Richard, reçu par James Reid : « Lorsque vous vous réunissez comme vous le faites dans votre libre arbitre, pour vous joindre à la gratitude, à la prière … »"
 date: 2022-06-01 06:00:01+00:85
 draft: False
 hidden: True

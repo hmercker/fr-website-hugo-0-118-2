@@ -1,7 +1,7 @@
 ---
 title: "Ne tournez pas en rond"
 menu_title: ""
-description: "Ne tournez pas en rond"
+description: "Yogananda, reçu par Al Fike : « Que l'Amour de Dieu continue à éveiller vos âmes, mes amis, et à vous amener en alignement avec tout ce qui est Divin … »"
 date: 2022-06-01 06:00:01+00:822
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Vous vous éveillez"
 menu_title: ""
-description: "Vous vous éveillez"
+description: "André, reçu par Al Fike : « Chacun d’entre vous, d’une certaine manière, était endormi. Les parties de vos âmes qui sont impatientes de s’éveiller vont … »"
 date: 2022-06-01 06:00:01+00:293
 draft: False
 hidden: True

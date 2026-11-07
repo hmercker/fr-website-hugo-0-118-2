@@ -1,7 +1,7 @@
 ---
 title: "Venez découvrir l'Amour de Dieu pour vous"
 menu_title: ""
-description: "Venez découvrir l'Amour de Dieu pour vous"
+description: "Orion, reçu par Albert Fike : « Puissiez-vous découvrir l’émerveillement de la bénédiction de notre Créateur sur vous, la puissance de l’Amour qui est un … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

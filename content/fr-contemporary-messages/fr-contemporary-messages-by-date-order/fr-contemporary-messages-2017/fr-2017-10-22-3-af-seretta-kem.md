@@ -1,7 +1,7 @@
 ---
 title: "Le début"
 menu_title: ""
-description: "Le début"
+description: "Seretta Kem, reçu par Al Fike : « Et c'est ainsi que nous commençons ce travail. Quel beau cadeau nous offrons tous dans notre service à Dieu. »"
 date: 2022-06-01 06:00:01+00:154
 draft: False
 hidden: True

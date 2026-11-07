@@ -1,7 +1,7 @@
 ---
 title: "Message d'ouverture de la retraite de Fontainebleau"
 menu_title: ""
-description: "Message d'ouverture de la retraite de Fontainebleau"
+description: "Jean le Bien Aimé et Jésus, reçu par Albert Fike : « Je vous parle par ce médium pour vous souhaiter la bienvenue dans cet amour sacré et divin, ce cercle … »"
 date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True

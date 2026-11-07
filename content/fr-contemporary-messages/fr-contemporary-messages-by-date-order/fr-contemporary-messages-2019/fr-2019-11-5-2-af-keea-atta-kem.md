@@ -1,7 +1,7 @@
 ---
 title: "Le Portail de Sydney est une cheville ouvrière du réseau"
 menu_title: ""
-description: "Le Portail de Sydney est une cheville ouvrière du réseau"
+description: "Keea Atta Kem, reçu par Al Fike : « Comme c’est délicieux de vous voir ensemble en ce lieu, de réaffirmer votre amour l’un pour l’autre, de travailler … »"
 date: 2022-06-01 06:00:01+00:896
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Les intentions de vos âmes apportent de nombreuses bénédictions"
 menu_title: ""
-description: "Les intentions de vos âmes apportent de nombreuses bénédictions"
+description: "Marie, reçu par Al Fike : « Oui il y a une grande beauté dans le monde, une grande beauté de la Création de Dieu, une grande beauté dans chaque âme qui … »"
 date: 2022-06-01 06:00:01+00:739
 draft: False
 hidden: True

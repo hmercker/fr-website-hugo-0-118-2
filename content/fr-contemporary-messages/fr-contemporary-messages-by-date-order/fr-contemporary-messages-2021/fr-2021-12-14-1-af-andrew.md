@@ -1,7 +1,7 @@
 ---
 title: "Vous marchez sur le chemin de la pureté et de l’amour"
 menu_title: ""
-description: "Vous marchez sur le chemin de la pureté et de l’amour"
+description: "André, reçu par Al Fike : « Vous êtes les chevilles d’ancrage de ce grand effort. Sans vos efforts, nos efforts ne sont pas aussi directs et puissants et … »"
 date: 2022-06-01 06:00:01+00:1728
 draft: False
 hidden: True

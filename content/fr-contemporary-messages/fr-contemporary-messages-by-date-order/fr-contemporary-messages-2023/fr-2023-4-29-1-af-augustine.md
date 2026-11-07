@@ -1,7 +1,7 @@
 ---
 title: "Une leçon sur l'alignement de la vie sur la Volonté de Dieu"
 menu_title: ""
-description: "Une leçon sur l'alignement de la vie sur la Volonté de Dieu"
+description: "Augustin, reçu par Al Fike : « Chaque jour que Dieu vous donne sur ce plan terrestre est un cadeau précieux. Combien de fois avez-vous entendu cette … »"
 date: 2023-09-01 06:00:01+00:13
 draft: False
 hidden: True

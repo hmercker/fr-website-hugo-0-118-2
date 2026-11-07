@@ -1,7 +1,7 @@
 ---
 title: "Soyez en harmonie avec Dieu"
 menu_title: ""
-description: "Soyez en harmonie avec Dieu"
+description: "Orion, reçu par Al Fike : « Mes amis, Orion est là une fois de plus pour être avec ses beaux amis qui sont des chercheurs avides de vérité qui … »"
 date: 2023-09-01 06:00:01+00:25
 draft: False
 hidden: True

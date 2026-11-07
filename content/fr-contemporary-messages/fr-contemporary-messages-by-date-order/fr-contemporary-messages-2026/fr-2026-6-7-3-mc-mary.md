@@ -1,7 +1,7 @@
 ---
 title: "Marie nous parle du temps où l'Amour prend forme dans notre âme ; nos actions sont imprégnées d'Amour"
 menu_title: ""
-description: "Marie nous parle du temps où l'Amour prend forme dans notre âme ; nos actions sont imprégnées d'Amour"
+description: "Marie, reçu par Maureen Cardoso Fike : « Que la paix qui dépasse toute intelligence emplisse cette pièce et pénètre votre âme. Que l'Essence Divine vous … »"
 date: 2026-09-30 06:00:01+00:01
 draft: False
 hidden: True

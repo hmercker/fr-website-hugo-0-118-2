@@ -1,7 +1,7 @@
 ---
 title: "Nous ne sommes pas si différents"
 menu_title: ""
-description: "Nous ne sommes pas si différents"
+description: "Yogananda, reçu par Jimbeau Walsh : « Mon cher garçon, mon cher ami, je souhaite commencer par le début car cela semble être le meilleur endroit pour … »"
 date: 2022-06-01 06:00:01+00:690
 draft: False
 hidden: True

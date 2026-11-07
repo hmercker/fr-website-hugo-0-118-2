@@ -1,7 +1,7 @@
 ---
 title: "Équilibre entre les poursuites matérielles et spirituelles"
 menu_title: ""
-description: "Équilibre entre les poursuites matérielles et spirituelles"
+description: "St Luc, reçu par Al Fike : « Je souhaite vous parler de la double nature de l’humanité, celle de la vie matérielle et celle de la vie spirituelle. »"
 date: 2022-06-01 06:00:01+00:1230
 draft: False
 hidden: True

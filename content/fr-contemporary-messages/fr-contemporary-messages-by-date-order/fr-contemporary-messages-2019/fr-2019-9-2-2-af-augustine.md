@@ -1,7 +1,7 @@
 ---
 title: "Le plan de Dieu sera mis en œuvre par nos actions"
 menu_title: ""
-description: "Le plan de Dieu sera mis en œuvre par nos actions"
+description: "Augustin, reçu par Al Fike : « C’est votre enseignant, Augustin. C’est ainsi que Dieu mettra en œuvre son plan de salut de l’humanité, à travers chacun de … »"
 date: 2022-06-01 06:00:01+00:830
 draft: False
 hidden: True

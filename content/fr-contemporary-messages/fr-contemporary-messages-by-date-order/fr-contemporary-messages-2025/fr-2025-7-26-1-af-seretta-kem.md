@@ -1,7 +1,7 @@
 ---
 title: "Conseils pour le chemin le moins fréquenté"
 menu_title: ""
-description: "Conseils pour le chemin le moins fréquenté"
+description: "Seretta Kem, reçu par reçu par Al Fike : « Vous observez votre vie et votre progression continue à l’aune de paramètres et d’attentes terrestres. »"
 date: 2025-07-15 06:00:01+00:01
 draft: False
 hidden: True

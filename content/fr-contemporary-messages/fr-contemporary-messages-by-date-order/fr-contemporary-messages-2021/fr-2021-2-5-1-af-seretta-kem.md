@@ -1,7 +1,7 @@
 ---
 title: "Comment nous sommes utilisés et bénéficions d'être les instruments de Dieu"
 menu_title: ""
-description: "Comment nous sommes utilisés et bénéficions d'être les instruments de Dieu"
+description: "Seretta Kem, reçu par Al Fike : « Aujourd’hui, nous vous avons rassemblées pour créer une lumière qui profitera au monde et à vous-mêmes. »"
 date: 2022-06-01 06:00:01+00:1405
 draft: False
 hidden: True

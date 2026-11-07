@@ -1,7 +1,7 @@
 ---
 title: "L'ouverture de vos perceptions de l'âme"
 menu_title: ""
-description: "L'ouverture de vos perceptions de l'âme"
+description: "St Matthieu, reçu par Al Fike : « Beaucoup de choses changent en vous alors que vous continuez à prier ensemble, à prier, à rejoindre Dieu dans votre vie … »"
 date: 2023-09-01 06:00:01+00:14
 draft: False
 hidden: True

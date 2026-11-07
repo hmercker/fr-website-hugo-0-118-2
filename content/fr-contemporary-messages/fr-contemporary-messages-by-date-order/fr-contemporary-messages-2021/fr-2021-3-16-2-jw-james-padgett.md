@@ -1,7 +1,7 @@
 ---
 title: "Ce qui est important"
 menu_title: ""
-description: "Ce qui est important"
+description: "James Padgett, reçu par Jimbeau Walsh : « Lorsque j’ai commencé à recevoir des messages de l’esprit, toute ma quête était d’entendre ma chère Hélène. »"
 date: 2022-06-01 06:00:01+00:1443
 draft: False
 hidden: True

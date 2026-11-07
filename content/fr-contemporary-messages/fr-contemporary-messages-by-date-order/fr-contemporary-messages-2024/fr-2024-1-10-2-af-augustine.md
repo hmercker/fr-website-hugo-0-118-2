@@ -1,7 +1,7 @@
 ---
 title: "Message puissant pour vivre la vérité"
 menu_title: ""
-description: "Message puissant pour vivre la vérité"
+description: "St Augustin, reçu par Albert Fike : « Vous avez eu vos temps de prière ensemble, cherchant à vous éveiller avec le don de l’Amour de Dieu se déversant … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Vos prières touchent beaucoup de monde"
 menu_title: ""
-description: "Vos prières touchent beaucoup de monde"
+description: "Seretta Kem, reçu par Al Fike : « Que la paix de la Présence de Dieu soit toujours avec vous comme elle l'est maintenant. Vos prières pour la guérison de … »"
 date: 2022-06-01 06:00:01+00:139
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Bismarck décrit les conditions du peuple Allemand et informe que la guerre se terminera bientôt"
 menu_title: ""
-description: "Bismarck décrit les conditions du peuple Allemand et informe que la guerre se terminera bientôt"
+description: "Otto von Bismarck, reçu par James Padgett : « Si cela vous convient, j’aimerais écrire quelques lignes, ce soir, en référence à la guerre et aux … »"
 date: 2022-06-01 06:00:01+00:203
 draft: False
 hidden: True

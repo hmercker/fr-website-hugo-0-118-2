@@ -1,7 +1,7 @@
 ---
 title: "Le monde connaîtra ces vérités à temps"
 menu_title: ""
-description: "Le monde connaîtra ces vérités à temps"
+description: "James Padgett, reçu par Al Fike : « J’étais avec vous lorsque vous parliez de la Vérité de Dieu et de l’Amour divin, et que vous souhaitiez ardemment que … »"
 date: 2022-06-01 06:00:01+00:184
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "De nombreux esprits ont été bénis grâce à vos efforts"
 menu_title: ""
-description: "De nombreux esprits ont été bénis grâce à vos efforts"
+description: "Augustin, reçu par Al Fike : « C’est votre enseignant Augustin. Je souhaite remercier ces deux âmes bien-aimées qui continuent d’écouter l’appel, d’être … »"
 date: 2023-09-01 06:00:01+00:56
 draft: False
 hidden: True

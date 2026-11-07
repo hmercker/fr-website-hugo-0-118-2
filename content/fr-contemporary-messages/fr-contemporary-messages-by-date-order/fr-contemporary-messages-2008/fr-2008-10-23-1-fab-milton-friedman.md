@@ -1,7 +1,7 @@
 ---
 title: "Les souffrances d'un esprit"
 menu_title: ""
-description: "Les souffrances d'un esprit"
+description: "Milton Friedman, reçu par FAB : « Vous ne voulez pas savoir les horreurs que j'endure maintenant. Les mots ne suffisent pas à les décrire. »"
 date: 2022-06-01 06:00:01+00:124
 draft: False
 hidden: True

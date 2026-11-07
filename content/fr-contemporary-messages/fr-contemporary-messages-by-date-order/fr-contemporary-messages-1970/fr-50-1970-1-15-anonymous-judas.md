@@ -1,7 +1,7 @@
 ---
 title: "L'amour vous donne un Socle et un Fondement tellement Puissants"
 menu_title: ""
-description: "L'amour vous donne un Socle et un Fondement tellement Puissants"
+description: "Judas : « Parce que certains d'entre vous m'ont demandé, j'ai été avec cet instrument pendant cette soirée, attendant de venir à une fréquence plus basse … »"
 date: 2022-06-01 06:00:01+00:118
 draft: False
 hidden: True

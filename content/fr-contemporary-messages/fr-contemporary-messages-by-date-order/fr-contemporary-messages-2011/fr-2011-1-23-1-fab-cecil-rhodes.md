@@ -1,7 +1,7 @@
 ---
 title: "Les inconvénients de la poursuite de l’empire"
 menu_title: ""
-description: "Les inconvénients de la poursuite de l’empire"
+description: "Cecil Rhodes, reçu par FAB : « Vous vous demandez quel message je souhaite transmettre aujourd’hui. C’est un message d’avertissement à ceux qui … »"
 date: 2022-06-01 06:00:01+00:183
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Il est temps de laisser vos dons spirituels s'épanouir"
 menu_title: ""
-description: "Il est temps de laisser vos dons spirituels s'épanouir"
+description: "Orion, reçu par Albert Fike : « Ensemble, nous reprenons nos leçons et discussions concernant l'âme. Nous sommes heureux que vous soyez revenus avec vos … »"
 date: 2025-12-21 16:00:01+00:01
 draft: False
 hidden: True

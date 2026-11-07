@@ -1,7 +1,7 @@
 ---
 title: "21ème Sermon – David regrette l’injustice présente durant son règne"
 menu_title: ""
-description: "21ème Sermon – David regrette l’injustice présente durant son règne"
+description: "Jésus, reçu par Dr Samuels : « Je souhaite continuer avec mes sermons sur les Psaumes de David et sur ceux qui furent publiés sous son influence, afin de … »"
 date: 2022-06-01 06:00:01+00:74
 draft: False
 hidden: True

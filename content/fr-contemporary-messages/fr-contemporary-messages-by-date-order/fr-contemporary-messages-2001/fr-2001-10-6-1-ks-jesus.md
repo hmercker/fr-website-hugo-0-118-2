@@ -1,7 +1,7 @@
 ---
 title: "L'Amour et la Vérité doivent passer en premier"
 menu_title: ""
-description: "L'Amour et la Vérité doivent passer en premier"
+description: "Jésus, reçu par Kathryn Stokes : « Lorsque vous vous concentrez sur vos objectifs spirituels, que vous étendez votre amour à vos activités quotidiennes et … »"
 date: 2022-06-01 06:00:01+00:13
 draft: False
 hidden: True

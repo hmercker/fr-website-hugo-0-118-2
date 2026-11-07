@@ -1,7 +1,7 @@
 ---
 title: "L'Avortement"
 menu_title: ""
-description: "L'Avortement"
+description: "Jésus, reçu par Amada Reza : « La tentation est grande, lorsqu’on pose une telle question, de supposer qu’il y a une seule réponse. »"
 date: 2022-06-01 06:00:01+00:07
 draft: False
 hidden: True

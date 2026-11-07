@@ -1,7 +1,7 @@
 ---
 title: "Le yoga le plus important est d'être ouvert à l'amour de Dieu"
 menu_title: ""
-description: "Le yoga le plus important est d'être ouvert à l'amour de Dieu"
+description: "Yogananda, reçu par Jimbeau Walsh : « Le yoga de l’Amour Divin incorpore l’être entier. Lorsque l’âme informe le mental, il n’est pas nécessaire d’avoir … »"
 date: 2022-06-01 06:00:01+00:805
 draft: False
 hidden: True

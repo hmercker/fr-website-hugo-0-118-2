@@ -1,7 +1,7 @@
 ---
 title: "Confirmation du message de Barbara"
 menu_title: ""
-description: "Confirmation du message de Barbara"
+description: "Bernice Fike, reçu par Al Fike : « Car lui, notre neveu et instrument bien-aimé, a beaucoup fait pour m’aider et pour aider beaucoup d’autres membres de … »"
 date: 2022-06-01 06:00:01+00:37
 draft: False
 hidden: True

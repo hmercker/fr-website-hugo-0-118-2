@@ -1,7 +1,7 @@
 ---
 title: "Vivez ces vérités"
 menu_title: ""
-description: "Vivez ces vérités"
+description: "Nuage Blanc : « Une grande quantité d'amour arrive parmi vous. La lumière qui émane de votre groupe nous rend très heureux, mes amis. »"
 date: 2022-06-01 06:00:01+00:160
 draft: False
 hidden: True

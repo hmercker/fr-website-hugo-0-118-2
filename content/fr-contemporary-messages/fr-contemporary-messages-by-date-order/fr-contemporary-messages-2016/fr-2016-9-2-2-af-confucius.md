@@ -1,7 +1,7 @@
 ---
 title: "Dieu a allumé une étincelle en vous"
 menu_title: ""
-description: "Dieu a allumé une étincelle en vous"
+description: "Confucius, reçu par Al Fike : « Dieu a allumé une étincelle au sein de chaque âme de ce cercle, une étincelle qui vous changera, âmes bien-aimées, et vous … »"
 date: 2022-06-01 06:00:01+00:231
 draft: False
 hidden: True

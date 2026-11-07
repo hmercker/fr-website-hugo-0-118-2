@@ -1,7 +1,7 @@
 ---
 title: "Nos prières sont importantes pour le service de Dieu"
 menu_title: ""
-description: "Nos prières sont importantes pour le service de Dieu"
+description: "Keea Atta Kem, reçu par Al Fike : « Je souhaite vous encourager à voir et à reconnaître que les moments que vous passez ensemble en prière sont très … »"
 date: 2022-06-01 06:00:01+00:1484
 draft: False
 hidden: True

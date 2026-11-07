@@ -1,7 +1,7 @@
 ---
 title: "Élie commente le manque de connaissance par le prédicateur des vérités du spiritisme"
 menu_title: ""
-description: "Élie commente le manque de connaissance par le prédicateur des vérités du spiritisme"
+description: "Élie, reçu par James Padgett : « Je vais écrire quelques mots au sujet du sermon que vous avez écouté ce soir sur la question : « Les morts … »"
 date: 2022-06-01 06:00:01+00:95
 draft: False
 hidden: True

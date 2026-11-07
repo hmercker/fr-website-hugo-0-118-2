@@ -1,7 +1,7 @@
 ---
 title: "Croissance de l'âme et médiumnité"
 menu_title: ""
-description: "Croissance de l'âme et médiumnité"
+description: "Augustin, reçu par Al Fike : « Je tiens à vous remercier âmes bien-aimées pour votre compliment au sujet de ce dont je parle à travers cet instrument. »"
 date: 2022-06-01 06:00:01+00:190
 draft: False
 hidden: True

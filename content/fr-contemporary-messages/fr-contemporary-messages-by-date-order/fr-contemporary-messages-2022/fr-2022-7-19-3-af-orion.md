@@ -1,7 +1,7 @@
 ---
 title: "Ecrira, à travers Al, un livre sur la vie sur sa planète"
 menu_title: ""
-description: "Ecrira, à travers Al, un livre sur la vie sur sa planète"
+description: "Orion, reçu par Al Fike : « J’ai accompagné cet instrument pendant la matinée, alors qu’il priait et vaquait à ses occupations. »"
 date: 2023-09-01 06:00:01+00:35
 draft: False
 hidden: True

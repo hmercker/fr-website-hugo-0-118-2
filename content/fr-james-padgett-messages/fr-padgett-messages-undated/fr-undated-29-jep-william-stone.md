@@ -1,7 +1,7 @@
 ---
 title: "William Stone, le père de Leslie, explique les conditions de vie de ceux qui sont soudainement forcés d’entrer dans le monde des esprits à la suite d’une guerre, et le grand effort pour contacter ses enfants sur terre"
 menu_title: ""
-description: "William Stone, le père de Leslie, explique les conditions de vie de ceux qui sont soudainement forcés d’entrer dans le monde des esprits à la suite d’une guerre, et le grand effort pour contacter ses enfants sur terre"
+description: "William Stone, reçu par James Padgett : « Je progresse tout le temps et je sens que l’amour ne manque jamais de nous apporter non seulement le bonheur … »"
 date: 2022-06-01 06:00:01+00:103
 draft: False
 hidden: True

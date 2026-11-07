@@ -1,7 +1,7 @@
 ---
 title: "Rappelle aux administrateurs de travailler ensemble dans la douce harmonie de la volonté de Dieu"
 menu_title: ""
-description: "Rappelle aux administrateurs de travailler ensemble dans la douce harmonie de la volonté de Dieu"
+description: "Augustin, reçu par Albert Fike : « ……la nature précipitée de vos attentes en affaires n’est pas toujours la façon dont nous, les anges, nous comportons … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L'avenir s'annonce radieux"
 menu_title: ""
-description: "L'avenir s'annonce radieux"
+description: "Martin Luther King, reçu par Al Fike : « Mon amour est pour vous tous. Mon cœur se gonfle en vous voyant tous vous avancer comme vous l'avez fait dans la … »"
 date: 2022-06-01 06:00:01+00:276
 draft: False
 hidden: True

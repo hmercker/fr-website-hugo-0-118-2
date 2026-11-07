@@ -1,7 +1,7 @@
 ---
 title: "Vos prières pour l’Amour de Dieu ont un effet sur vos générations futures"
 menu_title: ""
-description: "Vos prières pour l’Amour de Dieu ont un effet sur vos générations futures"
+description: "André, reçu par Al Fike : « Les enfants des enfants seront bénis, âmes bien-aimées. Plutôt que des générations de douleur et de désaccord, vous changez le … »"
 date: 2022-06-01 06:00:01+00:958
 draft: False
 hidden: True

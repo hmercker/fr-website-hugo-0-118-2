@@ -1,7 +1,7 @@
 ---
 title: "Hélène est heureuse des améliorations dans la progression spirituelle de M. Padgett"
 menu_title: ""
-description: "Hélène est heureuse des améliorations dans la progression spirituelle de M. Padgett"
+description: "Hélène Padgett, reçu par James Padgett : « Mais comme tu n’es pas en état, je n’essaierai pas d’écrire. Elle t’envoie son amour et t’écrira bientôt. »"
 date: 2022-06-01 06:00:01+00:160
 draft: False
 hidden: True

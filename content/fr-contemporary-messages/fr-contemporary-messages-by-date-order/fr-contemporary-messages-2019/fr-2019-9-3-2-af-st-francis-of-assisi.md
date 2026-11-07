@@ -1,7 +1,7 @@
 ---
 title: "C'est à vous de choisir si vous apportez la lumière ou l'obscurité à ce monde"
 menu_title: ""
-description: "C'est à vous de choisir si vous apportez la lumière ou l'obscurité à ce monde"
+description: "St François d'Assise, reçu par Al Fike : « Je prie pour vous tous, tous les enfants de votre monde, toutes les créatures de votre monde, tout ce que Dieu … »"
 date: 2022-06-01 06:00:01+00:835
 draft: False
 hidden: True

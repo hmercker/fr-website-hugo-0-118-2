@@ -1,7 +1,7 @@
 ---
 title: "Se présente comme un autre guide de Pierre"
 menu_title: ""
-description: "Se présente comme un autre guide de Pierre"
+description: "St Matthieu, reçu par Albert Fike : « ’Esprit Saint continue de vous visiter, chacun de vous, afin que vous puissiez recevoir le grand don de l’Amour de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

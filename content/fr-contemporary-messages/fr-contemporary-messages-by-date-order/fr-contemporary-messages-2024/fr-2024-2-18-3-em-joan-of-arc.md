@@ -1,7 +1,7 @@
 ---
 title: "Prier ensemble illumine le monde"
 menu_title: ""
-description: "Prier ensemble illumine le monde"
+description: "Jeanne d'Arc, reçu par Elizabeth Mack : « Nous le faisons à cause de l’amour que nous avons pour notre Père dont le désir est de transformer ce monde en … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

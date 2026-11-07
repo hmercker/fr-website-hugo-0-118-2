@@ -1,7 +1,7 @@
 ---
 title: "On a profondément besoin de vous dans ce monde"
 menu_title: ""
-description: "On a profondément besoin de vous dans ce monde"
+description: "Jésus, reçu par Albert Fike : « Vous êtes précieux et vous êtes profondément nécessaires dans ce monde pour apporter l’Amour de notre Saint-Père à ceux … »"
 date: 2026-10-16 06:00:01+00:09
 draft: False
 hidden: True

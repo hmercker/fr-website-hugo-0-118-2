@@ -1,7 +1,7 @@
 ---
 title: "Dieu nous tisse dans une tapisserie de lumière"
 menu_title: ""
-description: "Dieu nous tisse dans une tapisserie de lumière"
+description: "Keea Atta kem, reçu par Al Fike : « Nous sommes si heureux que vous vous soyez réunis pour aider à renforcer les liens d’amour que vous partagez, pour … »"
 date: 2022-06-01 06:00:01+00:338
 draft: False
 hidden: True

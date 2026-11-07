@@ -1,7 +1,7 @@
 ---
 title: "Ne jugez pas les autres"
 menu_title: ""
-description: "Ne jugez pas les autres"
+description: "Matthieu, reçu par Al Fike : « Que Dieu bénisse vos âmes avec Son Grand Amour qui afflue dans vos âmes en grande abondance. »"
 date: 2022-06-01 06:00:01+00:740
 draft: False
 hidden: True

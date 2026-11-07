@@ -1,7 +1,7 @@
 ---
 title: "Explique l'intégration psychique/mentale (Séminaire Voix Directe 2021)"
 menu_title: ""
-description: "Explique l'intégration psychique/mentale (Séminaire Voix Directe 2021)"
+description: "Seretta Kem, reçu par Al Fike : « Nous poursuivons ce voyage d’éveil, et chacun d’entre vous vit des expériences et des éveils qui lui sont propres, et … »"
 date: 2022-06-01 06:00:01+00:1645
 draft: False
 hidden: True

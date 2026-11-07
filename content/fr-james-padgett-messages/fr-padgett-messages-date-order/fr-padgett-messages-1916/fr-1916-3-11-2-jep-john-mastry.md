@@ -1,7 +1,7 @@
 ---
 title: "Sélectionné pour aider M. Padgett avec ses problèmes personnels"
 menu_title: ""
-description: "Sélectionné pour aider M. Padgett avec ses problèmes personnels"
+description: "John Mastry, reçu par James Padgett : « Je m’intéresse à ce que Jean vous a écrit et je veux simplement vous dire que j’ai été choisi pour vous aider dans … »"
 date: 2022-06-01 06:00:01+00:170
 draft: False
 hidden: True

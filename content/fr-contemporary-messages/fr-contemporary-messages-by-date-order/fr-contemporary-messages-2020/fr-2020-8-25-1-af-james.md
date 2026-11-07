@@ -1,7 +1,7 @@
 ---
 title: "L’humanité néglige souvent de construire une base spirituelle solide"
 menu_title: ""
-description: "L’humanité néglige souvent de construire une base spirituelle solide"
+description: "Jacques, reçu par Al Fike : « L’humanité a une faim insatiable, un désir profond de connaître les curiosités du mental, d’être aimée, de chercher la … »"
 date: 2022-06-01 06:00:01+00:1231
 draft: False
 hidden: True

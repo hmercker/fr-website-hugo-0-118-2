@@ -1,7 +1,7 @@
 ---
 title: "Atteindre la conscience de l’âme"
 menu_title: ""
-description: "Atteindre la conscience de l’âme"
+description: "St Pierre, reçu par Albert Fike : « Car il pose des questions très pertinentes sur sa propre progression de l’âme et sur son expérience avec Dieu. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

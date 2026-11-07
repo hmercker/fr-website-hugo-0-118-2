@@ -1,7 +1,7 @@
 ---
 title: "Judy Garland partage son cœur - 3"
 menu_title: ""
-description: "Judy Garland partage son cœur - 3"
+description: "Judy Garland, reçu par FAB : « Laisse-moi clarifier ce qui ne semble pas être clair. Dans mon channeling du 19 Mai 2008, j'ai dit que j'étais sortie d'une … »"
 date: 2022-06-01 06:00:01+00:125
 draft: False
 hidden: True

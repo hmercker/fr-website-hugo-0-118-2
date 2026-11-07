@@ -1,7 +1,7 @@
 ---
 title: "Vous avez tous le don d'enseigner"
 menu_title: ""
-description: "Vous avez tous le don d'enseigner"
+description: "St Matthieu, reçu par Al Fike : « Chacun de vous a la capacité et le don d’enseigner, de transmettre les paroles de la Vérité à ceux qui en ont faim. »"
 date: 2022-06-01 06:00:01+00:776
 draft: False
 hidden: True

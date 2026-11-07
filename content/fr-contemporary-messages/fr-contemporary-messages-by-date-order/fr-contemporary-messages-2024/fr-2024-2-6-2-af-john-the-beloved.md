@@ -1,7 +1,7 @@
 ---
 title: "Chérissez le cadeau que Dieu vous a fait"
 menu_title: ""
-description: "Chérissez le cadeau que Dieu vous a fait"
+description: "Jean le Bien Aimé, reçu par Jimbeau Walsh : « Les liens que vous partagez sont des liens d’amour, l’Amour qui a brillé de l’Âme de Dieu descendue sur … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

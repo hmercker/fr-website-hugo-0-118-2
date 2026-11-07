@@ -1,7 +1,7 @@
 ---
 title: "L'humour restauré dans l'Amour"
 menu_title: ""
-description: "L'humour restauré dans l'Amour"
+description: "Charlie Chaplin, reçu par Jimbeau Walsh : « Et vous savez, chaque être recherche ce bonheur, aussi malavisé soit-il. Et ainsi, en recevant cet amour, ce … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

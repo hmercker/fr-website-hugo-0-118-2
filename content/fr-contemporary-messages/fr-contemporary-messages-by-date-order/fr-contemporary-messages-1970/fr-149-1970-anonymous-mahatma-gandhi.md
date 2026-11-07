@@ -1,7 +1,7 @@
 ---
 title: "Aidez l'homme à retrouver son chemin"
 menu_title: ""
-description: "Aidez l'homme à retrouver son chemin"
+description: "Mahatma Gandhi : « Il y a de l'espoir pour l'homme et il y a de l'espoir pour la paix sur Terre et avant que vos vies ne soient terminées sur Terre, mes … »"
 date: 2022-06-01 06:00:01+00:150
 draft: False
 hidden: True

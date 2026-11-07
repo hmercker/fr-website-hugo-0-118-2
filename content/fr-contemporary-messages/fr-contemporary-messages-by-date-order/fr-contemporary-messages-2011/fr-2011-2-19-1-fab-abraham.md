@@ -1,7 +1,7 @@
 ---
 title: "Abraham et la Chaldée"
 menu_title: ""
-description: "Abraham et la Chaldée"
+description: "Abraham, reçu par FAB : « Au moment opportun, je vous guiderai pour prendre un autre message de ma part. Mais laissez-moi vous dire que tout ce que j’ai … »"
 date: 2022-06-01 06:00:01+00:189
 draft: False
 hidden: True

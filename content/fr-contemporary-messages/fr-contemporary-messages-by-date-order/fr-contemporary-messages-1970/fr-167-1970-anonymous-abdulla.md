@@ -1,7 +1,7 @@
 ---
 title: "Comment se préparer à recevoir"
 menu_title: ""
-description: "Comment se préparer à recevoir"
+description: "Abdulla : « Comme c'est merveilleux que nous, en esprit, puissions-nous joindre à vous physiquement et ne faire qu'un. »"
 date: 2022-06-01 06:00:01+00:170
 draft: False
 hidden: True

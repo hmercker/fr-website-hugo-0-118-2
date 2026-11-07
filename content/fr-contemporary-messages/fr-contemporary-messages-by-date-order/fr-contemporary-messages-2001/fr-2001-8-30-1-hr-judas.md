@@ -1,7 +1,7 @@
 ---
 title: "Homosexualité et âmes-sœurs"
 menu_title: ""
-description: "Homosexualité et âmes-sœurs"
+description: "Judas, reçu par H : « Cher H , hier, je t’ai communiqué certaines impressions à propos du sujet que nous allons traiter maintenant, et tu ne l’aimes pas … »"
 date: 2022-06-01 06:00:01+00:33
 draft: False
 hidden: True

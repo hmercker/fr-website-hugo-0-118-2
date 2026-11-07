@@ -1,7 +1,7 @@
 ---
 title: "Comment prier"
 menu_title: ""
-description: "Comment prier"
+description: "Judas, reçu par Jimbeau Walsh : « Vous avez été encouragé à maintes reprises à prier et certains ont utilisé le mot « sans cesse » qui, pour ceux qui sont … »"
 date: 2023-09-01 06:00:01+00:84
 draft: False
 hidden: True

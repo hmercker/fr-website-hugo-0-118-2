@@ -1,7 +1,7 @@
 ---
 title: "Ce que les Esprits Célestes pensent de la guerre"
 menu_title: ""
-description: "Ce que les Esprits Célestes pensent de la guerre"
+description: "St Luc, reçu par James Padgett : « J’ai entendu le docteur demander ce que les Esprits Célestes pensaient de cette guerre, et je vais le lui dire en … »"
 date: 2022-06-01 06:00:01+00:66
 draft: False
 hidden: True

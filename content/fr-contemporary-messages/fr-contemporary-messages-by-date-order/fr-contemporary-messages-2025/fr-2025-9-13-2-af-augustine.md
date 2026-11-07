@@ -1,7 +1,7 @@
 ---
 title: "Conseils simples et directs pour le Cercle de Lumière d'Estonie"
 menu_title: ""
-description: "Conseils simples et directs pour le Cercle de Lumière d'Estonie"
+description: "Augustin, reçu par Al Fike : « Pourtant, il semble que l’intérêt soit quelque peu aléatoire et l’engagement irrégulier, et que, dans ce groupe, dans ce … »"
 date: 2025-11-10 06:00:01+00:01
 draft: False
 hidden: True

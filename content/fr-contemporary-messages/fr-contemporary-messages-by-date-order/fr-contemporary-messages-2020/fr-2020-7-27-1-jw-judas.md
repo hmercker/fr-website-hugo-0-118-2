@@ -1,7 +1,7 @@
 ---
 title: "Amour, Lumière et Guérison"
 menu_title: ""
-description: "Amour, Lumière et Guérison"
+description: "Judas, reçu par Jimbeau Walsh : « Lorsque nous parlons de lumière et d’amour, la lumière est la vibration de l’amour à sa plus haute fréquence. »"
 date: 2022-06-01 06:00:01+00:1199
 draft: False
 hidden: True

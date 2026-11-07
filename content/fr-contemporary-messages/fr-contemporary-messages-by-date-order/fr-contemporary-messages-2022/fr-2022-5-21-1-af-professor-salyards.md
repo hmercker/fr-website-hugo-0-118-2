@@ -1,7 +1,7 @@
 ---
 title: "Félicitations pour vos efforts"
 menu_title: ""
-description: "Félicitations pour vos efforts"
+description: "Professeur Salyards, reçu par Al Fike : « Le monde est un endroit complexe, n’est-ce pas, mes amis ? Vous en êtes tous venus à voir que des étapes … »"
 date: 2022-06-01 06:00:01+00:96
 draft: False
 hidden: True

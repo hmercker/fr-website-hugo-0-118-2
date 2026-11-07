@@ -1,7 +1,7 @@
 ---
 title: "Rejoignez la fête de prière"
 menu_title: ""
-description: "Rejoignez la fête de prière"
+description: "Jean Hugues, reçu par Elizabeth Mack : « Nous, dans les Cieux Célestes, nous nous joignons à vous pour apporter une plus grande lumière sur cette Terre … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

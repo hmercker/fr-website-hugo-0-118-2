@@ -1,7 +1,7 @@
 ---
 title: "Cherchez l'Amour de Dieu et tout viendra"
 menu_title: ""
-description: "Cherchez l'Amour de Dieu et tout viendra"
+description: "St Matthieu, reçu par Al Fike : « Que Dieu touche chacune de vos âmes de son amour. Puisse ce Toucher aller profondément en vous et vous apporter un éveil … »"
 date: 2022-06-01 06:00:01+00:335
 draft: False
 hidden: True

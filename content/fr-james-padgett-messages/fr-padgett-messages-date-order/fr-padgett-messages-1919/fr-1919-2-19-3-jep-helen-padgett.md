@@ -1,7 +1,7 @@
 ---
 title: "Est satisfaite de l’amélioration de la condition et du rétablissement de M. Padgett, mais il n’est pas assez fort pour que les Esprits Célestes puissent écrire"
 menu_title: ""
-description: "Est satisfaite de l’amélioration de la condition et du rétablissement de M. Padgett, mais il n’est pas assez fort pour que les Esprits Célestes puissent écrire"
+description: "Hélène Padgett, reçu par James Padgett : « L’esprit qui tentait de t’écrire était un esprit élevé et désireux de t’écrire, et il fut très attristé quand … »"
 date: 2022-06-01 06:00:01+00:09
 draft: False
 hidden: True

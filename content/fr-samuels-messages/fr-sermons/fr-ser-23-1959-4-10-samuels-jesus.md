@@ -1,7 +1,7 @@
 ---
 title: "23ème Sermon – Jésus explique le Psaume 18"
 menu_title: ""
-description: "23ème Sermon – Jésus explique le Psaume 18"
+description: "Jésus, reçu par Dr Samuels : « Je tiens maintenant à parler sur le Psaume 18, qui apparaît également dans le deuxième Samuel, chapitre 22, sous le titre « … »"
 date: 2022-06-01 06:00:01+00:76
 draft: False
 hidden: True

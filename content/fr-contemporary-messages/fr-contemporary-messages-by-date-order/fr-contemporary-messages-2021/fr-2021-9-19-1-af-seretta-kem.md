@@ -1,7 +1,7 @@
 ---
 title: "Des groupes du monde entier se réunissent pour prier (Séminaire Voix Directe 2021)"
 menu_title: ""
-description: "Des groupes du monde entier se réunissent pour prier (Séminaire Voix Directe 2021)"
+description: "Seretta Kem, reçu par Al Fike : « Comme vous l’avez déjà deviné, vous allez rejoindre de nombreux autres groupes dans le monde. »"
 date: 2022-06-01 06:00:01+00:1652
 draft: False
 hidden: True

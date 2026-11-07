@@ -1,7 +1,7 @@
 ---
 title: "Mary est si heureuse que Leslie fasse un travail glorieux d’aider les esprits sombres pour sortir des ténèbres, en leur disant la Vérité"
 menu_title: ""
-description: "Mary est si heureuse que Leslie fasse un travail glorieux d’aider les esprits sombres pour sortir des ténèbres, en leur disant la Vérité"
+description: "Mary Kennedy, reçu par James Padgett : « J’étais présente toute la soirée dans l’espoir que vous me donneriez l’occasion d’écrire, et lorsque Leslie était … »"
 date: 2022-06-01 06:00:01+00:139
 draft: False
 hidden: True

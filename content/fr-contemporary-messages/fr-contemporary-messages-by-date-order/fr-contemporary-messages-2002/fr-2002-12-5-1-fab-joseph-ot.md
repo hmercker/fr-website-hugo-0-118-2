@@ -1,7 +1,7 @@
 ---
 title: "Expériences d’esprits Juifs et discussion sur l’anxiété"
 menu_title: ""
-description: "Expériences d’esprits Juifs et discussion sur l’anxiété"
+description: "Joseph (AT), reçu par FAB : « Il est vrai que vous avez eu plusieurs esprits « anxieux » qui sont venus à vous. Comme vous le savez, les esprits qui ont … »"
 date: 2022-06-01 06:00:01+00:95
 draft: False
 hidden: True

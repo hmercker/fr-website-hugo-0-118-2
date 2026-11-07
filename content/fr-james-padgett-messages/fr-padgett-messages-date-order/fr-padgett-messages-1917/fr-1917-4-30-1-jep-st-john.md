@@ -1,7 +1,7 @@
 ---
 title: "Jean a entendu la conversation que M. Padgett a eue avec le Dr Stone et approuve l’idée"
 menu_title: ""
-description: "Jean a entendu la conversation que M. Padgett a eue avec le Dr Stone et approuve l’idée"
+description: "St Jean, reçu par James Padgett : « Je veux simplement vous dire que vous êtes en meilleure condition ce soir que vous ne l’avez été, et je voulais vous … »"
 date: 2022-06-01 06:00:01+00:114
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L'impact de la grâce et de l'humilité de Dieu"
 menu_title: ""
-description: "L'impact de la grâce et de l'humilité de Dieu"
+description: "Orion, reçu par Albert Fike : « C’est mon rôle, que j’ai accepté avec gratitude, d’être avec vous tous alors que vous priez ensemble dans ce Cercle de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Conseils pour les changements terrestres à venir"
 menu_title: ""
-description: "Conseils pour les changements terrestres à venir"
+description: "André, reçu par Al Fike : « Vous tenez d’importantes conversations concernant votre avenir, cherchant à faire la Volonté de Dieu, cherchant également à … »"
 date: 2022-06-01 06:00:01+00:191
 draft: False
 hidden: True

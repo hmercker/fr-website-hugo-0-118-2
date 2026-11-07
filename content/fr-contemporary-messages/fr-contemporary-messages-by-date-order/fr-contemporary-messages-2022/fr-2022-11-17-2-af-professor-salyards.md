@@ -1,7 +1,7 @@
 ---
 title: "Ceci est une entreprise guidée par Dieu"
 menu_title: ""
-description: "Ceci est une entreprise guidée par Dieu"
+description: "Professeur Salyards, reçu par Al Fike : « Je vois que lorsque vous arrivez à ce lieu de décision, vous retombez souvent dans les méthodes anciennes et … »"
 date: 2023-09-01 06:00:01+00:59
 draft: False
 hidden: True

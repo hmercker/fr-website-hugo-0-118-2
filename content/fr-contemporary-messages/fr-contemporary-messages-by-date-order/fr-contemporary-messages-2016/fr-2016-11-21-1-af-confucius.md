@@ -1,7 +1,7 @@
 ---
 title: "La bénédiction de l’Amour du Père"
 menu_title: ""
-description: "La bénédiction de l’Amour du Père"
+description: "Confucius, reçu par Al Fike : « Alors que le Père vous bénit de Son Amour, cette bénédiction profonde et durable de l’Amour, Son essence se déverse en … »"
 date: 2022-06-01 06:00:01+00:265
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Félicitations de James Tudor, Sr"
 menu_title: ""
-description: "Félicitations de James Tudor, Sr"
+description: "James Tudors Sr, reçu par Elizabeth Mack : « Que Dieu bénisse chacun de vous, cher Michael, cher David, James et notre chère sœur Patricia. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

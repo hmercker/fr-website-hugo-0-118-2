@@ -1,7 +1,7 @@
 ---
 title: "Emmanuel Swedenborg ne veut pas que M. Padgett échoue comme lui a échoué dans son travail pour le royaume"
 menu_title: ""
-description: "Emmanuel Swedenborg ne veut pas que M. Padgett échoue comme lui a échoué dans son travail pour le royaume"
+description: "Emmanuel Swedenborg, reçu par James Padgett : « J’ai entendu les messages que vous venez de recevoir et je désire vous faire comprendre la nécessité et … »"
 date: 2022-06-01 06:00:01+00:199
 draft: False
 hidden: True

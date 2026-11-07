@@ -1,7 +1,7 @@
 ---
 title: "Confirmation par St Antoine"
 menu_title: ""
-description: "Confirmation par St Antoine"
+description: "St Antoine, reçu par James Padgett : « L’immortalité est à moi comme elle sera à vous si vous continuez à croire en lui et à obtenir l’Amour Divin du Père … »"
 date: 2022-06-01 06:00:01+00:133
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La tristesse d'un Empereur Aztèque"
 menu_title: ""
-description: "La tristesse d'un Empereur Aztèque"
+description: "Moctezuma II, reçu par FAB : « Oh, il y a des siècles, mon peuple et moi avons arraché le cœur vivant de victimes innocentes pour apaiser nos dieux, et … »"
 date: 2022-06-01 06:00:01+00:137
 draft: False
 hidden: True

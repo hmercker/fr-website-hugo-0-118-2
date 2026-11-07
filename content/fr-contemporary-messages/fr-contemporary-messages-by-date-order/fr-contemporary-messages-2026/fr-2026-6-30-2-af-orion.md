@@ -1,7 +1,7 @@
 ---
 title: "Suivez les inspirations de votre âme pour saisir les occasions de servir"
 menu_title: ""
-description: "Suivez les inspirations de votre âme pour saisir les occasions de servir"
+description: "Orion, reçu par Albert Fike : « Nous travaillons avec diligence, tout comme vos nombreux amis, à ouvrir des voies et des possibilités de service dans le … »"
 date: 2026-10-04 06:00:01+00:01
 draft: False
 hidden: True

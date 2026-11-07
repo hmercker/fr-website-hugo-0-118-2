@@ -1,7 +1,7 @@
 ---
 title: "Hélène insiste : M. Padgett doit cesser d’écrire"
 menu_title: ""
-description: "Hélène insiste : M. Padgett doit cesser d’écrire"
+description: "Hélène Padgett, reçu par James Padgett : « Tu ne dois pas écrire davantage ce soir, car tu es quelque peu épuisé et je sais que le Docteur ne sera pas … »"
 date: 2022-06-01 06:00:01+00:128
 draft: False
 hidden: True

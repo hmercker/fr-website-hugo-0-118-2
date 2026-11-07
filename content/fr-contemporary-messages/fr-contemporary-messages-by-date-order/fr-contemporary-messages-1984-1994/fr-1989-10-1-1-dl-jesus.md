@@ -1,7 +1,7 @@
 ---
 title: "Le flux et reflux de l’Amour Divin"
 menu_title: ""
-description: "Le flux et reflux de l’Amour Divin"
+description: "Jésus, reçu par Révérend Dave Lampron : « Elle se demande aussi si l’Amour de Dieu aurait été retiré, même si l’homme n’avait pas été désobéissant et s’il … »"
 date: 2022-06-01 06:00:01+00:42
 draft: False
 hidden: True

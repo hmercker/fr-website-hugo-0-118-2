@@ -1,7 +1,7 @@
 ---
 title: "Le portail de la lumière est ouvert par vos prières"
 menu_title: ""
-description: "Le portail de la lumière est ouvert par vos prières"
+description: "André, reçu par Al Fike : « Vous avez ouvert le portail de la lumière et de l’amour par vos prières et Dieu utilise ces conditions et votre intention pour … »"
 date: 2022-06-01 06:00:01+00:1451
 draft: False
 hidden: True

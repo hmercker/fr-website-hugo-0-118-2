@@ -1,7 +1,7 @@
 ---
 title: "Confirmation par FDR"
 menu_title: ""
-description: "Confirmation par FDR"
+description: "Franklin D Roosevelt, reçu par FAB : « J’ai observé que vous êtes anxieux parce que vous pensez ne pas m’avoir canalisé correctement dans les messages que … »"
 date: 2022-06-01 06:00:01+00:281
 draft: False
 hidden: True

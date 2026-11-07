@@ -1,7 +1,7 @@
 ---
 title: "Une leçon de guérison pour notre cercle de développement"
 menu_title: ""
-description: "Une leçon de guérison pour notre cercle de développement"
+description: "Keea atta Kem, reçu par Albert Fike : « Notre chère fille ressent une série de réactions qui commencent au niveau du nerf de son cou, relié à la zone qui … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

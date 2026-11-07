@@ -1,7 +1,7 @@
 ---
 title: "Jean confirme qu’il est le Saint Jean de la Bible"
 menu_title: ""
-description: "Jean confirme qu’il est le Saint Jean de la Bible"
+description: "St Jean, reçu par James Padgett : « Je veux simplement vous dire que vous êtes en meilleure condition ce soir que vous ne l’étiez cet après-midi lorsque … »"
 date: 2022-06-01 06:00:01+00:146
 draft: False
 hidden: True

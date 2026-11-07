@@ -1,7 +1,7 @@
 ---
 title: "La pêche miraculeuse"
 menu_title: ""
-description: "La pêche miraculeuse"
+description: "Judas, reçu par H : « Un matin, au lever du soleil, alors que nous revenions de notre pêche nocturne, je dis, nous, c’est-à-dire pratiquement tous les … »"
 date: 2022-06-01 06:00:01+00:47
 draft: False
 hidden: True

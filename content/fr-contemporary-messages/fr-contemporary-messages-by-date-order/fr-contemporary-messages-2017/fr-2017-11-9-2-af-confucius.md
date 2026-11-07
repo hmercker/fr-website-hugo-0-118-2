@@ -1,7 +1,7 @@
 ---
 title: "Bénédiction"
 menu_title: ""
-description: "Bénédiction"
+description: "Confucius, reçu par Al Fike : « Oui la Lumière devient brillante parmi vous, âmes bien-aimées, très brillante en effet. Comme vous faites connaître vos … »"
 date: 2022-06-01 06:00:01+00:191
 draft: False
 hidden: True

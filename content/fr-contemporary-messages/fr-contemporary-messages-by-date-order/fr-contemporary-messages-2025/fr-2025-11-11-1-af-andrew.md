@@ -1,7 +1,7 @@
 ---
 title: "Semez les graines de la vérité"
 menu_title: ""
-description: "Semez les graines de la vérité"
+description: "André, reçu par Albert Fike : « Cela ne paraît peut-être pas évident. Pourtant, le moment est venu de semer les graines de la vérité. »"
 date: 2025-12-12 16:00:01+00:01
 draft: False
 hidden: True

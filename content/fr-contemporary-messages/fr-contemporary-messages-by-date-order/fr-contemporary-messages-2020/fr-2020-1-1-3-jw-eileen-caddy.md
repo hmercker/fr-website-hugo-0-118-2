@@ -1,7 +1,7 @@
 ---
 title: "Sensibilisation à l’égard de Findhorn"
 menu_title: ""
-description: "Sensibilisation à l’égard de Findhorn"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « Merci de m’avoir invité à votre Cercle d’Amour en réponse à ma demande d’apporter vos prières et votre lumière à … »"
 date: 2022-06-01 06:00:01+00:972
 draft: False
 hidden: True

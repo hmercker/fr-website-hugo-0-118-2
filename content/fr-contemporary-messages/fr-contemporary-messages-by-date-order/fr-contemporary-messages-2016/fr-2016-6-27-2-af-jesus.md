@@ -1,7 +1,7 @@
 ---
 title: "Aimer avec le cœur d'Amour de Dieu"
 menu_title: ""
-description: "Aimer avec le cœur d'Amour de Dieu"
+description: "Jésus, reçu par Al Fike : « Ma sœur, vous et moi venons de la même foi et je vous aime et nous apportons l’amour dans ce monde à travers les yeux de notre … »"
 date: 2022-06-01 06:00:01+00:218
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La reine Victoria décrit son cheminement dans le monde spirituel et exprime son espoir de voir la Vérité de Dieu partagée"
 menu_title: ""
-description: "La reine Victoria décrit son cheminement dans le monde spirituel et exprime son espoir de voir la Vérité de Dieu partagée"
+description: "Reine Victoria, reçu par Albert Fike : « Puisse l’Amour du Père se déverser en votre âme, pour vous changer, vous guérir et vous transformer. »"
 date: 2026-11-05 06:00:01+00:01
 draft: False
 hidden: True

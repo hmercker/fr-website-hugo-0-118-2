@@ -1,7 +1,7 @@
 ---
 title: "L'aide à venir"
 menu_title: ""
-description: "L'aide à venir"
+description: "Jésus, reçu par FAB : « À côté de toute la folie et de l'obscurité, vous voyez aussi beaucoup de lumière, des personnes du monde entier qui se soucient … »"
 date: 2022-06-01 06:00:01+00:176
 draft: False
 hidden: True

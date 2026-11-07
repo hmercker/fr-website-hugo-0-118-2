@@ -1,7 +1,7 @@
 ---
 title: "Pilate prend ses fonctions durant l’année 26"
 menu_title: ""
-description: "Pilate prend ses fonctions durant l’année 26"
+description: "Judas, reçu par H : « Je voudrais reprendre, avec ce message, mon récit de la vie de Jésus. Comme tu le sais bien, nous sommes toujours en train de … »"
 date: 2022-06-01 06:00:01+00:34
 draft: False
 hidden: True

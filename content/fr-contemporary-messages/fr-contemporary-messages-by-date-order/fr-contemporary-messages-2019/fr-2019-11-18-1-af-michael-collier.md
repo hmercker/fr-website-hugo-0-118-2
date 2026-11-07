@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes porteur d'une vérité particulière"
 menu_title: ""
-description: "Vous êtes porteur d'une vérité particulière"
+description: "Michaël Collier, reçu par Al Fike : « Chacun d’entre vous est un gardien de la porte pour Dieu, car ce sont vos prières et vos efforts pour atteindre Dieu … »"
 date: 2022-06-01 06:00:01+00:916
 draft: False
 hidden: True

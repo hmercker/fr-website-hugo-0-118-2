@@ -1,7 +1,7 @@
 ---
 title: "Al Fike et Jimbeau Walsh rendent visite à une guérisseuse"
 menu_title: ""
-description: "Al Fike et Jimbeau Walsh rendent visite à une guérisseusee"
+description: "Confucius, reçu par Al Fike : « J’ai assisté à votre guérison et j’ai ajouté de nombreuses bénédictions aux bénédictions que la chère âme (Pauline ) a … »"
 date: 2022-06-01 06:00:01+00:567
 draft: False
 hidden: True

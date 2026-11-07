@@ -1,7 +1,7 @@
 ---
 title: "Apportez la Lumière aux âmes perdues"
 menu_title: ""
-description: "Apportez la Lumière aux âmes perdues"
+description: "Jésus, reçu par Al Fike : « Quel plus beau voyage peut-il y avoir dans la vie que cette douce étreinte, ce déploiement de vos âmes au sein de cette … »"
 date: 2026-10-24 06:00:01+00:01
 draft: False
 hidden: True

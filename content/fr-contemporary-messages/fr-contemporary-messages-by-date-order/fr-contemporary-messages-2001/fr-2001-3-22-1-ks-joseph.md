@@ -1,7 +1,7 @@
 ---
 title: "L’amour commence à la maison"
 menu_title: ""
-description: "L’amour commence à la maison"
+description: "Joseph, reçu par Kathryn Stokes : « Je prie pour un grand afflux de Ton merveilleux Amour en ce moment. Protège-moi des influences des esprits inférieurs … »"
 date: 2022-06-01 06:00:01+00:07
 draft: False
 hidden: True

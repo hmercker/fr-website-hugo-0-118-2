@@ -1,7 +1,7 @@
 ---
 title: "La tristesse d’un poète"
 menu_title: ""
-description: "La tristesse d’un poète"
+description: "Pablo Neruda, reçu par FAB : « Maintenant, vous êtes confus. Vous lisez dans ma biographie que je me suis débarrassé de ma tristesse initiale et que j’ai … »"
 date: 2022-06-01 06:00:01+00:36
 draft: False
 hidden: True

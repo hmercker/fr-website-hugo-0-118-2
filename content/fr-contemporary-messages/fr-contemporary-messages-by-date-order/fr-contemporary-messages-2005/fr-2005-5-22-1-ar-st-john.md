@@ -1,7 +1,7 @@
 ---
 title: "Le pays de l'amour"
 menu_title: ""
-description: "Le pays de l'amour"
+description: "St Jean, reçu par Amada Reza : « Merci d'avoir saisi cette occasion de me permettre d'écrire car j'ai quelques pensées que je voudrais partager avec mes … »"
 date: 2022-06-01 06:00:01+00:47
 draft: False
 hidden: True

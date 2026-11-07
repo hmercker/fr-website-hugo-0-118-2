@@ -1,7 +1,7 @@
 ---
 title: "Toute âme a faim de l'Amour de Dieu"
 menu_title: ""
-description: "Toute âme a faim de l'Amour de Dieu"
+description: "Augustin, reçu par Al Fike : « Que vos âmes s’ouvrent largement à ce grand cadeau de l’Amour de Dieu, éveillant les nombreuses chambres intérieures … »"
 date: 2022-06-01 06:00:01+00:817
 draft: False
 hidden: True

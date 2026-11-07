@@ -1,7 +1,7 @@
 ---
 title: "Un esprit qui a égaré les jeunes filles"
 menu_title: ""
-description: "Un esprit qui a égaré les jeunes filles"
+description: "Virginia Compton, reçu par James Padgett : « Écoutez mon récit de malheur. Car le malheur est avec moi dans mes ténèbres et mes tourments. »"
 date: 2022-06-01 06:00:01+00:274
 draft: False
 hidden: True

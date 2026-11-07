@@ -1,7 +1,7 @@
 ---
 title: "Hélène affirme que Jésus a écrit, a montré sa gloire et a choisi M. Padgett pour recevoir les messages"
 menu_title: ""
-description: "Hélène affirme que Jésus a écrit, a montré sa gloire et a choisi M. Padgett pour recevoir les messages"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon chéri, tu as eu de merveilleux messages ce soir, confirmant tous le fait que le Maître t’a choisi … »"
 date: 2022-06-01 06:00:01+00:75
 draft: False
 hidden: True

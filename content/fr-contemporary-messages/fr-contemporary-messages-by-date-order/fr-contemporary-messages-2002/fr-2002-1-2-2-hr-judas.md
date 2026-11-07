@@ -1,7 +1,7 @@
 ---
 title: "Le début du ministère public de Jésus"
 menu_title: ""
-description: "Le début du ministère public de Jésus"
+description: "Judas, reçu par H : « Eh bien, mon cher frère, tu as apprécié quelques jours de repos et tu as pris des forces avec du jambon et de la dinde [rires de Judas]. »"
 date: 2022-06-01 06:00:01+00:02
 draft: False
 hidden: True

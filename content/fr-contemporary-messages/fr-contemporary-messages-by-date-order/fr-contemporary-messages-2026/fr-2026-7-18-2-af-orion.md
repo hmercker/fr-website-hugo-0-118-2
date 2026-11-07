@@ -1,7 +1,7 @@
 ---
 title: "Chacun doit faire son propre choix individuel de demeurer dans la Lumière, et les changements terrestres faciliteront ce processus"
 menu_title: ""
-description: "Chacun doit faire son propre choix individuel de demeurer dans la Lumière, et les changements terrestres faciliteront ce processus"
+description: "Orion, reçu par Albert Fike : « Vous évoluez dans un monde où les modes de vie contredisent souvent les Lois de la Création et les Lois de l'Amour. »"
 date: 2026-10-04 06:00:01+00:01
 draft: False
 hidden: True

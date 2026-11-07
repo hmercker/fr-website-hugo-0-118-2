@@ -1,7 +1,7 @@
 ---
 title: "Soyez conscient de ce que vous dites. Soyez conscient de ce que vous pensez"
 menu_title: ""
-description: "Soyez conscient de ce que vous dites. Soyez conscient de ce que vous pensez"
+description: "Keea Atta Kem : « Vous, les habitants du plan terrestre, vous passez beaucoup de temps à penser à des choses matérielles et à des pensées qui sont si peu … »"
 date: 2022-06-01 06:00:01+00:05
 draft: False
 hidden: True

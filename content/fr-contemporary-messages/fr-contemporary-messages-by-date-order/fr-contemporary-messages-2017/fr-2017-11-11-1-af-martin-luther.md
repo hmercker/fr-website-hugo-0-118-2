@@ -1,7 +1,7 @@
 ---
 title: "Harmonie de l'esprit et de l'âme"
 menu_title: ""
-description: "Harmonie de l'esprit et de l'âme"
+description: "Martin Luther, reçu par Al Fike : « Que l'Amour du Père continue à se déverser dans vos âmes, mes amis, afin que Son Amour puisse ouvrir les perceptions … »"
 date: 2022-06-01 06:00:01+00:192
 draft: False
 hidden: True

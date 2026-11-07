@@ -1,7 +1,7 @@
 ---
 title: "Hélène Padgett confirme ce que Jules César a écrit"
 menu_title: ""
-description: "Hélène Padgett confirme ce que Jules César a écrit"
+description: "Hélène Padgett, reçu par James Padgett : « Il est un esprit sérieux maintenant et, comme il l’a dit, il s’efforce avec toute l’énergie de son âme … »"
 date: 2022-06-01 06:00:01+00:117
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L'âme aspire au contact de Dieu - Retraite F.U.S.C."
 menu_title: ""
-description: "L'âme aspire au contact de Dieu - Retraite F.U.S.C."
+description: "St Matthieu, reçu par Al Fike : « Il y a une compréhension là, au plus profond de vous, peu importe ce que vous pensez dans vos esprits – vos esprits … »"
 date: 2022-06-01 06:00:01+00:411
 draft: False
 hidden: True

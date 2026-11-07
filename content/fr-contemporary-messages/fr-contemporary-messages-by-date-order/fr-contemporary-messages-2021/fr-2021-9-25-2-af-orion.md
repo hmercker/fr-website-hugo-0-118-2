@@ -1,7 +1,7 @@
 ---
 title: "Message de clôture de la retraite Voix Directe (2021- Voix Directe II)"
 menu_title: ""
-description: "Message de clôture de la retraite Voix Directe (2021- Voix Directe II)"
+description: "Orion, reçu par Al Fike : « C’est un privilège de servir des âmes aussi sérieuses qui cherchent un monde meilleur et qui cherchent à s’améliorer dans ce … »"
 date: 2022-06-01 06:00:01+00:1661
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Ouverture du cercle d’aujourd’hui"
 menu_title: ""
-description: "Ouverture du cercle d’aujourd’hui"
+description: "Jésus, reçu par Al Fike : « Je prie pour que vous soyez réceptifs à l’amour du Père qui coule dans votre âme. Je vous exhorte à demander ce don. »"
 date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True

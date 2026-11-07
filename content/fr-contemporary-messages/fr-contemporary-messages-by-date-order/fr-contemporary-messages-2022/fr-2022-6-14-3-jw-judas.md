@@ -1,7 +1,7 @@
 ---
 title: "La solitude est un état béni"
 menu_title: ""
-description: "La solitude est un état béni"
+description: "Judas, reçu par Jimbeau Walsh : « J’ai envoyé des impressions à mon frère pendant votre session d’aujourd’hui, pour lui faire savoir et le mettre à l’aise … »"
 date: 2022-06-01 06:00:01+00:113
 draft: False
 hidden: True

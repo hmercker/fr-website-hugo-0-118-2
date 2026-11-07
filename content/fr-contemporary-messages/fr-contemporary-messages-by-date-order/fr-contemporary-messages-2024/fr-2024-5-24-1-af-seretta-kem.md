@@ -1,7 +1,7 @@
 ---
 title: "Les interventions de guérison sont accessibles à tous"
 menu_title: ""
-description: "Les interventions de guérison sont accessibles à tous"
+description: "Seretta Kem, reçu par Albert Fike : « Une grande aide est offerte à chacun d’entre vous au quotidien. Non seulement envers vous, mais aussi envers vos … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

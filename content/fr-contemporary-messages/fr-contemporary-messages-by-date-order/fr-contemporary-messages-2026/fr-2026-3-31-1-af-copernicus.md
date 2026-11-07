@@ -1,7 +1,7 @@
 ---
 title: "Au-delà de l'esprit : Le voyage sans fin de l'âme vers la connaissance de la création divine"
 menu_title: ""
-description: "Au-delà de l'esprit : Le voyage sans fin de l'âme vers la connaissance de la création divine"
+description: "Copernic, reçu par Al Fike : « Que les bénédictions du Père Céleste vous accompagnent, que ce grand don d’Amour se répande en abondance. »"
 date: 2026-05-28 16:00:01+00:01
 draft: False
 hidden: True

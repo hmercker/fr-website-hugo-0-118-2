@@ -1,7 +1,7 @@
 ---
 title: "Un nouvel ange qui nous apporte une grande lumière"
 menu_title: ""
-description: "Un nouvel ange qui nous apporte une grande lumière"
+description: "Eaux Vives, reçu par Albert Fike : « Alors que le Grand Esprit Blanc touche vos âmes, je m’appelle Bright Waters (Eaux Vives) et vous ne me connaissez … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

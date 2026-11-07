@@ -1,7 +1,7 @@
 ---
 title: "L’autodéfense et l’amour de ses ennemis"
 menu_title: ""
-description: "L’autodéfense et l’amour de ses ennemis"
+description: "Jésus, reçu par FAB : « Je veux le clarifier pour vous. Vous savez que j’ai enseigné que nous devions aimer nos ennemis. »"
 date: 2022-06-01 06:00:01+00:188
 draft: False
 hidden: True

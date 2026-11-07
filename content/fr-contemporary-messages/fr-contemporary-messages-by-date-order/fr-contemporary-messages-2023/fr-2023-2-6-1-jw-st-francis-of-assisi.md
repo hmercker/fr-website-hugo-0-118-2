@@ -1,7 +1,7 @@
 ---
 title: "Quand on donne beaucoup, on attend beaucoup"
 menu_title: ""
-description: "Quand on donne beaucoup, on attend beaucoup"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Je vous demande de vous souvenir des mots : « A ceux à qui on a beaucoup donné, beaucoup sera demandé« . »"
 date: 2022-06-01 06:00:01+00:25
 draft: False
 hidden: True

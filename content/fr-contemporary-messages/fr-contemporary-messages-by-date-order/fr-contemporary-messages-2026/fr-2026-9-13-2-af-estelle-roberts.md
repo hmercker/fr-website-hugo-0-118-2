@@ -1,7 +1,7 @@
 ---
 title: "L’Amour Divin est tout ce dont vous avez besoin, et bien plus encore"
 menu_title: ""
-description: "L’Amour Divin est tout ce dont vous avez besoin, et bien plus encore"
+description: "Estelle Roberts, reçu par Albert Fike : « Vous voyez la puissance de l’Amour de Dieu se manifester en ce lieu, parmi vous qui êtes en quête de vérité. »"
 date: 2026-11-05 06:00:01+00:01
 draft: False
 hidden: True

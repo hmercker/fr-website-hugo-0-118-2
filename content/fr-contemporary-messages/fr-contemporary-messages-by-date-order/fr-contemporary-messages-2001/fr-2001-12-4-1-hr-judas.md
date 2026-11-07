@@ -1,7 +1,7 @@
 ---
 title: "A Qui Jésus s’adressait-il ?"
 menu_title: ""
-description: "A Qui Jésus s’adressait-il ?"
+description: "Judas, reçu par H : « Mon cher H , comme je te l’ai dit hier, j’ai l’intention d’aborder un autre sujet qui a beaucoup influencé Jésus. »"
 date: 2022-06-01 06:00:01+00:92
 draft: False
 hidden: True

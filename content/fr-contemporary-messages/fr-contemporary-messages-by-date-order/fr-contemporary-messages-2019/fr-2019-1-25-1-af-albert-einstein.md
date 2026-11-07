@@ -1,7 +1,7 @@
 ---
 title: "De nombreux scientifiques en esprit travaillent à l'établissement de meilleures communications entre les mondes"
 menu_title: ""
-description: "De nombreux scientifiques en esprit travaillent à l'établissement de meilleures communications entre les mondes"
+description: "Albert Einstein, reçu par Al Fike : « Il y a un grand effort pour apporter ce que nous pouvons à travers votre côté de la vie et de le faire avec sagesse … »"
 date: 2022-06-01 06:00:01+00:611
 draft: False
 hidden: True

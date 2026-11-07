@@ -1,7 +1,7 @@
 ---
 title: "L’erreur d’un pape"
 menu_title: ""
-description: "L’erreur d’un pape"
+description: "Pape Pie XII, reçu par FAB : « Oh, comme j’ai regretté ce que j’ai fait en promouvant le Concordat avec le Troisième Reich ! »"
 date: 2022-06-01 06:00:01+00:74
 draft: False
 hidden: True

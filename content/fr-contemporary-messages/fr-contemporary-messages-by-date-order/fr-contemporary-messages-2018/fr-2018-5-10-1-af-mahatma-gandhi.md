@@ -1,7 +1,7 @@
 ---
 title: "Le changement intervient âme par âme"
 menu_title: ""
-description: "Le changement intervient âme par âme"
+description: "Mahatma Gandhi, reçu par Al Fike : « Vous avez contemplé les conditions de mon pays et les conditions qui prévalent dans de nombreuses parties de ce monde … »"
 date: 2022-06-01 06:00:01+00:387
 draft: False
 hidden: True

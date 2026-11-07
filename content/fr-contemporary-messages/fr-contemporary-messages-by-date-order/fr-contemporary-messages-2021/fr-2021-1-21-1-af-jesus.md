@@ -1,7 +1,7 @@
 ---
 title: "Leçon 17 : La nature infinie de l’univers de Dieu"
 menu_title: ""
-description: "Leçon 17 : La nature infinie de l’univers de Dieu"
+description: "Jésus, reçu par Al Fike : « Souvent, vous avez adressé vos prières à Dieu, vous lui demandez beaucoup de choses, vous faites avancer votre cœur dans vos … »"
 date: 2022-06-01 06:00:01+00:1390
 draft: False
 hidden: True

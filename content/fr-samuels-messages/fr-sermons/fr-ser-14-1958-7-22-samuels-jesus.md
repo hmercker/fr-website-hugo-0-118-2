@@ -1,7 +1,7 @@
 ---
 title: "14ème Sermon – La foi inébranlable de David dans le Père"
 menu_title: ""
-description: "14ème Sermon – La foi inébranlable de David dans le Père"
+description: "Jésus, reçu par Dr Samuels : « Dans d’innombrables histoires et commentaires sur David, son courage dans la bataille, son pouvoir de direction, son … »"
 date: 2022-06-01 06:00:01+00:67
 draft: False
 hidden: True

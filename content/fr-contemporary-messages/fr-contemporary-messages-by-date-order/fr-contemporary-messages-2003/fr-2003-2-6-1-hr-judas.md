@@ -1,7 +1,7 @@
 ---
 title: "Sortir de l’enfer"
 menu_title: ""
-description: "Sortir de l’enfer"
+description: "Judas, reçu par H : « Je voudrais continuer mon message d’hier. La clé de notre travail de sauvetage est la création d’un état de confiance. »"
 date: 2022-06-01 06:00:01+00:24
 draft: False
 hidden: True

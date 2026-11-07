@@ -1,7 +1,7 @@
 ---
 title: "La croyance, par les églises, en l’efficacité de l’expiation par procuration de la mort de Jésus et de sa crucifixion a causé beaucoup de mal à l’humanité et la perte du Vrai Chemin vers le Royaume Céleste"
 menu_title: ""
-description: "La croyance, par les églises, en l’efficacité de l’expiation par procuration de la mort de Jésus et de sa crucifixion a causé beaucoup de mal à l’humanité et la perte du Vrai Chemin vers le Royaume Céleste"
+description: "St Jean, reçu par James Padgett : « Je souhaite écrire, ce soir, sur un sujet qui est très important pour les membres des églises orthodoxes quant à la … »"
 date: 2022-06-01 06:00:01+00:179
 draft: False
 hidden: True

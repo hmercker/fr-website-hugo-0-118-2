@@ -1,7 +1,7 @@
 ---
 title: "Jésus – Qu’est ce qui rend un homme Divin ?"
 menu_title: ""
-description: "Jésus – Qu’est ce qui rend un homme Divin ?"
+description: "Jésus, reçu par James Padgett : « Je souhaite écrire ce soir sur le sujet de : « qu’est-ce qui rend un homme Divin ? » Lorsque l'homme a été créé, on lui … »"
 date: 2022-06-01 06:00:01+00:176
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Debriefing d'Al sur son expérience dans la chambre noire (séminaire Voix Directe 2021)"
 menu_title: ""
-description: "Debriefing d'Al sur son expérience dans la chambre noire (séminaire Voix Directe 2021)"
+description: "Al Fike, reçu par Al Fike : « Al : Nous avons tous atterri sur la plate-forme, et nous nous sommes tous retrouvés à différents endroits sur cette … »"
 date: 2022-06-01 06:00:01+00:1646
 draft: False
 hidden: True

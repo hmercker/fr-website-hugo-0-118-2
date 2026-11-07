@@ -1,7 +1,7 @@
 ---
 title: "Embrasser la diversité et l’autre dans l’acceptation et l’amour"
 menu_title: ""
-description: "Embrasser la diversité et l’autre dans l’acceptation et l’amour"
+description: "Leytergus, reçu par Al Fike : « Les vents du changement sont tout autour de vous et le Souffle de Dieu, Son Amour, est sur vous, chacun de vous. »"
 date: 2022-06-01 06:00:01+00:1195
 draft: False
 hidden: True

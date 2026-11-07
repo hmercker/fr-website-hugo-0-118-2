@@ -1,7 +1,7 @@
 ---
 title: "Croissance de l'âme"
 menu_title: ""
-description: "Croissance de l'âme"
+description: "André, reçu par Al Fike : « Il est si bon de vous voir, âmes bien-aimées réunies, dans la Lumière de l'Amour de Dieu, dans la lumière de vos liens et de … »"
 date: 2022-06-01 06:00:01+00:58
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Un auteur spiritualiste écrit qu’il sait maintenant que Jésus était plus qu’un simple médium lorsqu’il était sur terre"
 menu_title: ""
-description: "Un auteur spiritualiste écrit qu’il sait maintenant que Jésus était plus qu’un simple médium lorsqu’il était sur terre"
+description: "Eugène Crowell, reçu par James Padgett : « Eh bien, comme vous l’avez observé, je n’ai pas considéré Jésus comme un dieu, mais simplement comme un médium … »"
 date: 2022-06-01 06:00:01+00:34
 draft: False
 hidden: True

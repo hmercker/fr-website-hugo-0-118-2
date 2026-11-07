@@ -1,7 +1,7 @@
 ---
 title: "La profondeur de votre désir"
 menu_title: ""
-description: "La profondeur de votre désir"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Vous pourriez vous demander : « Si j'avais le pouvoir de changer les choses en amour, que changerais-je ? » … »"
 date: 2022-06-01 06:00:01+00:66
 draft: False
 hidden: True

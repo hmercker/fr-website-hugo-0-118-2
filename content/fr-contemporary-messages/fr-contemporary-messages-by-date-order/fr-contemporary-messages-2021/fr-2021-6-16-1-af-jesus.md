@@ -1,7 +1,7 @@
 ---
 title: "Leçon 12 : Description des trois niveaux du mental"
 menu_title: ""
-description: "Leçon 12 : Description des trois niveaux du mental"
+description: "Jésus, reçu par Al Fike : « Aujourd’hui, je souhaite vous parler des trois niveaux du mental de chaque individu. Je sais que cela peut vous surprendre … »"
 date: 2022-06-01 06:00:01+00:1544
 draft: False
 hidden: True

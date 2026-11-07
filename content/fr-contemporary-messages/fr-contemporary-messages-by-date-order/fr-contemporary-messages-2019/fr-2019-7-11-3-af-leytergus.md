@@ -1,7 +1,7 @@
 ---
 title: "Ce que signifie vraiment la co-création avec Dieu. (Retraite Q&A Gibsons Juillet 2019)"
 menu_title: ""
-description: "Ce que signifie vraiment la co-création avec Dieu. (Retraite Q&A Gibsons Juillet 2019)"
+description: "Leytergus, reçu par Al Fike : « Je n’ai pas parlé par cet instrument auparavant, bien que vous m’ayez connu par d’autres voies et médiums et par des … »"
 date: 2022-06-01 06:00:01+00:779
 draft: False
 hidden: True

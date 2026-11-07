@@ -1,7 +1,7 @@
 ---
 title: "John Denver a changé de point de vue"
 menu_title: ""
-description: "John Denver a changé de point de vue"
+description: "John Denver, reçu par FAB : « Je vous remercie une fois de plus pour me permettre d’écrire. Les esprits supérieurs qui vous protègent dans cette … »"
 date: 2022-06-01 06:00:01+00:14
 draft: False
 hidden: True

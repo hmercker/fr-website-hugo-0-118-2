@@ -1,7 +1,7 @@
 ---
 title: "Sentir Mon Amour"
 menu_title: ""
-description: "Sentir Mon Amour"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Mon cher enfant, continue à écrire. Il y en a beaucoup d’autres à venir et cela arrivera. »"
 date: 2022-06-01 06:00:01+00:290
 draft: False
 hidden: True

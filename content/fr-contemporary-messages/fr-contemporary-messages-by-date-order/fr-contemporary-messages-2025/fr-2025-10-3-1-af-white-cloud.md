@@ -1,7 +1,7 @@
 ---
 title: "Le changement à venir et le chemin de l'âme"
 menu_title: ""
-description: "Le changement à venir et le chemin de l'âme"
+description: "Nuage Blanc, reçu par Albert Fike : « Je vous salue, frères et sœurs. Lorsque je vivais sur Terre, il n’y a pas si longtemps, le monde était encore innocent. »"
 date: 2025-11-10 06:00:01+00:01
 draft: False
 hidden: True

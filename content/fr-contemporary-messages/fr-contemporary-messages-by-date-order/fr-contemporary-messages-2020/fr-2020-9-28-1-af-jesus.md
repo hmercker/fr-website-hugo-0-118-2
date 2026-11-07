@@ -1,7 +1,7 @@
 ---
 title: "Instructions à suivre pour recevoir des enseignements spéciaux"
 menu_title: ""
-description: "Instructions à suivre pour recevoir des enseignements spéciaux"
+description: "Jésus, reçu par Al Fike : « Je souhaite que cet instrument et que vous deux réserviez une matinée par semaine pour que je puisse délivrer des messages … »"
 date: 2022-06-01 06:00:01+00:1260
 draft: False
 hidden: True

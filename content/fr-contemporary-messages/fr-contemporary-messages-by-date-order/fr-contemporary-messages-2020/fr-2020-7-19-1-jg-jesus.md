@@ -1,7 +1,7 @@
 ---
 title: "La fin de ce monde approche"
 menu_title: ""
-description: "La fin de ce monde approche"
+description: "Jésus (Yeshua ben Yosef), reçu par Jane Gartshore : « La force motrice derrière une grande partie des décisions prises dans ce monde est la cupidité. »"
 date: 2022-06-01 06:00:01+00:1191
 draft: False
 hidden: True

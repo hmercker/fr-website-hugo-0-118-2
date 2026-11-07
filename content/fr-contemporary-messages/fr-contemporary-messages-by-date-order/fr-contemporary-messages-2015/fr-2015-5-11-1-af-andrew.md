@@ -1,7 +1,7 @@
 ---
 title: "Cherchez l'essence divine de Dieu"
 menu_title: ""
-description: "Cherchez l'essence divine de Dieu"
+description: "André, reçu par Al Fike : « En ce moment, l’Amour du Père se déverse dans vos âmes et étanche la soif, au plus profond de vous, de recevoir l’essence … »"
 date: 2022-06-01 06:00:01+00:128
 draft: False
 hidden: True

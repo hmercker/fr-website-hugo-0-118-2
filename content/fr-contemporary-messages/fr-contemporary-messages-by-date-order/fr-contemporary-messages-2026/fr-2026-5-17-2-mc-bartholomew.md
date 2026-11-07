@@ -1,7 +1,7 @@
 ---
 title: "La créativité de l'âme"
 menu_title: ""
-description: "La créativité de l'âme"
+description: "Barthélémy, reçu par Maureen Cardoso : « C'est un plaisir pour moi de me joindre à vous alors que vous vous réunissez pour votre rencontre hebdomadaire. »"
 date: 2026-09-30 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Incarnation de l’âme – Mystère de la naissance de l’âme dans l’être humain"
 menu_title: ""
-description: "Incarnation de l’âme – Mystère de la naissance de l’âme dans l’être humain"
+description: "St Luc, reçu par James Padgett : « Je veux vous parler ce soir du mystère de la naissance de l’âme dans l’être humain. Toutes les âmes qui entrent dans … »"
 date: 2022-06-01 06:00:01+00:125
 draft: False
 hidden: True

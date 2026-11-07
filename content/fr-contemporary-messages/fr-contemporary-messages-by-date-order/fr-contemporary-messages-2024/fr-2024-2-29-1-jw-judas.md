@@ -1,7 +1,7 @@
 ---
 title: "Orchestrer l’Amour"
 menu_title: ""
-description: "Orchestrer l’Amour"
+description: "Judas, reçu par Jimbeau Walsh : « Mes amis, permettez-moi de vous remercier de vous être réunis de cette manière, d’avoir exploré les frontières du monde … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Les expériences du Pape Urbain II"
 menu_title: ""
-description: "Les expériences du Pape Urbain II"
+description: "Pape Urbain II, reçu par FAB : « J’étais complètement sincère lorsque j’ai commencé la première croisade. Je croyais fermement que j’étais dans le droit … »"
 date: 2022-06-01 06:00:01+00:145
 draft: False
 hidden: True

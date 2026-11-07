@@ -1,7 +1,7 @@
 ---
 title: "La condition de l’Âme lorsque l’Amour Divin s’écoule en elle"
 menu_title: ""
-description: "La condition de l’Âme lorsque l’Amour Divin s’écoule en elle"
+description: "St Jean, reçu par James Padgett : « Eh bien je n’écrirai pas très longuement, et ce que je dirai aura à voir avec « la condition de l’âme quand et après … »"
 date: 2022-06-01 06:00:01+00:249
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La terre promise"
 menu_title: ""
-description: "La terre promise"
+description: "Moïse, reçu par Jimbeau Walsh : « Je me suis demandé : « Comment allons-nous nourrir ces gens ? Comment allons-nous prendre soin d’eux ? »"
 date: 2022-06-01 06:00:01+00:708
 draft: False
 hidden: True

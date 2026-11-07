@@ -1,7 +1,7 @@
 ---
 title: "Portez la lumière de l'amour en vous"
 menu_title: ""
-description: "Portez la lumière de l'amour en vous"
+description: "Marie-Madeleine, reçu par Révérend Dave Lampron : « Cela fait un certain temps que je n'ai pas eu le privilège et l'honneur de parler à travers vous, mon … »"
 date: 2022-06-01 06:00:01+00:81
 draft: False
 hidden: True

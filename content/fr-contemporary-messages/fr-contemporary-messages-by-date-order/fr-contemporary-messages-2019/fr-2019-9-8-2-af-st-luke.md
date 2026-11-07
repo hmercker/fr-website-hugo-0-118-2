@@ -1,7 +1,7 @@
 ---
 title: "Continuer à s'unir par l'amour"
 menu_title: ""
-description: "Continuer à s'unir par l'amour"
+description: "St Luc, reçu par Al Fike : « Quel que soit le chemin que vous empruntez dans vos recherches spirituelles, puissiez-vous toujours aller à la Source, la … »"
 date: 2022-06-01 06:00:01+00:842
 draft: False
 hidden: True

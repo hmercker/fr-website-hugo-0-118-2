@@ -1,7 +1,7 @@
 ---
 title: "Daniel Webster affirme que Jésus et les esprits des sphères supérieures révèlent les grandes vérités du Père à travers M. Padgett"
 menu_title: ""
-description: "Daniel Webster affirme que Jésus et les esprits des sphères supérieures révèlent les grandes vérités du Père à travers M. Padgett"
+description: "Daniel Webster, reçu par James Padgett : « Permettez-moi de dire un mot pendant que vous écrivez, car je m’intéresse aussi à votre grande œuvre, ainsi … »"
 date: 2022-06-01 06:00:01+00:82
 draft: False
 hidden: True

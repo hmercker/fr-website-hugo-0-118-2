@@ -1,7 +1,7 @@
 ---
 title: "La mort de sa sœur et Macbeth"
 menu_title: ""
-description: "La mort de sa sœur et Macbeth"
+description: "William Shakespeare, reçu par FAB : « Dans ma canalisation du 13 août 2007, Enfance et adolescence, j'ai mentionné que lorsque j'ai écrit le fameux … »"
 date: 2022-06-01 06:00:01+00:174
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Hélène exprime la déception de Jésus de ne pas avoir pu délivrer un message"
 menu_title: ""
-description: "Hélène exprime la déception de Jésus de ne pas avoir pu délivrer un message"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cœur, le Maître fut déçu de ne pas pouvoir terminer son message, qu’il semblait très impatient … »"
 date: 2022-06-01 06:00:01+00:106
 draft: False
 hidden: True

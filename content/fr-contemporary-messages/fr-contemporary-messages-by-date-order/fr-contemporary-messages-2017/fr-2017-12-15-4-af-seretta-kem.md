@@ -1,7 +1,7 @@
 ---
 title: "Connaître le battement de vos cœurs"
 menu_title: ""
-description: "Connaître le battement de vos cœurs"
+description: "Seretta Kem, reçu par Al Fike : « J'ai partagé beaucoup de choses au cours de ces semaines, alors je n'ai pas besoin de dire grand-chose d'autre que … »"
 date: 2022-06-01 06:00:01+00:279
 draft: False
 hidden: True

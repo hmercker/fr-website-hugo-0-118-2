@@ -1,7 +1,7 @@
 ---
 title: "La prière profonde crée un magnétisme qui attire chaque âme à Dieu"
 menu_title: ""
-description: "La prière profonde crée un magnétisme qui attire chaque âme à Dieu"
+description: "Paul, reçu par Jimbeau Walsh : « Vous avez été témoin de l'amour en action, au-delà des mots, des croyances, des limites du dogme et de la futilité des … »"
 date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True

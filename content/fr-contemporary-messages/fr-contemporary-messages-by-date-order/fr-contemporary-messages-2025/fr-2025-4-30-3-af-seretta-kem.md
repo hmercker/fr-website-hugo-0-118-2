@@ -1,7 +1,7 @@
 ---
 title: "Chacun a reçu un don pour un éveil spirituel plus profond"
 menu_title: ""
-description: "Chacun a reçu un don pour un éveil spirituel plus profond"
+description: "Seretta Kem, reçu par Albert Fike : « Chacun a reçu guérison, élévation et intégration dans ce Cercle de Lumière. Vous porterez ces bénédictions avec vous. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

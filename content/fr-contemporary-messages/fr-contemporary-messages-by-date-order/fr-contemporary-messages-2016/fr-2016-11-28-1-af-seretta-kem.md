@@ -1,7 +1,7 @@
 ---
 title: "Car le changement doit venir, l’amour doit apporter l’harmonie"
 menu_title: ""
-description: "Car le changement doit venir, l’amour doit apporter l’harmonie"
+description: "Seretta Kem, reçu par Al Fike : « Bien que vous soyez peu nombreux dans ce cercle, vous êtes grands en puissance et dans vos efforts et dans vos prières … »"
 date: 2022-06-01 06:00:01+00:271
 draft: False
 hidden: True

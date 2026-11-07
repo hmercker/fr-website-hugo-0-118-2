@@ -1,7 +1,7 @@
 ---
 title: "La plus grande de toutes les formes de guérison est la guérison par l’Amour Divin"
 menu_title: ""
-description: "La plus grande de toutes les formes de guérison est la guérison par l’Amour Divin"
+description: "Seretta Kem, reçu par Al Fike : « Lorsque j’étais sur Terre, je vivais dans ce que vous appelez l’Égypte, il y a de très nombreuses générations, lorsque … »"
 date: 2022-06-01 06:00:01+00:127
 draft: False
 hidden: True

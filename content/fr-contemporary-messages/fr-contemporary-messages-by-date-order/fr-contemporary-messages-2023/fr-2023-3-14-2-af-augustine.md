@@ -1,7 +1,7 @@
 ---
 title: "Versions de la vérité"
 menu_title: ""
-description: "Versions de la vérité"
+description: "Augustin, reçu par Al Fike : « Vous voyez la vérité à travers vos propres yeux, à votre manière, en raison des filtres qui existent dans votre esprit, en … »"
 date: 2023-09-01 06:00:01+00:96
 draft: False
 hidden: True

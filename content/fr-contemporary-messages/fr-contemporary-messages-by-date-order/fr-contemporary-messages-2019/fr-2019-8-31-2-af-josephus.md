@@ -1,7 +1,7 @@
 ---
 title: "Qui et qu’est-ce que Dieu ?"
 menu_title: ""
-description: "Qui et qu’est-ce que Dieu ?"
+description: "Flavius Josèphe, reçu par Al Fike : « Qui et qu’est-ce que Dieu ? Puisque notre cher instrument vous a encouragé à tendre la main à Dieu, la source de … »"
 date: 2022-06-01 06:00:01+00:824
 draft: False
 hidden: True

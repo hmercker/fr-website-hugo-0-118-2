@@ -1,7 +1,7 @@
 ---
 title: "La voie, la lumière, la vérité "
 menu_title: ""
-description: "La voie, la lumière, la vérité "
+description: "Judas, reçu par Jimbeau Walsh : « J’ai été avec le cher frère aujourd’hui et il me demandait tout à l’heure : « Pourquoi ne parle-t-on pas davantage de … »"
 date: 2022-06-01 06:00:01+00:1153
 draft: False
 hidden: True

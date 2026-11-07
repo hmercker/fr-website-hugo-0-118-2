@@ -1,7 +1,7 @@
 ---
 title: "Puissiez-vous tous guérir dans le baume de l'amour de Dieu"
 menu_title: ""
-description: "Puissiez-vous tous guérir dans le baume de l'amour de Dieu"
+description: "Luc, reçu par reçu par Jimbeau Walsh : « Retraite d’Amour Divin en Floride Sois en paix dans l’Amour de Dieu. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

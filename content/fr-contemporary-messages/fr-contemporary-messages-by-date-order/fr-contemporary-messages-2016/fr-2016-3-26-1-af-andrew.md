@@ -1,7 +1,7 @@
 ---
 title: "Service – Aider les autres"
 menu_title: ""
-description: "Service – Aider les autres"
+description: "André, reçu par Al Fike : « Chacun d’entre vous ici, chacun d’entre vous ici, chaque âme précieuse et belle de ce cercle est engagée dans le service, en … »"
 date: 2022-06-01 06:00:01+00:181
 draft: False
 hidden: True

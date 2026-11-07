@@ -1,7 +1,7 @@
 ---
 title: "Quel sera votre cadeau à Dieu ?"
 menu_title: ""
-description: "Quel sera votre cadeau à Dieu ?"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Dans le monde matériel, il est souvent difficile d’activer votre volonté et de la laisser ne faire qu’un avec … »"
 date: 2022-06-01 06:00:01+00:1255
 draft: False
 hidden: True

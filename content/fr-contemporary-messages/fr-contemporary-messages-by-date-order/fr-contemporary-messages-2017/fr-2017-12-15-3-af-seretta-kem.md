@@ -1,7 +1,7 @@
 ---
 title: "La naissance de la Voix Directe"
 menu_title: ""
-description: "La naissance de la Voix Directe"
+description: "Seretta Kem, reçu par Al Fike : « En effet, nous sommes proches d'atteindre le don de la voix directe parmi vous. Un cadeau que vous désirez ardemment, un … »"
 date: 2022-06-01 06:00:01+00:278
 draft: False
 hidden: True

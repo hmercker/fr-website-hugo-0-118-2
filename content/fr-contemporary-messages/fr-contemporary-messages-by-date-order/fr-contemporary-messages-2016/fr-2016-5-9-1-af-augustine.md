@@ -1,7 +1,7 @@
 ---
 title: "Se débarrasser de plusieurs peaux alors que l’Amour vous transforme"
 menu_title: ""
-description: "Se débarrasser de plusieurs peaux alors que l’Amour vous transforme"
+description: "Augustin, reçu par Al Fike : « Ces conditions, ces négativités, ces conditions qui ne sont pas créées par Dieu mais qui sont créées par tous ceux qui vous … »"
 date: 2022-06-01 06:00:01+00:201
 draft: False
 hidden: True

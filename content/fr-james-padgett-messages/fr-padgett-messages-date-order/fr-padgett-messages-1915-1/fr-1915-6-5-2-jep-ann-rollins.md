@@ -1,7 +1,7 @@
 ---
 title: "Anne Rollins décrit les différentes sphères et les différents genres d’esprit qui y habitent"
 menu_title: ""
-description: "Anne Rollins décrit les différentes sphères et les différents genres d’esprit qui y habitent"
+description: "Anne Rollins, reçu par James Padgett : « J’ai acquis beaucoup d’expérience, bien que je ne sois dans le monde des esprits que depuis très peu de temps  … »"
 date: 2022-06-01 06:00:01+00:98
 draft: False
 hidden: True

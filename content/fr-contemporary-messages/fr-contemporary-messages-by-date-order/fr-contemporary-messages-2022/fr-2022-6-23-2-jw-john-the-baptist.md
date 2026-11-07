@@ -1,7 +1,7 @@
 ---
 title: "Le premier pas pour s'ouvrir à l'Amour de Dieu"
 menu_title: ""
-description: "Le premier pas pour s'ouvrir à l'Amour de Dieu"
+description: "Jean le Baptiste, reçu par Jimbeau Walsh : « Je peux vous dire que la première étape pour s'ouvrir à l'Amour de Dieu est d'être assez humble pour ouvrir … »"
 date: 2022-06-01 06:00:01+00:117
 draft: False
 hidden: True

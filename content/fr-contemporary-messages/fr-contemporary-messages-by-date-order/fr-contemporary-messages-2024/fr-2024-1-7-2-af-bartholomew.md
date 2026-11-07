@@ -1,7 +1,7 @@
 ---
 title: "Ouvrez vos âmes pour être guéris"
 menu_title: "Ouvrez vos âmes pour être guéris"
-description: ""
+description: "Bartholomew, reçu par Albert Fike : « Que les bénédictions de l’Amour du Père remplissent vos âmes. Chacun de vous a ses défis, ses obstacles et les … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

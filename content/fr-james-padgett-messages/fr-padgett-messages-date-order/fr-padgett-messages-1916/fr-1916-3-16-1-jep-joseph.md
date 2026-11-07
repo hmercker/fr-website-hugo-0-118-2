@@ -1,7 +1,7 @@
 ---
 title: "Joseph d’Arimathie décrit ce qui s’est passé après que le corps de Jésus a été placé dans le tombeau"
 menu_title: ""
-description: "Joseph d’Arimathie décrit ce qui s’est passé après que le corps de Jésus a été placé dans le tombeau"
+description: "Joseph, reçu par James Padgett : « J’étais avec lui au moment de sa mort, et je l’ai accompagné alors que son corps avait été étendu dans le tombeau, et … »"
 date: 2022-06-01 06:00:01+00:178
 draft: False
 hidden: True

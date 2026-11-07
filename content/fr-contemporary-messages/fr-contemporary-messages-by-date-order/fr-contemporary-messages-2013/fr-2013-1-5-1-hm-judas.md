@@ -1,7 +1,7 @@
 ---
 title: "La joie de l'Amour"
 menu_title: ""
-description: "La joie de l'Amour"
+description: "Judas, reçu par Helge Mercker : « Tu lis les messages que j’ai donnés à travers H . Tu trouves un peu de clarté sur certains sujets et cela nous aide. »"
 date: 2022-06-01 06:00:01+00:04
 draft: False
 hidden: True

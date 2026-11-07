@@ -1,7 +1,7 @@
 ---
 title: "Les politiciens dans le monde des esprits - 3"
 menu_title: ""
-description: "Les politiciens dans le monde des esprits - 3"
+description: "William Howard Taft, reçu par FAB : « Je me suis retrouvé avec certains de mes ennemis politiques, non pas parce que nous pensions de la même façon, mais … »"
 date: 2022-06-01 06:00:01+00:78
 draft: False
 hidden: True

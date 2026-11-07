@@ -1,7 +1,7 @@
 ---
 title: "Importance du phare de lumière"
 menu_title: ""
-description: "Importance du phare de lumière"
+description: "Joseph (père de Jésus), reçu par Elizabeth Mack : « J’étais le père du maître. Vous avez bien deviné qu’il y a d’autres forces à l’œuvre concernant la … »"
 date: 2022-06-01 06:00:01+00:99
 draft: False
 hidden: True

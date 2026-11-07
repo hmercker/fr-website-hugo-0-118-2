@@ -1,7 +1,7 @@
 ---
 title: "Créer un sanctuaire commence par un petit pas"
 menu_title: ""
-description: "Créer un sanctuaire commence par un petit pas"
+description: "Eileen Caddy et François d'Assise, reçu par Jimbeau Walsh : « Je souhaite moi aussi vous parler de la création d'un sanctuaire, non seulement du point de … »"
 date: 2025-10-25 06:00:01+00:01
 draft: False
 hidden: True

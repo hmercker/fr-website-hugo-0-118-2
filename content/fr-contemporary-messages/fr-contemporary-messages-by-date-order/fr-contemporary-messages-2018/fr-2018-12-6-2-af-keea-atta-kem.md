@@ -1,7 +1,7 @@
 ---
 title: "Le changement est la seule constante dans l’expérience de la vie"
 menu_title: ""
-description: "Le changement est la seule constante dans l’expérience de la vie"
+description: "Keea Atta Kem, reçu par Al Fike : « J’ai été invitée à venir partager un message avec vous au sujet du changement. Il n’est pas une seule âme qui ne soit … »"
 date: 2026-10-28 06:00:01+00:435
 draft: False
 hidden: True

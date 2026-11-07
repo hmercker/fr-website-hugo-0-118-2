@@ -1,7 +1,7 @@
 ---
 title: "62ème Sermon – Isaïe, le messager des bonnes nouvelles"
 menu_title: ""
-description: "62ème Sermon – Isaïe, le messager des bonnes nouvelles"
+description: "Jésus, reçu par Dr Samuels : « Les écrits d’Isaïe, par conséquent, sont remplis d’émotion personnelle, avec du lyrisme, et avec la joie que le jour de la … »"
 date: 2022-06-01 06:00:01+00:115
 draft: False
 hidden: True

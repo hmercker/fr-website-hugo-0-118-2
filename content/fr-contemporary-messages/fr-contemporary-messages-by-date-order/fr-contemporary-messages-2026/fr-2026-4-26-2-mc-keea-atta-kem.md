@@ -1,7 +1,7 @@
 ---
 title: "Les pensées sont des réalités : soyez intentionnels dans votre façon de penser"
 menu_title: ""
-description: "Les pensées sont des réalités : soyez intentionnels dans votre façon de penser"
+description: "Keea Atta Kem, reçu par Maureen Cardoso : « Que la paix qui dépasse toute compréhension, ce grand Amour qui émane de l’Esprit Saint, trouve le chemin de … »"
 date: 2026-09-22 06:00:00+00:00
 draft: False
 hidden: True

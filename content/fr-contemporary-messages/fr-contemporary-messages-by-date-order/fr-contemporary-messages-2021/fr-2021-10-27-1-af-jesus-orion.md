@@ -1,7 +1,7 @@
 ---
 title: "Orion et Jésus encouragent les efforts pour de futures publications"
 menu_title: ""
-description: "Orion et Jésus encouragent les efforts pour de futures publications"
+description: "Jésus & Orion, reçu par Al Fike : « Votre frère bien-aimé Jésus est également présent. Ensemble, nous formons une puissante alliance de lumière et d’amour … »"
 date: 2022-06-01 06:00:01+00:1694
 draft: False
 hidden: True

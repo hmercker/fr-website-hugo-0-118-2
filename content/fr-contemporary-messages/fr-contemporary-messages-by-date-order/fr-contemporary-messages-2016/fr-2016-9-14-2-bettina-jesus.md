@@ -1,7 +1,7 @@
 ---
 title: "A propos de la Vérité Absolue"
 menu_title: ""
-description: "A propos de la Vérité Absolue"
+description: "Jésus, reçu par Bettina : « « Certaines personnes croient qu’elles ont la vérité absolue, qu’elles savent ce qui est et ce qui n’est pas. »"
 date: 2022-06-01 06:00:01+00:249
 draft: False
 hidden: True

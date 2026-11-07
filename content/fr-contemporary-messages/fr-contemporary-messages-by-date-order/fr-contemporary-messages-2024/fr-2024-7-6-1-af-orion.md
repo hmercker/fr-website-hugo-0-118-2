@@ -1,7 +1,7 @@
 ---
 title: "S'adapter aux changements de la Terre et recevoir des conseils sur les changements à venir"
 menu_title: ""
-description: "S'adapter aux changements de la Terre et recevoir des conseils sur les changements à venir"
+description: "Orion, reçu par Albert Fike : « Vos scientifiques ont lancé de terribles avertissements. Chaque jour, quelque chose est révélé, des inquiétudes concernant … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

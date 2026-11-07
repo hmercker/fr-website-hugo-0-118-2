@@ -1,7 +1,7 @@
 ---
 title: "Choisirez-vous de commencer le voyage de l’éveil de l’âme ?"
 menu_title: ""
-description: "Choisirez-vous de commencer le voyage de l’éveil de l’âme ?"
+description: "Thomas d'Aquin, reçu par Al Fike : « Mon âme a été transformée par l’Amour du Père. Je réside maintenant dans ce bel endroit rempli d’amour et de joie. »"
 date: 2022-06-01 06:00:01+00:320
 draft: False
 hidden: True

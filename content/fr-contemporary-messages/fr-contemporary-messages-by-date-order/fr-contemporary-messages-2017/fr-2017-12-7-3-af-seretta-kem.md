@@ -1,7 +1,7 @@
 ---
 title: "Dieu vous offre l'Amour"
 menu_title: ""
-description: "Dieu vous offre l'Amour"
+description: "Seretta Kem, reçu par Al Fike : « Alors ne voyez-vous pas comment Dieu envoie Ses anges les plus brillants au milieu de vous pour vous élever et vous … »"
 date: 2022-06-01 06:00:01+00:258
 draft: False
 hidden: True

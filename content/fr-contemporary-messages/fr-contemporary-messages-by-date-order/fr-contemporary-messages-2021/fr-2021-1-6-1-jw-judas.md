@@ -1,7 +1,7 @@
 ---
 title: "L'étincelle de lumière dans votre âme"
 menu_title: ""
-description: "L'étincelle de lumière dans votre âme"
+description: "Judas, reçu par Jimbeau Walsh : « J’ai été avec vous dans votre cercle aujourd’hui. J’ai été heureux que vous avez suivi votre guidance et que vous avez … »"
 date: 2022-06-01 06:00:01+00:1368
 draft: False
 hidden: True

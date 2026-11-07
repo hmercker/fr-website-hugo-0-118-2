@@ -1,7 +1,7 @@
 ---
 title: "L'inspiration continue de bouillonner"
 menu_title: ""
-description: "L'inspiration continue de bouillonner"
+description: "Professeur Salyards, reçu par Al Fike : « Le professeur Salyards, comme toujours, est à vos côtés. L’enthousiasme et la positivité des pensées que vous … »"
 date: 2023-09-01 06:00:01+00:25
 draft: False
 hidden: True

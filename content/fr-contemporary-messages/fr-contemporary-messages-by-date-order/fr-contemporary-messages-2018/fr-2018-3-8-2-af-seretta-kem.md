@@ -1,7 +1,7 @@
 ---
 title: "Connaître les potentialités de l'Amour de Dieu est un voyage infini"
 menu_title: ""
-description: "Connaître les potentialités de l'Amour de Dieu est un voyage infini"
+description: "Seretta Kem, reçu par Al Fike : « Je vois que votre cercle continue de s’agrandir et j’accueille ces deux belles âmes dans notre cercle d’Amour. »"
 date: 2022-06-01 06:00:01+00:347
 draft: False
 hidden: True

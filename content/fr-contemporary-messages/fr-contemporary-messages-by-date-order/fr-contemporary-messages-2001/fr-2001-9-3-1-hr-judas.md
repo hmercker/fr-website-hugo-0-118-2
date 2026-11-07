@@ -1,7 +1,7 @@
 ---
 title: "La fermeture des Cieux Célestes"
 menu_title: ""
-description: "La fermeture des Cieux Célestes"
+description: "Judas, reçu par H : « Mon cher frère H , tu proposes un mélange étrange de questions, et certaines d’entre elles nous ont vraiment fait rire. »"
 date: 2022-06-01 06:00:01+00:36
 draft: False
 hidden: True

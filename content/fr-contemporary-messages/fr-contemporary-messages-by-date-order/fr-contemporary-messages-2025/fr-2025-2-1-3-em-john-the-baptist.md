@@ -1,7 +1,7 @@
 ---
 title: "L'humanité a une grande œuvre à accomplir"
 menu_title: ""
-description: "L'humanité a une grande œuvre à accomplir"
+description: "Jean le Baptiste, reçu par Elizabteh Mack : « Vous tous, dans ce cercle, êtes sauvés. Vous possédez tous cette qualité d'âme unique qui vous sauve et vous … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

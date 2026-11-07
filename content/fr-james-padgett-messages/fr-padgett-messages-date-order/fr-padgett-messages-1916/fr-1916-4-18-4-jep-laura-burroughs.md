@@ -1,7 +1,7 @@
 ---
 title: "Laura Burroughs écrit qu’elle est si reconnaissante de connaître la vérité"
 menu_title: ""
-description: "Laura Burroughs écrit qu’elle est si reconnaissante de connaître la vérité"
+description: "Laura Burroughs, reçu par James Padgett : « Tante Nancy a été avec moi et m’a beaucoup aidée et m’a montré la voie pour chercher l’amour du Père et … »"
 date: 2022-06-01 06:00:01+00:210
 draft: False
 hidden: True

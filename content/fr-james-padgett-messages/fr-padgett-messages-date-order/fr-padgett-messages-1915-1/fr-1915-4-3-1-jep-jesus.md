@@ -1,7 +1,7 @@
 ---
 title: "L’affirmation qu’il est Jésus. Se réfère à un esprit qui prétend avoir perdu son âme"
 menu_title: ""
-description: "L’affirmation qu’il est Jésus. Se réfère à un esprit qui prétend avoir perdu son âme"
+description: "Jésus, reçu par James Padgett : « Ces personnes, qui ne croiront pas ce fait, vont un jour être convaincues, surtout votre ami. »"
 date: 2022-06-01 06:00:01+00:60
 draft: False
 hidden: True

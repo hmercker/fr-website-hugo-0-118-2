@@ -1,7 +1,7 @@
 ---
 title: "L’utilisation de la guérison par l’Amour Divin par rapport aux autres énergies de la Terre"
 menu_title: ""
-description: "L’utilisation de la guérison par l’Amour Divin par rapport aux autres énergies de la Terre"
+description: "Seretta Kem, reçu par Al Fike : « Nous connaissons Son Amour et nous avons nos vies dans Son Amour, et nos âmes se développent et grandissent toujours … »"
 date: 2022-06-01 06:00:01+00:195
 draft: False
 hidden: True

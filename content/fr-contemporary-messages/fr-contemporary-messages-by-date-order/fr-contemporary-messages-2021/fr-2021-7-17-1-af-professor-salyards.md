@@ -1,7 +1,7 @@
 ---
 title: "Le don de Dieu est d'ouvrir cette porte pour vous"
 menu_title: ""
-description: "Le don de Dieu est d'ouvrir cette porte pour vous"
+description: "Professeur Salyards, reçu par Al Fike : « Je sens que votre élan s’essouffle un peu, mais en effet, comme tout dans votre vie terrestre, les choses vont … »"
 date: 2022-06-01 06:00:01+00:1574
 draft: False
 hidden: True

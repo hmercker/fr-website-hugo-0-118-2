@@ -1,7 +1,7 @@
 ---
 title: "Le renouvellement et l'éveil de vous et du monde sont comme le renouveau du printemps"
 menu_title: ""
-description: "Le renouvellement et l'éveil de vous et du monde sont comme le renouveau du printemps"
+description: "André, reçu par Al Fike : « Pour beaucoup d’entre vous, la douce promesse du printemps est sur vous. Toutes les choses de la Création de Dieu célèbrent le … »"
 date: 2022-06-01 06:00:01+00:1067
 draft: False
 hidden: True

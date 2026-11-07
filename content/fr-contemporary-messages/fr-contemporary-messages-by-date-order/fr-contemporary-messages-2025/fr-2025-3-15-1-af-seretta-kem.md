@@ -1,7 +1,7 @@
 ---
 title: "S'harmoniser avec vos désirs profonds"
 menu_title: ""
-description: "S'harmoniser avec vos désirs profonds"
+description: "Seretta Kem, reçu par Albert Fike : « Vous êtes vraiment des créatures très complexes. Nous sommes tous constitués de manières : émotionnelle, physique … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le Dr Stone reçoit l’instruction de Jésus de la Bible d’accepter l’aide de quiconque est prêt à la donner, même s’il n’a pas l’Amour Divin"
 menu_title: ""
-description: "Le Dr Stone reçoit l’instruction de Jésus de la Bible d’accepter l’aide de quiconque est prêt à la donner, même s’il n’a pas l’Amour Divin"
+description: "Jésus, reçu par Dr Samuels : « Il s’intéresse à plusieurs de ses amis et associés qui pourraient contribuer à faire avancer les travaux visant à porter … »"
 date: 2022-06-01 06:00:01+00:40
 draft: False
 hidden: True

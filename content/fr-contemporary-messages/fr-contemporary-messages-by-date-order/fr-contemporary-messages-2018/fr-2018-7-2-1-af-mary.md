@@ -1,7 +1,7 @@
 ---
 title: "Une bénédiction de Marie"
 menu_title: ""
-description: "Une bénédiction de Marie"
+description: "Marie, reçu par Al Fike : « Puissiez-vous continuer à recevoir l’Amour du Père au sein de vos âmes. Il y en a beaucoup qui bénéficient de votre attention … »"
 date: 2022-06-01 06:00:01+00:420
 draft: False
 hidden: True

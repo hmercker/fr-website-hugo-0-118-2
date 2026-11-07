@@ -1,7 +1,7 @@
 ---
 title: "Il y a le destin sans avoir le destin"
 menu_title: ""
-description: "Il y a le destin sans avoir le destin"
+description: "Augustin, reçu par Al Fike : « Mes âmes bien aimées, c’est votre maître, Augustin. Nous nous embarquons donc ensemble dans une autre aventure, qui … »"
 date: 2022-06-01 06:00:01+00:124
 draft: False
 hidden: True

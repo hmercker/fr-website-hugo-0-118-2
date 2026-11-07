@@ -1,7 +1,7 @@
 ---
 title: "Le pouvoir du libre arbitre et le chemin vers la lumière"
 menu_title: ""
-description: "Le pouvoir du libre arbitre et le chemin vers la lumière"
+description: "Jésus, reçu par Albert Fike : « Mes frères et sœurs, que l'Amour de Dieu vous inonde abondamment. L'abondance de cette bénédiction qui vous est accordée … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

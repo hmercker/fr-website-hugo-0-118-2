@@ -1,7 +1,7 @@
 ---
 title: "L’amour agit dans toutes les dimensions"
 menu_title: ""
-description: "L’amour agit dans toutes les dimensions"
+description: "Divers, reçu par PJR : « Eh bien, tu dois savoir que nous t’aimons toujours, avec l’Amour du Père, et ta supposition est correcte, que ton travail est … »"
 date: 2022-06-01 06:00:01+00:65
 draft: False
 hidden: True

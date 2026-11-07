@@ -1,7 +1,7 @@
 ---
 title: "Le système et les personnes - 2"
 menu_title: ""
-description: "Le système et les personnes - 2"
+description: "Jésus, reçu par FAB : « Vous avez appris que certains collèges et universités de Californie paient les frais de scolarité et les besoins financiers des … »"
 date: 2022-06-01 06:00:01+00:34
 draft: False
 hidden: True

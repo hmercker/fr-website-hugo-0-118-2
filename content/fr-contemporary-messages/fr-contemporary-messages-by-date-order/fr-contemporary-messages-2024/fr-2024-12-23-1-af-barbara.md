@@ -1,7 +1,7 @@
 ---
 title: "Souvenez-vous des âmes perdues - Un message de Noël"
 menu_title: ""
-description: "Souvenez-vous des âmes perdues - Un message de Noël"
+description: "Barbara, reçu par Albert Fike : « Merci, sœur bien-aimée (Terry), pour tes prières. Je m’appelle Barbara et cette période a été traditionnellement une … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

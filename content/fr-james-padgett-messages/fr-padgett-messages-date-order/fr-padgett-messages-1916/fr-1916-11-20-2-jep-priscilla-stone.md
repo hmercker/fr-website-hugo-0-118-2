@@ -1,7 +1,7 @@
 ---
 title: "Priscilla Stone explique la grande joie de vivre dans le Royaume du Père qu’elle veut que son fils connaisse bien"
 menu_title: ""
-description: "Priscilla Stone explique la grande joie de vivre dans le Royaume du Père qu’elle veut que son fils connaisse bien"
+description: "Priscilla Stone, reçu par James Padgett : « J’aimerais dire un mot à mon fils, si vous me le permettez, car j’ai tant de plaisir à lui parler de ma … »"
 date: 2022-06-01 06:00:01+00:332
 draft: False
 hidden: True

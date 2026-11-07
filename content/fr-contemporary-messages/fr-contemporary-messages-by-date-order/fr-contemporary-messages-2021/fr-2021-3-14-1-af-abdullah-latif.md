@@ -1,7 +1,7 @@
 ---
 title: "L’importance du treillis de lumière pour percer les ténèbres"
 menu_title: ""
-description: "L’importance du treillis de lumière pour percer les ténèbres"
+description: "Abdullah Latif, reçu par Al Fike : « Que le grand amour de Dieu continue d’entrer dans vos âmes, mes amis. J’ai déjà parlé à travers cet instrument … »"
 date: 2022-06-01 06:00:01+00:1441
 draft: False
 hidden: True

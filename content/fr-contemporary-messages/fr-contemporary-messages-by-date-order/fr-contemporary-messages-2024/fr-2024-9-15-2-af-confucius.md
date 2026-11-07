@@ -1,7 +1,7 @@
 ---
 title: "Vous avez un grand potentiel"
 menu_title: ""
-description: "Vous avez un grand potentiel"
+description: "Confucius, reçu par Albert Fike : « Lorsque vous quitterez ce petit nid d’amour et que vous vous envolerez vers la maison, vous emporterez les souvenirs … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

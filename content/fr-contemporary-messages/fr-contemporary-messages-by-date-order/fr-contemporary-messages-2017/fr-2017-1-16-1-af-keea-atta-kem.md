@@ -1,7 +1,7 @@
 ---
 title: "Acceptez chaque âme unique, leurs différences ne vous feront pas de mal spirituellement"
 menu_title: ""
-description: "Acceptez chaque âme unique, leurs différences ne vous feront pas de mal spirituellement"
+description: "Keea Atta Kem, reçu par Al Fike : « Merci d’être venus, car vous avez été appelés. Et votre discussion de la matinée fut, en effet, très bonne, par le … »"
 date: 2022-06-01 06:00:01+00:07
 draft: False
 hidden: True

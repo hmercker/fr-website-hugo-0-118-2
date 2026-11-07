@@ -1,7 +1,7 @@
 ---
 title: "Thomas J. Watson et les nazis"
 menu_title: ""
-description: "Thomas J. Watson et les nazis"
+description: "Thomas J. Watson, reçu par FAB : « J’ai préparé mon âme à être dans ce lieu de torture, d’obscurité et de misère. Quand je pense à l’argent que j’ai gagné … »"
 date: 2022-06-01 06:00:01+00:193
 draft: False
 hidden: True

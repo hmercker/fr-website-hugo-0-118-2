@@ -1,7 +1,7 @@
 ---
 title: "Une femme écrit qu’elle a besoin d’aide. Elles st dans les ténèbres et souffre beaucoup"
 menu_title: ""
-description: "Une femme écrit qu’elle a besoin d’aide. Elles st dans les ténèbres et souffre beaucoup"
+description: "RF, reçu par James Padgett : « Laissez-moi vous écrire aussi. J’ai vécu grâce à mon intelligence et à ma beauté, car ils me disaient souvent que j’étais … »"
 date: 2022-06-01 06:00:01+00:135
 draft: False
 hidden: True

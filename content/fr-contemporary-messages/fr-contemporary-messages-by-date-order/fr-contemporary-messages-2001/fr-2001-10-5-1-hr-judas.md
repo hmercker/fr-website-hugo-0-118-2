@@ -1,7 +1,7 @@
 ---
 title: "La fuite en Égypte"
 menu_title: ""
-description: "La fuite en Égypte"
+description: "Judas, reçu par H : « En lisant les Évangiles, tu as certainement remarqué que certains récits n’apparaissent que dans l’un d’entre eux. »"
 date: 2022-06-01 06:00:01+00:59
 draft: False
 hidden: True

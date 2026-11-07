@@ -1,7 +1,7 @@
 ---
 title: "Sur la sélection de M. Padgett"
 menu_title: ""
-description: "Sur la sélection de M. Padgett"
+description: "Jésus, reçu par Kathryn Stokes : « Je prie pour que je sois un canal clair pour les pensées des anges, de Jésus ou de James E. »"
 date: 2022-06-01 06:00:01+00:02
 draft: False
 hidden: True

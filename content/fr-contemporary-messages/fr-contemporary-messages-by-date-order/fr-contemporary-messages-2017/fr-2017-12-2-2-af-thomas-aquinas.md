@@ -1,7 +1,7 @@
 ---
 title: "Un nouveau jour se lève"
 menu_title: ""
-description: "Un nouveau jour se lève"
+description: "Thomas d'Aquin, reçu par Al Fike : « Et dans cette conscience, dans cet éveil, vient une grande joie et parfois une grande tristesse, car voir le monde … »"
 date: 2022-06-01 06:00:01+00:250
 draft: False
 hidden: True

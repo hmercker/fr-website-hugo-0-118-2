@@ -1,7 +1,7 @@
 ---
 title: "Jésus est mon yogi"
 menu_title: ""
-description: "Jésus est mon yogi"
+description: "Yogananda, reçu par Albert Fike : « Puisque vous m’avez mentionné dans vos conversations, j’ai pensé passer et être avec vous pour parler de certaines … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

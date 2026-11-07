@@ -1,7 +1,7 @@
 ---
 title: "Violence physique"
 menu_title: ""
-description: "Violence physique"
+description: "Jésus, reçu par FAB : « Laissez-moi corriger cette confusion dans votre esprit. Vous avez canalisé Judah Maccabee. »"
 date: 2022-06-01 06:00:01+00:142
 draft: False
 hidden: True

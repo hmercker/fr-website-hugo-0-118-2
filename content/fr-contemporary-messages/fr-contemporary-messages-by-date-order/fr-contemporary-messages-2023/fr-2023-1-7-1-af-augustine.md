@@ -1,7 +1,7 @@
 ---
 title: "Décrit le stress et la douleur que le monde subit"
 menu_title: ""
-description: "Décrit le stress et la douleur que le monde subit"
+description: "Augustin, reçu par Al Fike : « Le monde est en grande souffrance. Nous l’avons dit à maintes reprises, et pourtant l’intensité de cette douleur augmente … »"
 date: 2022-06-01 06:00:01+00:06
 draft: False
 hidden: True

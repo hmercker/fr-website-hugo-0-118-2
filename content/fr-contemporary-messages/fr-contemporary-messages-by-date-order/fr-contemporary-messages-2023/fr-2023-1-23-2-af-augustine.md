@@ -1,7 +1,7 @@
 ---
 title: "Le dilemme d'attirer de nouveaux venus vers les vérités"
 menu_title: ""
-description: "Le dilemme d'attirer de nouveaux venus vers les vérités"
+description: "St Augustin, reçu par Al Fike : « Vous parlez des dilemmes concernant l’apport de la vérité de l’Amour Divin au monde et la façon dont vous voyez ce … »"
 date: 2023-09-01 06:00:01+00:69
 draft: False
 hidden: True

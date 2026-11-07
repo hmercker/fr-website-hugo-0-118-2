@@ -1,7 +1,7 @@
 ---
 title: "À la pointe du changement"
 menu_title: ""
-description: "À la pointe du changement"
+description: "Lao Tseu, reçu par Al Fike : « Je fus, historiquement, un philosophe chinois d'une certaine importance et je souhaite m'adresser à mon peuple avec une … »"
 date: 2022-06-01 06:00:01+00:203
 draft: False
 hidden: True

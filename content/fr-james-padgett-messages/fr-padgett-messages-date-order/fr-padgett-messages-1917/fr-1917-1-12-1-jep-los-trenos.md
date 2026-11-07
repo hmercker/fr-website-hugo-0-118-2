@@ -1,7 +1,7 @@
 ---
 title: "Los Trenos a été assassiné lors de l’Inquisition Espagnole parce qu’il croyait en Dieu et était un étudiant de la Bible, il raconte son cheminement dans les Cieux Célestes"
 menu_title: ""
-description: "Los Trenos a été assassiné lors de l’Inquisition Espagnole parce qu’il croyait en Dieu et était un étudiant de la Bible, il raconte son cheminement dans les Cieux Célestes"
+description: "Los Trenos, reçu par James Padgett : « J’étais un étudiant de la Bible, et j’avais appris que l’église n’enseignait pas et n’appliquait pas les vraies … »"
 date: 2022-06-01 06:00:01+00:18
 draft: False
 hidden: True

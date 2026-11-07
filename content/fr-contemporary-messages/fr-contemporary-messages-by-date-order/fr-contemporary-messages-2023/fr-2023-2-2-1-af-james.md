@@ -1,7 +1,7 @@
 ---
 title: "Soyez fidèle à vos âmes"
 menu_title: ""
-description: "Soyez fidèle à vos âmes"
+description: "Jacques, reçu par Al Fike : « … de nombreux hommes à travers les âges qui ont été enregistrés et reconnus. Cette connaissance a été conservée dans les … »"
 date: 2023-09-01 06:00:01+00:77
 draft: False
 hidden: True

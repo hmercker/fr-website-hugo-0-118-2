@@ -1,7 +1,7 @@
 ---
 title: "Leçon 11 : La nature de l’esprit et la conscience de l’âme"
 menu_title: ""
-description: "Leçon 11 : La nature de l’esprit et la conscience de l’âme"
+description: "Jésus, reçu par Al Fike : « Combien il est important pour l’humanité d’embrasser une nouvelle façon de vivre dans votre monde. »"
 date: 2022-06-01 06:00:01+00:135
 draft: False
 hidden: True

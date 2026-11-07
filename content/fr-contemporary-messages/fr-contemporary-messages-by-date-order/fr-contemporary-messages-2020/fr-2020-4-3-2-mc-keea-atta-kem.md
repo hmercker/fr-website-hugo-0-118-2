@@ -1,7 +1,7 @@
 ---
 title: "Le style de réception des messages est propre à l'individu"
 menu_title: ""
-description: "Le style de réception des messages est propre à l'individu"
+description: "Keea Atta Kem, reçu par Maureen Cardoso : « Mon amour est avec chacune de vos âmes bien-aimées. Merci pour votre dévouement à l’éveil de votre âme et à la … »"
 date: 2022-06-01 06:00:01+00:1049
 draft: False
 hidden: True

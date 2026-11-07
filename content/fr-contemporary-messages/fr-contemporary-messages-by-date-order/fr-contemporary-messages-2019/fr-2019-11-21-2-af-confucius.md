@@ -1,7 +1,7 @@
 ---
 title: "La vérité, la grâce et l'amour qui ont été promis seront donnés"
 menu_title: ""
-description: "La vérité, la grâce et l'amour qui ont été promis seront donnés"
+description: "Confucius, reçu par Al Fike : « C’est votre ami Confucius. Il semble que votre cher hôte (P) ne souhaite pas que vous vous reposiez mais que vous … »"
 date: 2022-06-01 06:00:01+00:920
 draft: False
 hidden: True

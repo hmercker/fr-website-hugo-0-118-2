@@ -1,7 +1,7 @@
 ---
 title: "Bénédictions dans l'Amour Divin (2021 Cercle de prière en ligne)"
 menu_title: ""
-description: "Bénédictions dans l'Amour Divin (2021 Cercle de prière en ligne)"
+description: "Jésus, reçu par Al Fike : « Cette lumière peut briller à travers chacun de vous, sa beauté exaltée dans l’amour. Âmes bien-aimées, vous portez la Vérité … »"
 date: 2022-06-01 06:00:01+00:1668
 draft: False
 hidden: True

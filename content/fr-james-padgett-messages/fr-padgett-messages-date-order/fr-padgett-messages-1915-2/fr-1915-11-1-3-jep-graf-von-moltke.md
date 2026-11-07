@@ -1,7 +1,7 @@
 ---
 title: "Les esprits qui sont liés à la terre, les pensées ne changent pas lors de l’entrée dans le monde spirituel"
 menu_title: ""
-description: "Les esprits qui sont liés à la terre, les pensées ne changent pas lors de l’entrée dans le monde spirituel"
+description: "Graft Von Moltke, reçu par James Padgett : « Elle est à son meilleur maintenant, cependant lorsque ses armées commenceront cette grande avancée dont parle … »"
 date: 2022-06-01 06:00:01+00:38
 draft: False
 hidden: True

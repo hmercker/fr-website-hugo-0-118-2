@@ -1,7 +1,7 @@
 ---
 title: "Je suis comme vous, un enfant de Dieu"
 menu_title: ""
-description: "Je suis comme vous, un enfant de Dieu"
+description: "Jésus : « Que la paix et le bonheur soient toujours avec vous. Que notre Père vous bénisse de Son amour. »"
 date: 2022-06-01 06:00:01+00:102
 draft: False
 hidden: True

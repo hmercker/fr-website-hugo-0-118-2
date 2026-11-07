@@ -1,7 +1,7 @@
 ---
 title: "Le moment est venu de faire un pas en avant"
 menu_title: ""
-description: "Le moment est venu de faire un pas en avant"
+description: "Augustin, reçu par Al Fike : « Le temps de s’asseoir et de regarder le monde évoluer est maintenant terminé. Car chacun d’entre vous est nécessaire pour … »"
 date: 2023-09-01 06:00:01+00:16
 draft: False
 hidden: True

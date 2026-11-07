@@ -1,7 +1,7 @@
 ---
 title: "Espoir d’un Beatle"
 menu_title: ""
-description: "Espoir d’un Beatle"
+description: "John Lennon, reçu par FAB : « Je ne suis certainement pas une icône ici. J’ai eu à me soumettre à ce que doivent endurer tous les esprits : les … »"
 date: 2022-06-01 06:00:01+00:203
 draft: False
 hidden: True

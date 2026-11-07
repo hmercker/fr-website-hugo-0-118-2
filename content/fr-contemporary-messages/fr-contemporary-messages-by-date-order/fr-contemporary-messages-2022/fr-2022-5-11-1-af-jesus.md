@@ -1,7 +1,7 @@
 ---
 title: "Bénédiction pour le groupe de Bill et Freda"
 menu_title: ""
-description: "Bénédiction pour le groupe de Bill et Freda"
+description: "Jésus, reçu par Al Fike : « Et comme je l’ai dit même sur la Terre, que ces choses que je fais vous les fassiez aussi au nom de mon Père, qui est la … »"
 date: 2022-06-01 06:00:01+00:84
 draft: False
 hidden: True

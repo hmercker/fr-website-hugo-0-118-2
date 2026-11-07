@@ -1,7 +1,7 @@
 ---
 title: "La continuité de la vie après la mort"
 menu_title: ""
-description: "La continuité de la vie après la mort"
+description: "Francis Bacon, reçu par James Padgett : « Permettez-moi d’écrire quelques lignes ce soir sur un sujet qui a récemment été discuté par un spiritualiste, un … »"
 date: 2022-06-01 06:00:01+00:31
 draft: False
 hidden: True

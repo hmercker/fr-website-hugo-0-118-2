@@ -1,7 +1,7 @@
 ---
 title: "L'humilité apporte l'harmonie, la grâce et la paix"
 menu_title: ""
-description: "L'humilité apporte l'harmonie, la grâce et la paix"
+description: "Confucius, reçu par Albert Fike : « Bienvenue à ce rassemblement de lumière et d’amour. Lorsque vous proclamez une vérité dans le monde, mes enfants, une … »"
 date: 2026-10-16 06:00:01+00:09
 draft: False
 hidden: True

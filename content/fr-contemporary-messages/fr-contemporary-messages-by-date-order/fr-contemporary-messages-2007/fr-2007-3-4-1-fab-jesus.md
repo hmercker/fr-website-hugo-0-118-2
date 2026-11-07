@@ -1,7 +1,7 @@
 ---
 title: "Jésus parle de l’avortement et de l’abandon des enfants"
 menu_title: ""
-description: "Jésus parle de l’avortement et de l’abandon des enfants"
+description: "Jésus, reçu par FAB : « Tout d’abord, permettez-moi de dire sans équivoque que l’avortement est un péché terrible, car il représente la destruction d’une … »"
 date: 2022-06-01 06:00:01+00:116
 draft: False
 hidden: True

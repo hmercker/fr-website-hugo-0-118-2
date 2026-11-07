@@ -1,7 +1,7 @@
 ---
 title: "Instructions sur la voix directe"
 menu_title: ""
-description: "Instructions sur la voix directe"
+description: "Jacques : « Je désire d'abord qu'entre nous, moi et vous, s'établisse un lien d'amour, que vous arriviez à me connaître comme quelqu'un de plus cher qu'un … »"
 date: 2022-06-01 06:00:01+00:48
 draft: False
 hidden: True

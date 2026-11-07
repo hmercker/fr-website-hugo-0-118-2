@@ -1,7 +1,7 @@
 ---
 title: "Changements dans le monde"
 menu_title: ""
-description: "Changements dans le monde"
+description: "Professeur Salyards, reçu par Al Fike : « (Le monde est) en grand besoin, mes amis, à tous les niveaux et de toutes les façons, il y a un grand besoin … »"
 date: 2022-06-01 06:00:01+00:143
 draft: False
 hidden: True

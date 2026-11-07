@@ -1,7 +1,7 @@
 ---
 title: "Les pensées deviennent des choses"
 menu_title: ""
-description: "Les pensées deviennent des choses"
+description: "Yogananda, reçu par Jimbeau Walsh : « Le monde est rempli de connaissances et il est vrai que les pensées deviennent des choses, peu importe que la pensée … »"
 date: 2022-06-01 06:00:01+00:1110
 draft: False
 hidden: True

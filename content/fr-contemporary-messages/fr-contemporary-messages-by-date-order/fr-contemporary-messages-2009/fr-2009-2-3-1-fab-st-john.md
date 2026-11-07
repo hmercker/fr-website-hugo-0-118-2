@@ -1,7 +1,7 @@
 ---
 title: "Le choc des Juifs et des Gentils au premier siècle"
 menu_title: ""
-description: "Le choc des Juifs et des Gentils au premier siècle"
+description: "St Jean, reçu par FAB : « Le livre est tout faux lorsqu'il dit que notre Torah était en grec. Elle était en Hébreu parce que c'était la langue sacrée des … »"
 date: 2022-06-01 06:00:01+00:13
 draft: False
 hidden: True

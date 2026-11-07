@@ -1,7 +1,7 @@
 ---
 title: "Encouragement à poursuivre les projets"
 menu_title: ""
-description: "Encouragement à poursuivre les projets"
+description: "Mahatma Gandhi, reçu par Al Fike : « De nombreux voyages vous attendent, de nombreux voyages dans de nombreux pays car le maître bien-aimé Jésus ne s’est … »"
 date: 2022-06-01 06:00:01+00:571
 draft: False
 hidden: True

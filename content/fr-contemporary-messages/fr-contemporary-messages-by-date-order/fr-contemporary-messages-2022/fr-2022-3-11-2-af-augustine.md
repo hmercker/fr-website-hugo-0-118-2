@@ -1,7 +1,7 @@
 ---
 title: "Il est temps de mettre en pratique tout ce que nous avons appris"
 menu_title: ""
-description: "Il est temps de mettre en pratique tout ce que nous avons appris"
+description: "Augustin, reçu par Al Fike : « Ces choses dont nous avons parlé il y a de nombreuses années à ceux qui ont pris part à des cercles de lumière, à savoir … »"
 date: 2023-09-01 06:00:01+00:17
 draft: False
 hidden: True

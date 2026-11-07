@@ -1,7 +1,7 @@
 ---
 title: "L'Union Européenne"
 menu_title: ""
-description: "L'Union Européenne"
+description: "Jésus, reçu par FAB : « Dans une canalisation Guerre et paix - 3, j'ai fait l'éloge de l'Union européenne, mais maintenant, vous lisez comment elle fait … »"
 date: 2022-06-01 06:00:01+00:107
 draft: False
 hidden: True

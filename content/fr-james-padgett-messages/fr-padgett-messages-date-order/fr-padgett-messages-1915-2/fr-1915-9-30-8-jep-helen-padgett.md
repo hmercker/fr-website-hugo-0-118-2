@@ -1,7 +1,7 @@
 ---
 title: "Mme Padgett fait référence aux nombreux messages de réconfort reçus"
 menu_title: ""
-description: "Mme Padgett fait référence aux nombreux messages de réconfort reçus"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, tu as eu ce soir les plus merveilleux messages de réconfort que j’aie jamais vus être donnés à un mortel. »"
 date: 2022-06-01 06:00:01+00:287
 draft: False
 hidden: True

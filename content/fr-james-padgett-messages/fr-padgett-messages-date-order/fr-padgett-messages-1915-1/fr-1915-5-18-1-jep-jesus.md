@@ -1,7 +1,7 @@
 ---
 title: "Jésus écrit sur la foi et la gloire du Père"
 menu_title: ""
-description: "Jésus écrit sur la foi et la gloire du Père"
+description: "Jésus, reçu par James Padgett : « Permettez-moi d’écrire juste quelques mots pour dire, soyez vrai, la force vous sera donnée et la vérité de mes … »"
 date: 2022-06-01 06:00:01+00:85
 draft: False
 hidden: True

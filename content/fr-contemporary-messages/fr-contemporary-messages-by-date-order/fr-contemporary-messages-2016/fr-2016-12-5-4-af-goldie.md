@@ -1,7 +1,7 @@
 ---
 title: "Dansez à la lumière de l’Amour de Dieu"
 menu_title: ""
-description: "Dansez à la lumière de l’Amour de Dieu"
+description: "Goldie, reçu par Al Fike : « On ne vous demande plus de faire de petits pas. Il est temps d’avancer à grands pas, car vous n’êtes plus des bébés : vous … »"
 date: 2026-10-24 06:00:01+00:01
 draft: False
 hidden: True

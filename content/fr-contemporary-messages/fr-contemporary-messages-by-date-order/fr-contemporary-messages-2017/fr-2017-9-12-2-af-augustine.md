@@ -1,7 +1,7 @@
 ---
 title: "Libérez vos limites"
 menu_title: ""
-description: "Libérez vos limites"
+description: "Augustin, reçu par Al Fike : « Chacun d’entre vous est conscient de ses limites. Vous vivez dans un corps de chair. »"
 date: 2022-06-01 06:00:01+00:96
 draft: False
 hidden: True

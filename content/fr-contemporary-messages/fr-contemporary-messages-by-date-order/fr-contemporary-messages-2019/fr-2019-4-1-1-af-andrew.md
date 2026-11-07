@@ -1,7 +1,7 @@
 ---
 title: "Dieu prépare de nombreuses âmes à ce qui va arriver"
 menu_title: ""
-description: "Dieu prépare de nombreuses âmes à ce qui va arriver"
+description: "André, reçu par Al Fike : « Âmes bien-aimées, c'est André. Les impulsions et les vagues de l'Amour de Dieu continuent de frapper cette Terre, élevant … »"
 date: 2022-06-01 06:00:01+00:689
 draft: False
 hidden: True

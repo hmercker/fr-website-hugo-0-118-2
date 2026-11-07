@@ -1,7 +1,7 @@
 ---
 title: "Un changement de cœur"
 menu_title: ""
-description: "Un changement de cœur"
+description: "Yogananda, reçu par Jimbeau Walsh : « Je souhaite parler directement du service dans un monde si absorbé par le matérialisme qu'il semble qu'il faille une … »"
 date: 2026-05-24 16:00:01+00:01
 draft: False
 hidden: True

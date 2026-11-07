@@ -1,7 +1,7 @@
 ---
 title: "Venez connaître le plan de Dieu"
 menu_title: ""
-description: "Venez connaître le plan de Dieu"
+description: "Élie, reçu par Al Fike : « Père bien-aimé, que la puissance de Ton Amour touche les âmes de tous ceux qui viennent dans ce Cercle de Lumière. »"
 date: 2022-06-01 06:00:01+00:1218
 draft: False
 hidden: True

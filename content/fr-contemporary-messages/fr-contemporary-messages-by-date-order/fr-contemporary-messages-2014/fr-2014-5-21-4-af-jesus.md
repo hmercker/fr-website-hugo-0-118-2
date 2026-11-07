@@ -1,7 +1,7 @@
 ---
 title: "Quand vous marchez dans la lumière, vous marchez avec moi"
 menu_title: ""
-description: "Quand vous marchez dans la lumière, vous marchez avec moi"
+description: "Jésus, reçu par Al Fike : « Car lorsque vous marchez dans cette lumière, vous marchez avec moi. Lorsque vous vous efforcez et vous étirez pour être avec … »"
 date: 2022-06-01 06:00:01+00:98
 draft: False
 hidden: True

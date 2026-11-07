@@ -1,7 +1,7 @@
 ---
 title: "Faire confiance au cœur"
 menu_title: ""
-description: "Faire confiance au cœur"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Je veux te parler et je veux que tu écrives ce que tu reçois. Tu as des doutes sur la réalité de ce contact … »"
 date: 2022-06-01 06:00:01+00:227
 draft: False
 hidden: True

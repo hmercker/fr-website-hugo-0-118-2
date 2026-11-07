@@ -1,7 +1,7 @@
 ---
 title: "Se préparer à l'arrivée de la Voix Directe"
 menu_title: ""
-description: "Se préparer à l'arrivée de la Voix Directe"
+description: "Seretta Kem, reçu par Al Fike : « Nous nous adresserons à votre cercle demain et chacun de nous dira quelques mots d'encouragement. »"
 date: 2022-06-01 06:00:01+00:151
 draft: False
 hidden: True

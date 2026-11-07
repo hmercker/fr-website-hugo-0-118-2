@@ -1,7 +1,7 @@
 ---
 title: "Commentaires sur notre discussion et nos défis avec les conditions terrestres"
 menu_title: ""
-description: "Commentaires sur notre discussion et nos défis avec les conditions terrestres"
+description: "Aaron, reçu par Albert Fike : « J’ai été avec vous dans vos conversations et vos réflexions sur les complications et les difficultés de votre vie terrestre. »"
 date: 2023-09-01 06:00:01+00:62
 draft: False
 hidden: True

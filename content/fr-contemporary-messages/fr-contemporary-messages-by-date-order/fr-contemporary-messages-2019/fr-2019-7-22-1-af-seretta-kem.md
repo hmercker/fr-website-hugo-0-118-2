@@ -1,7 +1,7 @@
 ---
 title: "Marcher dans le monde comme des instruments de Dieu"
 menu_title: ""
-description: "Marcher dans le monde comme des instruments de Dieu"
+description: "Seretta Kem, reçu par Al Fike : « Votre travail continue, n’est-ce pas, mes amis ? Votre travail se poursuit sur ce plan terrestre, pour apporter la … »"
 date: 2022-06-01 06:00:01+00:794
 draft: False
 hidden: True

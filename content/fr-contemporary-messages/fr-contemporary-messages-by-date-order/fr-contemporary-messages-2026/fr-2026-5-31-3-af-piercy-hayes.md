@@ -1,7 +1,7 @@
 ---
 title: "La FUSC est un refuge de lumière"
 menu_title: ""
-description: "La FUSC est un refuge de lumière"
+description: "Percy Hayes, reçu par Al Fike : « Puissiez-vous continuer à profiter de ce qui se trouve ici, car nous, dans le monde des esprits, déployons beaucoup … »"
 date: 2026-10-28 06:00:01+00:01
 draft: False
 hidden: True

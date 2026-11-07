@@ -1,7 +1,7 @@
 ---
 title: "Encourage notre instrumentalité"
 menu_title: ""
-description: "Encourage notre instrumentalité"
+description: "Seretta Kem, reçu par Albert Fike : « Quel don précieux que cette communion, cette amitié et cette reconnaissance bienveillante que vous vous portez … »"
 date: 2026-09-15 06:00:01+00:01
 draft: False
 hidden: True

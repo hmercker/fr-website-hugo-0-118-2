@@ -1,7 +1,7 @@
 ---
 title: "Soulagements à venir - 2"
 menu_title: ""
-description: "Soulagements à venir - 2"
+description: "Jésus, reçu par FAB : « Nous voyons exactement ce qu'ils font, et exactement ce qu'ils planifient. Alors nous nous réorganisons sur le plan terrestre pour … »"
 date: 2022-06-01 06:00:01+00:171
 draft: False
 hidden: True

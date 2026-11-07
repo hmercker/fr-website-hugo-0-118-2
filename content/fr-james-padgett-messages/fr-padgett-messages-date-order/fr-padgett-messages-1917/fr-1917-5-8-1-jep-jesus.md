@@ -1,7 +1,7 @@
 ---
 title: "Jésus explique les conditions nécessaires pour que les esprits supérieurs puissent aider ceux qui sont dans les sphères inférieures"
 menu_title: ""
-description: "Jésus explique les conditions nécessaires pour que les esprits supérieurs puissent aider ceux qui sont dans les sphères inférieures"
+description: "Jésus, reçu par James Padgett : « Je vois que votre travail vous a empêché de recevoir mon message ce soir, et bien que je sois désolé, je ne me plains … »"
 date: 2022-06-01 06:00:01+00:122
 draft: False
 hidden: True

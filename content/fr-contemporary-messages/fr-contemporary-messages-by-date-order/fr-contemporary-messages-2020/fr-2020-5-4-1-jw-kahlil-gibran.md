@@ -1,7 +1,7 @@
 ---
 title: "Vous avez trouvé le joyau de l’amour de Dieu"
 menu_title: ""
-description: "Vous avez trouvé le joyau de l’amour de Dieu"
+description: "Kahlil Gibran, reçu par Jimbeau Walsh : « Je reviens afin de poursuivre mon intervention par amour pour vous tous et par admiration. »"
 date: 2022-06-01 06:00:01+00:1086
 draft: False
 hidden: True

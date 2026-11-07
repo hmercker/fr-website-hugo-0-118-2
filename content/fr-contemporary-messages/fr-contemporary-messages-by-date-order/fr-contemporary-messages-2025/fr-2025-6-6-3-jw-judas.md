@@ -1,7 +1,7 @@
 ---
 title: "Vous avez franchi le Rubicon"
 menu_title: ""
-description: "Vous avez franchi le Rubicon"
+description: "Judas, reçu par reçu par Jimbeau Walsh : « Retraite d’Amour Divin en Floride Nous venons dans l’Amour de Dieu pour te guider, veiller sur toi, te protéger … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

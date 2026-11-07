@@ -1,7 +1,7 @@
 ---
 title: "Faites de chaque jour un nouveau jour"
 menu_title: ""
-description: "Faites de chaque jour un nouveau jour"
+description: "Baal Shem Tov, reçu par Jimbeau Walsh : « Elle a réalisé, ou du moins soupçonné, que c’est pour cela que le frère Moïse est venu, ainsi que Jésus et … »"
 date: 2022-06-01 06:00:01+00:181
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Exposé sur la Relaxation"
 menu_title: ""
-description: "Exposé sur la Relaxation"
+description: "Ishmirama : « Mes amis, je veux vous parler ce soir de la façon de vous détendre et de libérer les choses. »"
 date: 2022-06-01 06:00:01+00:166
 draft: False
 hidden: True

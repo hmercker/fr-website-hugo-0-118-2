@@ -1,7 +1,7 @@
 ---
 title: "Hélène est heureuse avec ce que le Juge Syrick a écrit"
 menu_title: ""
-description: "Hélène est heureuse avec ce que le Juge Syrick a écrit"
+description: "Hélène Padgett, reçu par James Padgett : « Il est très heureux et progresse, et avec sa Rose, il profite pleinement de la félicité. Les autres esprits ont … »"
 date: 2022-06-01 06:00:01+00:198
 draft: False
 hidden: True

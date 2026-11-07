@@ -1,7 +1,7 @@
 ---
 title: "La simplicité de la vérité"
 menu_title: ""
-description: "La simplicité de la vérité"
+description: "Bertrand Russell, reçu par Al Fike : « Je fus un philosophe à mon époque. Je me suis rendu compte que tant de mes pensées et tant de constructions de mon … »"
 date: 2022-06-01 06:00:01+00:236
 draft: False
 hidden: True

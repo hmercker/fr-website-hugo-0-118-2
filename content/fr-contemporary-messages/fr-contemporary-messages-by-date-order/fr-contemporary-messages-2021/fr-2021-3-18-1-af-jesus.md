@@ -1,7 +1,7 @@
 ---
 title: "Dernier message de Jésus au monde"
 menu_title: ""
-description: "Dernier message de Jésus au monde"
+description: "Jésus, reçu par Al Fike : « Bien que ce ne soit pas la fin de nos communications, c’est la fin d’un groupe de communications que j’avais l’intention de … »"
 date: 2022-06-01 06:00:01+00:1444
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Jean décrit la différence entre les esprits des Cieux Célestes et ceux des sphères spirituelles et leur bonheur"
 menu_title: ""
-description: "Jean décrit la différence entre les esprits des Cieux Célestes et ceux des sphères spirituelles et leur bonheur"
+description: "St Jean, reçu par James Padgett : « Comme vous le savez probablement ces Sphères Célestes sont au-dessus des sphères spirituelles et elles sont seulement … »"
 date: 2022-06-01 06:00:01+00:269
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Plus sur les esprits liés à la terre"
 menu_title: ""
-description: "Plus sur les esprits liés à la terre"
+description: "Marie-Madeleine, reçu par RL : « Marie : Vous voyez, nous sommes très pragmatiques en ce qui concerne les esprits. Plutôt que de les exorciser un par un … »"
 date: 2022-06-01 06:00:01+00:16
 draft: False
 hidden: True

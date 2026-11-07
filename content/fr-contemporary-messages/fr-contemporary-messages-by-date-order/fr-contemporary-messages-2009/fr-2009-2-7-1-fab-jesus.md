@@ -1,7 +1,7 @@
 ---
 title: "La fermeture des Cieux Célestes - 2"
 menu_title: ""
-description: "La fermeture des Cieux Célestes - 2"
+description: "Jésus, reçu par FAB : « Le Royaume Céleste sera fermé un jour, et ceux qui ne possèdent pas l'habit de noces de l'Amour Divin en seront exclus. »"
 date: 2022-06-01 06:00:01+00:15
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "21ème Révélation : Commentaires sur la Bible d’Oahspe"
 menu_title: ""
-description: "21ème Révélation : Commentaires sur la Bible d’Oahspe"
+description: "Jésus, reçu par Dr Samuels : « Je tiens à écrire sur un sujet au propos duquel, vous et le docteur, avez longtemps attendu des informations, soit de ma … »"
 date: 2022-06-01 06:00:01+00:21
 draft: False
 hidden: True

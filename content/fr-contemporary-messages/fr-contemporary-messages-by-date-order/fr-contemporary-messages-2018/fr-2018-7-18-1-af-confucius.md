@@ -1,7 +1,7 @@
 ---
 title: "Vous marchez sur le chemin de l'amour"
 menu_title: ""
-description: "Vous marchez sur le chemin de l'amour"
+description: "Confucius, reçu par Al Fike : « Oh, mes précieux petits oiseaux. Comme vous aimez vous rassembler dans la Lumière de l’Amour du Père, entonner vos chants … »"
 date: 2022-06-01 06:00:01+00:430
 draft: False
 hidden: True

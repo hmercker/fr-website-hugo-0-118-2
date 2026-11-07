@@ -1,7 +1,7 @@
 ---
 title: "Apporte sa bénédiction et prie avec nous pour l’Amour Divin"
 menu_title: ""
-description: "Apporte sa bénédiction et prie avec nous pour l’Amour Divin"
+description: "Jésus, reçu par Al Fike : « Vous êtes mes frères et sœurs, car vous connaissez le grand don qui a transformé mon âme et qui transforme votre âme. »"
 date: 2022-06-01 06:00:01+00:99
 draft: False
 hidden: True

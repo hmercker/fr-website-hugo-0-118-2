@@ -1,7 +1,7 @@
 ---
 title: "Le confort d’un initié"
 menu_title: ""
-description: "Le confort d’un initié"
+description: "William Donovan, reçu par FAB : « J’ai mené de nombreuses activités pour le gouvernement et les intérêts monnayés me sont revenus avec horreur. »"
 date: 2022-06-01 06:00:01+00:275
 draft: False
 hidden: True

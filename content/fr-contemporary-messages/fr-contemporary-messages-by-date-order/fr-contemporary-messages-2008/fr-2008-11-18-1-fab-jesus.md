@@ -1,7 +1,7 @@
 ---
 title: "Justice et jugement de valeur"
 menu_title: ""
-description: "Justice et jugement de valeur"
+description: "Jésus, reçu par FAB : « Laisse-moi vous transmettre un message, car je vois que vous manquez de clarté. Je vais parler de mon enseignement, « ne jugez pas … »"
 date: 2022-06-01 06:00:01+00:131
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Consacrez-vous à Dieu, mes bien-aimés"
 menu_title: ""
-description: "Consacrez-vous à Dieu, mes bien-aimés"
+description: "Marie, reçu par Al Fike : « Je veux vous assurer que le monde viendra à la lumière en temps voulu. Que bien qu’il puisse y avoir des périodes sombres dans … »"
 date: 2022-06-01 06:00:01+00:1460
 draft: False
 hidden: True

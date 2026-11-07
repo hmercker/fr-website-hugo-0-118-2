@@ -1,7 +1,7 @@
 ---
 title: "La culture Grecque et les Juifs dans l’Ancienne Palestine"
 menu_title: ""
-description: "La culture Grecque et les Juifs dans l’Ancienne Palestine"
+description: "St Jean, reçu par FAB : « Il y avait un sentiment très fort que la culture grecque représentait la contamination, même si certains Juifs s'y engageaient … »"
 date: 2022-06-01 06:00:01+00:11
 draft: False
 hidden: True

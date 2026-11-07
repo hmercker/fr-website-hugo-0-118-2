@@ -1,7 +1,7 @@
 ---
 title: "Rassure aussi M. Padgett que le soleil brillera sur ses affaires matérielles et spirituelles"
 menu_title: ""
-description: "Rassure aussi M. Padgett que le soleil brillera sur ses affaires matérielles et spirituelles"
+description: "Hélène Padgett, reçu par James Padgett : « J’ai été si anxieuse que tu sortes de la condition de découragement qui est la tienne depuis plusieurs jours et … »"
 date: 2022-06-01 06:00:01+00:164
 draft: False
 hidden: True

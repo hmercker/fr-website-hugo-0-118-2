@@ -1,7 +1,7 @@
 ---
 title: "Qu’est-ce que l'Esprit Saint et comment fonctionne-t-il ?"
 menu_title: ""
-description: "Qu’est-ce que l'Esprit Saint et comment fonctionne-t-il ?"
+description: "St Jean, reçu par James Padgett : « Je veux simplement dire que votre état s’améliore et que dans quelques nuits, nous pourrons continuer nos messages, et … »"
 date: 2022-06-01 06:00:01+00:147
 draft: False
 hidden: True

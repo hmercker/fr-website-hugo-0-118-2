@@ -1,7 +1,7 @@
 ---
 title: "Jésus dit que ceux qui le vénèrent comme ils le font dans les églises commettent un blasphème"
 menu_title: ""
-description: "Jésus dit que ceux qui le vénèrent comme ils le font dans les églises commettent un blasphème"
+description: "Jésus, reçu par James Padgett : « J’avais l’intention de terminer mon message ce soir, mais je vois que vous n’êtes pas enclin à le recevoir et je vais … »"
 date: 2022-06-01 06:00:01+00:120
 draft: False
 hidden: True

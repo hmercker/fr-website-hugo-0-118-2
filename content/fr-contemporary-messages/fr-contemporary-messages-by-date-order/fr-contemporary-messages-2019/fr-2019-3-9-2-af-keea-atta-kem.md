@@ -1,7 +1,7 @@
 ---
 title: "Les cercles de lumière apportent une grande valeur"
 menu_title: ""
-description: "Les cercles de lumière apportent une grande valeur"
+description: "Keea Atta Kem, reçu par Al Fike : « Nous sommes très heureux lorsque vous vous réunissez de cette manière pour former ces Cercles de Lumière. »"
 date: 2022-06-01 06:00:01+00:670
 draft: False
 hidden: True

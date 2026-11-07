@@ -1,7 +1,7 @@
 ---
 title: "Bienvenue et présentation d'un nouveau groupe de Voix Directe"
 menu_title: ""
-description: "Bienvenue et présentation d'un nouveau groupe de Voix Directe"
+description: "Seretta Kem, reçu par Al Fike : « Nous sommes très heureux, chères et belles âmes. L’effort fait dans la prière, qui est un engagement profond avec chacun … »"
 date: 2022-06-01 06:00:01+00:1521
 draft: False
 hidden: True

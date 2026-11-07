@@ -1,7 +1,7 @@
 ---
 title: "Baruch Spinoza écrit sur la capacité des médiums à prédire le futur de toute personne"
 menu_title: ""
-description: "Baruch Spinoza écrit sur la capacité des médiums à prédire le futur de toute personne"
+description: "Baruch Spinoza, reçu par James Padgett : « Je ne fais pas partie des esprits qui vous écrivent au sujet de ce qu’ils appellent les vérités supérieures … »"
 date: 2022-06-01 06:00:01+00:01
 draft: False
 hidden: True

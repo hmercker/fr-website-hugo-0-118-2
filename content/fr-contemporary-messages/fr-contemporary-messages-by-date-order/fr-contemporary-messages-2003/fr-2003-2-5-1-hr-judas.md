@@ -1,7 +1,7 @@
 ---
 title: "Le manque d’espoir dans les Enfers"
 menu_title: ""
-description: "Le manque d’espoir dans les Enfers"
+description: "Judas, reçu par H : « Les messages de Padgett contiennent quelques descriptions plutôt suggestives de la situation dans les enfers, des lieux et des … »"
 date: 2022-06-01 06:00:01+00:23
 draft: False
 hidden: True

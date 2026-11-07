@@ -1,7 +1,7 @@
 ---
 title: "Répondez à l'appel"
 menu_title: ""
-description: "Répondez à l'appel"
+description: "Orion, reçu par Albert Fike : « Ce n’est pas facile, mes amis. Vous, sur cette Terre, traversez des épreuves, des tribulations, des luttes et des obstacles. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

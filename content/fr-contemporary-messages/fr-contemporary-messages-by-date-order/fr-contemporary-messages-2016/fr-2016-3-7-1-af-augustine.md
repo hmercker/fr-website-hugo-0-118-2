@@ -1,7 +1,7 @@
 ---
 title: "Les âmes sensibles sont les sauveurs de ce monde"
 menu_title: ""
-description: "Les âmes sensibles sont les sauveurs de ce monde"
+description: "Augustin, reçu par Al Fike : « Lorsqu’ils entrent dans le monde de l’esprit, leur progression est rapide car cela est plus à leur goût et en harmonie avec … »"
 date: 2022-06-01 06:00:01+00:167
 draft: False
 hidden: True

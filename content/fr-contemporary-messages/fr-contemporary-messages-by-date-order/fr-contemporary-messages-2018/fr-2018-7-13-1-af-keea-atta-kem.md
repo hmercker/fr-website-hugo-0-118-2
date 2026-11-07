@@ -1,7 +1,7 @@
 ---
 title: "L'éveil des dons de votre âme requiert l'amour, la foi et le timing de Dieu"
 menu_title: ""
-description: "L'éveil des dons de votre âme requiert l'amour, la foi et le timing de Dieu"
+description: "Keea Atta Kem, reçu par Al Fike : « Comme c’est merveilleux de voir la lumière que vous partagez entre vous, l’amour que vous avez les uns pour les autres … »"
 date: 2022-06-01 06:00:01+00:425
 draft: False
 hidden: True

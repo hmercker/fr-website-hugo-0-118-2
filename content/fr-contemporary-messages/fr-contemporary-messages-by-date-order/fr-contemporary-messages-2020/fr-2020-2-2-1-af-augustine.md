@@ -1,7 +1,7 @@
 ---
 title: "Dieu a un grand plan en vue pour le salut de l’humanité"
 menu_title: ""
-description: "Dieu a un grand plan en vue pour le salut de l’humanité"
+description: "Augustin, reçu par Al Fike : « Dieu a semé dans ce monde de nombreuses âmes qui ont en elles le sens du but, quelque chose qu’elles se sont engagées à … »"
 date: 2022-06-01 06:00:01+00:990
 draft: False
 hidden: True

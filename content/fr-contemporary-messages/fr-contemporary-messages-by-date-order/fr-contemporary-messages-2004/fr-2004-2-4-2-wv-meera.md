@@ -1,7 +1,7 @@
 ---
 title: "L’espoir change la réalité"
 menu_title: ""
-description: "L’espoir change la réalité"
+description: "Meera, reçu par WV : « Je sais que vous ne connaissez pas mon nom et que vous ne vous souvenez pas l’avoir vu un jour, mais cela n’a pas d’importance car … »"
 date: 2022-06-01 06:00:01+00:07
 draft: False
 hidden: True

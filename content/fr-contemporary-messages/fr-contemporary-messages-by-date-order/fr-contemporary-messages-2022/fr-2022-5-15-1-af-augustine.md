@@ -1,7 +1,7 @@
 ---
 title: "Rejoignez la tapisserie des belles âmes de Dieu"
 menu_title: ""
-description: "Rejoignez la tapisserie des belles âmes de Dieu"
+description: "Augustin, reçu par Al Fike : « Dans ce tissage d’âmes, il y a une grande force, une belle lumière créée par elle, et une coopération qui est encouragée et … »"
 date: 2022-06-01 06:00:01+00:89
 draft: False
 hidden: True

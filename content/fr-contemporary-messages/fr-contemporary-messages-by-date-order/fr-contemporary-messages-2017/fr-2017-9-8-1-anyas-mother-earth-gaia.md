@@ -1,7 +1,7 @@
 ---
 title: "C’est le temps de la purification"
 menu_title: ""
-description: "C’est le temps de la purification"
+description: "Mère Terre-Gaïa, reçu par Anyas : « Urantia : « Chère fille de Moi, tu souhaites que nous établissions une relation de cœur à cœur. »"
 date: 2022-06-01 06:00:01+00:89
 draft: False
 hidden: True

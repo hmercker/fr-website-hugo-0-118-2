@@ -1,7 +1,7 @@
 ---
 title: "Chacun a l'opportunité de progresser"
 menu_title: ""
-description: "Chacun a l'opportunité de progresser"
+description: "André, reçu par Albert Fike : « Elle est représentative de nombreuses âmes qui ont mené une vie de débauche dans le monde matériel ; elle a cherché la … »"
 date: 2025-11-10 06:00:01+00:01
 draft: False
 hidden: True

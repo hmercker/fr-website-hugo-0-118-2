@@ -1,7 +1,7 @@
 ---
 title: "La ferveur de vos prières est ce qui fait bouger vos âmes"
 menu_title: ""
-description: "La ferveur de vos prières est ce qui fait bouger vos âmes"
+description: "Augustin, reçu par Al Fike : « La ferveur de vos prières est le levier dont vous avez besoin pour déplacer votre âme plus loin vers la lumière et plus … »"
 date: 2023-09-01 06:00:01+00:57
 draft: False
 hidden: True

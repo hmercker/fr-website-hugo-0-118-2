@@ -1,7 +1,7 @@
 ---
 title: "Hélène explique comment Saleeba contrôlerait et parlerait à travers Padgett"
 menu_title: ""
-description: "Hélène explique comment Saleeba contrôlerait et parlerait à travers Padgett"
+description: "Hélène Padgett, reçu par James Padgett : « Je vois que tu vas interrompre mon écriture mais je sais que tu m’aimes quand même et que je t’aime et ces … »"
 date: 2022-06-01 06:00:01+00:100
 draft: False
 hidden: True

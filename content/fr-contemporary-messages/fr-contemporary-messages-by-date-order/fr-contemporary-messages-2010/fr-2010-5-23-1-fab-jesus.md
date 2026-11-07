@@ -1,7 +1,7 @@
 ---
 title: "Les perceptions de l'âme"
 menu_title: ""
-description: "Les perceptions de l'âme"
+description: "Jésus, reçu par FAB : « Mais encore une fois, vous pensez avec votre tête et non avec votre âme. Sans les perceptions de l'âme, tout est terne et noir et … »"
 date: 2022-06-01 06:00:01+00:129
 draft: False
 hidden: True

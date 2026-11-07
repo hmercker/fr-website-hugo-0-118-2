@@ -1,7 +1,7 @@
 ---
 title: "Expérience de la mère de Moïse – 2"
 menu_title: ""
-description: "Expérience de la mère de Moïse – 2"
+description: "Jochebed, la mère de Moïse, reçu par FAB : « Permettez-moi de commenter la déclaration que j’ai faite dans ma canalisation du 23 Mai 2009 : « Et ma vie … »"
 date: 2022-06-01 06:00:01+00:54
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L'Amour de Dieu se répand à travers vous pour le bénéfice des autres"
 menu_title: ""
-description: "L'Amour de Dieu se répand à travers vous pour le bénéfice des autres"
+description: "Augustin, reçu par Al Fike : « Dieu vous bénit, âmes bien-aimées, c’est votre enseignant Augustin. Ces liens d’amour que vous partagez ensemble créent un … »"
 date: 2022-06-01 06:00:01+00:1165
 draft: False
 hidden: True

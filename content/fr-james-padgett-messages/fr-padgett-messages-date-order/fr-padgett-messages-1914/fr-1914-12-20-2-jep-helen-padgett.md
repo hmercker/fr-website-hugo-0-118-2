@@ -1,7 +1,7 @@
 ---
 title: "M. Padgett a passé la journée avec ses amis, le juge Syrick et le colonel Woods, et Hélène écrit qu’ils croient tous deux au spiritualisme"
 menu_title: ""
-description: "M. Padgett a passé la journée avec ses amis, le juge Syrick et le colonel Woods, et Hélène écrit qu’ils croient tous deux au spiritualisme"
+description: "Hélène Padgett, reçu par James Padgett : « Tu es maintenant dans un bon état d’esprit et je sens que tu commences à croire en ce que nous t’avons dit. »"
 date: 2022-06-01 06:00:01+00:45
 draft: False
 hidden: True

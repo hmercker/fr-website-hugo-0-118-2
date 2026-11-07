@@ -1,7 +1,7 @@
 ---
 title: "L’amour du Père n’est jamais loin quand la tentation frappe"
 menu_title: ""
-description: "L’amour du Père n’est jamais loin quand la tentation frappe"
+description: "Jésus, reçu par James Padgett : « J’étais avec vous hier soir et je me suis rendu compte de votre état, j’ai essayé de vous influencer avec mon amour et … »"
 date: 2022-06-01 06:00:01+00:135
 draft: False
 hidden: True

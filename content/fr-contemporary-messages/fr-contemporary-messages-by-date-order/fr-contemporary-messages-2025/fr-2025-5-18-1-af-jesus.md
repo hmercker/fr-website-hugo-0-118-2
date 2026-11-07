@@ -1,7 +1,7 @@
 ---
 title: "Une magnifique bénédiction de l'Amour de Dieu en réponse aux prières"
 menu_title: ""
-description: "Une magnifique bénédiction de l'Amour de Dieu en réponse aux prières"
+description: "Jésus, reçu par Albert Fike : « Car mon désir et ma joie résident dans cette relation avec notre Père Céleste. En demandant le grand don de Son Amour, la … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

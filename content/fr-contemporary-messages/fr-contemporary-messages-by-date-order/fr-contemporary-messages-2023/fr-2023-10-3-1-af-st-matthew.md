@@ -1,7 +1,7 @@
 ---
 title: "L'Amour de Dieu vous libérera des ténèbres"
 menu_title: ""
-description: "L'Amour de Dieu vous libérera des ténèbres"
+description: "Matthieu, reçu par Albert Fike : « Qu’il y ait la paix sur Terre, âmes bien-aimées. C’est ce que nous cherchons à apporter à vos projets terrestres et je … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

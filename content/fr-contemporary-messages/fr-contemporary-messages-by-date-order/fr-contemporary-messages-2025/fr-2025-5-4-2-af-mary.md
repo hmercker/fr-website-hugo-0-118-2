@@ -1,7 +1,7 @@
 ---
 title: "Nous continuons à prier ensemble pour l'Amour de Dieu"
 menu_title: ""
-description: "Nous continuons à prier ensemble pour l'Amour de Dieu"
+description: "Marie, reçu par Albert Fike : « Cette nourriture m’est familière et fait tellement partie de moi maintenant, à mesure que j’ai grandi et découvert les … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

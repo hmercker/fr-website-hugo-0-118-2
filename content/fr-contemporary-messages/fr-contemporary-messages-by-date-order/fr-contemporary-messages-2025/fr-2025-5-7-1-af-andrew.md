@@ -1,7 +1,7 @@
 ---
 title: "Les belles relations que vous avez créées dans la prière dureront toute l'éternité"
 menu_title: ""
-description: "Les belles relations que vous avez créées dans la prière dureront toute l'éternité"
+description: "André, reçu par Albert Fike : « …être ensemble peut prendre fin, âmes bien-aimées, mais en vérité, ce ne sera pas le cas. Car vous avez créé un lien, une … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

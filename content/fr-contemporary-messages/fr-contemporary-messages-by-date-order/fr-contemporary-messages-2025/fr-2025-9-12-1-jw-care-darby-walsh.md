@@ -1,7 +1,7 @@
 ---
 title: "Perdre l'esprit et être dans le cœur"
 menu_title: ""
-description: "Perdre l'esprit et être dans le cœur"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Depuis des temps immémoriaux, les poètes et les troubadours, les écrivains et les acteurs ont tenté de … »"
 date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True

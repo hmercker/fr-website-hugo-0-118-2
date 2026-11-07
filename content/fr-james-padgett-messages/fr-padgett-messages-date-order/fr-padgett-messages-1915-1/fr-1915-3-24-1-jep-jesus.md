@@ -1,7 +1,7 @@
 ---
 title: "Jésus admet que son pouvoir est limité en certaines choses et ne connaît pas toujours la réponse sans aller au Père, la Source de toute connaissance"
 menu_title: ""
-description: "Jésus admet que son pouvoir est limité en certaines choses et ne connaît pas toujours la réponse sans aller au Père, la Source de toute connaissance"
+description: "Jésus, reçu par James Padgett : « Bien entendu, vous devez vous rappeler que je ne sais pas tout ce qui s’est passé ou ce qui va se passer. »"
 date: 2022-06-01 06:00:01+00:42
 draft: False
 hidden: True

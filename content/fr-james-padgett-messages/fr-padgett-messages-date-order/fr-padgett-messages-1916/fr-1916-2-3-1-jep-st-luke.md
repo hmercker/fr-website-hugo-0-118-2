@@ -1,7 +1,7 @@
 ---
 title: "Le développement de l’âme dans son amour naturel, lorsque la Nouvelle Naissance n’est pas ressentie"
 menu_title: ""
-description: "Le développement de l’âme dans son amour naturel, lorsque la Nouvelle Naissance n’est pas ressentie"
+description: "St Luc, reçu par James Padgett : « Je sais que les hommes pensent que cet amour naturel possède en lui une partie de la Divinité de la nature du Père, et … »"
 date: 2022-06-01 06:00:01+00:137
 draft: False
 hidden: True

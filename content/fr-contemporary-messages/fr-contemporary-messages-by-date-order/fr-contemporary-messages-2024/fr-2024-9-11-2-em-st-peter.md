@@ -1,7 +1,7 @@
 ---
 title: "Vous serez enchantés"
 menu_title: ""
-description: "Vous serez enchantés"
+description: "St Pierre, reçu par Elizabeth Mack : « Les préparatifs vont bon train. Nous, les anges, sommes prêts à servir nos frères et sœurs qui arrivent et qui … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

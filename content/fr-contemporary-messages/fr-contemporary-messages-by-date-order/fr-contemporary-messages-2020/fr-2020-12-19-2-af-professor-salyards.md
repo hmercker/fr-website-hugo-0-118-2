@@ -1,7 +1,7 @@
 ---
 title: "Nous serons à vos côtés à tout moment"
 menu_title: ""
-description: "Nous serons à vos côtés à tout moment"
+description: "Professeur Salyards, reçu par Al Fike : « Mon engagement envers vous est d’assister chacun d’entre vous dans ce grand effort et ce voyage pour découvrir … »"
 date: 2022-06-01 06:00:01+00:1351
 draft: False
 hidden: True

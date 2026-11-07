@@ -1,7 +1,7 @@
 ---
 title: "L'Amour de Dieu apportera les changements nécessaires au monde"
 menu_title: ""
-description: "L'Amour de Dieu apportera les changements nécessaires au monde"
+description: "St François d'Assise, reçu par Albert Fike : « Comme vous le savez tous, rechercher le don le plus élevé de l’amour, l’essence de Dieu, lui demander … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

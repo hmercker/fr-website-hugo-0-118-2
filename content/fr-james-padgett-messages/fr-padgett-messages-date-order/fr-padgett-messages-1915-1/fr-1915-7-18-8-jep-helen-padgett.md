@@ -1,7 +1,7 @@
 ---
 title: "Hélène est très heureuse que des grands esprits ont confirmé la sélection de M. Padgett"
 menu_title: ""
-description: "Hélène est très heureuse que des grands esprits ont confirmé la sélection de M. Padgett"
+description: "Hélène Padgett, reçu par James Padgett : « Bien sûr, je le savais, et tu le savais avant, mais pour dissiper tout doute que tu pouvais avoir, ils sont … »"
 date: 2022-06-01 06:00:01+00:138
 draft: False
 hidden: True

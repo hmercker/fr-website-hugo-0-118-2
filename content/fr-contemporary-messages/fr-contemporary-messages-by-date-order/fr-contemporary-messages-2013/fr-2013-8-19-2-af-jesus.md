@@ -1,7 +1,7 @@
 ---
 title: "Soyez en paix, sachez que vous marchez dans la Lumière et que vous êtes aimé"
 menu_title: ""
-description: "Soyez en paix, sachez que vous marchez dans la Lumière et que vous êtes aimé"
+description: "Jésus, reçu par Albert Fike : « Il n’y a pas d’appel plus élevé, mes enfants, pas de tâche plus grande et vous êtes beaux dans ce chemin, cet appel et les … »"
 date: 2026-10-21 06:00:01+00:09
 draft: False
 hidden: True

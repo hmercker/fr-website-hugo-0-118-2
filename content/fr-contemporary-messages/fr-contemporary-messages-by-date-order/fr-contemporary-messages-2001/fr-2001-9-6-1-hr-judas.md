@@ -1,7 +1,7 @@
 ---
 title: "Expérience de Judas des enfers"
 menu_title: ""
-description: "Expérience de Judas des enfers"
+description: "Judas, reçu par H : « Mon cher H , aujourd’hui fut vraiment une de ces journées… ! Mais tu es en meilleure forme maintenant, nous pouvons donc aller de … »"
 date: 2022-06-01 06:00:01+00:38
 draft: False
 hidden: True

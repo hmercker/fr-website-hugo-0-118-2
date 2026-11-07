@@ -1,7 +1,7 @@
 ---
 title: "Sur le don de la communication avec les esprits"
 menu_title: ""
-description: "Sur le don de la communication avec les esprits"
+description: "Marie, reçu par Amada Reza : « Je souhaite faire savoir à mes chers frères et sœurs que Dieu est un Créateur miséricordieux et aimant qui veille sur les … »"
 date: 2022-06-01 06:00:01+00:18
 draft: False
 hidden: True

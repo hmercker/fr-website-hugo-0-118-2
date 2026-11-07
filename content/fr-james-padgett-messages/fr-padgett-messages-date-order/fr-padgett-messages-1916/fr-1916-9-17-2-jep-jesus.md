@@ -1,7 +1,7 @@
 ---
 title: "Les croyances d’un prédicateur de Mission"
 menu_title: ""
-description: "Les croyances d’un prédicateur de Mission"
+description: "Jésus, reçu par James Padgett : « J’étais avec vous ce soir à la réunion et j’ai entendu ce qu’a dit le prédicateur, il a déclaré quelques vérités mais il … »"
 date: 2022-06-01 06:00:01+00:276
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Pourquoi Judas a trahi Jésus"
 menu_title: ""
-description: "Pourquoi Judas a trahi Jésus"
+description: "Judas, reçu par James Padgett : « J’étais un admirateur très enthousiaste du Maître et je croyais fermement en ses enseignements et en son pouvoir, et je … »"
 date: 2022-06-01 06:00:01+00:208
 draft: False
 hidden: True

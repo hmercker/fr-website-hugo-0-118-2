@@ -1,7 +1,7 @@
 ---
 title: "Surmonter les obstacles de l'éducation des enfants"
 menu_title: ""
-description: "Surmonter les obstacles de l'éducation des enfants"
+description: "Orion, reçu par Albert Fike : « Votre monde est rempli d’obstacles et de barrières qui vous empêchent d’atteindre la lumière, la joie et le bonheur, ce … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

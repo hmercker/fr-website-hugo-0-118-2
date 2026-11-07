@@ -1,7 +1,7 @@
 ---
 title: "Partage ses larmes de joie à FUSC"
 menu_title: ""
-description: "Partage ses larmes de joie à FUSC"
+description: "Rick Mindler, reçu par Albert Fike : « Moi aussi, j’ai apprécié ce service. Oh, comme mon cœur est plein. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

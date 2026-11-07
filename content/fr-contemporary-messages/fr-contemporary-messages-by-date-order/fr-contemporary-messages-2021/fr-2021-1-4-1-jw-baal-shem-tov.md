@@ -1,7 +1,7 @@
 ---
 title: "Laissez vos prières s’approfondir"
 menu_title: ""
-description: "Laissez vos prières s’approfondir"
+description: "Baal Shem Tov, reçu par Jimbeau Walsh : « Vous me connaissez peut-être sous le nom de Baal – Baal Shem Tov. Mes chers frères et sœurs qui se rassemblent … »"
 date: 2022-06-01 06:00:01+00:1366
 draft: False
 hidden: True

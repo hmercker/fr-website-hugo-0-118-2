@@ -1,7 +1,7 @@
 ---
 title: "Leçon sur la compréhension de la Vérité"
 menu_title: ""
-description: "Leçon sur la compréhension de la Vérité"
+description: "Jean le Bien Aimé, reçu par Elizabeth Mack : « Chaque pas contient la vérité pour que vous l'absorbiez, que vous la preniez et que vous renonciez à ce qui … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

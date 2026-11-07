@@ -1,7 +1,7 @@
 ---
 title: "L’apprentissage passe par les expériences de la vie"
 menu_title: ""
-description: "L’apprentissage passe par les expériences de la vie"
+description: "Keea Atta Kem, reçu par Maureen Cardoso : « Votre apprentissage vient de l’intérieur, à travers les exemples et les expériences de votre vie. »"
 date: 2025-11-21 06:00:01+00:01
 draft: False
 hidden: True

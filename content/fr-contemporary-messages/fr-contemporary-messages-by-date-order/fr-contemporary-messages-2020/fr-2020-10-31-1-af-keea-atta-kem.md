@@ -1,7 +1,7 @@
 ---
 title: "Inclure les femmes dans l'université de l'âme et d'autres orientations"
 menu_title: ""
-description: "Inclure les femmes dans l'université de l'âme et d'autres orientations"
+description: "Keea Atta Kem, reçu par Al Fike : « Car ce sont souvent les femmes qui ont des intuitions spirituelles et une grande sensibilité et elles peuvent … »"
 date: 2022-06-01 06:00:01+00:1299
 draft: False
 hidden: True

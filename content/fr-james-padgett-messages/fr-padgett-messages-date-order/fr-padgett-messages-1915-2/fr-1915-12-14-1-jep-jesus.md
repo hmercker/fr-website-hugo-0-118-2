@@ -1,7 +1,7 @@
 ---
 title: "Jésus a montré sa grande gloire et a donné son amour à M. Padgett"
 menu_title: ""
-description: "Jésus a montré sa grande gloire et a donné son amour à M. Padgett"
+description: "Jésus, reçu par James Padgett : « Oh, mon frère, essayez seulement d’obtenir cet Amour par la prière et la foi de telle sorte qu’il devienne aussi réel … »"
 date: 2022-06-01 06:00:01+00:85
 draft: False
 hidden: True

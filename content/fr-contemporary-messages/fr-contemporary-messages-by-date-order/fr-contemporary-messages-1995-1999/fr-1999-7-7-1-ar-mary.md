@@ -1,7 +1,7 @@
 ---
 title: "Sur l’autodéfense_2"
 menu_title: ""
-description: "Sur l’autodéfense_2"
+description: "Marie, reçu par Amada Reza : « Je prie pour que la substance de l’âme de Dieu, son amour divin, me remplisse et apporte la lumière sur ce sujet qui est en … »"
 date: 2022-06-01 06:00:01+00:17
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Selim a écrit plus tard qu’il ne connaît rien au sujet de la Nouvelle Naissance"
 menu_title: ""
-description: "Selim a écrit plus tard qu’il ne connaît rien au sujet de la Nouvelle Naissance"
+description: "Selim, reçu par James Padgett : « J’ai été le premier sultan musulman de ce nom, et je veux vous écrire un peu, si vous n’avez pas d’objection. »"
 date: 2022-06-01 06:00:01+00:204
 draft: False
 hidden: True

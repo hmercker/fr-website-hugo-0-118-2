@@ -1,7 +1,7 @@
 ---
 title: "Bienvenue à Trinité"
 menu_title: ""
-description: "Bienvenue à Trinité"
+description: "Barthélémy, reçu par Albert Fike : « Bienvenue en ce lieu, sur cette île, auprès de ce peuple. Les enfants de Dieu résident ici, comme partout ailleurs. »"
 date: 2026-04-03 16:00:01+00:01
 draft: False
 hidden: True

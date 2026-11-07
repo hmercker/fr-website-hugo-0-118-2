@@ -1,7 +1,7 @@
 ---
 title: "Bénédictions d’amour"
 menu_title: ""
-description: "Bénédictions d’amour"
+description: "Jésus, Aaron et Fleur de Lotus, reçu par Albert Fike : « Vous m’avez attiré dans votre cercle par vos prières. Vous m’avez attiré par vos pensées et vos … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L‘équipe d’anges qui travaille à développer les dons de chacun"
 menu_title: ""
-description: "L‘équipe d’anges qui travaille à développer les dons de chacun"
+description: "St Jean, reçu par Révérend Dave Lampron : « En fait, vous avez été informé que j’étais membre de votre groupe spirituel il y a quelques années, au tout … »"
 date: 2022-06-01 06:00:01+00:04
 draft: False
 hidden: True

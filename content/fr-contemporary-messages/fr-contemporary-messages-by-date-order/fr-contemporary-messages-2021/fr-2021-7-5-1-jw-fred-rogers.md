@@ -1,7 +1,7 @@
 ---
 title: "Rappelez-vous l’importance de guider les enfants"
 menu_title: ""
-description: "Rappelez-vous l’importance de guider les enfants"
+description: "Fred Rogers, reçu par Jimbeau Walsh : « Pour ceux d’entre vous qui ne me connaissent pas, je fus, durant mon séjour sur Terre, un père, un écrivain, un … »"
 date: 2022-06-01 06:00:01+00:1565
 draft: False
 hidden: True

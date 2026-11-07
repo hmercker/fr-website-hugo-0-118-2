@@ -1,7 +1,7 @@
 ---
 title: "Vous avez tant à espérer"
 menu_title: ""
-description: "Vous avez tant à espérer"
+description: "George Stokes, reçu par Elizabeth Mack : « Nous nous joignons à vous dans cette prière, car nous aimons Dieu et nous aimons le prier pour recevoir Son … »"
 date: 2026-01-30 16:00:01+00:01
 draft: False
 hidden: True

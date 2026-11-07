@@ -1,7 +1,7 @@
 ---
 title: "La libération des blessures de l’âme est un choix librement consenti"
 menu_title: ""
-description: "La libération des blessures de l’âme est un choix librement consenti"
+description: "Augustin, reçu par Al Fike : « Car nous connaissons vos pensées et les conditions de votre âme avant même que vous ne le sachiez. »"
 date: 2022-06-01 06:00:01+00:44
 draft: False
 hidden: True

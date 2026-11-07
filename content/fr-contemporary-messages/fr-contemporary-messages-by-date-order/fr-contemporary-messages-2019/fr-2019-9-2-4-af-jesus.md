@@ -1,7 +1,7 @@
 ---
 title: "Continuer à viser le plus haut"
 menu_title: ""
-description: "Continuer à viser le plus haut"
+description: "Jésus, reçu par Al Fike : « Vos prières ouvrent les portails et les portes à de nombreuses bénédictions. Le pouvoir de l’amour vous élève et vous … »"
 date: 2022-06-01 06:00:01+00:832
 draft: False
 hidden: True

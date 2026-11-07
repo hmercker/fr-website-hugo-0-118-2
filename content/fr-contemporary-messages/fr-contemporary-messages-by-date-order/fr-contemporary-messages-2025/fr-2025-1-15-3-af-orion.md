@@ -1,7 +1,7 @@
 ---
 title: "Nos efforts au service de Dieu et des anges sont cruciaux en ce moment"
 menu_title: ""
-description: "Nos efforts au service de Dieu et des anges sont cruciaux en ce moment"
+description: "Orion, reçu par Albert Fike : « En effet, lui et moi avons eu des conversations dans des conditions d’état de sommeil qui ont aidé à répondre à ses … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

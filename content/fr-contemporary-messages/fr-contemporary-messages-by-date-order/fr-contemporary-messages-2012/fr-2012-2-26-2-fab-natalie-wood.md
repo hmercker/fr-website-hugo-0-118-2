@@ -1,7 +1,7 @@
 ---
 title: "Expériences dans le monde des esprits d’une star de cinéma"
 menu_title: ""
-description: "Expériences dans le monde des esprits d’une star de cinéma"
+description: "Natalie Wood, reçu par FAB : « Je viendrai bientôt pour partager un message que je veux donner au monde. Mais laissez-moi juste dire pour le moment que … »"
 date: 2022-06-01 06:00:01+00:216
 draft: False
 hidden: True

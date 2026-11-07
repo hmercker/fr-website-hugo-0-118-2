@@ -1,7 +1,7 @@
 ---
 title: "La guerre, et l’armée"
 menu_title: ""
-description: "La guerre, et l’armée"
+description: "Tolkien, reçu par PJR : « Un merci spécial à [David. Il me semble que lui seul pourrait écrire quelque chose qui me pousserait enfin à en publier un. »"
 date: 2022-06-01 06:00:01+00:33
 draft: False
 hidden: True

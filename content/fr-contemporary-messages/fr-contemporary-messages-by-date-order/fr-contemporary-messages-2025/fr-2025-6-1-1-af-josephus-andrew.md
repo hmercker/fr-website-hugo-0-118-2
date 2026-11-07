@@ -1,7 +1,7 @@
 ---
 title: "Le Pouvoir de la Prière"
 menu_title: ""
-description: "Le Pouvoir de la Prière"
+description: "Flavius Josèphe et André, reçu par Albert Fike : « Votre prière sincère est connue de Dieu. En effet, si la prière est intense, sincère, claire et dirigée … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Un message à ceux qui sont en esprit"
 menu_title: ""
-description: "Un message à ceux qui sont en esprit"
+description: "Layota : « Les esprits auxquels je souhaite m'adresser sont ceux qui ont quitté le plan terrestre dans le corps physique mais qui sont incapables de … »"
 date: 2022-06-01 06:00:01+00:21
 draft: False
 hidden: True

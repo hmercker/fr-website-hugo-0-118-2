@@ -1,7 +1,7 @@
 ---
 title: "Les expériences du Pape Urbain II -2"
 menu_title: ""
-description: "Les expériences du Pape Urbain II -2"
+description: "Pape Urbain II, reçu par FAB : « Laissez-moi continuer avec mon histoire. Je ne pouvais pas nier la réalité de l’Ange, alors j’ai commencé à repenser tout … »"
 date: 2022-06-01 06:00:01+00:146
 draft: False
 hidden: True

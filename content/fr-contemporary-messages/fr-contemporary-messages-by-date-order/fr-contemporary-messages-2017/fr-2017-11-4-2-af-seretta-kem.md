@@ -1,7 +1,7 @@
 ---
 title: "Ne pas retomber dans les vieux schémas"
 menu_title: ""
-description: "Ne pas retomber dans les vieux schémas"
+description: "Seretta Kem, reçu par Al Fike : « Je vous recommande de penser à la couleur verte qui vous entoure avant d'entrer dans la chambre. »"
 date: 2022-06-01 06:00:01+00:182
 draft: False
 hidden: True

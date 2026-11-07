@@ -1,7 +1,7 @@
 ---
 title: "Marchez dans ce monde guidé par votre Père"
 menu_title: ""
-description: "Marchez dans ce monde guidé par votre Père"
+description: "St François d'Assise, reçu par Al Fike : « Et il y en a beaucoup dans les Cieux Célestes, tous dans les Cieux Célestes, qui aiment Dieu, car ceux qui y … »"
 date: 2022-06-01 06:00:01+00:160
 draft: False
 hidden: True

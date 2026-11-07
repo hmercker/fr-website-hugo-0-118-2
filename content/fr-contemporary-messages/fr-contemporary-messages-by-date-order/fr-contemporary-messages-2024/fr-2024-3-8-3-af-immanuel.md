@@ -1,7 +1,7 @@
 ---
 title: "Parle de la beauté du jardin de nos âmes"
 menu_title: ""
-description: "Parle de la beauté du jardin de nos âmes"
+description: "Emmanuel, reçu par Albert Fike : « …et de beaux enfants de Dieu. Vous êtes béni à bien des égards. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

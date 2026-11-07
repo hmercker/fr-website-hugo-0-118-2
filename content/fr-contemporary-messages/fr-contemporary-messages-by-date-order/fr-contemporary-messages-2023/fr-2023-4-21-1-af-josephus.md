@@ -1,7 +1,7 @@
 ---
 title: "Connaître son âme"
 menu_title: ""
-description: "Connaître son âme"
+description: "Flavius Josèphe, reçu par Al Fike : « Comprenez-vous cette partie vitale en vous qui continue à rechercher la bénédiction de l’Amour de Dieu et qui a un … »"
 date: 2023-09-01 06:00:01+00:06
 draft: False
 hidden: True

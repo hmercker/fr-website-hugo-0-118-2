@@ -1,7 +1,7 @@
 ---
 title: "Le visage de l’Amour"
 menu_title: ""
-description: "Le visage de l’Amour"
+description: "Marie Madeleine, reçu par Amada Reza : « Je voudrais profiter de cette occasion pour vous donner, à ceux qui ont choisi de suivre Jésus, dans le chemin de … »"
 date: 2022-06-01 06:00:01+00:76
 draft: False
 hidden: True

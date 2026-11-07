@@ -1,7 +1,7 @@
 ---
 title: "Après cette période de répit, il est temps d’entamer le travail"
 menu_title: ""
-description: "Après cette période de répit, il est temps d’entamer le travail"
+description: "Michael Collier et Jésus, reçu par Albert Fike : « Michael Collier : Le travail se poursuit, mes amis. Vous avez bénéficié du luxe de ce répit, de la … »"
 date: 2026-11-05 06:00:01+00:01
 draft: False
 hidden: True

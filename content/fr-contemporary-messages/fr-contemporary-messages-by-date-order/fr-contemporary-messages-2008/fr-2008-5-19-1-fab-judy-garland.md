@@ -1,7 +1,7 @@
 ---
 title: "Une star du cinéma passe de l’obscurité au bonheur"
 menu_title: ""
-description: "Une star du cinéma passe de l’obscurité au bonheur"
+description: "Judy Garland, reçu par FAB : « Qu’est-ce que la célébrité ? Ça peut être de l’exaltation. »"
 date: 2022-06-01 06:00:01+00:64
 draft: False
 hidden: True

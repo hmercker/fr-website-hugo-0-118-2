@@ -1,7 +1,7 @@
 ---
 title: "L'expérience d'un chanteur populaire américain dans le monde de l’esprit"
 menu_title: ""
-description: "L'expérience d'un chanteur populaire américain dans le monde de l’esprit"
+description: "Phil Ochs, reçu par FAB : « Vous avez eu raison de dire à vos amis que je vous ai suivi chez vous ce soir. Je savais à quel point vous aimiez l'album, et … »"
 date: 2022-06-01 06:00:01+00:21
 draft: False
 hidden: True

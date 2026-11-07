@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes digne de Son Amour"
 menu_title: ""
-description: "Vous êtes digne de Son Amour"
+description: "Yogananda, reçu par Jimbeau Walsh : « Il y a beaucoup de lumière dans ce lieu et nous sommes nombreux ici. Nous apportons l’Amour du Père avec nous. »"
 date: 2022-06-01 06:00:01+00:911
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Santé du corps et de l'âme"
 menu_title: ""
-description: "Santé du corps et de l'âme"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Mes très chers, vous qui avez réservé ce temps pour vos âmes, pour le bien-être de ceux qui vivront, je vous … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

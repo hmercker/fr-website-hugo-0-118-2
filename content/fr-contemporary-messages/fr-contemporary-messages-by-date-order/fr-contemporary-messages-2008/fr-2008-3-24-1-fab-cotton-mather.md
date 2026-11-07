@@ -1,7 +1,7 @@
 ---
 title: "La conscience dans le procès des sorcières de Salem"
 menu_title: ""
-description: "La conscience dans le procès des sorcières de Salem"
+description: "Cotton Mather, reçu par FAB : « J’ai effectivement été tourmenté, à un certain moment, par les procès de sorcellerie. Vous venez de lire que je les avais … »"
 date: 2022-06-01 06:00:01+00:43
 draft: False
 hidden: True

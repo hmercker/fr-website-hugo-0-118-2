@@ -1,7 +1,7 @@
 ---
 title: "L’effet de la déclaration de M. Padgett"
 menu_title: ""
-description: "L’effet de la déclaration de M. Padgett"
+description: "Jésus, reçu par James Padgett : « Cela peut vous sembler anodin, mais je vous dis qu’il s’agit d’un grand moment, non seulement pour ma cause, mais pour … »"
 date: 2022-06-01 06:00:01+00:67
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Encourage la révision des messages de Judas pour renforcer la connaissance des vérités supérieures"
 menu_title: ""
-description: "Encourage la révision des messages de Judas pour renforcer la connaissance des vérités supérieures"
+description: "Judas, reçu par Albert Fike : « Il contient de nombreuses informations qui vous aideront sur le chemin et à comprendre les choses. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

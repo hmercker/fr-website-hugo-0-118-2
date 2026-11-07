@@ -1,7 +1,7 @@
 ---
 title: "Le parler en langues"
 menu_title: ""
-description: "Le parler en langues"
+description: "André, reçu par Kathryn Stokes : « Alors, je vais répondre du mieux que je peux pour que tu puisses mieux comprendre. Ce n’est pas vraiment un événement … »"
 date: 2022-06-01 06:00:01+00:26
 draft: False
 hidden: True

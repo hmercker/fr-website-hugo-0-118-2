@@ -1,7 +1,7 @@
 ---
 title: "Quel est le destin du mortel qui n’a pas connu la Nouvelle Naissance, mais qui progressera vers cette condition, qui peut être appelée celle de l’homme parfait"
 menu_title: ""
-description: "Quel est le destin du mortel qui n’a pas connu la Nouvelle Naissance, mais qui progressera vers cette condition, qui peut être appelée celle de l’homme parfait"
+description: "St Jean, reçu par James Padgett : « Je veux écrire ce soir sur un sujet qui est important, et j’espère que vous pourrez recevoir mon message, car j’ai … »"
 date: 2022-06-01 06:00:01+00:279
 draft: False
 hidden: True

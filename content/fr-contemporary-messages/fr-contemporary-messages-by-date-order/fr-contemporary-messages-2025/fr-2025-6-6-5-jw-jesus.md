@@ -1,7 +1,7 @@
 ---
 title: "Je suis le capitaine du navire, Dieu met le vent dans les voiles"
 menu_title: ""
-description: "Je suis le capitaine du navire, Dieu met le vent dans les voiles"
+description: "Jésus, reçu par reçu par Jimbeau Walsh : « L’Amour du Père répond à l’espoir de paix de ce monde, au désir du cœur d’être aimé, au souhait de l’esprit … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

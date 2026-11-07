@@ -1,7 +1,7 @@
 ---
 title: "Dieu nous a donné à chacun un guide Céleste pour nous aider dans nos luttes sur Terre"
 menu_title: ""
-description: "Dieu nous a donné à chacun un guide Céleste pour nous aider dans nos luttes sur Terre"
+description: "St Paul, reçu par Albert Fike : « Chacun de nous a fait son propre voyage. Le mien a été célèbre pour les rebondissements que j’ai pris avant de venir à … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

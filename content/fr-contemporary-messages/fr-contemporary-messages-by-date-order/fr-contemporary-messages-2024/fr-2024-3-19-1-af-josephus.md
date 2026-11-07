@@ -1,7 +1,7 @@
 ---
 title: "Sera honoré de venir demain pour répondre à la question de Geoff Cutler"
 menu_title: ""
-description: "Sera honoré de venir demain pour répondre à la question de Geoff Cutler"
+description: "Flavius Josèphe, reçu par Albert Fike : « Vos chers frère et sœur sont sincères dans leurs recherches. Nous répondrons conformément à leurs questions et … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

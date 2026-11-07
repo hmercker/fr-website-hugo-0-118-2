@@ -1,7 +1,7 @@
 ---
 title: "Percy Hayes annonce son entrée dans le Royaume Céleste"
 menu_title: ""
-description: "Percy Hayes annonce son entrée dans le Royaume Céleste"
+description: "Percy Hayes, reçu par Al Fike : « Cela fait un certain temps que je ne vous ai pas parlé à tous. Elles sont en sécurité, elles sont bénies et elles … »"
 date: 2022-06-01 06:00:01+00:1398
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La pièce de monnaie dans la bouche du poisson"
 menu_title: ""
-description: "La pièce de monnaie dans la bouche du poisson"
+description: "Judas, reçu par H : « Nous sommes un lundi de Pâques, mon cher frère : je vais traiter d’un sujet qui n’est lié à la fête de Pâques que de façon éloignée. »"
 date: 2022-06-01 06:00:01+00:38
 draft: False
 hidden: True

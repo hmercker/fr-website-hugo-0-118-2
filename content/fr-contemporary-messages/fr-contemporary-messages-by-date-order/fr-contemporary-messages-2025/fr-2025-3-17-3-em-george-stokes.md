@@ -1,7 +1,7 @@
 ---
 title: "Unité et harmonie : clés de vos prières"
 menu_title: ""
-description: "Unité et harmonie : clés de vos prières"
+description: "Georges Stokes, reçu par Elizabeth Mack : « Nous venons tous d’horizons différents. Chacun d’entre nous occupe une place qui lui est propre. »"
 date: 2026-01-30 16:00:01+00:01
 draft: False
 hidden: True

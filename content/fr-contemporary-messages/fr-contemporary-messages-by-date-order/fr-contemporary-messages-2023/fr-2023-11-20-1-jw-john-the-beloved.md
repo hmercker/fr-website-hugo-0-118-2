@@ -1,7 +1,7 @@
 ---
 title: "Gardez votre cœur ouvert"
 menu_title: ""
-description: "Gardez votre cœur ouvert"
+description: "Jean le Bien Aimé, reçu par Jimbeau Walsh : « Le maître a dit : « Que ton œil soit simple », alors je vais vous dire ceci. Quelle que soit votre activité … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

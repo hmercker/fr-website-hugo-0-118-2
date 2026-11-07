@@ -1,7 +1,7 @@
 ---
 title: "Dieu dépose un grand ruban de lumière devant vous"
 menu_title: ""
-description: "Dieu dépose un grand ruban de lumière devant vous"
+description: "Keea Atta Kem, reçu par Al Fike : « Je vous ai toujours aimés et je vous aimerai toujours. En fait, pour certains, j'ai été avec vous toute votre vie. »"
 date: 2022-06-01 06:00:01+00:280
 draft: False
 hidden: True

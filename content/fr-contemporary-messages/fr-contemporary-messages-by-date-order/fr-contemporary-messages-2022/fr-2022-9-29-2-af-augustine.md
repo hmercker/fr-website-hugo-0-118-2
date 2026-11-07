@@ -1,7 +1,7 @@
 ---
 title: "Soyez un canal de l'Amour de Dieu et un instrument de Sa Volonté"
 menu_title: ""
-description: "Soyez un canal de l'Amour de Dieu et un instrument de Sa Volonté"
+description: "Augustin, reçu par Al Fike : « …soyez une grande bénédiction pour vos âmes, mes bien-aimées. Je vous salue en ce lieu que vous avez choisi pour la prière … »"
 date: 2023-09-01 06:00:01+00:48
 draft: False
 hidden: True

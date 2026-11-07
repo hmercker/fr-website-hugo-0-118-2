@@ -1,7 +1,7 @@
 ---
 title: "Dieu et les anges nous donneront l’énergie et les ressources nécessaires pour partager les vérités de l’Amour Divin"
 menu_title: ""
-description: "Dieu et les anges nous donneront l’énergie et les ressources nécessaires pour partager les vérités de l’Amour Divin"
+description: "Confucius, reçu par Albert Fike : « En effet, Dieu vous guide et vous envoie dans le monde. Et ainsi, en écoutant et en respectant vos conseils, les voies … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

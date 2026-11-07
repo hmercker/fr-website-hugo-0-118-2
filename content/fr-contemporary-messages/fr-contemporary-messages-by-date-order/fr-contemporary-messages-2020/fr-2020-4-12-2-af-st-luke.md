@@ -1,7 +1,7 @@
 ---
 title: "Dieu souhaite que tous nos dons d'âme s'épanouissent"
 menu_title: ""
-description: "Dieu souhaite que tous nos dons d'âme s'épanouissent"
+description: "St Luc, reçu par Al Fike : « Dans vos régions du monde, une vie nouvelle émerge de la terre, renouvelant la promesse de Dieu à chacun de vous d’apporter … »"
 date: 2022-06-01 06:00:01+00:1059
 draft: False
 hidden: True

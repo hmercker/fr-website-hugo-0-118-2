@@ -1,7 +1,7 @@
 ---
 title: "Soyez l'agent actif  de Dieu pour le changement"
 menu_title: ""
-description: "Soyez l'agent actif de Dieu pour le changement"
+description: "Aaron, reçu par Al Fike : « Le changement est une constante dans le monde. Le changement est une constante dans l’univers de Dieu. »"
 date: 2022-06-01 06:00:01+00:770
 draft: False
 hidden: True

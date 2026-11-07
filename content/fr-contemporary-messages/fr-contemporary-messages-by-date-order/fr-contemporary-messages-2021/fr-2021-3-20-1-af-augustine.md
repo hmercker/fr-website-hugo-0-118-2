@@ -1,7 +1,7 @@
 ---
 title: "Conseils pour accueillir des cercles de lumière"
 menu_title: ""
-description: "Conseils pour accueillir des cercles de lumière"
+description: "Augustin, reçu par Al Fike : « Ce médium a l’habitude d’établir un rapport avec un ange Céleste et dans le processus d’établissement d’un rapport, il sent … »"
 date: 2022-06-01 06:00:01+00:1447
 draft: False
 hidden: True

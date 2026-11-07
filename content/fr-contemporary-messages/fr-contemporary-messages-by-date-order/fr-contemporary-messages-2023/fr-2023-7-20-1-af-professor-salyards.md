@@ -1,7 +1,7 @@
 ---
 title: "L'harmonie prévaudra à la retraite de Laurelville"
 menu_title: ""
-description: "L'harmonie prévaudra à la retraite de Laurelville"
+description: "Professeur Salyards, reçu par Albert Fike : « C’est un honneur pour moi de vous servir, ce cercle de belles âmes. Et bien que je puisse vous dire que des … »"
 date: 2023-09-01 06:00:01+00:55
 draft: False
 hidden: True

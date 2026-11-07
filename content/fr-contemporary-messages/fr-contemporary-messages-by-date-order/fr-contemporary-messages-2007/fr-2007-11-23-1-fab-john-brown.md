@@ -1,7 +1,7 @@
 ---
 title: "Le destin de John Brown"
 menu_title: ""
-description: "Le destin de John Brown"
+description: "John Brown, reçu par FAB : « C'est un jour nouveau pour vous et pour le monde. Il y aura bientôt de grands changements très positifs. »"
 date: 2022-06-01 06:00:01+00:177
 draft: False
 hidden: True

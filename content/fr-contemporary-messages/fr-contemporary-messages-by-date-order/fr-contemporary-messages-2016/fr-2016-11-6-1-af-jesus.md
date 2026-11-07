@@ -1,7 +1,7 @@
 ---
 title: "Soyez des disciples de la vérité"
 menu_title: ""
-description: "Soyez des disciples de la vérité"
+description: "Jésus, reçu par Al Fike : « Chacun d’entre vous doit se lever et être compté, chacun doit dire ces vérités lorsque l’opportunité et la main directrice de … »"
 date: 2022-06-01 06:00:01+00:262
 draft: False
 hidden: True

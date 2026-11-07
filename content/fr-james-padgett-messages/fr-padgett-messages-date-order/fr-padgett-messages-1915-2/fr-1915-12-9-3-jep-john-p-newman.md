@@ -1,7 +1,7 @@
 ---
 title: "Un pasteur méthodiste aimerait dire à son peuple de la terre ce qu’il a appris être la vérité sur l’âme."
 menu_title: ""
-description: "Un pasteur méthodiste aimerait dire à son peuple de la terre ce qu’il a appris être la vérité sur l’âme."
+description: "John P Newman, reçu par James Padgett : « J’aimerais que vous me laissiez écrire quelques lignes ce soir. Lors de ma vie terrestre, je fus un prédicateur … »"
 date: 2022-06-01 06:00:01+00:83
 draft: False
 hidden: True

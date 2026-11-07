@@ -1,7 +1,7 @@
 ---
 title: "Ce que vous faites aujourd’hui touchera beaucoup de personnes"
 menu_title: ""
-description: "Ce que vous faites aujourd’hui touchera beaucoup de personnes"
+description: "Pierre le Rocher, reçu par Elizabeth Mack : « Je m’appelle Pierre, parfois appelé le Rocher. Je me joins à vous dans cette prière pour vous aider à vous … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

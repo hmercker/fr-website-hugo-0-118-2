@@ -1,7 +1,7 @@
 ---
 title: "Ouvrez votre cœur à l'Amour de Dieu"
 menu_title: ""
-description: "Ouvrez votre cœur à l'Amour de Dieu"
+description: "Yogananda, reçu par Jimbeau Walsh : « Vous avez peut-être fermé votre cœur pour vous protéger. Vous ne pouvez pas garder un poing serré toute la journée … »"
 date: 2022-06-01 06:00:01+00:838
 draft: False
 hidden: True

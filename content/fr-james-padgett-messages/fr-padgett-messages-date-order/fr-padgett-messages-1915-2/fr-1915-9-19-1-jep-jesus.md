@@ -1,7 +1,7 @@
 ---
 title: "Jésus dit que son sang ne sauve pas l’Homme. Seul l’Amour Divin ou la Nouvelle Naissance qu’il a enseigné sauve et rachète"
 menu_title: ""
-description: "Jésus dit que son sang ne sauve pas l’Homme. Seul l’Amour Divin ou la Nouvelle Naissance qu’il a enseigné sauve et rachète"
+description: "Jésus, reçu par James Padgett : « J’ai entendu la discussion entre vous et l’autre homme au sujet de mon sang sauvant du péché, et j’ai senti que vous … »"
 date: 2022-06-01 06:00:01+00:253
 draft: False
 hidden: True

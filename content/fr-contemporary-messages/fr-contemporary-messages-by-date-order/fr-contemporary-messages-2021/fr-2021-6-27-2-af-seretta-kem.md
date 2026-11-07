@@ -1,7 +1,7 @@
 ---
 title: "Changements terrestres et changements que nous remarquerons en nous-mêmes"
 menu_title: ""
-description: "Changements terrestres et changements que nous remarquerons en nous-mêmes"
+description: "Seretta Kem, reçu par Al Fike : « Je ne fais pas référence aux changements climatiques qui, pour beaucoup d’entre vous, sont devenus évidents et … »"
 date: 2022-06-01 06:00:01+00:1556
 draft: False
 hidden: True

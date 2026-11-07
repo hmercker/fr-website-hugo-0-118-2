@@ -1,7 +1,7 @@
 ---
 title: "Deux parcours spirituels distincts"
 menu_title: ""
-description: "Deux parcours spirituels distincts"
+description: "Samuel, reçu par Al Fike : « Dieu bénit les enfants de la Vérité car ils hériteront de la Terre, une Terre que Dieu prépare et qu’il nettoiera afin que la … »"
 date: 2023-09-01 06:00:01+00:03
 draft: False
 hidden: True

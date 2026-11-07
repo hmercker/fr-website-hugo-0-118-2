@@ -1,7 +1,7 @@
 ---
 title: "L'intelligence naturelle de l'âme"
 menu_title: ""
-description: "L'intelligence naturelle de l'âme"
+description: "St Jean, reçu par Amada Reza : « Vous êtes tous des disciples de Jésus car vous priez et recevez cette Substance de l'Âme de Dieu - l'Amour Divin - qui … »"
 date: 2022-06-01 06:00:01+00:58
 draft: False
 hidden: True

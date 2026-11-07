@@ -1,7 +1,7 @@
 ---
 title: "Les amis de Marmora cherchent. Aimez-les. Priez pour eux"
 menu_title: ""
-description: "Les amis de Marmora cherchent. Aimez-les. Priez pour eux"
+description: "Jean le bien aimé, reçu par Elizabeth Mack : « Ce sont des esprits qui ont parcouru un long chemin à travers la galaxie. Vous aurez une meilleure … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

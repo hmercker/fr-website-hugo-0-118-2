@@ -1,7 +1,7 @@
 ---
 title: "À propos du nom du mouvement « Divine Love » (Amour Divin)"
 menu_title: ""
-description: "À propos du nom du mouvement « Divine Love » (Amour Divin)"
+description: "Martin Luther et Jésus, reçu par Anonyme : « Cela me fait sourire, car… ne sommes-nous pas humains ? Ne sommes-nous pas humains dans notre façon d’aborder … »"
 date: 2026-10-28 06:00:01+00:24
 draft: False
 hidden: True

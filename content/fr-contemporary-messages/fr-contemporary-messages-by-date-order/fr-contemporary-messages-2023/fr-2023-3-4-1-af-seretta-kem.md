@@ -1,7 +1,7 @@
 ---
 title: "Les fascinantes distractions de l'intégration de l'âme"
 menu_title: ""
-description: "Les fascinantes distractions de l'intégration de l'âme"
+description: "Seretta Kem, reçu par Al Fike : « Aujourd’hui, je souhaite vous parler du processus d’intégration des trois aspects de votre personne, à savoir l’âme, le … »"
 date: 2023-09-01 06:00:01+00:87
 draft: False
 hidden: True

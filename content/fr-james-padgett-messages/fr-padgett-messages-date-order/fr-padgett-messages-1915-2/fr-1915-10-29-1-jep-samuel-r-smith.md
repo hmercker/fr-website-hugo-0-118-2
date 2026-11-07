@@ -1,7 +1,7 @@
 ---
 title: "Samuel Smith un anglais de Londres voulait entrer en relation avec le Dr Stone pour lui dire qu’il était intéressé par ses recherches sur le spiritualisme"
 menu_title: ""
-description: "Samuel Smith un anglais de Londres voulait entrer en relation avec le Dr Stone pour lui dire qu’il était intéressé par ses recherches sur le spiritualisme"
+description: "Samuel R Smith, reçu par James Padgett : « J’ai vécu dans la ville de Londres et je me suis beaucoup impliqué dans le commerce avec l’Inde. »"
 date: 2022-06-01 06:00:01+00:26
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Martin Luther voie la nécessité de corriger beaucoup des croyances de ses disciples"
 menu_title: ""
-description: "Martin Luther voie la nécessité de corriger beaucoup des croyances de ses disciples"
+description: "Martin Luther, reçu par James Padgett : « Je vois la nécessité de corriger de nombreux principes de croyance qui asservissent aujourd’hui mes disciples et … »"
 date: 2022-06-01 06:00:01+00:226
 draft: False
 hidden: True

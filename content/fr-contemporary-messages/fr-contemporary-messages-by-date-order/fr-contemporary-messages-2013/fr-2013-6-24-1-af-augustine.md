@@ -1,7 +1,7 @@
 ---
 title: "Voir au-delà des créations superficielles de l'humanité"
 menu_title: ""
-description: "Voir au-delà des créations superficielles de l'humanité"
+description: "Augustin, reçu par Albert Fike : « Le monde a besoin de vous, mes enfants. Le monde a besoin de la lumière que vous apportez, de l’amour que vous … »"
 date: 2026-10-16 06:00:01+00:09
 draft: False
 hidden: True

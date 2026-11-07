@@ -1,7 +1,7 @@
 ---
 title: "La mère de M. Padgett dit que son père a trouvé son âme sœur et raconte sa progression spirituelle"
 menu_title: ""
-description: "La mère de M. Padgett dit que son père a trouvé son âme sœur et raconte sa progression spirituelle"
+description: "Anne Padgett, reçu par James Padgett : « Son âme sœur est très souvent avec lui et elle l’aime beaucoup, mais il ne semble pas encore réaliser qu’elle est … »"
 date: 2022-06-01 06:00:01+00:44
 draft: False
 hidden: True

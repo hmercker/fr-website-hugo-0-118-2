@@ -1,7 +1,7 @@
 ---
 title: "Luttant pour donner un sens au monde"
 menu_title: ""
-description: "Luttant pour donner un sens au monde"
+description: "Jean le bien-aimé, reçu par Al Fike : « Chacun de vous désire voir la Vérité, pour comprendre la nature de la vie et la nature de votre propre être. »"
 date: 2022-06-01 06:00:01+00:123
 draft: False
 hidden: True

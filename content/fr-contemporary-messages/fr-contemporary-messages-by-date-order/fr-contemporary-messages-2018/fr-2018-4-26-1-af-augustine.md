@@ -1,7 +1,7 @@
 ---
 title: "Dieu a besoin de toutes les âmes éveillées à l'amour"
 menu_title: ""
-description: "Dieu a besoin de toutes les âmes éveillées à l'amour"
+description: "Augustin, reçu par Al Fike : « Le monde a besoin de vous, de vous tous, et de beaucoup plus d’entre vous car comment cette Vérité va-t-elle venir au monde … »"
 date: 2022-06-01 06:00:01+00:382
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Les bons et les mauvais aspects de la culture Amérindienne"
 menu_title: ""
-description: "Les bons et les mauvais aspects de la culture Amérindienne"
+description: "Uharu, reçu par FAB : « Vous venez de lire un point de vue très différent du vôtre - l'accent mis sur le fait que les autochtones étaient tout aussi … »"
 date: 2022-06-01 06:00:01+00:185
 draft: False
 hidden: True

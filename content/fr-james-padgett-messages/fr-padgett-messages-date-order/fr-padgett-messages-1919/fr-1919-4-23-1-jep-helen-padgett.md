@@ -1,7 +1,7 @@
 ---
 title: "Hélène écrit au sujet de la visite que M. Padgett et Dr Stone ont fait au Dr Arbelee qui était proche de la mort"
 menu_title: ""
-description: "Hélène écrit au sujet de la visite que M. Padgett et Dr Stone ont fait au Dr Arbelee qui était proche de la mort"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien mon cher, je vois que tu as fait du bon travail ce soir envers une pauvre âme (le Dr Arbelee) qui est … »"
 date: 2022-06-01 06:00:01+00:27
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Soyez un îlot de paix dans un monde tourmenté"
 menu_title: ""
-description: "Soyez un îlot de paix dans un monde tourmenté"
+description: "Jean le Bien Aimé, reçu par Al Fike : « Que la paix qui surpasse toute intelligence soit vôtre, âmes bien-aimées. J’ai cultivé la paix durant mon ministère. »"
 date: 2026-06-26 16:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Expériences"
 menu_title: ""
-description: "Expériences"
+description: "Professeur Salyards, reçu par James Padgett : « J’ai remarqué que l’esprit, lorsqu’il arrive dans cette vie, est très souvent dans un état d’obscurité. »"
 date: 2022-06-01 06:00:01+00:24
 draft: False
 hidden: True

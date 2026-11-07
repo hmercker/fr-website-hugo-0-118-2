@@ -1,7 +1,7 @@
 ---
 title: "Ouvrir son âme au don de l'Amour Divin apporte l'expiation"
 menu_title: ""
-description: "Ouvrir son âme au don de l'Amour Divin apporte l'expiation"
+description: "Seretta Kem, reçu par Maureen Cardoso : « Âmes bien-aimées, en ouvrant de votre être même, l’essence de votre âme et en invitant le cadeau si facilement … »"
 date: 2022-06-01 06:00:01+00:647
 draft: False
 hidden: True

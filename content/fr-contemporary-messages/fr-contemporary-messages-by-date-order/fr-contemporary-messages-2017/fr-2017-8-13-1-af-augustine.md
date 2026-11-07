@@ -1,7 +1,7 @@
 ---
 title: "Soyez honnête avec vous-mêmes"
 menu_title: ""
-description: "Soyez honnête avec vous-mêmes"
+description: "Augustin, reçu par Al Fike : « Je vois que vous continuez à faire des progrès et que vous continuez à être discipliné dans vos réflexions et vos régimes. »"
 date: 2022-06-01 06:00:01+00:84
 draft: False
 hidden: True

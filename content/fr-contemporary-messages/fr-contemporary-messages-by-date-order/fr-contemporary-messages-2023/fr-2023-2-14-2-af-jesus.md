@@ -1,7 +1,7 @@
 ---
 title: "Reconnaît l'aspiration profonde de chacun à l'Amour de Dieu"
 menu_title: ""
-description: "Reconnaît l'aspiration profonde de chacun à l'Amour de Dieu"
+description: "Jésus, reçu par Al Fike : « Car, dans votre cœur et votre âme, il y a un profond désir de Dieu et de recevoir le cadeau qu’il a à offrir à votre âme … »"
 date: 2023-09-01 06:00:01+00:81
 draft: False
 hidden: True

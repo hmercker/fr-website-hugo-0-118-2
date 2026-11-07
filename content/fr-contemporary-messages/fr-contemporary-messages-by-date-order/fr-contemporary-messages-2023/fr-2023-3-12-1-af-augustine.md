@@ -1,7 +1,7 @@
 ---
 title: "Invitation à l'Amour Divin"
 menu_title: ""
-description: "Invitation à l'Amour Divin"
+description: "Augustin, reçu par Al Fike : « C’est un don, un don au-delà de tous les dons, car la bénédiction de l’Amour du Père est plus puissante que toute autre … »"
 date: 2023-09-01 06:00:01+00:92
 draft: False
 hidden: True

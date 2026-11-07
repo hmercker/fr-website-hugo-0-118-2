@@ -1,7 +1,7 @@
 ---
 title: "Guérison"
 menu_title: ""
-description: "Guérison"
+description: "Yogananda, reçu par Jimbeau Walsh : « Je souhaite parler de guérison, car le besoin est si grand. Et ceux qui passent dans l’esprit sont en effet emmenés … »"
 date: 2023-09-01 06:00:01+00:68
 draft: False
 hidden: True

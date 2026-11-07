@@ -1,7 +1,7 @@
 ---
 title: "L'humanité est inconsciente des changements terrestres à venir"
 menu_title: ""
-description: "L'humanité est inconsciente des changements terrestres à venir"
+description: "Orion, reçu par Al Fike : « Votre monde est en transition, continue de se déplacer et de changer en fonction des conditions qui prévalent dans ce monde … »"
 date: 2022-06-01 06:00:01+00:150
 draft: False
 hidden: True

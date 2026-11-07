@@ -1,7 +1,7 @@
 ---
 title: "La guérison par l’intermédiaire des guérisseurs spirituels"
 menu_title: ""
-description: "La guérison par l’intermédiaire des guérisseurs spirituels"
+description: "Aigle Blanc, reçu par Amada Reza : « Les lois de Dieu sont exactes dans leur fonctionnement et ne manqueront pas d’opérer lorsqu’il s’agira de mettre les … »"
 date: 2022-06-01 06:00:01+00:25
 draft: False
 hidden: True

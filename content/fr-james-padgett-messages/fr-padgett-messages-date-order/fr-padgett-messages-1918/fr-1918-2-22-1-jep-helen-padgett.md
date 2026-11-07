@@ -1,7 +1,7 @@
 ---
 title: "Hélène s’arrange pour que Monsieur Padgett puisse la voir avec toute la beauté et l’amour qu’elle a pour son âme sœur"
 menu_title: ""
-description: "Hélène s’arrange pour que Monsieur Padgett puisse la voir avec toute la beauté et l’amour qu’elle a pour son âme sœur"
+description: "Hélène Padgett, reçu par James Padgett : « Tu as été heureux ce soir, car j’étais avec toi et j’ai pu voir et sentir ton bonheur. Oh, c’était merveilleux … »"
 date: 2022-06-01 06:00:01+00:18
 draft: False
 hidden: True

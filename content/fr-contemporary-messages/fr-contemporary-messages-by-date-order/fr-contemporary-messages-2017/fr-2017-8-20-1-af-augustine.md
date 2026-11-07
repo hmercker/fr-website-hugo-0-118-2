@@ -1,7 +1,7 @@
 ---
 title: "Comment vos dons vont émerger"
 menu_title: ""
-description: "Comment vos dons vont émerger"
+description: "Augustin, reçu par Al Fike : « C'est un processus par lequel chaque âme passe, alors que les dons s'ouvrent et que de nouveaux aperçus et de nouvelles … »"
 date: 2022-06-01 06:00:01+00:86
 draft: False
 hidden: True

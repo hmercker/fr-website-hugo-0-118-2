@@ -1,7 +1,7 @@
 ---
 title: "56ème Sermon – Ézéchiel décrit son exil à Babylone"
 menu_title: ""
-description: "56ème Sermon – Ézéchiel décrit son exil à Babylone"
+description: "Jésus, reçu par Dr Samuels : « Ézéchiel Ben Buzi naquit vers 615 av. J.-C., comme Flavius Josephus, l’historien, nous le dit dans son livre, antiquités … »"
 date: 2022-06-01 06:00:01+00:109
 draft: False
 hidden: True

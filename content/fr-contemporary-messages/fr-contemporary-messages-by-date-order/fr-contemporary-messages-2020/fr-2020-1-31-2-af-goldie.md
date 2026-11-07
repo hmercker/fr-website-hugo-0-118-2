@@ -1,7 +1,7 @@
 ---
 title: "Ouvrez vos cœurs à la joie de l'amour"
 menu_title: ""
-description: "Ouvrez vos cœurs à la joie de l'amour"
+description: "Goldie, reçu par Al Fike : « Ouvrez vos cœurs à la joie de l’amour. Ouvrez vous à toute la joie qu’il y a dans la vie. »"
 date: 2022-06-01 06:00:01+00:988
 draft: False
 hidden: True

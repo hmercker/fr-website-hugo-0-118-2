@@ -1,7 +1,7 @@
 ---
 title: "L’éducation des enfants"
 menu_title: ""
-description: "L’éducation des enfants"
+description: "St Jean, reçu par Amada Reza : « Il est supposé que lorsqu’une âme, pure et non souillée par le péché, s’incarne dans la chair, elle est fortement gênée … »"
 date: 2022-06-01 06:00:01+00:16
 draft: False
 hidden: True

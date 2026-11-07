@@ -1,7 +1,7 @@
 ---
 title: "Des phares de lumière dans le grand plan de Dieu"
 menu_title: ""
-description: "Des phares de lumière dans le grand plan de Dieu"
+description: "Jésus, reçu par Albert Fike : « Il existe des points de lumière qui grandissent et s’intensifient parce que vous vous êtes réunis dans la prière. »"
 date: 2026-10-04 06:00:01+00:01
 draft: False
 hidden: True

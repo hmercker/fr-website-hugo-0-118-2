@@ -1,7 +1,7 @@
 ---
 title: "Grands esprits et grandes âmes"
 menu_title: ""
-description: "Grands esprits et grandes âmes"
+description: "Judas, reçu par Jimbeau Walsh : « J’ai été avec mon frère aujourd’hui, je lui ai saupoudré des petits morceaux de poussière d’étoiles, je l’ai rassuré et … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

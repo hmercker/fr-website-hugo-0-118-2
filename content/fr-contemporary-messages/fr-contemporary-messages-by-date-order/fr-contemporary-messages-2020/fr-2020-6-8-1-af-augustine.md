@@ -1,7 +1,7 @@
 ---
 title: "L'expérience de la croissance de l'âme"
 menu_title: ""
-description: "L'expérience de la croissance de l'âme"
+description: "Augustin, reçu par Al Fike : « J’entends ta prière, fille bien-aimée, j’entends tes préoccupations et ton désir d’une plus grande vérité et d’une … »"
 date: 2022-06-01 06:00:01+00:1129
 draft: False
 hidden: True

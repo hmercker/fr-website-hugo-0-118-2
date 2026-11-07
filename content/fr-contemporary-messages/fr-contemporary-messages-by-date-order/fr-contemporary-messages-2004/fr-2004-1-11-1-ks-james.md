@@ -1,7 +1,7 @@
 ---
 title: "La plus grande proportion de l’Amour"
 menu_title: ""
-description: "La plus grande proportion de l’Amour"
+description: "Jacques, reçu par Kathryn Stokes : « Merci d’avoir répondu à notre désir de canaliser nos pensées par écrit en ce beau jour. Nous attendions que vous … »"
 date: 2022-06-01 06:00:01+00:09
 draft: False
 hidden: True

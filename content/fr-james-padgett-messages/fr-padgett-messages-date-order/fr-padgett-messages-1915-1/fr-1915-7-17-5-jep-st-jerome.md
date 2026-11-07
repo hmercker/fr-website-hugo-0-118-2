@@ -1,7 +1,7 @@
 ---
 title: "Confirmation par St Jérôme"
 menu_title: ""
-description: "Confirmation par St Jérôme"
+description: "St Jérôme, reçu par James Padgett : « Alors croyez et vous recevrez la plus grande de toutes les bénédictions, l’Amour Divin du Père. »"
 date: 2022-06-01 06:00:01+00:132
 draft: False
 hidden: True

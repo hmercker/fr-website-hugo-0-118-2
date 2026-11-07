@@ -1,7 +1,7 @@
 ---
 title: "L'Amour de Dieu est universel et inclut la Miséricorde, le Pardon et la Compassion"
 menu_title: ""
-description: "L'Amour de Dieu est universel et inclut la Miséricorde, le Pardon et la Compassion"
+description: "Jésus, reçu par Elizabeth Mack : « L’Amour de Dieu est universel. Il renferme de nombreux dons, dont la miséricorde et le pardon. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

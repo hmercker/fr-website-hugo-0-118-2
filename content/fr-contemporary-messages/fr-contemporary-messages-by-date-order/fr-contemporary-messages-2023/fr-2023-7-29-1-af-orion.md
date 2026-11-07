@@ -1,7 +1,7 @@
 ---
 title: "Les trois esprits et la voie vers l'éveil de l'âme"
 menu_title: ""
-description: "Les trois esprits et la voie vers l'éveil de l'âme"
+description: "Orion, reçu par Albert Fike : « Ce qui différencie nous qui vivons si loin de vous et vous-mêmes c’est votre conscience ou votre esprit qui sont délimités … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La loi du changement"
 menu_title: ""
-description: "La loi du changement"
+description: "Alec Gaunt, reçu par Al Fike : « Que l’Amour Divin trouve un profond afflux dans vos âmes, mes amis, et que vous puissiez continuer à vous réunir dans ces … »"
 date: 2022-06-01 06:00:01+00:198
 draft: False
 hidden: True

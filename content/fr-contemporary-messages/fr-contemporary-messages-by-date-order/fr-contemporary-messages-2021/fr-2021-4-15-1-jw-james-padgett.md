@@ -1,7 +1,7 @@
 ---
 title: "Explorez vos dons (2021 Groupe d’étude James Padgett)"
 menu_title: ""
-description: "Explorez vos dons (2021 Groupe d’étude James Padgett)"
+description: "James Padgett, reçu par Jimbeau Walsh : « Tout d’abord, permettez-moi d’exprimer ma profonde gratitude pour cette réunion, pour ainsi dire, en mon nom … »"
 date: 2022-06-01 06:00:01+00:1470
 draft: False
 hidden: True

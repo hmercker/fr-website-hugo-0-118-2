@@ -1,7 +1,7 @@
 ---
 title: "Une synchronicite de la vérité"
 menu_title: ""
-description: "Une synchronicite de la vérité"
+description: "Robert James Lee, reçu par Jimbeau Walsh : « Ainsi, chacun de nous, si béni d’avoir une communication spirituelle et pourtant si unique dans sa … »"
 date: 2022-06-01 06:00:01+00:219
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Cherchez toujours l’amour le plus élevé"
 menu_title: ""
-description: "Cherchez toujours l’amour le plus élevé"
+description: "Augustin, reçu par Al Fike : « Je souhaite vous rappeler et renforcer l’idée et l’effort de toujours prier pour l’Amour Divin. »"
 date: 2022-06-01 06:00:01+00:48
 draft: False
 hidden: True

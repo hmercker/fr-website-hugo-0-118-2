@@ -1,7 +1,7 @@
 ---
 title: "Chacun a une place dans le plan de Dieu"
 menu_title: ""
-description: "Chacun a une place dans le plan de Dieu"
+description: "André, reçu par Al Fike : « Âmes bien-aimées, vous faites toutes partie du plan de Dieu pour englober le monde dans la Lumière et ainsi, chacune de vous … »"
 date: 2022-06-01 06:00:01+00:993
 draft: False
 hidden: True

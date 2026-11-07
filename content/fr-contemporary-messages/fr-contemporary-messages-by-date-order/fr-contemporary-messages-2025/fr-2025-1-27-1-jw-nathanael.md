@@ -1,7 +1,7 @@
 ---
 title: "Les Royaumes Spirituels"
 menu_title: ""
-description: "Les Royaumes Spirituels"
+description: "Nathanaël, reçu par Jimbeau Walsh : « Dans la vie mortelle, le temps a une importance significative, la mesure du temps, des jours, des années et des délais. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

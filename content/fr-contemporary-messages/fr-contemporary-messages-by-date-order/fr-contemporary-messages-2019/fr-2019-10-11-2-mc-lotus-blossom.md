@@ -1,7 +1,7 @@
 ---
 title: "Permettez à l'Amour de Dieu de réveiller votre âme"
 menu_title: ""
-description: "Permettez à l'Amour de Dieu de réveiller votre âme"
+description: "Fleur de Lotus, reçu par Maureen Cardoso : « Je vous rejoins dans votre cercle où vous aspirez à attirer l’Amour de Dieu dans votre âme. »"
 date: 2022-06-01 06:00:01+00:876
 draft: False
 hidden: True

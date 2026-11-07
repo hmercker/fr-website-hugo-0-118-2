@@ -1,7 +1,7 @@
 ---
 title: "Jésus informe M. Padgett qu’il a reçu un grand influx de l’Amour Divin dans son âme"
 menu_title: ""
-description: "Jésus informe M. Padgett qu’il a reçu un grand influx de l’Amour Divin dans son âme"
+description: "Jésus, reçu par James Padgett : « Je sais que vous n’êtes pas très loin du Royaume et que bientôt cet Amour viendra à vous et fera de vous un enfant … »"
 date: 2022-06-01 06:00:01+00:95
 draft: False
 hidden: True

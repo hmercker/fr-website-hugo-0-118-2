@@ -1,7 +1,7 @@
 ---
 title: "Encourager la communion avec les autres"
 menu_title: ""
-description: "Encourager la communion avec les autres"
+description: "Yogananda, reçu par Jimbeau Walsh : « Je souhaite remercier mon frère Francis pour vous avoir transmis mes pensées hier, à toux ceux qui étaient ici. »"
 date: 2022-06-01 06:00:01+00:756
 draft: False
 hidden: True

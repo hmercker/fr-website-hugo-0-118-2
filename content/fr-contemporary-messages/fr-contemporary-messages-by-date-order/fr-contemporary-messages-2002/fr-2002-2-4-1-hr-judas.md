@@ -1,7 +1,7 @@
 ---
 title: "Le baptême de Jésus"
 menu_title: ""
-description: "Le baptême de Jésus"
+description: "Judas, reçu par H : « Mon cher frère, la dernière fois je t’ai raconté la conversation agréable, dans la nuit, de Jésus avec son ami Nathanaël, et … »"
 date: 2022-06-01 06:00:01+00:20
 draft: False
 hidden: True

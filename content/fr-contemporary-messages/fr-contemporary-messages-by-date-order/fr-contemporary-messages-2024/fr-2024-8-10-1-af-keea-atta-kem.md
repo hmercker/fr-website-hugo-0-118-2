@@ -1,7 +1,7 @@
 ---
 title: "Vous ne dormez pas ! Les âmes s'éveillent !"
 menu_title: ""
-description: "Vous ne dormez pas ! Les âmes s'éveillent !"
+description: "Keea Atta Kem, reçu par Albert Fike : « Bénédictions à vous, âmes bien-aimées. Vous recherchez tous vos âmes. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

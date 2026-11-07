@@ -1,7 +1,7 @@
 ---
 title: "Éveiller l’âme à l’Amour de Dieu"
 menu_title: ""
-description: "Éveiller l’âme à l’Amour de Dieu"
+description: "Barbara, reçu par Albert Fike : « Nous aimons tous Dieu, car Dieu est la Source de tout Amour. Lorsque nous ouvrons nos cœurs et nos âmes, nous demandons … »"
 date: 2026-09-30 06:00:01+00:01
 draft: False
 hidden: True

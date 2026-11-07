@@ -1,7 +1,7 @@
 ---
 title: "Jésus: Comment l’Amour Divin peut -être appelé et utilisé pour la guérison de nos corps physiques"
 menu_title: ""
-description: "Jésus: Comment l’Amour Divin peut -être appelé et utilisé pour la guérison de nos corps physiques"
+description: "Jésus, reçu par James Padgett : « Je n’écrirai pas de message officiel ce soir, mais je vous dirai simplement que j’étais avec vous, ce soir, chez M. »"
 date: 2022-06-01 06:00:01+00:224
 draft: False
 hidden: True

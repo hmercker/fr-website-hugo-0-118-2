@@ -1,7 +1,7 @@
 ---
 title: "Hélène écrit sur la loi de Compensation"
 menu_title: ""
-description: "Hélène écrit sur la loi de Compensation"
+description: "Hélène Padgett, reçu par James Padgett : « Tu ne pensais pas que je pouvais changer l’annonce de ma venue, mais tu dois savoir, mon cher Ned, que je peux … »"
 date: 2022-06-01 06:00:01+00:41
 draft: False
 hidden: True

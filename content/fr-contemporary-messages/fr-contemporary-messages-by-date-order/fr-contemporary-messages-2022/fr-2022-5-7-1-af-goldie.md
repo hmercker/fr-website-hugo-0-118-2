@@ -1,7 +1,7 @@
 ---
 title: "Nous demande de déposer des fleurs à l’autel de WHC"
 menu_title: ""
-description: "Nous demande de déposer des fleurs à l’autel de WHC"
+description: "Goldie, reçu par Al Fike : « Lorsque vous vous rendrez à cet endroit, je vous demande d’apporter quelques fleurs et de les déposer sur l’autel. »"
 date: 2022-06-01 06:00:01+00:76
 draft: False
 hidden: True

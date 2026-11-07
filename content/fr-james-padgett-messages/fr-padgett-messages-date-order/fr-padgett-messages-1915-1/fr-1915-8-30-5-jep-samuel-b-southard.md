@@ -1,7 +1,7 @@
 ---
 title: "Un esprit qui avait foi dans les crédos et à son éveil à la vérité après avoir rencontré Jésus"
 menu_title: ""
-description: "Un esprit qui avait foi dans les crédos et à son éveil à la vérité après avoir rencontré Jésus"
+description: "Samuel B Southard, reçu par James Padgett : « Je n’ai pas cru en cette vérité pendant longtemps après mon entrée dans le monde des esprits car mes … »"
 date: 2022-06-01 06:00:01+00:224
 draft: False
 hidden: True

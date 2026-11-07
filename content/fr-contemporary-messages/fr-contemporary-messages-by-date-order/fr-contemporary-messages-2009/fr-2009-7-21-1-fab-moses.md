@@ -1,7 +1,7 @@
 ---
 title: "Préparation de Moïse à l’approche Hébraïque de Dieu"
 menu_title: ""
-description: "Préparation de Moïse à l’approche Hébraïque de Dieu"
+description: "Moïse, reçu par FAB : « Dans des canalisations précédentes, j’ai parlé de la façon dont j’ai découvert comment les esclaves Hébreux pensaient à Dieu … »"
 date: 2022-06-01 06:00:01+00:67
 draft: False
 hidden: True

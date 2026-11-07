@@ -1,7 +1,7 @@
 ---
 title: "Le travail visant à apporter la vérité à l'humanité se poursuit"
 menu_title: ""
-description: "Le travail visant à apporter la vérité à l'humanité se poursuit"
+description: "Seretta Kem, reçu par Al Fike : « Que la Grâce de l'Amour du Père continue à bénir vos âmes en éveillant tous les beaux dons qui sont à l'intérieur, en … »"
 date: 2022-06-01 06:00:01+00:813
 draft: False
 hidden: True

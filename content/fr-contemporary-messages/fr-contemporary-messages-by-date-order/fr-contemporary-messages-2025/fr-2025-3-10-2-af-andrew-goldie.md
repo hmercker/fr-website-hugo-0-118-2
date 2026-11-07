@@ -1,7 +1,7 @@
 ---
 title: "Conseils pour la réunion du conseil d'administration de la DLSF"
 menu_title: ""
-description: "Conseils pour la réunion du conseil d'administration de la DLSF"
+description: "André et Goldie, reçu par Albert Fike : « Ces vérités doivent atteindre le monde. Vous êtes en effet des instruments et facilitez cette diffusion de la … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

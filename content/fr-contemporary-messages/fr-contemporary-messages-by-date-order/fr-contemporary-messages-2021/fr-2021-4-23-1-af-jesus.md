@@ -1,7 +1,7 @@
 ---
 title: "La puissance de l’Amour de Dieu"
 menu_title: ""
-description: "La puissance de l’Amour de Dieu"
+description: "Jésus, reçu par Al Fike : « Que Dieu apporte Ses bénédictions sur vous, âmes bien-aimées. Alors que vous continuez à prier ensemble, Dieu vous tisse … »"
 date: 2022-06-01 06:00:01+00:1480
 draft: False
 hidden: True

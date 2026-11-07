@@ -1,7 +1,7 @@
 ---
 title: "16ème Révélation. Lazare n’était pas mort, mais seulement inconscient"
 menu_title: ""
-description: "16ème Révélation. Lazare n’était pas mort, mais seulement inconscient"
+description: "Jesus, reçu par Dr Samuels : « En premier lieu, je tiens à expliquer, plus en détail, et avec des références textuelles, ma visite à la maison de Lazare … »"
 date: 2022-06-01 06:00:01+00:16
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Donnez de votre Essence"
 menu_title: ""
-description: "Donnez de votre Essence"
+description: "Jérémie et Salomon, reçu par CC : « Merci d’avoir pensé à nous. Mais, est-il possible que tu nous aies sentis et que tu aies ensuite pensé à nous ? »"
 date: 2022-06-01 06:00:01+00:03
 draft: False
 hidden: True

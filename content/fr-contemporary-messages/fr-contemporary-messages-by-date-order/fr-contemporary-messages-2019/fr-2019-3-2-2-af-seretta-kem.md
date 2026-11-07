@@ -1,7 +1,7 @@
 ---
 title: "Remplacer les ambitions de l'esprit par celles de l'âme"
 menu_title: ""
-description: "Remplacer les ambitions de l'esprit par celles de l'âme"
+description: "Seretta Kem, reçu par Al Fike : « Ah, voir ces jeunes âmes réunies en prière, comme ce spectacle est beau ! Vous continuez à atteindre, à chercher la vérité. »"
 date: 2022-06-01 06:00:01+00:664
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La vraie guidance apporte un signal expansif et joyeux dans l'âme"
 menu_title: ""
-description: "La vraie guidance apporte un signal expansif et joyeux dans l'âme"
+description: "André, reçu par Al Fike : « Vous êtes tous nécessaires dans le monde, âmes bien-aimées. Dieu a de nombreux plans et de nombreuses opportunités pour que … »"
 date: 2022-06-01 06:00:01+00:985
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Progression vers le sommet de la colline"
 menu_title: ""
-description: "Progression vers le sommet de la colline"
+description: "Thomas d'Aquin, reçu par Al Fike : « Pensez à nous comme à l'ascension d'un monticule, d'une petite colline. Alors que vous approchez de la crête de cette … »"
 date: 2022-06-01 06:00:01+00:239
 draft: False
 hidden: True

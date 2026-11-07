@@ -1,7 +1,7 @@
 ---
 title: "Libérer les derniers vestiges sombres dans l'âme"
 menu_title: ""
-description: "Libérer les derniers vestiges sombres dans l'âme"
+description: "St Matthieu, reçu par Al Fike : « Et parce que vous ne souffrez pas beaucoup, vous n’êtes pas très motivés pour libérer ces conditions qui ne sont pas en … »"
 date: 2022-06-01 06:00:01+00:623
 draft: False
 hidden: True

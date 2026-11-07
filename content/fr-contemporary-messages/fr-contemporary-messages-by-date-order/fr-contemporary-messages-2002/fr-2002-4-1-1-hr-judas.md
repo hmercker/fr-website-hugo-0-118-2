@@ -1,7 +1,7 @@
 ---
 title: "Simon le Zélote"
 menu_title: ""
-description: "Simon le Zélote"
+description: "Judas, reçu par H : « Je sais que tu espérais un message sur la guérison d’un lépreux, mais j’ai un autre sujet à l’esprit. »"
 date: 2022-06-01 06:00:01+00:48
 draft: False
 hidden: True

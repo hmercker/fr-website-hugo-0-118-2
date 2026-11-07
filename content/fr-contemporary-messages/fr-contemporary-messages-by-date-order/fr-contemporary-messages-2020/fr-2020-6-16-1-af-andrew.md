@@ -1,7 +1,7 @@
 ---
 title: "S'ouvrir à la coopération avec les autres"
 menu_title: ""
-description: "S'ouvrir à la coopération avec les autres"
+description: "André, reçu par Al Fike : « Cela ne ressemble-t-il pas au rythme des vagues ? Parfois, une impulsion d’intention et de bénédictions se construit en vous … »"
 date: 2022-06-01 06:00:01+00:1141
 draft: False
 hidden: True

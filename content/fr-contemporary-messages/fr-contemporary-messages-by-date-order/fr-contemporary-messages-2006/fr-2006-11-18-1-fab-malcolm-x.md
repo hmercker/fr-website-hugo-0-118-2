@@ -1,7 +1,7 @@
 ---
 title: "Les regrets de Malcolm X"
 menu_title: ""
-description: "Les regrets de Malcolm X"
+description: "Malcolm X, reçu par FAB : « Je savais que j'étais mort parce que j'avais récolté ce que j'avais semé. Oh, comme je regrettais ma haine ! »"
 date: 2022-06-01 06:00:01+00:67
 draft: False
 hidden: True

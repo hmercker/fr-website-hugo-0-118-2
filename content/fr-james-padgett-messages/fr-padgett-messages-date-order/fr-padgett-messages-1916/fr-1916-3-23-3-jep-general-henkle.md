@@ -1,7 +1,7 @@
 ---
 title: "Saul S. Henkle : un ami de M. Padgett commente également l’amour entre âmes sœurs"
 menu_title: ""
-description: "Saul S. Henkle : un ami de M. Padgett commente également l’amour entre âmes sœurs"
+description: "Le Général Henkle, reçu par James Padgett : « Laissez-moi vous dire un mot, car pendant que vous avez tous vos pensées d’amour qui passent, j’aimerais … »"
 date: 2022-06-01 06:00:01+00:189
 draft: False
 hidden: True

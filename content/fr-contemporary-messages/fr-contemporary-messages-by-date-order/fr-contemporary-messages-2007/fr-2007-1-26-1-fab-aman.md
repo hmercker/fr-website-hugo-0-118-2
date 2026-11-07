@@ -1,7 +1,7 @@
 ---
 title: "Le langage de la première famille"
 menu_title: ""
-description: "Le langage de la première famille"
+description: "Aman, reçu par FAB : « Vous vous interrogez sur la sorte de langue que ma famille et moi utilisions. Eh bien, évidemment, elle n'a aucun rapport avec une … »"
 date: 2022-06-01 06:00:01+00:109
 draft: False
 hidden: True

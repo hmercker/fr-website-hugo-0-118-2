@@ -1,7 +1,7 @@
 ---
 title: "Hélène écrit un message"
 menu_title: ""
-description: "Hélène écrit un message"
+description: "Hélène Padgett, reçu par James Padgett : « En fait, Jacques lui a écrit et il était très intéressé à le faire, car il pense beaucoup au Docteur et essaie … »"
 date: 2022-06-01 06:00:01+00:128
 draft: False
 hidden: True

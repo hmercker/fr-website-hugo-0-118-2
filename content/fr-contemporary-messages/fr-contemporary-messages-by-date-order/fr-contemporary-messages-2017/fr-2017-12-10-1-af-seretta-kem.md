@@ -1,7 +1,7 @@
 ---
 title: "Atteindre l'harmonie est une question de concentration"
 menu_title: ""
-description: "Atteindre l'harmonie est une question de concentration"
+description: "Seretta Kem, reçu par Al Fike : « Et donc nous avons encore une semaine ensemble dans cet effort puissant pour faire avancer le don de la voix directe … »"
 date: 2022-06-01 06:00:01+00:264
 draft: False
 hidden: True

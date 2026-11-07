@@ -1,7 +1,7 @@
 ---
 title: "Servir et donner est réciproque"
 menu_title: ""
-description: "Servir et donner est réciproque"
+description: "Martin Luther, reçu par Al Fike : « Je vous ai toutes accompagnées lors de vos voyages dans ce lieu d’une telle beauté et pourtant, d’une telle privation . »"
 date: 2022-06-01 06:00:01+00:833
 draft: False
 hidden: True

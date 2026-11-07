@@ -1,7 +1,7 @@
 ---
 title: "La loi des harmonies Sympathiques"
 menu_title: ""
-description: "La loi des harmonies Sympathiques"
+description: "Anonyme, reçu par PJR : « La meilleure façon de commencer est de commencer. Je m’en occupe à partir de là. »"
 date: 2022-06-01 06:00:01+00:78
 draft: False
 hidden: True

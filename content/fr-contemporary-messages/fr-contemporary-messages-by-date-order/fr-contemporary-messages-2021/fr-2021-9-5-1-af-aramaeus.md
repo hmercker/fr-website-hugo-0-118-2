@@ -1,7 +1,7 @@
 ---
 title: "L’Amour Divin ne contourne pas vos leçons (Retraite Voix Directe 2021)"
 menu_title: ""
-description: "L’Amour Divin ne contourne pas vos leçons (Retraite Voix Directe 2021)"
+description: "Aramée, reçu par Al Fike : « Je m’appelle Aramée et j’ai vécu il y a de très nombreuses années sur les rives de la Méditerranée. »"
 date: 2022-06-01 06:00:01+00:1621
 draft: False
 hidden: True

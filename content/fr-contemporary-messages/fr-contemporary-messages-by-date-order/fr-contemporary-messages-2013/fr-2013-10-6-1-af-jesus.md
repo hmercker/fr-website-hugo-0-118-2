@@ -1,7 +1,7 @@
 ---
 title: "La vérité est sans paroles ; c’est une connaissance intérieure"
 menu_title: ""
-description: "La vérité est sans paroles ; c’est une connaissance intérieure"
+description: "Jésus, reçu par Albert Fike : « « Mon Père Céleste, je Te demande de déverser Ton Amour sur ces âmes chères et douces, mes frères et sœurs qui cheminent … »"
 date: 2026-10-21 06:00:01+00:09
 draft: False
 hidden: True

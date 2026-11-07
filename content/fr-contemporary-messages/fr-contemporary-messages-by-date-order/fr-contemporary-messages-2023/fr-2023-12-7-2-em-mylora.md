@@ -1,7 +1,7 @@
 ---
 title: "Partenaires de Guérison"
 menu_title: ""
-description: "Partenaires de Guérison"
+description: "Mylora, reçu par Elizabeth Mack : « C’est une bénédiction qu’Il offre à Ses véritables enfants sur cette Terre, un répit face à la cruauté que l’humanité … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

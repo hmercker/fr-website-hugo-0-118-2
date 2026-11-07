@@ -1,7 +1,7 @@
 ---
 title: "Attributs de l'Amour Divin"
 menu_title: ""
-description: "Attributs de l'Amour Divin"
+description: "André, reçu par Elizabeth Mack : « Que l'Amour de Dieu pénètre vos âmes et vous comble de tout ce qu'il implique. Je vous parle des Cieux où l'Amour abonde. »"
 date: 2026-01-31 16:00:01+00:01
 draft: False
 hidden: True

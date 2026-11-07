@@ -1,7 +1,7 @@
 ---
 title: "Désirer en vous de servir Dieu"
 menu_title: ""
-description: "Désirer en vous de servir Dieu"
+description: "Samuel : « C'est pour vous que je viens, car c'est mon désir de vous aider et de vous enseigner. Je vous ai déjà parlé auparavant. »"
 date: 2022-06-01 06:00:01+00:70
 draft: False
 hidden: True

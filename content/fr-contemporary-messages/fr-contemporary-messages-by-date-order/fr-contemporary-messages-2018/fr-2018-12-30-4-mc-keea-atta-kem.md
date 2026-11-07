@@ -1,7 +1,7 @@
 ---
 title: "Le Réseau de Lumière : Un Soutien Magnifique pour la Croissance Spirituelle"
 menu_title: ""
-description: "Le Réseau de Lumière : Un Soutien Magnifique pour la Croissance Spirituelle"
+description: "Keea Atta Kem, reçu par Al Fike : « Âmes bien-aimées, c'est Keea. Si vous pouviez voir de notre point de vue ce que vous générez en ce moment, vous seriez … »"
 date: 2026-05-21 06:25:48+00:80
 draft: False
 hidden: True

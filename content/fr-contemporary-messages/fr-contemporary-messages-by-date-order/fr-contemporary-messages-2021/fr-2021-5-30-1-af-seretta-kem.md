@@ -1,7 +1,7 @@
 ---
 title: "Satisfait des nouveaux développements de la Voix Directe"
 menu_title: ""
-description: "Satisfait des nouveaux développements de la Voix Directe"
+description: "Seretta Kem, reçu par Al Fike : « Vous vous lancez donc dans une nouvelle étape de cette grande aventure dans laquelle vous vous êtes engagés à servir, et … »"
 date: 2022-06-01 06:00:01+00:1522
 draft: False
 hidden: True

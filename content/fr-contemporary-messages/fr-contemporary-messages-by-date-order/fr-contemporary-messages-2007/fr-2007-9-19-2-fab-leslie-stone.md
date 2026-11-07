@@ -1,7 +1,7 @@
 ---
 title: "La mission de Leslie Stone"
 menu_title: ""
-description: "La mission de Leslie Stone"
+description: "Leslie Stone, reçu par FAB : « Padgett est mort en 1923, j'étais déjà préparé pour ma mission. J'y pensais continuellement depuis que j'avais souscrit aux … »"
 date: 2022-06-01 06:00:01+00:161
 draft: False
 hidden: True

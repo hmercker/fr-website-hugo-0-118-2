@@ -1,7 +1,7 @@
 ---
 title: "Ta résistance te fait souffrir"
 menu_title: ""
-description: "Ta résistance te fait souffrir"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Cher enfant, tu me demandes un conseil et je vais te le donner en ce moment. Tu devrais aller parler à J. »"
 date: 2022-06-01 06:00:01+00:277
 draft: False
 hidden: True

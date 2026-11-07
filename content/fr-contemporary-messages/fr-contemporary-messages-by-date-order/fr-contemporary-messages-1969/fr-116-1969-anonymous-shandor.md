@@ -1,7 +1,7 @@
 ---
 title: "Le secret de la vie sur terre"
 menu_title: ""
-description: "Le secret de la vie sur terre"
+description: "Shandor : « Les conditions sont tout simplement parfaites pour que nous venions à vous. Beaucoup de ceux qui travaillent pour Dieu sont avec moi … »"
 date: 2022-06-01 06:00:01+00:82
 draft: False
 hidden: True

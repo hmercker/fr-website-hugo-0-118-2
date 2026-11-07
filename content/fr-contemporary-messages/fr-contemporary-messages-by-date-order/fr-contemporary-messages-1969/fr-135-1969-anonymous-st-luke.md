@@ -1,7 +1,7 @@
 ---
 title: "Un seul chemin vers la santé"
 menu_title: ""
-description: "Un seul chemin vers la santé"
+description: "St Luc : « Mes amis, entendre votre prière de guérison m'a donné un grand espoir, m'a fait réaliser que vous vous rendez compte de la force et du pouvoir … »"
 date: 2022-06-01 06:00:01+00:101
 draft: False
 hidden: True

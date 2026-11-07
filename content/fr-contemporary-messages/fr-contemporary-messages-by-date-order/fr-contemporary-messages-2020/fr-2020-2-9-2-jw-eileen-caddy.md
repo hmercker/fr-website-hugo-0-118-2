@@ -1,7 +1,7 @@
 ---
 title: "Le pont reliant la Terre et le Ciel"
 menu_title: ""
-description: "Le pont reliant la Terre et le Ciel"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « Il existe un pont qui relie les réalités du plan terrestre aux réalités du monde Céleste et de l’esprit. »"
 date: 2022-06-01 06:00:01+00:994
 draft: False
 hidden: True

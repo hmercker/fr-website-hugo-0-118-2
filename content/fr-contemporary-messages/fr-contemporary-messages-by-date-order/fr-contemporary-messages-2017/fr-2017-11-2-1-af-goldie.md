@@ -1,7 +1,7 @@
 ---
 title: "Se tenir dans le courant"
 menu_title: ""
-description: "Se tenir dans le courant"
+description: "Goldie, reçu par Al Fike : « Cette petite fille ne mettra pas son doigt dans la digue. Au lieu de cela, je vous aiderai à faire plus de fissures et de … »"
 date: 2022-06-01 06:00:01+00:172
 draft: False
 hidden: True

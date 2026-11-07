@@ -1,7 +1,7 @@
 ---
 title: "Stephen B. Elkins est dans un état d’obscurité et de souffrance, demande de l’aide à M. Padget"
 menu_title: ""
-description: "Stephen B. Elkins est dans un état d’obscurité et de souffrance, demande de l’aide à M. Padget"
+description: "Stephen Elkins, reçu par James Padgett : « Vous me connaissiez sur terre et vous savez que je n’étais pas un homme très spirituel, et que je dois … »"
 date: 2022-06-01 06:00:01+00:97
 draft: False
 hidden: True

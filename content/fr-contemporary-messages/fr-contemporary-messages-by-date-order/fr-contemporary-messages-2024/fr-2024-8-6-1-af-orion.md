@@ -1,7 +1,7 @@
 ---
 title: "Nos amis stellaires nous fourniront tout ce dont nous avons besoin au bon moment"
 menu_title: ""
-description: "Nos amis stellaires nous fourniront tout ce dont nous avons besoin au bon moment"
+description: "Orion, reçu par Albert Fike : « Comme vous le savez, c’est la clé de tout ce dont nous parlons et de tout ce que nous entendons réaliser dans notre … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

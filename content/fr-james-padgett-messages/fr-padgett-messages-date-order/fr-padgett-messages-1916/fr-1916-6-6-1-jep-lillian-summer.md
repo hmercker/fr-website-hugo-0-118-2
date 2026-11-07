@@ -1,7 +1,7 @@
 ---
 title: "Un esprit en solitude écrit que ses croyances alors qu’elle était sur terre"
 menu_title: ""
-description: "Un esprit en solitude écrit que ses croyances alors qu’elle était sur terre"
+description: "Lillian Summer, reçu par James Padgett : « J’étais une femme qui ne pensait jamais aux réalités spirituelles ou à la vie future, mais qui ne vivait que … »"
 date: 2022-06-01 06:00:01+00:240
 draft: False
 hidden: True

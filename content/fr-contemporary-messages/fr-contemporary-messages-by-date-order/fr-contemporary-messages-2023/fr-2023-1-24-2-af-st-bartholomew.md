@@ -1,7 +1,7 @@
 ---
 title: "Commentaire sur la médiumnité"
 menu_title: ""
-description: "Commentaire sur la médiumnité"
+description: "Bartholomée, reçu par Al Fike : « Vous feriez bien d’écouter les conseils de notre ami qui est venu vous parler. Car il est important pour chacun d’entre … »"
 date: 2023-09-01 06:00:01+00:71
 draft: False
 hidden: True

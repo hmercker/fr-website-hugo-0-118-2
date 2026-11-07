@@ -1,7 +1,7 @@
 ---
 title: "Accueil de la première prière en personne à la Barbade"
 menu_title: ""
-description: "Accueil de la première prière en personne à la Barbade"
+description: "Jacques, reçu par Albert Fike : « La puissance de la main de Dieu sur chacun de vous sera vraiment puissante. Alors que vous recherchez la vérité, alors … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

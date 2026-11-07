@@ -1,7 +1,7 @@
 ---
 title: "Ce n’est pas le sang de Jésus mais l’Amour Divin qui sauve et libère. Les révélations de la Bible ne sont pas vraies dans de nombreux détails"
 menu_title: ""
-description: "Ce n’est pas le sang de Jésus mais l’Amour Divin qui sauve et libère. Les révélations de la Bible ne sont pas vraies dans de nombreux détails"
+description: "St Jean, reçu par James Padgett : « Je vous ai vu étudier la Bible ou plutôt les parties du Livre qui traitaient du salut de l’humanité par le sang de … »"
 date: 2022-06-01 06:00:01+00:236
 draft: False
 hidden: True

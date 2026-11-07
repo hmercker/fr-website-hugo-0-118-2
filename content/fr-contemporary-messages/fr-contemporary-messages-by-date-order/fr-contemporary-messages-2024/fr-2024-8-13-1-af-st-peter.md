@@ -1,7 +1,7 @@
 ---
 title: "Message de clôture de la Croisière 2024 de l’Amour"
 menu_title: ""
-description: "Message de clôture de la Croisière 2024 de l’Amour"
+description: "Pierre, reçu par Albert Fike : « En effet, vous continuez à grandir dans l’Amour du Père, ce voyage sans fin, ce passage vers l’unification avec Dieu. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

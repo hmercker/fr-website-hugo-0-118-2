@@ -1,7 +1,7 @@
 ---
 title: "Franchir une nouvelle étape (Retraite Voix Directe 2021)"
 menu_title: ""
-description: "Franchir une nouvelle étape (Retraite Voix Directe 2021)"
+description: "Seretta Kem, reçu par Al Fike : « Demain, dans la chambre noire, vous vivrez quelque chose de différent de ce qui s’est passé au cours des dernières semaines. »"
 date: 2022-06-01 06:00:01+00:1659
 draft: False
 hidden: True

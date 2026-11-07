@@ -1,7 +1,7 @@
 ---
 title: "Beaucoup travaillent ensemble pour la Voix Directe"
 menu_title: ""
-description: "Beaucoup travaillent ensemble pour la Voix Directe"
+description: "Reine Victoria, reçu par Al Fike : « J'espère me présenter devant de nombreuses personnes dans le monde qui me connaissent et moi aussi, je dirai la … »"
 date: 2022-06-01 06:00:01+00:176
 draft: False
 hidden: True

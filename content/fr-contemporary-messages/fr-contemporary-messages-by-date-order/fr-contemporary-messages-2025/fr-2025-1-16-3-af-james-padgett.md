@@ -1,7 +1,7 @@
 ---
 title: "Vient remettre en question notre façon de penser sur la manière d'apporter des vérités divines au monde"
 menu_title: "Vient remettre en question notre façon de penser sur la manière d'apporter des vérités divines au monde"
-description: ""
+description: "James Padgett, reçu par Albert Fike : « e suis heureux d’entendre ma grand-mère parler de vérité, car elle est éloquente, n’est-ce pas ? »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Se mettre en condition"
 menu_title: ""
-description: "Se mettre en condition"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Je le dis souvent car tu as besoin de l’entendre tous les jours et plusieurs fois dans la journée. »"
 date: 2022-06-01 06:00:01+00:236
 draft: False
 hidden: True

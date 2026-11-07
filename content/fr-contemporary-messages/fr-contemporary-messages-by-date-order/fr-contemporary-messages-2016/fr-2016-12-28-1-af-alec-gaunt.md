@@ -1,7 +1,7 @@
 ---
 title: "Cherchez la vérité dans votre propre âme"
 menu_title: ""
-description: "Cherchez la vérité dans votre propre âme"
+description: "Alec Gaunt, reçu par Al Fike : « Beaucoup d’entre vous ont été si fidèles au fil des ans en se réunissant constamment avec les plus hautes intentions, en … »"
 date: 2022-06-01 06:00:01+00:302
 draft: False
 hidden: True

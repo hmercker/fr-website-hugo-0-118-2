@@ -1,7 +1,7 @@
 ---
 title: "La vie intérieure de Moïse en tant que mortel"
 menu_title: ""
-description: "La vie intérieure de Moïse en tant que mortel"
+description: "Moïse, reçu par FAB : « J’étais un penseur – pas un suiveur , mais un penseur. Ce trait s’est épanoui lorsque j’ai quitté l’Égypte dans la tourmente. »"
 date: 2022-06-01 06:00:01+00:62
 draft: False
 hidden: True

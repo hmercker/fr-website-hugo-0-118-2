@@ -1,7 +1,7 @@
 ---
 title: "Il y a désormais plus d'amour dans le monde"
 menu_title: ""
-description: "Il y a désormais plus d'amour dans le monde"
+description: "Marie, reçu par Elizabeth Mack : « Son amour se déverse sur vous en ce moment. Ouvrez-vous largement, car son amour pour vous est grand. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

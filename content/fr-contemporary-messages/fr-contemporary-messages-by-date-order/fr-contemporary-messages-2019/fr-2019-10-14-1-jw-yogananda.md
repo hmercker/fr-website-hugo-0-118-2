@@ -1,7 +1,7 @@
 ---
 title: "Le vrai sens de l'Amour Divin"
 menu_title: ""
-description: "Le vrai sens de l'Amour Divin"
+description: "Yogananda, reçu par Jimbeau Walsh : « Je vous dis, cet Amour Divin – et quand je parle d’Amour Divin, je veux dire l’Amour de Dieu et rien de moins  … »"
 date: 2022-06-01 06:00:01+00:877
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Ronald Reagan a besoin d'aide"
 menu_title: ""
-description: "Ronald Reagan a besoin d'aide"
+description: "Ronald Reagan, reçu par FAB : « Vous vous demandez quel a été mon parcours ? Eh bien, le premier effet fut un soulagement béni de l'obscurité et de la … »"
 date: 2022-06-01 06:00:01+00:83
 draft: False
 hidden: True

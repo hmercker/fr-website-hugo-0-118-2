@@ -1,7 +1,7 @@
 ---
 title: "Le choix judicieux"
 menu_title: ""
-description: "Le choix judicieux"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Mon cher frère, mon bien-aimé François, à un moment donné de son voyage sur terre, a fait un choix. »"
 date: 2022-06-01 06:00:01+00:1512
 draft: False
 hidden: True

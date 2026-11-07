@@ -1,7 +1,7 @@
 ---
 title: "Levez les yeux vers Dieu"
 menu_title: ""
-description: "Levez les yeux vers Dieu"
+description: "Augustin, reçu par Al Fike : « Cet instrument pose une question et sa question est : « Comment serai-je assez fort pour faire ces choses que Tu me … »"
 date: 2022-06-01 06:00:01+00:189
 draft: False
 hidden: True

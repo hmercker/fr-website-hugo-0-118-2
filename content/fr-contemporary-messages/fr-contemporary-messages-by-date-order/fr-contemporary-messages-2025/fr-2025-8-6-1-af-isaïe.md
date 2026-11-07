@@ -1,7 +1,7 @@
 ---
 title: "Éveil des facultés de l'âme"
 menu_title: ""
-description: "Éveil des facultés de l'âme"
+description: "Isaïe, reçu par Albert Fike : « Votre expérience avec votre Créateur vous est propre. C'est une bénédiction et un don qui vous est offert exclusivement … »"
 date: 2025-11-21 06:00:01+00:01
 draft: False
 hidden: True

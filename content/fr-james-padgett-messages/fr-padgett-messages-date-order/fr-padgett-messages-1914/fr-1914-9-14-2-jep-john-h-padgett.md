@@ -1,7 +1,7 @@
 ---
 title: "Le père de M. Padgett lui assure que c’est Jésus qui a écrit Samedi"
 menu_title: ""
-description: "Le père de M. Padgett lui assure que c’est Jésus qui a écrit Samedi"
+description: "John H Padgett, reçu par James Padgett : « Tu commences à voir les vrais enseignements de la Bible. Que tes enseignements soient en Christ alors qu’il est … »"
 date: 2022-06-01 06:00:01+00:08
 draft: False
 hidden: True

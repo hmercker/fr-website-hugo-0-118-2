@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes là où se trouve votre âme"
 menu_title: ""
-description: "Vous êtes là où se trouve votre âme"
+description: "Judas, reçu par Jmbeau Walsh : « J’ai suivi cette journée avec beaucoup d’intérêt, non seulement pour l’encouragement à rester tranquille, mais aussi pour … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

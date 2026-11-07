@@ -1,7 +1,7 @@
 ---
 title: "Anne Rollins décrit sa maison dans la Deuxième Sphère Céleste"
 menu_title: ""
-description: "Anne Rollins décrit sa maison dans la Deuxième Sphère Céleste"
+description: "Anne Rollins, reçu par James Padgett : « Tu dois donc essayer de garder ton esprit et tes pensées libres jusqu’à ce que tu n’aies plus aucune raison de … »"
 date: 2022-06-01 06:00:01+00:121
 draft: False
 hidden: True

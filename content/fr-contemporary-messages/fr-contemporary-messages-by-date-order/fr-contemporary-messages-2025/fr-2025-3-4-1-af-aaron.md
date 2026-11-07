@@ -1,7 +1,7 @@
 ---
 title: "Soyez clairs dans vos désirs"
 menu_title: ""
-description: "Soyez clairs dans vos désirs"
+description: "Aaron, reçu par Albert Fike : « Quoi qu’il advienne de votre monde, vous êtes de cette lumière, de cette force et de cette bénédiction transformatrice qui … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

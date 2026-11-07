@@ -1,7 +1,7 @@
 ---
 title: "La joie dans le monde"
 menu_title: ""
-description: "La joie dans le monde"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « C’est la saison pour être joyeux. Gloire à Dieu en haut lieu ! »"
 date: 2022-06-01 06:00:01+00:1737
 draft: False
 hidden: True

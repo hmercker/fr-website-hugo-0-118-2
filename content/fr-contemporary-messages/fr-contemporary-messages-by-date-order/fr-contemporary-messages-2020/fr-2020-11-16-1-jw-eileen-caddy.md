@@ -1,7 +1,7 @@
 ---
 title: "La transformation par l’Amour de Dieu"
 menu_title: ""
-description: "La transformation par l’Amour de Dieu"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « Pour ceux qui ne me connaissent pas, je vais me présenter. J’ai été la fondatrice spirituelle de la FINDHORN … »"
 date: 2022-06-01 06:00:01+00:1316
 draft: False
 hidden: True

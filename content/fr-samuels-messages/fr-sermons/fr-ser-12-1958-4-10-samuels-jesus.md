@@ -1,7 +1,7 @@
 ---
 title: "12ème Sermon – La confiance de Ruth dans l’Amour du Père"
 menu_title: ""
-description: "12ème Sermon – La confiance de Ruth dans l’Amour du Père"
+description: "Jésus, reçu par Dr Samuels : « Dans ce sermon, je vais continuer à vous montrer comment l’Ancien Testament des Hébreux a développé des histoires dans … »"
 date: 2022-06-01 06:00:01+00:65
 draft: False
 hidden: True

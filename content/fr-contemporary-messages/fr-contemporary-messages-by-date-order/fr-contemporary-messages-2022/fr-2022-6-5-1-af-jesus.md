@@ -1,7 +1,7 @@
 ---
 title: "Prier pour un déversement pentecôtiste de l’Amour Divin de Dieu"
 menu_title: ""
-description: "Prier pour un déversement pentecôtiste de l’Amour Divin de Dieu"
+description: "Jésus, reçu par Al Fike : « Que la paix qui dépasse toute compréhension soit avec vous, âmes bien-aimées. Chacun d’entre vous est un point de lumière sur … »"
 date: 2022-06-01 06:00:01+00:103
 draft: False
 hidden: True

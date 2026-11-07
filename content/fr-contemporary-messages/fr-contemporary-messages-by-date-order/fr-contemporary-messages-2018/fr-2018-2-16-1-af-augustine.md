@@ -1,7 +1,7 @@
 ---
 title: "La voix de l'âme vous guidera pour mettre en œuvre la Volonté de Dieu"
 menu_title: ""
-description: "La voix de l'âme vous guidera pour mettre en œuvre la Volonté de Dieu"
+description: "Augustin, reçu par Al Fike : « Les pièges de ces choses sont tout autour de vous et apportent un message qui n’est pas votre message mais un message de … »"
 date: 2022-06-01 06:00:01+00:316
 draft: False
 hidden: True

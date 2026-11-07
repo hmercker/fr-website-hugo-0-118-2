@@ -1,7 +1,7 @@
 ---
 title: "4ème Sermon – Le véritable accomplissement de la Loi – l’Amour du Père"
 menu_title: ""
-description: "4ème Sermon – Le véritable accomplissement de la Loi – l’Amour du Père"
+description: "Jésus, reçu par Dr Samuels : « Je fus heureux de pouvoir écrire pour vous montrer que les églises Chrétiennes, comme elles sont constituées à présent … »"
 date: 2022-06-01 06:00:01+00:57
 draft: False
 hidden: True

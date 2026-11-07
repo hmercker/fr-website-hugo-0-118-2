@@ -1,7 +1,7 @@
 ---
 title: "Le témoignage de Mme Eddy Bakker"
 menu_title: ""
-description: "Le témoignage de Mme Eddy Bakker"
+description: "Mme Eddy Baker, reçu par James Padgett : « Permettez-moi d’écrire quelques lignes, car j’ai hâte de déclarer certains faits que, durant ma vie sur terre … »"
 date: 2022-06-01 06:00:01+00:19
 draft: False
 hidden: True

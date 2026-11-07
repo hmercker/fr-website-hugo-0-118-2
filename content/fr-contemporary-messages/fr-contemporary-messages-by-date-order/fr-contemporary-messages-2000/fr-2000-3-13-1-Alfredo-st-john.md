@@ -1,7 +1,7 @@
 ---
 title: "Communication personnelle"
 menu_title: ""
-description: "Communication personnelle"
+description: "St Jean, reçu par Alfredo : « Telle a toujours été Son intention. Nous l’acceptons avec plaisir, et parce que nous faisons fidèlement Sa volonté, non par … »"
 date: 2022-06-01 06:00:01+00:06
 draft: False
 hidden: True

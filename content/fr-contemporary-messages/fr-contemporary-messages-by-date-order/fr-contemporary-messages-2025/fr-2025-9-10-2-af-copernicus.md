@@ -1,7 +1,7 @@
 ---
 title: "La vérité de l'esprit ne vous mènera que jusqu'à un certain point"
 menu_title: ""
-description: "La vérité de l'esprit ne vous mènera que jusqu'à un certain point"
+description: "Copernic, reçu par Al Fike : « Que la bénédiction soit sur vous, mes amis. Je le suis depuis un certain temps. »"
 date: 2025-11-10 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L’Essence de Dieu (Amour Divin) dans l’âme de chacun est le fondement du Royaume de Dieu sur terre"
 menu_title: ""
-description: "L’Essence de Dieu (Amour Divin) dans l’âme de chacun est le fondement du Royaume de Dieu sur terre"
+description: "Luc, reçu par Jimbeau Walsh : « Et pourtant, bien que votre esprit, votre esprit rationnel, puisse percevoir les vérités données non seulement à James … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

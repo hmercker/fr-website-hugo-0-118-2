@@ -1,7 +1,7 @@
 ---
 title: "Vous devez vous concentrer sur la Prière"
 menu_title: ""
-description: "Vous devez vous concentrer sur la Prière"
+description: "Seretta Kem, reçu par Al Fike : « C’est ce qu’il faut, mes amis, pour que ces grands efforts portent leurs fruits. Marcher à la lumière des bénédictions … »"
 date: 2022-06-01 06:00:01+00:979
 draft: False
 hidden: True

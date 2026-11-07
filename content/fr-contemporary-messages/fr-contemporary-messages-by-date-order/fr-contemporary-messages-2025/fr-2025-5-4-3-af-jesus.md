@@ -1,7 +1,7 @@
 ---
 title: "Ouverture de la Croisière des Célébrités"
 menu_title: ""
-description: "Ouverture de la Croisière des Célébrités"
+description: "Jésus, reçu par Albert Fike : « Que l’Amour du Père soit sur vous, belles âmes, enfants de Dieu. Ouvrez grand vos âmes à l’afflux de Son Amour. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

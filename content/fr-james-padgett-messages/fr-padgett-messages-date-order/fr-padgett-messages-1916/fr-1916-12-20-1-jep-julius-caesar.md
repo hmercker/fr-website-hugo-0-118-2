@@ -1,7 +1,7 @@
 ---
 title: "César est remerciant envers M. Padgett pour sa prière et son introduction auprès de sa grand-mère et sa progression vers la lumière"
 menu_title: ""
-description: "César est remerciant envers M. Padgett pour sa prière et son introduction auprès de sa grand-mère et sa progression vers la lumière"
+description: "Jules César, reçu par James Padgett : « Je tiens à vous dire que j’ai suivi votre conseil, j’ai suivi votre grand-mère qui m’a ouvert à tout un monde … »"
 date: 2022-06-01 06:00:01+00:21
 draft: False
 hidden: True

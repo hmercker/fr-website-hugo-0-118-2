@@ -1,7 +1,7 @@
 ---
 title: "Gagner de l'argent"
 menu_title: ""
-description: "Gagner de l'argent"
+description: "Jésus, reçu par FAB : « Permettez-moi de faire d'autres commentaires sur le sujet de l'argent, car vous avez besoin de plus de précisions. »"
 date: 2022-06-01 06:00:01+00:56
 draft: False
 hidden: True

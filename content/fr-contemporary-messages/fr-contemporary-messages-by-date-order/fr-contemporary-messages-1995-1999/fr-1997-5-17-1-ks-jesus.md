@@ -1,7 +1,7 @@
 ---
 title: "Avancer dans ce monde et dans l'autre"
 menu_title: ""
-description: "Avancer dans ce monde et dans l'autre"
+description: "Jésus, reçu par Kathryn Stokes : « Une âme en quête, cherche à être réconfortée et rassurée sur le bien-être de sa mère depuis qu'elle est devenue un … »"
 date: 2022-06-01 06:00:01+00:09
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Théodore Roosevelt, la guerre et l'empire"
 menu_title: ""
-description: "Théodore Roosevelt, la guerre et l'empire"
+description: "Théodore Roosevelt, reçu par FAB : « Je n'ai pas été en paix lorsque j'ai vu le pouvoir des sociétés et des banques s'accroître. »"
 date: 2022-06-01 06:00:01+00:111
 draft: False
 hidden: True

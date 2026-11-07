@@ -1,7 +1,7 @@
 ---
 title: "Les esprits des anciens dirigeants, présidents, rois, reines lorsqu’ils étaient sur la terre, leur vraie condition est manifeste dans le monde des esprits et certains sont dans l’obscurité"
 menu_title: ""
-description: "Les esprits des anciens dirigeants, présidents, rois, reines lorsqu’ils étaient sur la terre, leur vraie condition est manifeste dans le monde des esprits et certains sont dans l’obscurité"
+description: "Hélène Padgett, reçu par James Padgett : « Ces esprits qui ont écrit, et beaucoup d’autres qui sont présents, sont tous intéressés par cette grande guerre. »"
 date: 2022-06-01 06:00:01+00:55
 draft: False
 hidden: True

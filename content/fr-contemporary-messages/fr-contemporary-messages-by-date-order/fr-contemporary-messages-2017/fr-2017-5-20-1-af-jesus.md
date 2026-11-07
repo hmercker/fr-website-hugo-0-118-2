@@ -1,7 +1,7 @@
 ---
 title: "S'abreuver aux eaux de l'amour de Dieu"
 menu_title: ""
-description: "S'abreuver aux eaux de l'amour de Dieu"
+description: "Jésus, reçu par Al Fike : « Mes chers frères et sœurs, venez boire les eaux vives de l'Amour de Dieu. Leurs cœurs sont desséchés dans ces lieux … »"
 date: 2022-06-01 06:00:01+00:34
 draft: False
 hidden: True

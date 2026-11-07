@@ -1,7 +1,7 @@
 ---
 title: "Mary dit que la visite que Leslie a fait dans le monde spirituel fut une des plus belles choses de sa vie"
 menu_title: ""
-description: "Mary dit que la visite que Leslie a fait dans le monde spirituel fut une des plus belles choses de sa vie"
+description: "Mary Kennedy, reçu par James Padgett : « Laissez-moi vous écrire car je sais que ma communication sera plus intéressante que les autres que vous avez … »"
 date: 2022-06-01 06:00:01+00:120
 draft: False
 hidden: True

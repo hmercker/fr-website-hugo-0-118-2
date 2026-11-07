@@ -1,7 +1,7 @@
 ---
 title: "Le vent du changement continue de souffler"
 menu_title: ""
-description: "Le vent du changement continue de souffler"
+description: "Moïse, reçu par Al Fike : « Le vent du changement continue de souffler sur votre monde et beaucoup de choses qui ont été comprises dans le passé, beaucoup … »"
 date: 2022-06-01 06:00:01+00:781
 draft: False
 hidden: True

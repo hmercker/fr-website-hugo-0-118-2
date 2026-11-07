@@ -1,7 +1,7 @@
 ---
 title: "Apprivoiser le mental"
 menu_title: ""
-description: "Apprivoiser le mental"
+description: "Martin Luther, reçu par Al Fike : « À l'intérieur de votre cerveau sont attachées diverses échelles ou nodules de conditions aux structures complexes du … »"
 date: 2022-06-01 06:00:01+00:188
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L’égalité de l’Amour de Dieu"
 menu_title: ""
-description: "L’égalité de l’Amour de Dieu"
+description: "St Jean et Jésus, reçu par Amada Reza : « Je vais passer le crayon à mon frère, et je vous demande de considérer l’amour qu’il vous apporte en ce jour. »"
 date: 2022-06-01 06:00:01+00:06
 draft: False
 hidden: True

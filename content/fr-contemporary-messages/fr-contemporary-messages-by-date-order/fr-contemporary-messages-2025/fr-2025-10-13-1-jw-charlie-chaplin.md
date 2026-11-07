@@ -1,7 +1,7 @@
 ---
 title: "L'Amour de Dieu restaure le sens de l'humour"
 menu_title: ""
-description: "L'Amour de Dieu restaure le sens de l'humour"
+description: "Charlie Chaplin, reçu par Jimbeau Walsh : « Mes chers, doux, charmants et merveilleux amis. J’ai été absent un certain temps, occupé à mon travail avec … »"
 date: 2025-11-10 06:00:01+00:01
 draft: False
 hidden: True

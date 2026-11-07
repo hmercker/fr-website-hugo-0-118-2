@@ -1,7 +1,7 @@
 ---
 title: "La simplicité de nos vies"
 menu_title: ""
-description: "La simplicité de nos vies"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « En ce jour, nous célébrons la résurrection en esprit. Mes amis et moi avons laissé le monde derrière nous … »"
 date: 2022-06-01 06:00:01+00:1058
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Harvey veut savoir pourquoi Mackey et Taggart ont tant changé : Est-ce parce qu’ils ont reçu l’Amour de Dieu ?"
 menu_title: ""
-description: "Harvey veut savoir pourquoi Mackey et Taggart ont tant changé : Est-ce parce qu’ils ont reçu l’Amour de Dieu ?"
+description: "George W Harvey, reçu par James Padgett : « Je veux vous dire que Mackey et Taggart ont tellement changé que je me demande pourquoi eux ont changé et pas moi. »"
 date: 2022-06-01 06:00:01+00:158
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Vivre l'instant présent"
 menu_title: ""
-description: "Vivre l'instant présent"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Les autres créatures de Dieu, dans le règne animal, sont souvent ravies de s’observer les unes les autres, et … »"
 date: 2022-06-01 06:00:01+00:1297
 draft: False
 hidden: True

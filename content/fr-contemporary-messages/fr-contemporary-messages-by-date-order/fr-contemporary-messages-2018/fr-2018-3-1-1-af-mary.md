@@ -1,7 +1,7 @@
 ---
 title: "Le monde a besoin d'âmes aspirant à la lumière"
 menu_title: ""
-description: "Le monde a besoin d'âmes aspirant à la lumière"
+description: "Marie, reçu par Al Fike : « Puissiez-vous sentir en vous le désir ardent de vos âmes d’être proches de Dieu, que vous puissiez venir à Dieu avec les … »"
 date: 2022-06-01 06:00:01+00:334
 draft: False
 hidden: True

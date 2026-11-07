@@ -1,7 +1,7 @@
 ---
 title: "Félicitations pour l'intégration des perceptions métaphysiques (esprit) et de l'âme"
 menu_title: ""
-description: "Félicitations pour l'intégration des perceptions métaphysiques (esprit) et de l'âme"
+description: "Professeur Salyards, reçu par Albert Fike : « Je tiens à vous féliciter pour vos progrès, pour la façon dont chacun d’entre vous a trouvé un moyen de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

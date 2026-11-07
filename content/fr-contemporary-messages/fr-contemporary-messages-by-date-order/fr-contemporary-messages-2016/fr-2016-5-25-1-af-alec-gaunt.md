@@ -1,7 +1,7 @@
 ---
 title: "Ne jugez pas la voie naturelle"
 menu_title: ""
-description: "Ne jugez pas la voie naturelle"
+description: "Alec Gaunt, reçu par Al Fike : « Il est préférable de ne pas juger ; de juger ceux qui ont des attitudes et des perspectives différentes. »"
 date: 2022-06-01 06:00:01+00:210
 draft: False
 hidden: True

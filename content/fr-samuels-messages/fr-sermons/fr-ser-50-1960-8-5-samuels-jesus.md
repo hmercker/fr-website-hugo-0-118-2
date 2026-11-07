@@ -1,7 +1,7 @@
 ---
 title: "50ème Sermon – Lettre de Jérémie pour les Judéens à Babylone"
 menu_title: ""
-description: "50ème Sermon – Lettre de Jérémie pour les Judéens à Babylone"
+description: "Jésus, reçu par Dr Samuels : « Pendant neuf longues années, Ézéchias adhéra, de façon hésitante, à la politique de paix de Jérémie et à la vassalité à … »"
 date: 2022-06-01 06:00:01+00:103
 draft: False
 hidden: True

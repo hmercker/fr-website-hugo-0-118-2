@@ -1,7 +1,7 @@
 ---
 title: "Un dissident colonial"
 menu_title: ""
-description: "Un dissident colonial"
+description: "Roger Williams, reçu par FAB : « En lisant ma biographie (Liberty of Conscience, Roger Williams in America par Edwin S. Gaustad), vous voyez des … »"
 date: 2022-06-01 06:00:01+00:42
 draft: False
 hidden: True

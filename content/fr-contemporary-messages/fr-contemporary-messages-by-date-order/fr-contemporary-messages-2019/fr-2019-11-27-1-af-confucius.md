@@ -1,7 +1,7 @@
 ---
 title: "Buvez profondément ces eaux"
 menu_title: ""
-description: "Buvez profondément ces eaux"
+description: "Confucius, reçu par Al Fike : « Bénédictions à vous, âmes bien-aimées. Sachez que Dieu vous guidera sur les ailes de l’Amour. »"
 date: 2022-06-01 06:00:01+00:924
 draft: False
 hidden: True

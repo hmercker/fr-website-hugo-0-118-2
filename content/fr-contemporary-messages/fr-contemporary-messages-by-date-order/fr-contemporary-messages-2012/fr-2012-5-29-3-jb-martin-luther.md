@@ -1,7 +1,7 @@
 ---
 title: "Tes prières ont été entendues"
 menu_title: ""
-description: "Tes prières ont été entendues"
+description: "Martin Luther, reçu par Jospeh B. : « Je vois que tu as vécu une expérience plutôt agréable ; je veux te dire que tes prières ont été entendues, et que tu … »"
 date: 2022-06-01 06:00:01+00:262
 draft: False
 hidden: True

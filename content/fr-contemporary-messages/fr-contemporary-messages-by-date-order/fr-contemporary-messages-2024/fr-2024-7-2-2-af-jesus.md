@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes satisfaits de vos progrès"
 menu_title: ""
-description: "Nous sommes satisfaits de vos progrès"
+description: "Jésus, reçu par Albert Fike : « Cette prière que j’ai faite il y a de nombreuses années est toujours d’actualité aujourd’hui. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

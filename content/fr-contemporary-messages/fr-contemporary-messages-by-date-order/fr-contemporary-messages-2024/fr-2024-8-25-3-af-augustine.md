@@ -1,7 +1,7 @@
 ---
 title: "Apporter des bénédictions au monde"
 menu_title: ""
-description: "Apporter des bénédictions au monde"
+description: "Augustin, reçu par Albert Fike : « Le monde a besoin de plus de ce genre d’efforts, d’attirer les bénédictions divines et l’amour vers lui. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

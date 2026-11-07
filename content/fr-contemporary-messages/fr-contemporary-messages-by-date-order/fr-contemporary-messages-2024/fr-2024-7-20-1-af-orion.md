@@ -1,7 +1,7 @@
 ---
 title: "L'accent continu sur l'atteinte de la conscience de l'âme"
 menu_title: ""
-description: "L'accent continu sur l'atteinte de la conscience de l'âme"
+description: "Orion, reçu par Albert Fike : « Bénédictions à vous, mes amis. En effet, il vous a été très clairement expliqué les défis et les difficultés que vous … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

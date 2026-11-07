@@ -1,7 +1,7 @@
 ---
 title: "L'importance de notre travail d'enregistrement des messages des anges Célestes"
 menu_title: ""
-description: "L'importance de notre travail d'enregistrement des messages des anges Célestes"
+description: "James Padgett, reçu par Al Fike : « Je serai bref, mais je souhaite vous reconnaître et vous remercier tous pour vos efforts, pour continuer à faire en … »"
 date: 2022-06-01 06:00:01+00:1419
 draft: False
 hidden: True

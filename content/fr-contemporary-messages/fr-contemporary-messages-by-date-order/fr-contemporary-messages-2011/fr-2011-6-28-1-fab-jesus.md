@@ -1,7 +1,7 @@
 ---
 title: "Le plan de Dieu"
 menu_title: ""
-description: "Le plan de Dieu"
+description: "Jésus, reçu par FAB : « Je sais que votre esprit ne peut pas concevoir le Plan de Dieu. C’est parce que le mental est ce qu’il est : une manifestation du … »"
 date: 2022-06-01 06:00:01+00:196
 draft: False
 hidden: True

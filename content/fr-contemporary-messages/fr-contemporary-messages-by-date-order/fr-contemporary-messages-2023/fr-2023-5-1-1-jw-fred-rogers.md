@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes tous des enfants de Dieu"
 menu_title: ""
-description: "Nous sommes tous des enfants de Dieu"
+description: "Fred Rogers, reçu par Jimbeau Walsh : « Tous sur terre ont pour anniversaire le moment où leur âme et leur corps spirituel entrent dans le domaine … »"
 date: 2023-09-01 06:00:01+00:15
 draft: False
 hidden: True

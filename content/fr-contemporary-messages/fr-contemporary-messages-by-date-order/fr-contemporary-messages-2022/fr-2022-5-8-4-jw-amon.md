@@ -1,7 +1,7 @@
 ---
 title: "Quand vous faites briller la lumière de l’Amour de Dieu"
 menu_title: ""
-description: "Quand vous faites briller la lumière de l’Amour de Dieu"
+description: "Amon, reçu par Jimbeau Walsh : « Je vous salue en cette fête des mères avec tout l’amour de mon âme, car chacun d’entre vous a eu un éveil de l’âme, vos … »"
 date: 2022-06-01 06:00:01+00:80
 draft: False
 hidden: True

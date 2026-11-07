@@ -1,7 +1,7 @@
 ---
 title: "Les choses sont ce qu’elles sont"
 menu_title: ""
-description: "Les choses sont ce qu’elles sont"
+description: "Judas, reçu par H : « Mais il est vrai que tu es quelque peu mécontent de nos travaux en cours. Mais laisse-moi te donner quelques courtes explications … »"
 date: 2022-06-01 06:00:01+00:27
 draft: False
 hidden: True

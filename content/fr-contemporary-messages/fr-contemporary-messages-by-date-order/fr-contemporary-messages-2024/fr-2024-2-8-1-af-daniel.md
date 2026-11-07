@@ -1,7 +1,7 @@
 ---
 title: "Compliments sur la réunion ensemble pour la guérison"
 menu_title: ""
-description: "Compliments sur la réunion ensemble pour la guérison"
+description: "Daniel, reçu par Albert Fike : « Il n'est pas toujours facile de communiquer de manière harmonieuse, mais l'occasion qui vous a été donnée a prouvé à quel … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

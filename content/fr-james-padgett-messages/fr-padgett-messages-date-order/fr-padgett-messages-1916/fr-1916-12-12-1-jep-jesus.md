@@ -1,7 +1,7 @@
 ---
 title: "Jésus : Ce que les hommes doivent faire pour atteindre la perfection"
 menu_title: ""
-description: "Jésus : Ce que les hommes doivent faire pour atteindre la perfection"
+description: "Jésus, reçu par James Padgett : « Permettez-moi de vous écrire ce soir, car je souhaite vivement entrer à nouveau en communication avec vous en ce qui … »"
 date: 2022-06-01 06:00:01+00:10
 draft: False
 hidden: True

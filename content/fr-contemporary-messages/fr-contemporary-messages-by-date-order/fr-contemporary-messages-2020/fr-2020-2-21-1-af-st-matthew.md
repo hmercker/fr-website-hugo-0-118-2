@@ -1,7 +1,7 @@
 ---
 title: "Vous ouvrez la porte de votre âme quand vous priez"
 menu_title: ""
-description: "Vous ouvrez la porte de votre âme quand vous priez"
+description: "St Matthieu, reçu par Al Fike : « Chaque fois que vous priez, vous venez à la porte de votre âme et c’est l’intensité de vos prières qui ouvre la porte et … »"
 date: 2022-06-01 06:00:01+00:1003
 draft: False
 hidden: True

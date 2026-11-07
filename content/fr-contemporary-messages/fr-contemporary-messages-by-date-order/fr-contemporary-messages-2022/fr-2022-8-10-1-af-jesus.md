@@ -1,7 +1,7 @@
 ---
 title: "Leçon 19 : Les lois d’Amour et d’harmonie de Dieu"
 menu_title: ""
-description: "Leçon 19 : Les lois d’Amour et d’harmonie de Dieu"
+description: "Jésus, reçu par Al Fike : « Le Créateur est la source de tout amour. Le Créateur a créé les prémices de toute vie. »"
 date: 2022-06-01 06:00:01+00:156
 draft: False
 hidden: True

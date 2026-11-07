@@ -1,7 +1,7 @@
 ---
 title: "Une vérité, de nombreuses expressions"
 menu_title: ""
-description: "Une vérité, de nombreuses expressions"
+description: "Jésus, reçu par Albert Fike : « Les bénédictions de l’Amour du Père se déversent sur vous. Être avec vous tous pour vous assurer que tout ce qui est et … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

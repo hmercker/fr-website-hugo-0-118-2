@@ -1,7 +1,7 @@
 ---
 title: "Le mental de l’âme doit compléter le mental matériel"
 menu_title: ""
-description: "Le mental de l’âme doit compléter le mental matériel"
+description: "Icarius, reçu par Al Fike : « Car à travers ce don émergent tous les dons puissants de l’âme. Avec cette bénédiction vient l’éveil de la conscience et la … »"
 date: 2022-06-01 06:00:01+00:101
 draft: False
 hidden: True

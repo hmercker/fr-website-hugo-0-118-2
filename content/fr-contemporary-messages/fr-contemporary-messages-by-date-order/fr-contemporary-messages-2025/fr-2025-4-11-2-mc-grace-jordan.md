@@ -1,7 +1,7 @@
 ---
 title: "Se connecter au sens des circonstances"
 menu_title: ""
-description: "Se connecter au sens des circonstances"
+description: "Grace Jordan, reçu par Maureen Cardoso : « Quelle joie pour moi de participer à votre événement et de contribuer à la guérison, à l’amour, à l’acceptation … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

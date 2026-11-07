@@ -1,7 +1,7 @@
 ---
 title: "En grandissant dans l'Amour Divin"
 menu_title: ""
-description: "En grandissant dans l'Amour Divin"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Mes chères gentilles souris, je vous appelle gentilles parce qu’au fur et à mesure que vous grandissez dans … »"
 date: 2022-06-01 06:00:01+00:1420
 draft: False
 hidden: True

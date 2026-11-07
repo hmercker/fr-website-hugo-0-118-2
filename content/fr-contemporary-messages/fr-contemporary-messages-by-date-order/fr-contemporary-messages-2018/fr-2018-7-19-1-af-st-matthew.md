@@ -1,7 +1,7 @@
 ---
 title: "La mort peut être une transition joyeuse vers l’esprit"
 menu_title: ""
-description: "La mort peut être une transition joyeuse vers l’esprit"
+description: "St Matthieu, reçu par Al Fike : « Il arrivera un moment dans l’existence de la Terre où la mort ne sera pas crainte mais acceptée comme une partie normale … »"
 date: 2022-06-01 06:00:01+00:431
 draft: False
 hidden: True

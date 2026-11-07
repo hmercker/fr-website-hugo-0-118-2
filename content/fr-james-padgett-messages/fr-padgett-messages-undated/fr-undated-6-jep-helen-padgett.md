@@ -1,7 +1,7 @@
 ---
 title: "Une courte note d’Hélène"
 menu_title: ""
-description: "Une courte note d’Hélène"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien mon cher, il est très tard. Mais, demain soir, tu devras être prêt à recevoir son message. »"
 date: 2022-06-01 06:00:01+00:80
 draft: False
 hidden: True

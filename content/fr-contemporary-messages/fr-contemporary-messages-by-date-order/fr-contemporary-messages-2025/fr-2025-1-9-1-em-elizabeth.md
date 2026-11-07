@@ -1,7 +1,7 @@
 ---
 title: "S'ouvrir est un don"
 menu_title: ""
-description: "S'ouvrir est un don"
+description: "Elizabeth, reçu par Elizabeth Mack : « Je vous vois grandir dans l’amour, développer vos dons et votre capacité à transmettre aux autres âmes les … »"
 date: 2026-01-30 16:00:01+00:01
 draft: False
 hidden: True

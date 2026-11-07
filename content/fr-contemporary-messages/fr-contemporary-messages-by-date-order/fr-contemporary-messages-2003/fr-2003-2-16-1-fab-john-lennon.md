@@ -1,7 +1,7 @@
 ---
 title: "John Lennon est toujours un bohémien"
 menu_title: ""
-description: "John Lennon est toujours un bohémien"
+description: "John Lennon, reçu par FAB : « Je vous remercie d’avoir reçu mes pensées ce matin. Je sais que vous avez pensé que j’étais confus, mais comme votre ami l’a … »"
 date: 2022-06-01 06:00:01+00:26
 draft: False
 hidden: True

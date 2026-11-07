@@ -1,7 +1,7 @@
 ---
 title: "Ouvrez-vous à ce don de Dieu"
 menu_title: ""
-description: "Ouvrez-vous à ce don de Dieu"
+description: "Jésus, reçu par Al Fike : « Ouvrez-vous à ce grand cadeau, à cette bénédiction d’en haut qui unifie vos âmes, les unes aux autres. »"
 date: 2022-06-01 06:00:01+00:725
 draft: False
 hidden: True

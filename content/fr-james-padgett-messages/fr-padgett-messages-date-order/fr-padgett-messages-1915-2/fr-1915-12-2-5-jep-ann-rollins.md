@@ -1,7 +1,7 @@
 ---
 title: "Anne Rollins affirmant que le Maître a écrit avec une telle puissance et gloire"
 menu_title: ""
-description: "Anne Rollins affirmant que le Maître a écrit avec une telle puissance et gloire"
+description: "Anne Rollins, reçu par James Padgett : « Je sens que je dois t’écrire juste une ligne, parce que je veux te dire que le Maître t’a écrit avec une telle … »"
 date: 2022-06-01 06:00:01+00:74
 draft: False
 hidden: True

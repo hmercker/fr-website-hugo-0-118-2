@@ -1,7 +1,7 @@
 ---
 title: "Robert Ingersoll commente les enseignements de Swedenborg alors qu’il était sur terre"
 menu_title: ""
-description: "Robert Ingersoll commente les enseignements de Swedenborg alors qu’il était sur terre"
+description: "Robert Ingersoll, reçu par James Padgett : « J’ai été avec vous pendant que vous lisiez l’œuvre de Swedenborg, et j’ai été très intéressé par l’impression … »"
 date: 2022-06-01 06:00:01+00:93
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le pardon et l’oubli"
 menu_title: ""
-description: "Le pardon et l’oubli"
+description: "Judas, reçu par H : « Ceci est une grande vérité. Tu l’as maintes et maintes fois lu dans les messages de James Padgett et dans les communications … »"
 date: 2022-06-01 06:00:01+00:78
 draft: False
 hidden: True

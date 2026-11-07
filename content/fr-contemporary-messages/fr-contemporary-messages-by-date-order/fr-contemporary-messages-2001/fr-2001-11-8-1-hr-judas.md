@@ -1,7 +1,7 @@
 ---
 title: "Les Archanges et Satan"
 menu_title: ""
-description: "Les Archanges et Satan"
+description: "Judas, reçu par H : « Lorsque tu étais dans ton jardin à midi, quand tu as senti la brise et la chaleur du soleil, quand tu as vu les orangers remplis de … »"
 date: 2022-06-01 06:00:01+00:79
 draft: False
 hidden: True

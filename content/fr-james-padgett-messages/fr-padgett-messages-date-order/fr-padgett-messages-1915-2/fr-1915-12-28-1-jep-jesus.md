@@ -1,7 +1,7 @@
 ---
 title: "Jésus rassure M. Padgett que lorsque les messages qu’il reçoit actuellement seront imprimés, ils seront acceptés"
 menu_title: ""
-description: "Jésus rassure M. Padgett que lorsque les messages qu’il reçoit actuellement seront imprimés, ils seront acceptés"
+description: "Jésus, reçu par James Padgett : « Ce n’est pas un Chrétien orthodoxe comme je l’ai appris, mais le prédicateur d’une Église unitarienne dans la petite … »"
 date: 2022-06-01 06:00:01+00:105
 draft: False
 hidden: True

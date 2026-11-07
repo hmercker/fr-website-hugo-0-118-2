@@ -1,7 +1,7 @@
 ---
 title: "Se débarrasser de l’influence négative des esprits"
 menu_title: ""
-description: "Se débarrasser de l’influence négative des esprits"
+description: "St Jean, reçu par Kathryn Stokes : « Notre frère, X, veut comprendre pourquoi il se sent plus libre des influences négatives des esprits. »"
 date: 2022-06-01 06:00:01+00:21
 draft: False
 hidden: True

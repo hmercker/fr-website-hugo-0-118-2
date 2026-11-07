@@ -1,7 +1,7 @@
 ---
 title: "Il est temps pour les Églises spiritualistes de s'élever dans l'Amour de Dieu"
 menu_title: ""
-description: "Il est temps pour les Églises spiritualistes de s'élever dans l'Amour de Dieu"
+description: "George Vale Owen, reçu par Jimbeau Walsh : « Bienvenue chez moi, ici, lorsque je rends visite — et j'ai rendu visite à beaucoup de personnes en ce lieu. »"
 date: 2026-10-12 06:00:01+00:01
 draft: False
 hidden: True

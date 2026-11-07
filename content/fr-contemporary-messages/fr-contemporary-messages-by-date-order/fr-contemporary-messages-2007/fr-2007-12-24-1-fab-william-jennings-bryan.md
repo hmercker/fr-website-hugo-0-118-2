@@ -1,7 +1,7 @@
 ---
 title: "Un leader populiste américain est confiant"
 menu_title: ""
-description: "Un leader populiste américain est confiant"
+description: "William Jennings Bryan, reçu par FAB : « J'ai observé avec beaucoup d'attention le déroulement du drame américain, alors que le pouvoir s'est consolidé … »"
 date: 2022-06-01 06:00:01+00:186
 draft: False
 hidden: True

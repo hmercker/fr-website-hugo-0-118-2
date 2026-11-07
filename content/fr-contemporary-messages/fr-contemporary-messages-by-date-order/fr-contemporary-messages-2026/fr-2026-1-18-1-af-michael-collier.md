@@ -1,7 +1,7 @@
 ---
 title: "Comment se préparer à être des enseignants et des lumières dans les temps à venir"
 menu_title: ""
-description: "Comment se préparer à être des enseignants et des lumières dans les temps à venir"
+description: "Michael Collier, reçu par Albert Fike : « La conscience des hommes, de l'humanité, est restée rudimentaire à travers les âges, du moins à l'époque que … »"
 date: 2026-02-03 16:00:01+00:01
 draft: False
 hidden: True

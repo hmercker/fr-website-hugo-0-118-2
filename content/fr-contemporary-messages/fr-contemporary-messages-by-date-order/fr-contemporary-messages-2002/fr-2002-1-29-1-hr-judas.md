@@ -1,7 +1,7 @@
 ---
 title: "Aider les autres"
 menu_title: ""
-description: "Aider les autres"
+description: "Judas, reçu par H : « Mon cher H , hier, nous avons entrepris un voyage dans ton passé, et aujourd’hui nous ferons de même, afin de mettre en lumière un … »"
 date: 2022-06-01 06:00:01+00:16
 draft: False
 hidden: True

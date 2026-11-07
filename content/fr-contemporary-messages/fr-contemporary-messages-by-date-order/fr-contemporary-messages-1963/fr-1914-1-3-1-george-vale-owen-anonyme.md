@@ -1,7 +1,7 @@
 ---
 title: "Le Roi des Rois"
 menu_title: ""
-description: "Le Roi des Rois"
+description: "Anonyme, reçu par Révérend George Vale Owen : « De la porte du Temple sortit un Homme, vêtu de blanc, mais rayonnant et très beau. Il avait sur la tête un … »"
 date: 2022-06-01 06:00:01+00:03
 draft: False
 hidden: True

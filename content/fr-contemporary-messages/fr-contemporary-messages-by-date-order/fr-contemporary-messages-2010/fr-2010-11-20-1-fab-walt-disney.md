@@ -1,7 +1,7 @@
 ---
 title: "Walt Disney et ses studios en grève - 2"
 menu_title: ""
-description: "Walt Disney et ses studios en grève - 2"
+description: "Walt Disney, reçu par FAB : « Pour votre information, je ne suis pas sorti blanc comme neige de la grève de mes studios. »"
 date: 2022-06-01 06:00:01+00:174
 draft: False
 hidden: True

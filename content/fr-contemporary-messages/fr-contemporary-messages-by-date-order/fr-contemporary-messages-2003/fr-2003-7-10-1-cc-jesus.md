@@ -1,7 +1,7 @@
 ---
 title: "Surfez sur la vague du changement"
 menu_title: ""
-description: "Surfez sur la vague du changement"
+description: "Jésus, reçu par CC : « Ce dont je souhaite parler aujourd’hui, c’est de la nécessité pour les enfants de Dieu de se placer dans un état de réceptivité … »"
 date: 2022-06-01 06:00:01+00:27
 draft: False
 hidden: True

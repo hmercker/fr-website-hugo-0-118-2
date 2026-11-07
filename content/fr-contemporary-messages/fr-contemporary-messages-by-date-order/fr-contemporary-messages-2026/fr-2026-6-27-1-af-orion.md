@@ -1,7 +1,7 @@
 ---
 title: "La transition de l'esprit matériel vers l'éveil de l'âme se fait progressivement et s'accompagne de nombreux défis"
 menu_title: ""
-description: "La transition de l'esprit matériel vers l'éveil de l'âme se fait progressivement et s'accompagne de nombreux défis"
+description: "Orion, reçu par Albert Fike : « Je pense que le changement de conscience représente un défi majeur pour chacun d'entre vous. »"
 date: 2026-10-04 06:00:01+00:01
 draft: False
 hidden: True

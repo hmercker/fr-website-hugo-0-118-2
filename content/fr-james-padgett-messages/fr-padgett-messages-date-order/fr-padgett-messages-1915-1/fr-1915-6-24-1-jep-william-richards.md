@@ -1,7 +1,7 @@
 ---
 title: "William Richards décrit sa vie dans le monde spirituel"
 menu_title: ""
-description: "William Richards décrit sa vie dans le monde spirituel"
+description: "William Richards, reçu par James Padgett : « Laissez-moi écrire un peu, car j’ai besoin d’aide. Je n’étais pas une mauvaise personne, dans le sens d’être … »"
 date: 2022-06-01 06:00:01+00:111
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le juge Syrick essaie l’impersonalisation pour tester la perception de l’âme de M. Padgett"
 menu_title: ""
-description: "Le juge Syrick essaie l’impersonalisation pour tester la perception de l’âme de M. Padgett"
+description: "Juge Syrick, reçu par James Padgett : « J’étais l’esprit qui a écrit et je n’avais pas avec moi mon influence habituelle, mais j’ai présumé celle de … »"
 date: 2022-06-01 06:00:01+00:24
 draft: False
 hidden: True

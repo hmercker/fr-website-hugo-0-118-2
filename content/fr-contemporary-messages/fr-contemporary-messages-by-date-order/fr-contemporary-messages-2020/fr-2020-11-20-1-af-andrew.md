@@ -1,7 +1,7 @@
 ---
 title: "L'interconnexion de nos âmes"
 menu_title: ""
-description: "L'interconnexion de nos âmes"
+description: "André, reçu par Al Fike : « Chacun de vous est connecté à Dieu, comme l’est chaque âme que Dieu a créée. Tous sont reliés à la grande âme de Dieu. »"
 date: 2022-06-01 06:00:01+00:1320
 draft: False
 hidden: True

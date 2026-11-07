@@ -1,7 +1,7 @@
 ---
 title: "Jean donne des conseils sur la manière de tirer le meilleur parti de la lecture de ces messages"
 menu_title: ""
-description: "Jean donne des conseils sur la manière de tirer le meilleur parti de la lecture de ces messages"
+description: "Saint Jean, reçu par James Padgett : « Je sais que vous pensez que vous n’êtes pas en état d’écrire et que le fait d’être ainsi ne vous permet pas de … »"
 date: 2022-06-01 06:00:01+00:29
 draft: False
 hidden: True

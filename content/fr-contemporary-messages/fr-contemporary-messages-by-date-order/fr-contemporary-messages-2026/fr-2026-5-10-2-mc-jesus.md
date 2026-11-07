@@ -1,7 +1,7 @@
 ---
 title: "Déposez vos fardeaux aux pieds de Dieu"
 menu_title: ""
-description: "Déposez vos fardeaux aux pieds de Dieu"
+description: "Jésus, reçu par Maureen Cardoso : « Que la bénédiction de l'Amour du Père pénètre votre âme, permettant à votre esprit de rayonner de lumière. »"
 date: 2026-09-30 06:00:01+00:01
 draft: False
 hidden: True

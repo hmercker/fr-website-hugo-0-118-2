@@ -1,7 +1,7 @@
 ---
 title: "Votre relation la plus profonde est avec votre Créateur"
 menu_title: ""
-description: "Votre relation la plus profonde est avec votre Créateur"
+description: "Keea Atta Kem, reçu par Maureen Cardoso : « Âmes bien-aimées, la connexion la plus profonde et l’appartenance la plus profonde sont avec votre Créateur … »"
 date: 2022-06-01 06:00:01+00:554
 draft: False
 hidden: True

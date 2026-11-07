@@ -1,7 +1,7 @@
 ---
 title: "La Volonté de Dieu comme protection"
 menu_title: ""
-description: "La Volonté de Dieu comme protection"
+description: "St Matthieu, reçu par Elizabeth Mack : « Notre frère Jésus est venu pour nous bénir, pour bénir tous les habitants de la Terre. Car une telle intervention … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

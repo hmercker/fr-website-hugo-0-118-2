@@ -1,7 +1,7 @@
 ---
 title: "À mesure que vous mettrez à l'épreuve vos dons et vos capacités, vous gagnerez en confiance"
 menu_title: ""
-description: "À mesure que vous mettrez à l'épreuve vos dons et vos capacités, vous gagnerez en confiance"
+description: "Augustin, reçu par Albert Fike : « Soyez bénis, mes enfants, alors que vous vous réunissez pour recevoir l’Amour du Père — cette grande bénédiction … »"
 date: 2026-10-16 06:00:01+00:09
 draft: False
 hidden: True

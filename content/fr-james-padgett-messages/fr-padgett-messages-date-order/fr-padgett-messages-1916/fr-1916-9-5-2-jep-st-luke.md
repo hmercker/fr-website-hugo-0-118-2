@@ -1,7 +1,7 @@
 ---
 title: "Luc confirme le message de Constantin"
 menu_title: ""
-description: "Luc confirme le message de Constantin"
+description: "St Luc, reçu par James Padgett : « Je n’essaierai pas d’écrire longuement ce soir, et dirai seulement que, comme vous pourriez douter de l’identité de … »"
 date: 2022-06-01 06:00:01+00:269
 draft: False
 hidden: True

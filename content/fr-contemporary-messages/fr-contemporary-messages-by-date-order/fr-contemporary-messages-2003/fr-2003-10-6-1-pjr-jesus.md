@@ -1,7 +1,7 @@
 ---
 title: "Pas un grand message."
 menu_title: ""
-description: "Pas un grand message."
+description: "Jésus, reçu par PJR : « Tu dois simplement te détendre pendant quelques minutes et nos pensées passeront comme toujours. »"
 date: 2022-06-01 06:00:01+00:31
 draft: False
 hidden: True

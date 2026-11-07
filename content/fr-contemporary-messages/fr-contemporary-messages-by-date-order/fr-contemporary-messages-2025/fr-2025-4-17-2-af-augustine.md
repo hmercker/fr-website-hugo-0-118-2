@@ -1,7 +1,7 @@
 ---
 title: "Marcher avec foi face aux obstacles"
 menu_title: ""
-description: "Marcher avec foi face aux obstacles"
+description: "Augustin, reçu par Albert Fike : « Je sais qu’il y a des moments où vos projets ne se concrétisent pas. Il y a des moments où des obstacles vous … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

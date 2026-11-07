@@ -1,7 +1,7 @@
 ---
 title: "Jésus avait tous ses disciples et apôtres ainsi que les soi-disant Saints rassemblés lors de son écriture pour convaincre M. Padgett qu’il l’a sélectionné pour faire son travail sur la terre"
 menu_title: ""
-description: "Jésus avait tous ses disciples et apôtres ainsi que les soi-disant Saints rassemblés lors de son écriture pour convaincre M. Padgett qu’il l’a sélectionné pour faire son travail sur la terre"
+description: "Jésus, reçu par James Padgett : « Eh bien, je les ai fait venir car je voulais affermir votre foi quant à mon authenticité en tant que vrai Jésus de la … »"
 date: 2022-06-01 06:00:01+00:155
 draft: False
 hidden: True

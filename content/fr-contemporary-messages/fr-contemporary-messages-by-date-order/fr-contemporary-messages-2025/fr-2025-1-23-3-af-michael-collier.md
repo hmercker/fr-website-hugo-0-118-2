@@ -1,7 +1,7 @@
 ---
 title: "Autres vérités sur l'évolution"
 menu_title: ""
-description: "Autres vérités sur l'évolution"
+description: "Michael Collier, reçu par Albert Fike : « Pour faire suite aux propos de notre chère Seretta Kem, je sais qu’il existe un grand débat dans votre monde … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

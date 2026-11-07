@@ -1,7 +1,7 @@
 ---
 title: "À mesure que vous vous éveillez dans l’amour et agissez dans la foi, le chemin à suivre sera éclairé"
 menu_title: ""
-description: "À mesure que vous vous éveillez dans l’amour et agissez dans la foi, le chemin à suivre sera éclairé"
+description: "Barbara Davies, reçu par Al Fike : « Les vents du changement soufflent dans chaque vie. Comme je ne suis dans le monde des esprits que depuis peu, je … »"
 date: 2026-10-28 06:00:01+00:01
 draft: False
 hidden: True

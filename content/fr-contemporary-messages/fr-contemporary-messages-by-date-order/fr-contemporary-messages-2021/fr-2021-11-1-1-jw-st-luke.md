@@ -1,7 +1,7 @@
 ---
 title: "Avancer dans la foi"
 menu_title: ""
-description: "Avancer dans la foi"
+description: "St Luc, reçu par Jimbeau Walsh : « Lorsque vous aimez vraiment un autre, cela le stimule, car vous rayonnez l’amour véritable. »"
 date: 2022-06-01 06:00:01+00:1700
 draft: False
 hidden: True

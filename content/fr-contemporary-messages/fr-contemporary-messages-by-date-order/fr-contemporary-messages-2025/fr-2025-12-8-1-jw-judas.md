@@ -1,7 +1,7 @@
 ---
 title: "La signification d'être dans le monde sans être du monde"
 menu_title: ""
-description: "La signification d'être dans le monde sans être du monde"
+description: "Judas, reçu par Jimbeau Walsh : « Avant toute chose, si vous le voulez bien, ne serait-ce qu'un instant, considérez les mondes dans les mondes. »"
 date: 2026-01-21 16:00:01+00:01
 draft: False
 hidden: True

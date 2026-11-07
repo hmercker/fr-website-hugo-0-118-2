@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes chez vous dans Mon Amour"
 menu_title: ""
-description: "Vous êtes chez vous dans Mon Amour"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Chers filles et fils, chers enfants de Mon Amour. Je vous honore de vous ouvrir à Mon Amour. »"
 date: 2022-06-01 06:00:01+00:43
 draft: False
 hidden: True

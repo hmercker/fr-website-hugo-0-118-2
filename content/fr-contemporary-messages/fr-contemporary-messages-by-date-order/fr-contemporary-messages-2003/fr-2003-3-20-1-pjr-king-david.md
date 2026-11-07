@@ -1,7 +1,7 @@
 ---
 title: "Participez au moins par Vos prières"
 menu_title: ""
-description: "Participez au moins par Vos prières"
+description: "Le roi David, reçu par PJR : « Sachez que je fus un grand combattant, soit pour défendre mon territoire, soit pour étendre ma sphère d’influence et de … »"
 date: 2022-06-01 06:00:01+00:30
 draft: False
 hidden: True

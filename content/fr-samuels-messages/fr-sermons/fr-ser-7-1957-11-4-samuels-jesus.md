@@ -1,7 +1,7 @@
 ---
 title: "7ème Sermon – Le rite Chrétien appelé Messe"
 menu_title: ""
-description: "7ème Sermon – Le rite Chrétien appelé Messe"
+description: "Jésus, reçu par Dr Samuels : « Dans mon dernier sermon je vous ai dit que le principe de base sur lesquels se fonde ce rite, le caractère sacré du sang … »"
 date: 2022-06-01 06:00:01+00:60
 draft: False
 hidden: True

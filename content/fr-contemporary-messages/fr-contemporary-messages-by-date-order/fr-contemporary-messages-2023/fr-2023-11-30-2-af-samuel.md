@@ -1,7 +1,7 @@
 ---
 title: "Le temps presse"
 menu_title: ""
-description: "Le temps presse"
+description: "Samuel, reçu par Albert Fike : « Lorsqu’il y a la paix, Dieu est là. Lorsqu’il y a harmonie, l’expression de la création de Dieu est en synchronisation … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

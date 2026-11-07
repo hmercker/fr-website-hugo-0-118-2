@@ -1,7 +1,7 @@
 ---
 title: "Vous serez témoins de grands changements dans ce monde"
 menu_title: ""
-description: "Vous serez témoins de grands changements dans ce monde"
+description: "Flavius Josèphe, reçu par Albert Fike : « Il y a longtemps je fus un enseignant. Vous vivrez tous pour être témoins de grands changements dans ce monde … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

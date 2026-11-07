@@ -1,7 +1,7 @@
 ---
 title: "Dieu prend en charge les tâches les plus difficiles"
 menu_title: ""
-description: "Dieu prend en charge les tâches les plus difficiles"
+description: "Judas, reçu par Jimbeau Walsh : « Aujourd'hui, je souhaite parler de la gravité, de la gravitas, la gravité de chaque vie et de la condition humaine. »"
 date: 2026-06-10 16:00:01+00:01
 draft: False
 hidden: True

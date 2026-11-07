@@ -1,7 +1,7 @@
 ---
 title: "Donner sans compter"
 menu_title: ""
-description: "Donner sans compter"
+description: "Keea Atta Kem, reçu par Maureen Cardoso : « Quelle bénédiction que d'atteindre et de recevoir le grand cadeau de l'Amour Divin. Ce cadeau qui est donné … »"
 date: 2022-06-01 06:00:01+00:691
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Hélène décrit un incident survenu dans son travail de recherche les âmes-sœurs des esprits"
 menu_title: ""
-description: "Hélène décrit un incident survenu dans son travail de recherche les âmes-sœurs des esprits"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, comme tu le sais, je m’occupe, entre autres, de trouver les âmes-sœurs des esprits et de les réunir. »"
 date: 2022-06-01 06:00:01+00:16
 draft: False
 hidden: True

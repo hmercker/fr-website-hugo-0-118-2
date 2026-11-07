@@ -1,7 +1,7 @@
 ---
 title: "Vous réaliserez vos dons pour servir l'humanité"
 menu_title: ""
-description: "Vous réaliserez vos dons pour servir l'humanité"
+description: "Bartholomée, reçu par Al Fike : « Que Dieu soit avec vous, mes âmes bien-aimées. Je continue à travailler avec le Maître Jésus et tous les disciples et … »"
 date: 2022-06-01 06:00:01+00:933
 draft: False
 hidden: True

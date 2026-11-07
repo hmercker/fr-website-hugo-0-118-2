@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes un mystère"
 menu_title: ""
-description: "Vous êtes un mystère"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Ose vivre ta vie dans ce mystère. Il y a une lumière brillante au sein des chambres cachées de ton âme. »"
 date: 2022-06-01 06:00:01+00:64
 draft: False
 hidden: True

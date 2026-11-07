@@ -1,7 +1,7 @@
 ---
 title: "Le maître d’œuvre Égyptien confirme le message de Moïse"
 menu_title: ""
-description: "Le maître d’œuvre Égyptien confirme le message de Moïse"
+description: "Hakan, reçu par FAB : « Ma cruauté envers les esclaves Hébreux m’est revenue en pleine figure. Et la haine que je nourrissais dans mon cœur à l’égard de … »"
 date: 2022-06-01 06:00:01+00:169
 draft: False
 hidden: True

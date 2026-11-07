@@ -1,7 +1,7 @@
 ---
 title: "Le printemps de l'âme"
 menu_title: ""
-description: "Le printemps de l'âme"
+description: "St François d'Assise, reçu par Maureen Cardoso : « Je fus connu sous le nom de Saint François lors de ma vie terrestre. Beaucoup d’entre vous ont été … »"
 date: 2022-06-01 06:00:01+00:682
 draft: False
 hidden: True

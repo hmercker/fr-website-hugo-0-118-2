@@ -1,7 +1,7 @@
 ---
 title: "La guérison"
 menu_title: ""
-description: "La guérison"
+description: "Jésus, reçu par Amada Reza : « Vous avez perçu que je souhaite écrire sur ce sujet du pouvoir de guérison, car ce fut une de vos prières les plus sincères … »"
 date: 2022-06-01 06:00:01+00:07
 draft: False
 hidden: True

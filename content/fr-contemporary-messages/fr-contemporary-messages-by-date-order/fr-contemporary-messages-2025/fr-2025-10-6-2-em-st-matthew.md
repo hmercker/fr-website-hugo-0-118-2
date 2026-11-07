@@ -1,7 +1,7 @@
 ---
 title: "Un autre but pour lequel nous sommes appelés"
 menu_title: ""
-description: "Un autre but pour lequel nous sommes appelés"
+description: "St Matthieu, reçu par Elizabeth Mack : « Moi aussi, j’aime profondément notre Père Céleste, qui en ce moment répand Son Amour sur chaque âme de ce cercle. »"
 date: 2026-01-31 16:00:01+00:01
 draft: False
 hidden: True

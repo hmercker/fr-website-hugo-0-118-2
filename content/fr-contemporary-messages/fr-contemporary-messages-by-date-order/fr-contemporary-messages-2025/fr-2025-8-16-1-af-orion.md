@@ -1,7 +1,7 @@
 ---
 title: "Recherchez avant tout la guidance divine"
 menu_title: ""
-description: "Recherchez avant tout la guidance divine"
+description: "Orion, reçu par Albert Fike : « Recherchez la guidance (les conseils). Il est important que vous recherchiez vous-même une guidance qui ait du sens pour … »"
 date: 2025-11-21 06:00:01+00:01
 draft: False
 hidden: True

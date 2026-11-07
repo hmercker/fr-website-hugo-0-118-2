@@ -1,7 +1,7 @@
 ---
 title: "34ème Sermon – La lutte d’Isaïe contre les maux sociaux et les sacrifices"
 menu_title: ""
-description: "34ème Sermon – La lutte d’Isaïe contre les maux sociaux et les sacrifices"
+description: "Jésus, reçu par Dr Samuels : « Les principaux efforts d’Isaïe pour élever les gens ont concerné l’adoption d’une attitude plus acceptable envers la vie … »"
 date: 2022-06-01 06:00:01+00:87
 draft: False
 hidden: True

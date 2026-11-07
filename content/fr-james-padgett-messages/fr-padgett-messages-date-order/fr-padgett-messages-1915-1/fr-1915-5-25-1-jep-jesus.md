@@ -1,7 +1,7 @@
 ---
 title: "Jésus : La Vraie Vérité de la Vie sur Terre et ce que cela veut dire pour les Mortels"
 menu_title: ""
-description: "Jésus : La Vraie Vérité de la Vie sur Terre et ce que cela veut dire pour les Mortels"
+description: "Jésus, reçu par James Padgett : « Vous êtes dans une meilleure condition spirituelle et je vais écrire un message officiel. J’ai envie d’écrire sur le … »"
 date: 2022-06-01 06:00:01+00:89
 draft: False
 hidden: True

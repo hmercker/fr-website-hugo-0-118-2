@@ -1,7 +1,7 @@
 ---
 title: "Guidez vos enfants, enseignez-leur le droit chemin"
 menu_title: ""
-description: "Guidez vos enfants, enseignez-leur le droit chemin"
+description: "Samuel : « C'est Samuel qui est venu vous voir une fois de plus. Vous savez, mes petits enfants, il me tarde de vous prendre par la main et de vous … »"
 date: 2022-06-01 06:00:01+00:20
 draft: False
 hidden: True

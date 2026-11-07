@@ -1,7 +1,7 @@
 ---
 title: "Abraham Lincoln commente son style dans les Messages reçus par James Padgett"
 menu_title: ""
-description: "Abraham Lincoln commente son style dans les Messages reçus par James Padgett"
+description: "Abraham Lincoln, reçu par FAB : « Certains faits de ma vie terrestre doivent être considérés pour que je puisse répondre : (1) j'avais un don pour le … »"
 date: 2022-06-01 06:00:01+00:133
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L'harmonie dans un groupe reflète l'harmonie entre les individus"
 menu_title: ""
-description: "L'harmonie dans un groupe reflète l'harmonie entre les individus"
+description: "Keea Atta Kem, reçu par Maureen Cardoso : « Nous étions avec vous ce jour alors que vous vous promeniez autour de cette belle île, marchant dans des … »"
 date: 2022-06-01 06:00:01+00:949
 draft: False
 hidden: True

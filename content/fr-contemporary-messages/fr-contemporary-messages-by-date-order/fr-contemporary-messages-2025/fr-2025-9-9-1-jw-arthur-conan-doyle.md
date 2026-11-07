@@ -1,7 +1,7 @@
 ---
 title: "Prier, c'est élémentaire !"
 menu_title: ""
-description: "Prier, c'est élémentaire !"
+description: "Arthur Conan Doyle, reçu par Jimbeau Walsh : « Quel plaisir d'être ici, sur cette terre ancestrale. Bien que beaucoup de choses aient changé depuis mon … »"
 date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True

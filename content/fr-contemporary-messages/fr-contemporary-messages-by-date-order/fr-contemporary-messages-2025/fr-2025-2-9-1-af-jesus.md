@@ -1,7 +1,7 @@
 ---
 title: "Acceptez et accueillez la touche guérisseuse de Dieu"
 menu_title: ""
-description: "Acceptez et accueillez la touche guérisseuse de Dieu"
+description: "Jésus, reçu par Albert Fike : « … touchez chaque âme présente, car il vous suffit d’avoir un désir sincère de recevoir ce don de Dieu, l’Essence de sa … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

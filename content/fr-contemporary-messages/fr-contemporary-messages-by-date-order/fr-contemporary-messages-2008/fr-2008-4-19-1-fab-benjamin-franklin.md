@@ -1,7 +1,7 @@
 ---
 title: "L'idéalisme des Pères fondateurs"
 menu_title: ""
-description: "L'idéalisme des Pères fondateurs"
+description: "Benjamin Franklin, reçu par FAB : « Nous devions mettre en place un gouvernement qui fonctionnerait et qui serait sûr pour nous. »"
 date: 2022-06-01 06:00:01+00:54
 draft: False
 hidden: True

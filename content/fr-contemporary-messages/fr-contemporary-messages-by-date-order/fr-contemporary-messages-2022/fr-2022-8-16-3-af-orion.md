@@ -1,7 +1,7 @@
 ---
 title: "Lever tous les obstacles à une plus grande lumière"
 menu_title: ""
-description: "Lever tous les obstacles à une plus grande lumière."
+description: "Orion, reçu par Al Fike : « Vous continuez à trouver votre chemin vers une plus grande lumière. Vous continuez à évaluer les messages qui vous ont été … »"
 date: 2023-09-01 06:00:01+00:44
 draft: False
 hidden: True

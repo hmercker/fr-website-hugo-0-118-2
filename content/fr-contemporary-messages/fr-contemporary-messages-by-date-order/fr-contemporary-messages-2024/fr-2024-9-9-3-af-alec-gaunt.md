@@ -1,7 +1,7 @@
 ---
 title: "Votre joie et votre Amour Divin rayonnent sur tous ceux qui vous entourent"
 menu_title: ""
-description: "Votre joie et votre Amour Divin rayonnent sur tous ceux qui vous entourent"
+description: "Alec Gaunt, reçu par Al Fixe : « Il est bon de laisser la joie s’exprimer aussi souvent que possible, en toute circonstance, car elle aussi vient de Dieu. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

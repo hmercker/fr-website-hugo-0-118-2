@@ -1,7 +1,7 @@
 ---
 title: "Ces vérités doivent être partagées"
 menu_title: ""
-description: "Ces vérités doivent être partagées"
+description: "Augustin, reçu par Al Fike : « Buvez profondément ce cadeau, buvez profondément. Vous avez raison de dire que lorsque vous vous réunissez et priez … »"
 date: 2022-06-01 06:00:01+00:762
 draft: False
 hidden: True

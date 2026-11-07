@@ -1,7 +1,7 @@
 ---
 title: "Félicitations pour la création d'un Phare de lumière"
 menu_title: ""
-description: "Félicitations pour la création d'un Phare de lumière"
+description: "Augustin, reçu par Al Fike : « Puisse l’Amour de Dieu continuer à éveiller votre âme et vous amener à ce lieu de clarté, de vision spirituelle profonde … »"
 date: 2022-06-01 06:00:01+00:1658
 draft: False
 hidden: True

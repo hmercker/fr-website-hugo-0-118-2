@@ -1,7 +1,7 @@
 ---
 title: "La Bénédiction de Servir Dieu"
 menu_title: ""
-description: "La Bénédiction de Servir Dieu"
+description: "George Stokes, reçu par Elizabeth Mack : « De nombreux anges sont présents, mais je vais prendre la parole. C'est un grand plaisir de vous voir tous … »"
 date: 2026-04-21 16:00:01+00:01
 draft: False
 hidden: True

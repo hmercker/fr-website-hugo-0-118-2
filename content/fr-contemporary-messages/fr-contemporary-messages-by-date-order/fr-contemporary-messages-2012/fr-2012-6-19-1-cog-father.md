@@ -1,7 +1,7 @@
 ---
 title: "Il y a de grands changements en vous"
 menu_title: ""
-description: "Il y a de grands changements en vous"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Il y a de grands changements sur vous. Les changements que vous vivez et que vous vivrez encore plus dans un … »"
 date: 2022-06-01 06:00:01+00:272
 draft: False
 hidden: True

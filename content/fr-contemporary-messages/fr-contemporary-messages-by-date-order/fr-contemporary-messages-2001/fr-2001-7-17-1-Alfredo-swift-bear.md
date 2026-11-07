@@ -1,7 +1,7 @@
 ---
 title: "Guérison"
 menu_title: ""
-description: "Guérison"
+description: "Ourson Véloce, reçu par Alfredo : « Je voudrais parler de la guérison, qui est utilisée avec beaucoup d’amour par les personnes qui possèdent ce don très … »"
 date: 2022-06-01 06:00:01+00:14
 draft: False
 hidden: True

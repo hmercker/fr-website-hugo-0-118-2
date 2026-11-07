@@ -1,7 +1,7 @@
 ---
 title: "La prière d'une personne rayonne au-delà d'une seule personne"
 menu_title: ""
-description: "La prière d'une personne rayonne au-delà d'une seule personne"
+description: "Jean Hugues, reçu par Elizabeth Mack : « À vous tous qui venez prier, bienvenue. Lorsque vous vous réunissez pour prier, lorsque vous élevez vos âmes … »"
 date: 2026-01-30 16:00:01+00:01
 draft: False
 hidden: True

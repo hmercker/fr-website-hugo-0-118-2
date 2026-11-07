@@ -1,7 +1,7 @@
 ---
 title: "Enseigner de manière simple"
 menu_title: ""
-description: "Enseigner de manière simple"
+description: "Augustin : « Je vous salue depuis l'Esprit mes enfants, Augustine. Cela nous rend très heureux de voir un petit enfant assis au milieu de nous, une âme … »"
 date: 2022-06-01 06:00:01+00:137
 draft: False
 hidden: True

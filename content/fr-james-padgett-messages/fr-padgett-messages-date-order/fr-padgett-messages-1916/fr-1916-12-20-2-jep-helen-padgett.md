@@ -1,7 +1,7 @@
 ---
 title: "Hélène confirme que c’était bien César qui a écrit, tout comme d’autres"
 menu_title: ""
-description: "Hélène confirme que c’était bien César qui a écrit, tout comme d’autres"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, tu as reçu, ce soir, des messages, qui te montrent ce que l’amour a fait pour certains des … »"
 date: 2022-06-01 06:00:01+00:22
 draft: False
 hidden: True

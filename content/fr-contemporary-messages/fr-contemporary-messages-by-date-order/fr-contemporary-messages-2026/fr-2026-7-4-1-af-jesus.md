@@ -1,7 +1,7 @@
 ---
 title: "Soyez un canal pour Dieu de toutes les manières possibles"
 menu_title: ""
-description: "Soyez un canal pour Dieu de toutes les manières possibles"
+description: "Jésus, reçu par Albert Fike : « Vous parlez de servir Dieu. En effet, vous le faites chaque fois que vous priez, chaque fois que vous vous réunissez en … »"
 date: 2026-10-04 06:00:01+00:01
 draft: False
 hidden: True

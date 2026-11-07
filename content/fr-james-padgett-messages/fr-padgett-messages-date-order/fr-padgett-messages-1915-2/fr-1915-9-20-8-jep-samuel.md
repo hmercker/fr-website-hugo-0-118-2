@@ -1,7 +1,7 @@
 ---
 title: "Samuel le prophète dit que le seul chemin de rédemption passe par l’Amour Divin du Père"
 menu_title: ""
-description: "Samuel le prophète dit que le seul chemin de rédemption passe par l’Amour Divin du Père"
+description: "Samuel, reçu par James Padgett : « Un homme sans l’Amour de Dieu dans son âme est comme un bateau sur une mer agitée sans gouvernail. »"
 date: 2022-06-01 06:00:01+00:262
 draft: False
 hidden: True

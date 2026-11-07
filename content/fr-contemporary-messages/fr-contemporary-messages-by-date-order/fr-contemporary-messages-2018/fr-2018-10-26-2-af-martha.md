@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes avec vous sur le chemin de l'amour"
 menu_title: ""
-description: "Nous sommes avec vous sur le chemin de l'amour"
+description: "Martha, reçu par Al Fike : « Vous savez lorsque nous voyons les conditions du monde et les conditions des âmes qui habitent ce monde, il est décourageant … »"
 date: 2022-06-01 06:00:01+00:541
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Les merveilles, les bénéfices et les bénédictions apportées par l’Amour Divin de Dieu"
 menu_title: ""
-description: "Les merveilles, les bénéfices et les bénédictions apportées par l’Amour Divin de Dieu"
+description: "Hélène Padgett, reçu par James Padgett : « Ce soir, tout me paraît favorable à ce que je t’écrive le message promis, et je vais essayer. »"
 date: 2022-06-01 06:00:01+00:242
 draft: False
 hidden: True

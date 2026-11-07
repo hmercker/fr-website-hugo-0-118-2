@@ -1,7 +1,7 @@
 ---
 title: "Se reposer et prier pour se ressourcer"
 menu_title: ""
-description: "Se reposer et prier pour se ressourcer"
+description: "St Matthieu, reçu par Al Fike : « Puis-je suggérer un ordre du jour pour demain ? Puisque vous deux avez effectivement bénéficié, aujour'hui, d’une … »"
 date: 2022-06-01 06:00:01+00:568
 draft: False
 hidden: True

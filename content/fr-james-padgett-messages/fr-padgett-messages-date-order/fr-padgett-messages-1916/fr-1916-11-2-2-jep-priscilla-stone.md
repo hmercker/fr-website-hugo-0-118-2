@@ -1,7 +1,7 @@
 ---
 title: "Dit à son fils, Leslie, que son âme se remplit de plus en plus de l’Amour du Père"
 menu_title: ""
-description: "Dit à son fils, Leslie, que son âme se remplit de plus en plus de l’Amour du Père"
+description: "Priscilla Stone, reçu par James Padgett : « Laissez-moi juste écrire une ligne. Il ne se rend peut-être pas compte de la différence entre sa condition … »"
 date: 2022-06-01 06:00:01+00:314
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Permettez à Dieu de vous élever"
 menu_title: ""
-description: "Permettez à Dieu de vous élever"
+description: "Jésus, reçu par Al Fike : « Vous êtes dotés de la paix. Vous avez la possibilité, dans votre vie quotidienne, d’être en communion avec Dieu, d’avoir du … »"
 date: 2022-06-01 06:00:01+00:1043
 draft: False
 hidden: True

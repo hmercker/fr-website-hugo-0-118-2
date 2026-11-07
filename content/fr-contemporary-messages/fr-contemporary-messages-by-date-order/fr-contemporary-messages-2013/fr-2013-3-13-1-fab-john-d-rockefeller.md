@@ -1,7 +1,7 @@
 ---
 title: "John D. Rockefeller se décrit lui-même - 2"
 menu_title: ""
-description: "John D. Rockefeller se décrit lui-même - 2"
+description: "John D Rockefeller, reçu par FAB : « Je souhaite clarifier quelque chose que j’ai dit dans ma précédente canalisation. J’ai dit : « Par exemple, en ce qui … »"
 date: 2022-06-01 06:00:01+00:37
 draft: False
 hidden: True

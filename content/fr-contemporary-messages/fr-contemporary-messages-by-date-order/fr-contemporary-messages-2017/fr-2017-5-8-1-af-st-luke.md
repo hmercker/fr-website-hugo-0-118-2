@@ -1,7 +1,7 @@
 ---
 title: "Agneaux de Dieu"
 menu_title: ""
-description: "Agneaux de Dieu"
+description: "Luc, reçu par Al Fike : « Je souhaite vous présenter une allégorie pour vous expliquer pourquoi certaines âmes ont le goût de l’aventure et désirent … »"
 date: 2026-10-28 06:00:01+00:24
 draft: False
 hidden: True

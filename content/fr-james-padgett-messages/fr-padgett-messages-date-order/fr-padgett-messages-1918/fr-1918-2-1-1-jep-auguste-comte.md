@@ -1,7 +1,7 @@
 ---
 title: "Auguste Comte, un philosophe français qui n’est pas intéressé par l’Amour Divin du Père mais désire placer sa foi dans la raison et les investigations"
 menu_title: ""
-description: "Auguste Comte, un philosophe français qui n’est pas intéressé par l’Amour Divin du Père mais désire placer sa foi dans la raison et les investigations"
+description: "Auguste Comte, reçu par James Padgett : « Je ne suis pas un de ces esprits qui viennent à vous pour parler de la Nouvelle Naissance et de l’Amour Divin et … »"
 date: 2022-06-01 06:00:01+00:14
 draft: False
 hidden: True

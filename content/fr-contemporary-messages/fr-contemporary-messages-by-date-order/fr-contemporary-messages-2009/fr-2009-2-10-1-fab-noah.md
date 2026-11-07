@@ -1,7 +1,7 @@
 ---
 title: "L'histoire du déluge"
 menu_title: ""
-description: "L'histoire du déluge"
+description: "Noé, reçu par FAB : « Ces diverses catastrophes naturelles se sont combinées pour former l'histoire biblique du déluge. »"
 date: 2022-06-01 06:00:01+00:17
 draft: False
 hidden: True

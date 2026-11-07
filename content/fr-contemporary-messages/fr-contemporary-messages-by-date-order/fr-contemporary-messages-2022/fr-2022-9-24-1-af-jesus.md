@@ -1,7 +1,7 @@
 ---
 title: "Nous avons un rôle à jouer dans le plan de Dieu"
 menu_title: ""
-description: "Nous avons un rôle à jouer dans le plan de Dieu"
+description: "Jesus, reçu par Al Fike : « Il est important que vous réalisiez que vous faites partie d’un plan qui s’étend sur des millénaires, que depuis mon … »"
 date: 2023-09-01 06:00:01+00:48
 draft: False
 hidden: True

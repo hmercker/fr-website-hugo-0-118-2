@@ -1,7 +1,7 @@
 ---
 title: "Le Juge Syrick, un ancien ami de M. Padgett et du Dr Stone parle de sa progression spirituelle, il vit avec son âme sœur dans la cinquième sphère"
 menu_title: ""
-description: "Le Juge Syrick, un ancien ami de M. Padgett et du Dr Stone parle de sa progression spirituelle, il vit avec son âme sœur dans la cinquième sphère"
+description: "Juge Syrick, reçu par James Padgett : « Mais vous ne devez pas prêter attention à la partie concernant le Juge. Eh bien, j’ai été présent toute la soirée … »"
 date: 2022-06-01 06:00:01+00:124
 draft: False
 hidden: True

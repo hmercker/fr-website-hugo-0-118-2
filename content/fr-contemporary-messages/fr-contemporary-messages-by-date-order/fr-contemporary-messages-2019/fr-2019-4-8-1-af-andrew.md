@@ -1,7 +1,7 @@
 ---
 title: "Exigences fondamentales de la communication et de la relation avec les esprits"
 menu_title: ""
-description: "Exigences fondamentales de la communication et de la relation avec les esprits"
+description: "André, reçu par Al Fike : « Il y a deux choses qui sont cruciales dans ce domaine. L'une est de connaître et de recevoir une abondance de l'Amour Divin de … »"
 date: 2022-06-01 06:00:01+00:701
 draft: False
 hidden: True

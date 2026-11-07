@@ -1,7 +1,7 @@
 ---
 title: "St Jean explique que Jésus est déjà venu une seconde fois et que ce sujet sera expliqué ultérieurement."
 menu_title: ""
-description: "St Jean explique que Jésus est déjà venu une seconde fois et que ce sujet sera expliqué ultérieurement."
+description: "St Jean, reçu par James Padgett : « Laissez-moi écrire une ligne. J’étais avec vous ce soir et j’ai entendu le sermon du prédicateur sur la seconde venue … »"
 date: 2022-06-01 06:00:01+00:30
 draft: False
 hidden: True

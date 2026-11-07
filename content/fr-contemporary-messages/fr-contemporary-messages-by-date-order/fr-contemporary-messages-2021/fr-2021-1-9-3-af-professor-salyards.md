@@ -1,7 +1,7 @@
 ---
 title: "Saisir le jour, Mes Amis"
 menu_title: ""
-description: "Saisir le jour, Mes Amis"
+description: "Professeur Salyards, reçu par Al Fike : « C’est bon d’être avec vous tous, mes amis. Je vois parmi vous un modèle très familier de ceux qui souhaitent se … »"
 date: 2022-06-01 06:00:01+00:1374
 draft: False
 hidden: True

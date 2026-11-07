@@ -1,7 +1,7 @@
 ---
 title: "Une discussion sur la médiumnité et la guerre"
 menu_title: ""
-description: "Une discussion sur la médiumnité et la guerre"
+description: "Thomas Paine, reçu par FAB : « Votre médiumnité s’est certainement améliorée ; vos prières ont été exaucées. Vous serez éventuellement capable de … »"
 date: 2022-06-01 06:00:01+00:125
 draft: False
 hidden: True

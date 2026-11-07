@@ -1,7 +1,7 @@
 ---
 title: "Cherchez l'Amour de Dieu"
 menu_title: ""
-description: "Cherchez l'Amour de Dieu"
+description: "Thérèse : « C'est la mission la plus importante de votre vie. La chose la plus importante que vous puissiez faire est de chercher et d'obtenir cet Amour … »"
 date: 2022-06-01 06:00:01+00:12
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Ouvrez vos âmes à l’Amour de Dieu"
 menu_title: ""
-description: "Ouvrez vos âmes à l’Amour de Dieu"
+description: "St Matthieu, reçu par Al Fike : « Merci d’avoir dit la prière pour l’Amour du Père, car en effet, vous êtes tous les objets des soins et des attentions … »"
 date: 2022-06-01 06:00:01+00:285
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Les expériences de votre âme seront intégrées à la tapisserie de votre vie"
 menu_title: ""
-description: "Les expériences de votre âme seront intégrées à la tapisserie de votre vie"
+description: "Augustin, reçu par Al Fike : « Chacun d’entre vous a bien vécu sa vie, a fait beaucoup de choses et a vécu de nombreuses situations. »"
 date: 2022-06-01 06:00:01+00:1412
 draft: False
 hidden: True

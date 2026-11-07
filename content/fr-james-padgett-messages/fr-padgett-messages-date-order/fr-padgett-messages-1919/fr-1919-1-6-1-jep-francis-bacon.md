@@ -1,7 +1,7 @@
 ---
 title: "Les limites qu’un mortel place sur sa perception des lois gouvernant l’univers"
 menu_title: ""
-description: "Les limites qu’un mortel place sur sa perception des lois gouvernant l’univers"
+description: "Francis Bacon, reçu par James Padgett : « Permettez-moi d’écrire quelques lignes, car je désire vous parler d’une chose qui peut être importante pour vous. »"
 date: 2022-06-01 06:00:01+00:03
 draft: False
 hidden: True

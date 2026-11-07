@@ -1,7 +1,7 @@
 ---
 title: "Un changement de perspective"
 menu_title: ""
-description: "Un changement de perspective"
+description: "Walt Disney, reçu par FAB : « J'ai été choqué d'apprendre la véritable nature du système que j'ai soutenu et aimé. Ce monde est impitoyable dans son … »"
 date: 2022-06-01 06:00:01+00:82
 draft: False
 hidden: True

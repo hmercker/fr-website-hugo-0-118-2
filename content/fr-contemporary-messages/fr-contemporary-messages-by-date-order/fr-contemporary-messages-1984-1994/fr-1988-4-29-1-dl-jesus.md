@@ -1,7 +1,7 @@
 ---
 title: "L'Amour Divin ne connaît pas la douleur du regret, du retard ou du manque d'accomplissement"
 menu_title: ""
-description: "L'Amour Divin ne connaît pas la douleur du regret, du retard ou du manque d'accomplissement"
+description: "Jésus, reçu par Révérend Dave Lampron : « Il existe une expression terrestre : « Je l'aime tellement que ça fait mal ». Est-ce que c'est l'amour naturel … »"
 date: 2022-06-01 06:00:01+00:35
 draft: False
 hidden: True

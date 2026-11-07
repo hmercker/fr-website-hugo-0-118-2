@@ -1,7 +1,7 @@
 ---
 title: "Voulez-vous vous baigner avec moi dans l’Amour de Dieu ?"
 menu_title: ""
-description: "Voulez-vous vous baigner avec moi dans l’Amour de Dieu ?"
+description: "Jésus, reçu par Albert Fike : « Nous sommes maintenant dans un océan de l’Amour de Dieu, mes enfants. Voulez-vous vous baigner avec moi ? »"
 date: 2026-10-21 06:00:01+00:09
 draft: False
 hidden: True

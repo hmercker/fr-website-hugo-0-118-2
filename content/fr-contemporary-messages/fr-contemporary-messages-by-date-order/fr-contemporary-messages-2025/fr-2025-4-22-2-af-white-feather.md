@@ -1,7 +1,7 @@
 ---
 title: "Hommage et célébration de la Création de la Terre"
 menu_title: ""
-description: "Hommage et célébration de la Création de la Terre"
+description: "Plume Blanche, reçu par Albert Fike : « Ce qui semble inanimé est bel et bien vivant et possède son esprit. Toute la nature a son expression spirituelle … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L'expérience de la réception de l'Amour Divin"
 menu_title: ""
-description: "L'expérience de la réception de l'Amour Divin"
+description: "Keea Atta Kem, reçu par Maureen Cardoso : « Je réside dans les Cieux Célestes où je sers Dieu et l'humanité, aidant au service avec les enseignements de … »"
 date: 2022-06-01 06:00:01+00:710
 draft: False
 hidden: True

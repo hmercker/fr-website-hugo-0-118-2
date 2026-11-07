@@ -1,7 +1,7 @@
 ---
 title: "L’expérience des esprits à leur entrée dans le monde spirituel et leur progression"
 menu_title: ""
-description: "L’expérience des esprits à leur entrée dans le monde spirituel et leur progression"
+description: "John Comeys, reçu par James Padgett : « Je désire vous écrire un court instant pour vous informer de certaines vérités, concernant la vie spirituelle, que … »"
 date: 2022-06-01 06:00:01+00:96
 draft: False
 hidden: True

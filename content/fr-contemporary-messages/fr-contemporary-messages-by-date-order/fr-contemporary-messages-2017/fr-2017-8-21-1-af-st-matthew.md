@@ -1,7 +1,7 @@
 ---
 title: "Seule l'âme peut connaître l'Amour de Dieu"
 menu_title: ""
-description: "Seule l'âme peut connaître l'Amour de Dieu"
+description: "St Matthieu, reçu par Al Fike : « Car, intellectuellement, l'homme trouve difficile de parler de sentiments, suggérant que mentalement il ne soit pas … »"
 date: 2022-06-01 06:00:01+00:88
 draft: False
 hidden: True

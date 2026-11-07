@@ -1,7 +1,7 @@
 ---
 title: "La joie de recevoir l'Amour de Dieu est éternelle "
 menu_title: ""
-description: "La joie de recevoir l'Amour de Dieu est éternelle "
+description: "Yogananda, reçu par Jimbeau Walsh : « Je souhaite compléter la belle description, par le Maître, de l’âme en relation avec son Créateur. »"
 date: 2022-06-01 06:00:01+00:1063
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Il existe une division dans le monde"
 menu_title: ""
-description: "Il existe une division dans le monde"
+description: "Robespierre, reçu par Albert Fike : « Il existe une division dans le monde. Il y a les enfants de Dieu et il y a les enfants des hommes. »"
 date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True

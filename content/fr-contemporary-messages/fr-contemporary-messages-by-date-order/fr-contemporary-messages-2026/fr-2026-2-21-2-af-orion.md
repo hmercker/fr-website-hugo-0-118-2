@@ -1,7 +1,7 @@
 ---
 title: "C’est vous qui déterminez la vitesse de votre progression"
 menu_title: ""
-description: "C’est vous qui déterminez la vitesse de votre progression"
+description: "Orion, reçu par Al Fike : « Vous savez que le chemin vers l’éveil et le développement de l’âme est jalonné de nombreux jalons et étapes. »"
 date: 2026-05-24 16:00:01+00:01
 draft: False
 hidden: True

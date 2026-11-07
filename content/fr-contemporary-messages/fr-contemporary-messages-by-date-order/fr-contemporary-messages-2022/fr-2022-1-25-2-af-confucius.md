@@ -1,7 +1,7 @@
 ---
 title: "Bénédictions"
 menu_title: ""
-description: "Bénédictions"
+description: "Confucius, reçu par Al Fike : « J’embrasse chacune de vous et je vois les âmes précieuses que vous êtes et comment les épreuves et les tribulations de … »"
 date: 2023-09-01 06:00:01+00:11
 draft: False
 hidden: True

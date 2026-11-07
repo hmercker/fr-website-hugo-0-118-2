@@ -1,7 +1,7 @@
 ---
 title: "Luc. Quels sont les faits qui prouvent l’authenticité de la Bible"
 menu_title: ""
-description: "Luc. Quels sont les faits qui prouvent l’authenticité de la Bible"
+description: "St Luc, reçu par James Padgett : « Ce soir, je désire écrire sur le sujet de « Quels sont les faits qui prouvent l’authenticité de la Bible ? » J’étais … »"
 date: 2022-06-01 06:00:01+00:82
 draft: False
 hidden: True

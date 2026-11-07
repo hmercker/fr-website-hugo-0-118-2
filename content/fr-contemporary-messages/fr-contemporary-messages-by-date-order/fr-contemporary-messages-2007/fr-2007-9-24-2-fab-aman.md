@@ -1,7 +1,7 @@
 ---
 title: "Les deux natures des premiers parents et de l'humanité"
 menu_title: ""
-description: "Les deux natures des premiers parents et de l'humanité"
+description: "Aman, reçu par FAB : « Avant la Chute, Aman et moi avions une relation parfaitement équilibrée entre notre nature animale et notre nature spirituelle. »"
 date: 2022-06-01 06:00:01+00:164
 draft: False
 hidden: True

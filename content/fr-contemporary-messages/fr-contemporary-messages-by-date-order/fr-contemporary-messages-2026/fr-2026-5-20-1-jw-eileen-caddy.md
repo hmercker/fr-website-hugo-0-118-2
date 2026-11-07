@@ -1,7 +1,7 @@
 ---
 title: "La signification profonde du sanctuaire"
 menu_title: ""
-description: "La signification profonde du sanctuaire"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « J’ai encouragé mon frère, par qui j’ai souvent communiqué, à être présent ce soir, car je souhaitais parler du … »"
 date: 2026-06-10 16:00:01+00:01
 draft: False
 hidden: True

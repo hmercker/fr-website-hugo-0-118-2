@@ -1,7 +1,7 @@
 ---
 title: Une leçon sur la mise en œuvre de la Volonté de Dieu"
 menu_title: ""
-description: "Une leçon sur la mise en œuvre de la Volonté de Dieu"
+description: "Moïse, reçu par Al Fike : « Alors que j’étais sur Terre, Dieu m’a confié une mission, un dessein ; je me sentais pourtant indigne de l’accomplir … »"
 date: 2026-10-28 06:00:01+00:01
 draft: False
 hidden: True

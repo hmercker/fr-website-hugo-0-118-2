@@ -1,7 +1,7 @@
 ---
 title: "Vérité et fausses croyances – première partie"
 menu_title: ""
-description: "Vérité et fausses croyances – première partie"
+description: "Judas, reçu par H : « Je salue mon cher frère A et son ami, le Révérend. J’ai beaucoup de respect pour tous les deux en raison de leur dévouement et de … »"
 date: 2022-06-01 06:00:01+00:69
 draft: False
 hidden: True

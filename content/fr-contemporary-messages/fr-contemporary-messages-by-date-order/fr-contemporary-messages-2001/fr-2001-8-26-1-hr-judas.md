@@ -1,7 +1,7 @@
 ---
 title: "Sur l’Amour Divin et le passé de Judas"
 menu_title: ""
-description: "Sur l’Amour Divin et le passé de Judas"
+description: "Judas, reçu par H : « Mon cher frère H , il est vrai qu’hier, je voulais te faire comprendre quelque chose de plus que tu as finalement reçu. »"
 date: 2022-06-01 06:00:01+00:28
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Nous rencontrons Sarah"
 menu_title: ""
-description: "Nous rencontrons Sarah"
+description: "Sarah Elizabeth Egelburg, reçu par Kathryn Stokes : « Cher K , tu t’es sentie bouleversée et frustrée aujourd’hui et peut-être que ces sentiments vont … »"
 date: 2022-06-01 06:00:01+00:14
 draft: False
 hidden: True

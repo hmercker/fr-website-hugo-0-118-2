@@ -1,7 +1,7 @@
 ---
 title: "L’efficacité de la prière"
 menu_title: ""
-description: "L’efficacité de la prière"
+description: "Judas, reçu par H : « Ne t’inquiète pas sur ce qui s’est passé hier soir. Tu as senti ma présence, mais notre rapport s’est interrompu. »"
 date: 2022-06-01 06:00:01+00:23
 draft: False
 hidden: True

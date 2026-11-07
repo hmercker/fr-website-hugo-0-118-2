@@ -1,7 +1,7 @@
 ---
 title: "Le travail que nous sommes appelés à accomplir tant qu'il est encore temps"
 menu_title: ""
-description: "Le travail que nous sommes appelés à accomplir tant qu'il est encore temps"
+description: "Orion, reçu par Albert Fike : « Que la paix qui surpasse toute intelligence soit vôtre, mes amis. Tout mouvement, tout effort impliquant un intérêt et une … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

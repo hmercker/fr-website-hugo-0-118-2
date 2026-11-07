@@ -1,7 +1,7 @@
 ---
 title: "Jacques – Comment l’homme peut-il redevenir l’homme parfait, comme les premiers parents avant leur chute"
 menu_title: ""
-description: "Jacques – Comment l’homme peut-il redevenir l’homme parfait, comme les premiers parents avant leur chute"
+description: "St Jacques, reçu par James Padgett : « Eh bien, je désire écrire sur le sujet de : « Quelle est la grande vérité concernant la manière dont la destruction … »"
 date: 2022-06-01 06:00:01+00:78
 draft: False
 hidden: True

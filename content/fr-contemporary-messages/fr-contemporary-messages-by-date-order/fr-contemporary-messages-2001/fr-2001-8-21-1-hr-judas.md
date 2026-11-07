@@ -1,7 +1,7 @@
 ---
 title: "L’Incident du Temple"
 menu_title: ""
-description: "L’Incident du Temple"
+description: "Judas, reçu par H : « Que je ne recevrais pas des messages de beaucoup d’esprits différents, mais plutôt que Judas allait s’occuper de la communication. »"
 date: 2022-06-01 06:00:01+00:22
 draft: False
 hidden: True

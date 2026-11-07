@@ -1,7 +1,7 @@
 ---
 title: "La loi du donner et du recevoir"
 menu_title: ""
-description: "La loi du donner et du recevoir"
+description: "Mylora, reçu par Maureen Cardoso : « Je n’ai pas encore parlé à travers cet instrument et je la remercie d’être disposée à recevoir ma présence et le … »"
 date: 2022-06-01 06:00:01+00:1647
 draft: False
 hidden: True

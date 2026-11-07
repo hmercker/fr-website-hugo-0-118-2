@@ -1,7 +1,7 @@
 ---
 title: "Expiation et mise en harmonie avec les lois de Dieu"
 menu_title: ""
-description: "Expiation et mise en harmonie avec les lois de Dieu"
+description: "Keea Atta Kem, reçu par Maureen Cardoso : « C’est la terminologie correcte. C’est un cadeau précieux pour nous, dans les royaumes Célestes, et pour ceux … »"
 date: 2022-06-01 06:00:01+00:869
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L’amour et la peur"
 menu_title: ""
-description: "L’amour et la peur"
+description: "Jésus (Yeshua ben Yosef), reçu par Jane Gartshore : « Ce n’est pas le moment d’avoir peur. C’est un temps pour l’amour. »"
 date: 2022-06-01 06:00:01+00:1172
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le salut du monde"
 menu_title: ""
-description: "Le salut du monde"
+description: "Fleur de Lotus, reçu par Al Fike : « Lorsque vous parlez du salut de l'humanité, vous devez également inclure le salut de votre monde, car ce n'est pas … »"
 date: 2022-06-01 06:00:01+00:116
 draft: False
 hidden: True

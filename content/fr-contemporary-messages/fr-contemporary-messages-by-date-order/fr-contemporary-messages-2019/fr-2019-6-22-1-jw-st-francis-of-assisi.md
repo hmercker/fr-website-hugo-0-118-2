@@ -1,7 +1,7 @@
 ---
 title: "Lorsque vous voyez avec votre âme"
 menu_title: ""
-description: "Lorsque vous voyez avec votre âme"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « De manière très simple, nous avons prié et joué dans la nature, qui a été notre première église. »"
 date: 2022-06-01 06:00:01+00:753
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La délivrance viendra"
 menu_title: ""
-description: "La délivrance viendra"
+description: "Abraham Lincoln, reçu par FAB : « Je souhaite confirmer ce que vous avez canalisé depuis un certain temps déjà, à savoir que la délivrance viendra, et … »"
 date: 2022-06-01 06:00:01+00:55
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Leçon profonde sur la conscience de l'âme"
 menu_title: ""
-description: "Leçon profonde sur la conscience de l'âme "
+description: "Augustin, reçu par Albert Fike : « La manière dont vous exprimerez la vérité et vivrez la vérité évoluera et changera à mesure que vous grandissez dans … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Sachez que cet Amour est éternel"
 menu_title: ""
-description: "Sachez que cet Amour est éternel"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Nous vivons dans la lumière et l’Amour du Père Céleste qui vous étend cette lumière et cet Amour. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Bienvenue aux nouvelles âmes de ce cercle"
 menu_title: ""
-description: "Bienvenue aux nouvelles âmes de ce cercle"
+description: "Jean le Bien Aimé, reçu par Elizabeth Mack : « Je souhaite la bienvenue aux nouvelles âmes qui sont venues et à toutes les âmes qui sont ici, dont … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

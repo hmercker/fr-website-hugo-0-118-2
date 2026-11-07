@@ -1,7 +1,7 @@
 ---
 title: "Le monde a un besoin désespéré de Lumière et de Vérité"
 menu_title: ""
-description: "Le monde a un besoin désespéré de Lumière et de Vérité"
+description: "Confucius, reçu par Al Fike : « Âmes bien-aimées et précieuses, Confucius vous salue à la veille de la nouvelle année. Alors que vous entrez dans ce … »"
 date: 2026-10-12 06:00:01+00:84
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Message d'ouverture, Message de clôture"
 menu_title: ""
-description: "Message d'ouverture, Message de clôture"
+description: "Alec Gaunt et Augustin, reçu par Albert Fike : « Je participe activement à vos efforts, comme beaucoup d’autres dans le monde des esprits, dans le Royaume … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

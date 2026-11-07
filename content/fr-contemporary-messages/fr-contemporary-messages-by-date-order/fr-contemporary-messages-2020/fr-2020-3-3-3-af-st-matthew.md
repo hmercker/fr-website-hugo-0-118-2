@@ -1,7 +1,7 @@
 ---
 title: "Les vents du changement arrivent pour chacun d’entre vous"
 menu_title: ""
-description: "Les vents du changement arrivent pour chacun d’entre vous"
+description: "St Matthieu, reçu par Al Fike : « Il y a beaucoup de choses qui arrivent dans le monde, beaucoup de choses que vous devez reconnaître et admettre dans vos … »"
 date: 2022-06-01 06:00:01+00:1012
 draft: False
 hidden: True

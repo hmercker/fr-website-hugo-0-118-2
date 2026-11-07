@@ -1,7 +1,7 @@
 ---
 title: "Marcher dans la foi"
 menu_title: ""
-description: "Marcher dans la foi"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Je souhaite vous dire que vous n’avez pas à vous inquiéter des événements de ce monde, bien que vous puissiez … »"
 date: 2022-06-01 06:00:01+00:33
 draft: False
 hidden: True

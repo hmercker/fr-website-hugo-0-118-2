@@ -1,7 +1,7 @@
 ---
 title: "Être en état de grâce"
 menu_title: ""
-description: "Être en état de grâce"
+description: "Judas, reçu par Jimbeau Walsh : « Mes chers frères et sœurs, laissez-moi vous rappeler que vos destinées sont au-delà de ce monde, bien que chacun d’entre … »"
 date: 2022-06-01 06:00:01+00:39
 draft: False
 hidden: True

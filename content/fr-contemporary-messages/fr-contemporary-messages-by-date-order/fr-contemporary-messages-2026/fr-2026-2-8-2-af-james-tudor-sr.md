@@ -1,7 +1,7 @@
 ---
 title: "Qu’ils l’acceptent ou non, cette vérité s’enracine dans l’âme de ceux qui l’entendent"
 menu_title: ""
-description: "Qu’ils l’acceptent ou non, cette vérité s’enracine dans l’âme de ceux qui l’entendent"
+description: "James Tudor Sr, reçu par Albert Fike : « C’est James, votre père et grand-père pour certains. J’ai déployé des efforts considérables pour apporter cette … »"
 date: 2026-04-21 16:00:01+00:01
 draft: False
 hidden: True

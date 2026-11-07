@@ -1,7 +1,7 @@
 ---
 title: "Frères et sœurs de l'Univers"
 menu_title: ""
-description: "Frères et sœurs de l'Univers"
+description: "Christine, reçu par Al Fike : « Quand je dis très loin, je veux dire extrêmement loin, sur une autre planète, bien au-delà de la portée de vos télescopes … »"
 date: 2026-05-24 16:00:01+00:01
 draft: False
 hidden: True

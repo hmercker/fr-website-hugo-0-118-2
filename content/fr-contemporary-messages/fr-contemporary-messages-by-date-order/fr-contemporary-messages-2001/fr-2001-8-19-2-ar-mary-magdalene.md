@@ -1,7 +1,7 @@
 ---
 title: "Différences entre les sexes"
 menu_title: ""
-description: "Différences entre les sexes"
+description: "Marie Madeleine, reçu par Amada Reza : « L’une des raisons en est qu’il a dû rester proche du Père Céleste afin d’aider à amener la terre dans une … »"
 date: 2022-06-01 06:00:01+00:19
 draft: False
 hidden: True

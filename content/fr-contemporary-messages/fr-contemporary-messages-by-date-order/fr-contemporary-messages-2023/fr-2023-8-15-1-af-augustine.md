@@ -1,7 +1,7 @@
 ---
 title: "Ne prenez pas les choses pour acquises"
 menu_title: ""
-description: "Ne prenez pas les choses pour acquises"
+description: "Augustin, reçu par Albert Fike : « Je vous félicite pour votre cohérence et vos efforts pour vous rassembler dans ces prières, des prières qui vous … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

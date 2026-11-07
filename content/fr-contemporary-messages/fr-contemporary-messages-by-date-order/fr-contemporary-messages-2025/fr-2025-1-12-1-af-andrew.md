@@ -1,7 +1,7 @@
 ---
 title: "Continuez à rechercher les bénédictions de Dieu"
 menu_title: ""
-description: "Continuez à rechercher les bénédictions de Dieu "
+description: "André, reçu par Albert Fike : « Puissiez-vous continuer à vous ouvrir à un grand afflux de l’Amour de Dieu, l’Essence de Son Âme, vous amenant toujours … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

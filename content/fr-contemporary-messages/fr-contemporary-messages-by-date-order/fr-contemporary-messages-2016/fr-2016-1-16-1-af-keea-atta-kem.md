@@ -1,7 +1,7 @@
 ---
 title: "Accepter chaque âme unique"
 menu_title: ""
-description: "Accepter chaque âme unique"
+description: "Keea Atta Kem, reçu par Al Fike : « Merci d’être venus, car vous avez été appelés. Et votre discussion du matin était en effet très bonne. »"
 date: 2022-06-01 06:00:01+00:154
 draft: False
 hidden: True

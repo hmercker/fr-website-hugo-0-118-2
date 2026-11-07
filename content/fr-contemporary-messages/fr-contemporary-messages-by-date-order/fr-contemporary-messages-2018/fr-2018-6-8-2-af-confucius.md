@@ -1,7 +1,7 @@
 ---
 title: "Confucius vient guérir à la retraite de la F.U.S.C."
 menu_title: ""
-description: "Confucius vient guérir à la retraite de la F.U.S.C."
+description: "Confucius, reçu par Al Fike : « Je serai chargé de la guérison de chacun d’entre vous et de ceux qui viennent. Je tenterai d’apporter à vous les énergies … »"
 date: 2022-06-01 06:00:01+00:406
 draft: False
 hidden: True

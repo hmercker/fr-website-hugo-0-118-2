@@ -1,7 +1,7 @@
 ---
 title: "Conseils personnels"
 menu_title: ""
-description: "Conseils personnels"
+description: "André, reçu par Kathryn Stokes : « Je Te remercie pour Ton merveilleux Amour et pour toutes les nombreuses bénédictions que Tu nous accordes chaque jour. »"
 date: 2022-06-01 06:00:01+00:17
 draft: False
 hidden: True

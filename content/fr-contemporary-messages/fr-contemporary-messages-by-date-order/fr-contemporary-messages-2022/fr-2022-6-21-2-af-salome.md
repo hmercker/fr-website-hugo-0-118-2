@@ -1,7 +1,7 @@
 ---
 title: "Le monde a besoin de vos prières"
 menu_title: ""
-description: "Le monde a besoin de vos prières"
+description: "Salomé, reçu par Al Fike : « Que les bénédictions de l’amour soient sur vous, mes beaux frères et sœurs de la Terre. Je m’appelle Salomé, j’ai vécu à … »"
 date: 2023-09-01 06:00:01+00:32
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Expériences d’un puritain colonial"
 menu_title: ""
-description: "Expériences d’un puritain colonial"
+description: "Cotton Mather, reçu par FAB : « C’est pour moi un plaisir particulier de communiquer au monde des mortels un acte qui, à mon époque, aurait entraîné les … »"
 date: 2022-06-01 06:00:01+00:15
 draft: False
 hidden: True

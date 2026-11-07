@@ -1,7 +1,7 @@
 ---
 title: "Les pensées sont des choses puissantes"
 menu_title: ""
-description: "Les pensées sont des choses puissantes"
+description: "Flavius Josèphe, reçu par Al Fike : « Je m’appelle Flavius Josèphe. Pour continuer sur la discussion de mon frère, je souhaite dire que votre monde est … »"
 date: 2022-06-01 06:00:01+00:837
 draft: False
 hidden: True

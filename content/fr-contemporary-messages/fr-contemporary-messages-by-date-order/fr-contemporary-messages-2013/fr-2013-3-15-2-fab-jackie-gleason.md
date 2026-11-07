@@ -1,7 +1,7 @@
 ---
 title: "Les expériences d’un grand comédien, Jackie Gleason, comme esprit"
 menu_title: ""
-description: "Les expériences d’un grand comédien, Jackie Gleason, comme esprit"
+description: "Jackie Gleason, reçu par FAB : « Maintenant, je vous ai pour moi tout seul, comme je le voulais. J’avais passé de nombreuses années à penser à la vie … »"
 date: 2022-06-01 06:00:01+00:40
 draft: False
 hidden: True

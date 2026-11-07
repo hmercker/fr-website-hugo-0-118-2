@@ -1,7 +1,7 @@
 ---
 title: "Bienvenue à Victoria et remercie les nombreuses prières pour l'Amour Divin de cette magnifique ville"
 menu_title: ""
-description: "Bienvenue à Victoria et remercie les nombreuses prières pour l'Amour Divin de cette magnifique ville"
+description: "St Matthieu, reçu par Elizabeth Mack : « Je vous souhaite la bienvenue dans cette magnifique ville de Victoria, où de nombreuses prières pour l'Amour … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

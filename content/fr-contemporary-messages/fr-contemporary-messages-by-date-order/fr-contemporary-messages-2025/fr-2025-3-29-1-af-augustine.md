@@ -1,7 +1,7 @@
 ---
 title: "Vos luttes ne sont pas vaines"
 menu_title: ""
-description: "Vos luttes ne sont pas vaines"
+description: "Augustin, reçu par Albert Fike : « Bien que vous perceviez votre progression comme lente, ardue, voire fastidieuse, nous la percevons comme rapide et … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

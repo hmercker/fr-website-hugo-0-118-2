@@ -1,7 +1,7 @@
 ---
 title: "Le système"
 menu_title: ""
-description: "Le système"
+description: "Benjamin Franklin, reçu par FAB : « Permettez-moi de clarifier un point. Nous, les esprits, avons fait des déclarations fortes dans nos canalisations … »"
 date: 2022-06-01 06:00:01+00:70
 draft: False
 hidden: True

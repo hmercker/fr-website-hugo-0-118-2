@@ -1,7 +1,7 @@
 ---
 title: "23ème Révélation. Jésus explique le onzième commandement"
 menu_title: ""
-description: "23ème Révélation. Jésus explique le onzième commandement"
+description: "Jésus, reçu par Dr Samuels : « Et cette déclaration signifiait que, en tant que Messie, je donnais un commandement qui devait être placé avec et surtout … »"
 date: 2022-06-01 06:00:01+00:23
 draft: False
 hidden: True

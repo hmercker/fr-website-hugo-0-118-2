@@ -1,7 +1,7 @@
 ---
 title: "Expériences de John Denver"
 menu_title: ""
-description: "Expériences de John Denver"
+description: "John Denver, reçu par FAB : « Je me sens vraiment humble. Certains des esprits qui ont écrit par votre intermédiaire étaient si hautement développés. »"
 date: 2022-06-01 06:00:01+00:01
 draft: False
 hidden: True

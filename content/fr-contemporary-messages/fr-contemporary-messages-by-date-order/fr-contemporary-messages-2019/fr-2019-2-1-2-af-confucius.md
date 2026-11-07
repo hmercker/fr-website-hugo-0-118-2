@@ -1,7 +1,7 @@
 ---
 title: "Réunissez-vous à nouveau avec vos questions"
 menu_title: ""
-description: "Réunissez-vous à nouveau avec vos questions"
+description: "Confucius, reçu par Al Fike : « Nous sommes très heureux que vous vous soyez rassemblés dans la prière, pour écouter nos paroles, pour contempler ces … »"
 date: 2022-07-10 06:25:48+00:80
 draft: False
 hidden: True

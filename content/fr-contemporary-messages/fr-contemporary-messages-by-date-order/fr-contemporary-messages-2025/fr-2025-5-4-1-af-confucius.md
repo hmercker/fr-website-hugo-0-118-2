@@ -1,7 +1,7 @@
 ---
 title: "Soyez fidèles aux aspirations de votre âme et profitez pleinement de ce temps passé ensemble"
 menu_title: ""
-description: "Soyez fidèles aux aspirations de votre âme et profitez pleinement de ce temps passé ensemble"
+description: "Confucius, reçu par Albert Fike : « Je vous conseille de passer du bon temps ensemble, d’être spirituels dans vos pensées et vos interactions. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

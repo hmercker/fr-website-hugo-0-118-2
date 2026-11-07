@@ -1,7 +1,7 @@
 ---
 title: "Tu seras guérie_2"
 menu_title: ""
-description: "Tu seras guérie_2"
+description: "Marie, reçu par Al Fike : « Ma fille bien-aimée, ne crains pas les mains des médecins, ils te guériront et nous serons à leurs côtés pour les guider. »"
 date: 2026-10-24 06:00:01+00:01
 draft: False
 hidden: True

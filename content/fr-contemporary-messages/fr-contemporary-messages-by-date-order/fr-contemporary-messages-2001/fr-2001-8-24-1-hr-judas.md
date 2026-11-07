@@ -1,7 +1,7 @@
 ---
 title: "Perception et conscience spirituelle"
 menu_title: ""
-description: "Perception et conscience spirituelle"
+description: "Judas, reçu par H : « Je pense qu’il est temps d’essayer quelque chose de plus difficile. Si tu rencontres des problèmes de réception de ma pensée, ne … »"
 date: 2022-06-01 06:00:01+00:26
 draft: False
 hidden: True

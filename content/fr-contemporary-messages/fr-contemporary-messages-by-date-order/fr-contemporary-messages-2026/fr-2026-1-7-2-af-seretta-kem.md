@@ -1,7 +1,7 @@
 ---
 title: "Distinguer les perceptions spirituelles de la conscience de l'âme"
 menu_title: ""
-description: "Distinguer les perceptions spirituelles de la conscience de l'âme"
+description: "Seretta Kem, reçu par Albert Fike : « Cet instrument a bien décrit le cercle auquel vous prenez part. Vos âmes sont la partie la plus puissante … »"
 date: 2026-03-15 06:00:00+00:00
 draft: False
 hidden: True

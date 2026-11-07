@@ -1,7 +1,7 @@
 ---
 title: "Vient nous soutenir et éclairer notre chemin"
 menu_title: ""
-description: "Vient nous soutenir et éclairer notre chemin"
+description: "Moïse, reçu par Al Fike : « Belles âmes, continuez à vous éveiller dans le grand don de Son amour. Il m’a fallu des centaines d’années pour connaître cet … »"
 date: 2023-09-01 06:00:01+00:30
 draft: False
 hidden: True

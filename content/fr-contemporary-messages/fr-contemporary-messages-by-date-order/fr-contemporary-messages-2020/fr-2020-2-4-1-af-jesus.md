@@ -1,7 +1,7 @@
 ---
 title: "Les portes des Cieux Célestes ne seront pas fermées pendant des millénaires"
 menu_title: ""
-description: "Les portes des Cieux Célestes ne seront pas fermées pendant des millénaires"
+description: "Jésus, reçu par Al Fike : « Je n’ai jamais cessé de déployer ces efforts. Depuis le début, mon but a été de proclamer la Bonne Nouvelle de l’Amour de Dieu … »"
 date: 2022-06-01 06:00:01+00:991
 draft: False
 hidden: True

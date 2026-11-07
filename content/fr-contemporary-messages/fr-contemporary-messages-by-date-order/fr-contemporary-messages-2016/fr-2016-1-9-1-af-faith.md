@@ -1,7 +1,7 @@
 ---
 title: "Le voyage simple attend"
 menu_title: ""
-description: "Le voyage simple attend"
+description: "Faith, reçu par Al Fike : « Merci pour l’appréciation de ma photo. Je dois dire que j’ai l’air un peu différente maintenant dans le monde de l’esprit. »"
 date: 2022-06-01 06:00:01+00:151
 draft: False
 hidden: True

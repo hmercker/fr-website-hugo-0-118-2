@@ -1,7 +1,7 @@
 ---
 title: "Le Maître déclare qu’il a choisi docteur Stone pour faire un travail pour le Royaume, tout comme il a choisi M. Padgett - Ce travail sera un travail fait avec amour, exigeant beaucoup d’efforts aussi bien physiques que spirituels"
 menu_title: ""
-description: "Le Maître déclare qu’il a choisi docteur Stone pour faire un travail pour le Royaume, tout comme il a choisi M. Padgett - Ce travail sera un travail fait avec amour, exigeant beaucoup d’efforts aussi bien physiques que spirituels"
+description: "Jésus, reçu par James Padgett : « J’ai entendu ce que vous avez dit à votre ami, le Dr. Stone, et je dois dire que tandis que vous avez une certaine … »"
 date: 2022-06-01 06:00:01+00:89
 draft: False
 hidden: True

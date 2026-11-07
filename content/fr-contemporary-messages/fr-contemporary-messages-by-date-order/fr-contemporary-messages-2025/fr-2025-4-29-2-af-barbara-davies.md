@@ -1,7 +1,7 @@
 ---
 title: "Soyez un canal de l'Amour de Dieu où que vous alliez"
 menu_title: ""
-description: "Soyez un canal de l'Amour de Dieu où que vous alliez"
+description: "Barbara Davies, reçu par Albert Fike : « Je vous aime tous profondément et j’éprouve une grande compassion pour vos difficultés sur ce plan terrestre … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

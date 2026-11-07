@@ -1,7 +1,7 @@
 ---
 title: "L’holocauste Nazi et l’Empire"
 menu_title: ""
-description: "L’holocauste Nazi et l’Empire"
+description: "Jésus, reçu par FAB : « Lorsqu’un collègue de l’église fut incrédule à propos de ma canalisation selon laquelle Dieu suscite des empires, vous étiez … »"
 date: 2022-06-01 06:00:01+00:26
 draft: False
 hidden: True

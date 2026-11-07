@@ -1,7 +1,7 @@
 ---
 title: "Dieu apportera une nouvelle lumière dans ce monde"
 menu_title: ""
-description: "Dieu apportera une nouvelle lumière dans ce monde"
+description: "Isaïe, reçu par Al Fike : « Car la plupart de l'humanité est endormie. Elle sommeille dans ses illusions. »"
 date: 2022-06-01 06:00:01+00:248
 draft: False
 hidden: True

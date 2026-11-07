@@ -1,7 +1,7 @@
 ---
 title: "La négativité à la guerre"
 menu_title: ""
-description: "La négativité à la guerre"
+description: "Wat Tyler, reçu par FAB : « Vous captez parfaitement nos pensées, alors ayez confiance en votre don. Ah, il y a si longtemps que la mort est venue à moi ! »"
 date: 2022-06-01 06:00:01+00:20
 draft: False
 hidden: True

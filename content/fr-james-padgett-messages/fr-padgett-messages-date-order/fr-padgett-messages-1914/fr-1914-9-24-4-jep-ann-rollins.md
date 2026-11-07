@@ -1,7 +1,7 @@
 ---
 title: "Et d’Anne Rollins"
 menu_title: ""
-description: "Et d’Anne Rollins"
+description: "Anne Rollins, reçu par James Padgett : « Je sais, car j’étais là et je lui ai parlé plusieurs fois. Tu sentiras bientôt l’influence de sa présence à tes … »"
 date: 2022-06-01 06:00:01+00:15
 draft: False
 hidden: True

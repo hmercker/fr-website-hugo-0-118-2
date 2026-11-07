@@ -1,7 +1,7 @@
 ---
 title: "Vous ne pouvez pas imaginer ce qui vient "
 menu_title: ""
-description: "Vous ne pouvez pas imaginer ce qui vient "
+description: "Confucius, reçu par Al Fike : « Vous ne pouvez pas imaginer, âmes bien-aimées, ce qui est à venir. C’est au-delà des perceptions de votre esprit et nous … »"
 date: 2022-06-01 06:00:01+00:641
 draft: False
 hidden: True

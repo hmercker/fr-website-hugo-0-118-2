@@ -1,7 +1,7 @@
 ---
 title: "La restauration de l'Amour Divin"
 menu_title: ""
-description: "La restauration de l'Amour Divin"
+description: "James Reid, reçu par Brian Holmes : « La foi nous permet de nous rapprocher de vous et de transmettre des messages à travers vous. »"
 date: 2022-06-01 06:00:01+00:220
 draft: False
 hidden: True

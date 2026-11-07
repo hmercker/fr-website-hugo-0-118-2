@@ -1,7 +1,7 @@
 ---
 title: "Une situation particulière"
 menu_title: ""
-description: "Une situation particulière"
+description: "Jésus, reçu par FAB : « D’une part, nous avons dit à plusieurs reprises, par l’intermédiaire de M. Padgett, que nous n’intervenons pas dans les affaires … »"
 date: 2022-06-01 06:00:01+00:218
 draft: False
 hidden: True

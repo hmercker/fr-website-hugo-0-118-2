@@ -1,7 +1,7 @@
 ---
 title: "Comment pouvons-nous être aimants envers ceux qui nous offensent, nous rejettent, ne sont pas d'accord avec nous ?"
 menu_title: ""
-description: "Comment pouvons-nous être aimants envers ceux qui nous offensent, nous rejettent, ne sont pas d'accord avec nous ?"
+description: "Yogananda, reçu par Jimbeau Walsh : « Comment pouvons-nous être aimants envers ceux qui nous offensent nous rejettent qui sont en désaccord avec nous (et) … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

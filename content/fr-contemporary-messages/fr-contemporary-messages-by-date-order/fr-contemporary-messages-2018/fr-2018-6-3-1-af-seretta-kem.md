@@ -1,7 +1,7 @@
 ---
 title: "Tous les dons proviennent de l'Amour de Dieu"
 menu_title: ""
-description: "Tous les dons proviennent de l'Amour de Dieu"
+description: "Seretta Kem, reçu par Al Fike : « Que vos âmes continuent à recevoir le grand afflux de l’Amour du Père, afin que vous puissiez progresser dans cet Amour … »"
 date: 2022-06-01 06:00:01+00:402
 draft: False
 hidden: True

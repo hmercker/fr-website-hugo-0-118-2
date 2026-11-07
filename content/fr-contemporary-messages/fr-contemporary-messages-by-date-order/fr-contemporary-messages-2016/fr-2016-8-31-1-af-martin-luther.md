@@ -1,7 +1,7 @@
 ---
 title: "Bienvenue à Francfort"
 menu_title: ""
-description: "Bienvenue à Francfort"
+description: "Martin Luther, reçu par Al Fike : « Je regrette de ne pouvoir m’exprimer dans ma langue maternelle par l’intermédiaire de cet instrument, qui n’y est pas … »"
 date: 2026-10-24 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Hélène commente le sermon du prédicateur sur la Nouvelle Pensée"
 menu_title: ""
-description: "Hélène commente le sermon du prédicateur sur la Nouvelle Pensée"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, je vois que tu es heureux ce soir, et je le suis aussi, car je t’ai entendue lire les … »"
 date: 2022-06-01 06:00:01+00:30
 draft: False
 hidden: True

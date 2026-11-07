@@ -1,7 +1,7 @@
 ---
 title: "Revisiter les messages Célestes"
 menu_title: ""
-description: "Revisiter les messages Célestes"
+description: "Judas, reçu par Jimbeau Walsh : « Mes chers frères et sœurs, vous avez parcouru un long chemin. On vous a beaucoup donné, tout ce dont on aurait besoin … »"
 date: 2022-06-01 06:00:01+00:54
 draft: False
 hidden: True

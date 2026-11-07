@@ -1,7 +1,7 @@
 ---
 title: "Vos obstacles vous renforcent dans la Lumière"
 menu_title: ""
-description: "Vos obstacles vous renforcent dans la Lumière"
+description: "Alec Gaunt, reçu par Al Fike : « Depuis de nombreuses années, vous avez reçu la connaissance et les conseils indiquant que vous parcourriez le monde pour … »"
 date: 2026-10-24 06:00:01+00:01
 draft: False
 hidden: True

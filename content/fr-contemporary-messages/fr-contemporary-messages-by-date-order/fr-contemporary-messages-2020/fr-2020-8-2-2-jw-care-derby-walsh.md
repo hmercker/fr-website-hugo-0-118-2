@@ -1,7 +1,7 @@
 ---
 title: "Je l'adore!"
 menu_title: ""
-description: "Je l'adore!"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Je serai brève parce que mon cher Jimbeau est assez fatigué, mais je tiens à dire que lorsque j’ai entendu … »"
 date: 2022-06-01 06:00:01+00:1208
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Saint Jean – Dieu n’avait pas prévu que Judas trahirait Jésus ; Judas n’était pas une mauvaise personne"
 menu_title: ""
-description: "Saint Jean – Dieu n’avait pas prévu que Judas trahirait Jésus ; Judas n’était pas une mauvaise personne"
+description: "St Jean, reçu par James Padgett : « Eh bien, il y a des choses dans mon évangile qui ne semblent pas être très simples, et qui sont peut-être même … »"
 date: 2022-06-01 06:00:01+00:200
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Dieu ne vous abandonne jamais"
 menu_title: ""
-description: "Dieu ne vous abandonne jamais"
+description: "André, reçu par Al Fike : « C’est par la force de votre âme que vous portez la lumière. Peu importe les conditions que vous pouvez rencontrer dans ce … »"
 date: 2022-06-01 06:00:01+00:968
 draft: False
 hidden: True

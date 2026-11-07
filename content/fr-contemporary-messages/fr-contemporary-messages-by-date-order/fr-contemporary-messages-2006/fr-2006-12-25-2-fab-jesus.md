@@ -1,7 +1,7 @@
 ---
 title: "Le peuple Américain et la paix"
 menu_title: ""
-description: "Le peuple Américain et la paix"
+description: "Jésus, reçu par FAB : « Et vous percevez également que la majeure partie du reste du monde est pratiquement affamée en raison de cette inégalité flagrante … »"
 date: 2022-06-01 06:00:01+00:78
 draft: False
 hidden: True

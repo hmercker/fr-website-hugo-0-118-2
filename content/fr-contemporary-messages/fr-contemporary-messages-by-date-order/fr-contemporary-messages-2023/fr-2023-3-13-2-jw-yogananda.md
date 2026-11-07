@@ -1,7 +1,7 @@
 ---
 title: "Soyez Calme"
 menu_title: ""
-description: "Soyez Calme"
+description: "Yogananda, reçu par Jimbeau Walsh : « Soyez calme afin que vous puissiez sentir la Présence de Dieu. C’est une grande sagesse et pourtant vous voyez que … »"
 date: 2023-09-01 06:00:01+00:94
 draft: False
 hidden: True

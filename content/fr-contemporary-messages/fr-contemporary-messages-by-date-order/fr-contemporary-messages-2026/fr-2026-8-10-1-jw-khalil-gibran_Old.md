@@ -1,7 +1,7 @@
 ---
 title: "La liberté de l'éternité"
 menu_title: ""
-description: "La liberté de l'éternité"
+description: "Khalil Gibran, reçu par Jimbeau Walsh : « Je lui ai récemment adressé quelques mots, et je vais partager quelques lignes avec vous, bien que vous les … »"
 date: 2026-09-08 16:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Réponse aux questions de H"
 menu_title: ""
-description: "Réponse aux questions de H"
+description: "Seretta Kem, reçu par Al Fike : « En ce qui concerne le besoin d’un cabinet et de trompettes, il s’agit d’un mécanisme de vibrations inférieures qui, nous … »"
 date: 2022-06-01 06:00:01+00:53
 draft: False
 hidden: True

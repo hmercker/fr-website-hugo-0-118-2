@@ -1,7 +1,7 @@
 ---
 title: "Quelques questions sur les guides spirituels, les attaques spirituelles et le matérialisme"
 menu_title: ""
-description: "Quelques questions sur les guides spirituels, les attaques spirituelles et le matérialisme"
+description: "Judas, reçu par H : « Mon cher frère, je voudrais répondre à quelques questions qui t’ont été adressées ces derniers jours. »"
 date: 2022-06-01 06:00:01+00:30
 draft: False
 hidden: True

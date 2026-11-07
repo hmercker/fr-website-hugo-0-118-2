@@ -1,7 +1,7 @@
 ---
 title: "Affirmation par Mme Padgett"
 menu_title: ""
-description: "Affirmation par Mme Padgett"
+description: "Hélène Padgett, reçu par James Padgett : « Oh, mon cher, ce fut une soirée glorieuse et le Maître semble respirer la plénitude du grand amour qu’il possède. »"
 date: 2022-06-01 06:00:01+00:04
 draft: False
 hidden: True

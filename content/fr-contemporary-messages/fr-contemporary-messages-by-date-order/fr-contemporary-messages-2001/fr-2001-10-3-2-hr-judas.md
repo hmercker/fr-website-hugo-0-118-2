@@ -1,7 +1,7 @@
 ---
 title: "Parallèles entre la Galilée à l’époque de Jésus et aujourd’hui"
 menu_title: ""
-description: "Parallèles entre la Galilée à l’époque de Jésus et aujourd’hui"
+description: "Judas, reçu par H : « Bien que ce ne soit pas un récit sur la vie de Jésus, je voudrais profiter de cette occasion pour parler, plus en détail, des … »"
 date: 2022-06-01 06:00:01+00:57
 draft: False
 hidden: True

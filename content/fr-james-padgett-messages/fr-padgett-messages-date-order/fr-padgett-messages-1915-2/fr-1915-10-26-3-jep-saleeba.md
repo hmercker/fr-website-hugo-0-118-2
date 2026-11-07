@@ -1,7 +1,7 @@
 ---
 title: "Saleeba est descendue vers la troisième sphère pour développer son âme"
 menu_title: ""
-description: "Saleeba est descendue vers la troisième sphère pour développer son âme"
+description: "Saleeba, reçu par James Padgett : « Votre douce épouse fut souvent avec moi, me parlant de cet Amour et me montrant la voie à suivre pour le chercher, je … »"
 date: 2022-06-01 06:00:01+00:21
 draft: False
 hidden: True

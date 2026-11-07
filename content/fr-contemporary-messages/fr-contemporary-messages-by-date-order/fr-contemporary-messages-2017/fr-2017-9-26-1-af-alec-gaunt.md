@@ -1,7 +1,7 @@
 ---
 title: "Le monde a besoin de plus de gens comme vous"
 menu_title: ""
-description: "Le monde a besoin de plus de gens comme vous"
+description: "Alec Gaunt, reçu par Al Fike : « Cela ne veut pas dire que j'ai été absent. J'ai été avec vous, très souvent, observant vos efforts, vos discussions, vos … »"
 date: 2022-06-01 06:00:01+00:120
 draft: False
 hidden: True

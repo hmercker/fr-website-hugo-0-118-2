@@ -1,7 +1,7 @@
 ---
 title: "Guérison administrée au Cercle de La Barbade"
 menu_title: ""
-description: "Guérison administrée au Cercle de La Barbade"
+description: "Mylora, reçu par Albert Fike : « Lorsque vous êtes engagé dans l’œuvre de Dieu, lorsque vous demandez à être utilisé comme un instrument pour Dieu … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: Célébration spirituelle de Noël"
 menu_title: ""
-description: "Célébration spirituelle de Noël"
+description: "George Stokes, reçu par Elizabeth Mack : « À l’approche du jour où le Père a renouvelé Son don, le potentiel de ce don, à toute l’humanité sur Terre, à … »"
 date: 2026-01-21 16:00:01+00:01
 draft: False
 hidden: True

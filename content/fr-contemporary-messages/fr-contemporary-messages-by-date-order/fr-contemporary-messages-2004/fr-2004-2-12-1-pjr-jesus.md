@@ -1,7 +1,7 @@
 ---
 title: "Le chemin que j'ai pris"
 menu_title: ""
-description: "Le chemin que j'ai pris"
+description: "Jésus, reçu par PJR : « Et pourquoi ne vous écrirais-je pas ? Comment ne pourrais-je pas répondre à des sentiments d'amour et d'appréciation aussi … »"
 date: 2022-06-01 06:00:01+00:33
 draft: False
 hidden: True

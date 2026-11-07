@@ -1,7 +1,7 @@
 ---
 title: "La volonté de Dieu"
 menu_title: ""
-description: "La volonté de Dieu"
+description: "St Matthieu, reçu par Al Fike : « La Volonté de Dieu, la Volonté de Dieu, quelle bénédiction que de connaître la volonté de Dieu. »"
 date: 2022-06-01 06:00:01+00:282
 draft: False
 hidden: True

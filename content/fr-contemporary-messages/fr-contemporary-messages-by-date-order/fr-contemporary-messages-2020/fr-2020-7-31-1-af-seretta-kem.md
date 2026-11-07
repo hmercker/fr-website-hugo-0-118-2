@@ -1,7 +1,7 @@
 ---
 title: "Seretta Kem aidera ceux qui se sentent appelés "
 menu_title: ""
-description: "Seretta Kem aidera ceux qui se sentent appelés "
+description: "Seretta Kem, reçu par Al Fike : « Amour et lumière et tout le reste suivra. Vous apprendrez à connaître votre véritable identité. »"
 date: 2022-06-01 06:00:01+00:1204
 draft: False
 hidden: True

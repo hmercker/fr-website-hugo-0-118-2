@@ -1,7 +1,7 @@
 ---
 title: "Priez pour être utilisé comme des canaux d’amour et de lumière"
 menu_title: ""
-description: "Priez pour être utilisé comme des canaux d’amour et de lumière"
+description: "Michaël Collier, reçu par Al Fike : « Que l’amour de Dieu continue de bénir vos âmes, mes amis. En effet, je vois dans votre monde qu’il y a tant de … »"
 date: 2022-06-01 06:00:01+00:1428
 draft: False
 hidden: True

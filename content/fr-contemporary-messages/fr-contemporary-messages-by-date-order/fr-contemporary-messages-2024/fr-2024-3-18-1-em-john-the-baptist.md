@@ -1,7 +1,7 @@
 ---
 title: "Faire chaque pas prudemment, complètement, pleinement dans la grâce de Dieu"
 menu_title: ""
-description: "Faire chaque pas prudemment, complètement, pleinement dans la grâce de Dieu"
+description: "Jean le Baptiste, reçu par Elizabeth Mack : « Vous êtes parmi les rares au monde à poursuivre ce chemin et vous verrez, lorsque vous viendrez, quelle … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

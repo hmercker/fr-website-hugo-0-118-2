@@ -1,7 +1,7 @@
 ---
 title: "Vous volerez sur le souffle de Dieu pour éveiller de nombreuses âmes"
 menu_title: ""
-description: "Vous volerez sur le souffle de Dieu pour éveiller de nombreuses âmes"
+description: "Confucius, reçu par Albert Fike : « Oh, petits oiseaux, comme votre plumage grandit, se renforce et se colore. Touché par le Divin, afin que vous puissiez … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

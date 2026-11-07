@@ -1,7 +1,7 @@
 ---
 title: "La douleur de Jacques Kerouac"
 menu_title: ""
-description: "La douleur de Jacques Kerouac"
+description: "Jack Kerouac, reçu par FAB : « Ce qui se profilait dans ma conscience était ma négligence envers ma fille Jan. C'était vraiment horrible. »"
 date: 2022-06-01 06:00:01+00:86
 draft: False
 hidden: True

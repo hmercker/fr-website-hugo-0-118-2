@@ -1,7 +1,7 @@
 ---
 title: "Élever chacun au sein du collectif spirituel de l'Amour Divin"
 menu_title: ""
-description: "Élever chacun au sein du collectif spirituel de l'Amour Divin"
+description: "Judas, reçu par Jimbeau Walsh : « Vous connaissez tous la parole attribuée au Maître : « Ne jugez point, afin de ne pas être jugés. » Si nous appliquons … »"
 date: 2026-10-12 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Message d’espoir"
 menu_title: ""
-description: "Message d’espoir"
+description: "St Matthieu & St André, reçu par Kathryn Stokes : « Comme vous le voyez, vous êtes remerciant pour l’appel au réveil, même si cela semble causer de … »"
 date: 2022-06-01 06:00:01+00:13
 draft: False
 hidden: True

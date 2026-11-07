@@ -1,7 +1,7 @@
 ---
 title: "Victor Hugo dans le monde des esprits"
 menu_title: ""
-description: "Victor Hugo dans le monde des esprits"
+description: "Joseph (AT), reçu par FAB : « Il dit qu’il s’est senti profondément honoré par la notoriété et la reconnaissance qu’il a reçues, mais que cela n’a pas … »"
 date: 2022-06-01 06:00:01+00:99
 draft: False
 hidden: True

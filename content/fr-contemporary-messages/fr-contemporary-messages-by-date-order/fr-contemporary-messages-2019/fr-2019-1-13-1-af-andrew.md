@@ -1,7 +1,7 @@
 ---
 title: "Le destin de ce monde repose sur le choix de chaque âme"
 menu_title: ""
-description: "Le destin de ce monde repose sur le choix de chaque âme"
+description: "André, reçu par Al Fike : « Le destin du monde repose sur chaque âme et sur les choix qu’elle fait dans ce monde. Comme une âme aspire à être dans la … »"
 date: 2022-06-01 06:00:01+00:602
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La mère spirituelle d’un prédicateur matérialiste écrit sur sa découverte spirituelle et ses nouvelles croyances et aimerait que son fils sache et croie comme elle le fait"
 menu_title: ""
-description: "La mère spirituelle d’un prédicateur matérialiste écrit sur sa découverte spirituelle et ses nouvelles croyances et aimerait que son fils sache et croie comme elle le fait"
+description: "Madame Mitchell, reçu par James Padgett : « Laissez-moi vous partagez quelques propos. Je sais que ce que Paul a dit est vrai, car, au cours des années … »"
 date: 2022-06-01 06:00:01+00:161
 draft: False
 hidden: True

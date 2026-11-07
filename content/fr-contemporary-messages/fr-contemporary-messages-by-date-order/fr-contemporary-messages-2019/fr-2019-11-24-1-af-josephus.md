@@ -1,7 +1,7 @@
 ---
 title: "Questions et réponses "
 menu_title: ""
-description: "Questions et réponses "
+description: "Flavius Josèphe, reçu par Al Fike : « Je souhaite d’abord commenter le don de perception et de créativité de la chère fille. Ses dons s’intensifieront et … »"
 date: 2022-06-01 06:00:01+00:922
 draft: False
 hidden: True

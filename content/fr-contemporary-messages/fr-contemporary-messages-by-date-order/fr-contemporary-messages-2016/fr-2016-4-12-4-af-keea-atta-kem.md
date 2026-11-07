@@ -1,7 +1,7 @@
 ---
 title: "Discours sur la réception de conseils"
 menu_title: ""
-description: "Discours sur la réception de conseils"
+description: "Keea Atta Kem, reçu par Al Fike : « Ce n’est là qu’un des moyens par lesquels nous communiquons avec vous, qui aspirez à être proches de Dieu par Son Amour. »"
 date: 2026-10-24 06:00:01+00:01
 draft: False
 hidden: True

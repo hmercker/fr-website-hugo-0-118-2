@@ -1,7 +1,7 @@
 ---
 title: "L'importance de la vie terrestre"
 menu_title: ""
-description: "L'importance de la vie terrestre"
+description: "Abdulla : « C'est merveilleux d'être avec vous ce soir et je sais que certains d'entre vous sont fatigués, mais je veux vous parler pendant un court moment. »"
 date: 2022-06-01 06:00:01+00:158
 draft: False
 hidden: True

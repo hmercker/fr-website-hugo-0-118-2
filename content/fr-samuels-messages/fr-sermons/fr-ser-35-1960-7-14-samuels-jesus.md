@@ -1,7 +1,7 @@
 ---
 title: "35ème Sermon – L’Espoir d’Isaïe d’un Royaume idéal pour Israël"
 menu_title: ""
-description: "35ème Sermon – L’Espoir d’Isaïe d’un Royaume idéal pour Israël"
+description: "Jésus, reçu par Dr Samuels : « Et on verra que, plus tard, le prophète Michée a parlé dans la même veine. Je voudrais conclure ces sermons sur Isaïe, au … »"
 date: 2022-06-01 06:00:01+00:88
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Conditions requises pour la manifestation"
 menu_title: ""
-description: "Conditions requises pour la manifestation"
+description: "Orion, reçu par Albert Fike : « Puisses vos âmes s’éveiller plus pleinement, mes chers frères et sœurs, afin que ce grand Amour de Dieu, cette Essence … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

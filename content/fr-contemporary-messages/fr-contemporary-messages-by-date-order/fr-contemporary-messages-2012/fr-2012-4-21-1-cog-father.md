@@ -1,7 +1,7 @@
 ---
 title: "Les Dix Commandements"
 menu_title: ""
-description: "Les Dix Commandements"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Aujourd’hui, nous allons parler des dix commandements. C’est un sujet que tu ne connais pas beaucoup et qui … »"
 date: 2022-06-01 06:00:01+00:240
 draft: False
 hidden: True

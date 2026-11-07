@@ -1,7 +1,7 @@
 ---
 title: "Le Juge Syrick témoigne des nombreuses bénédictions qu’il a reçue depuis sa venue dans le monde des esprits"
 menu_title: ""
-description: "Le Juge Syrick témoigne des nombreuses bénédictions qu’il a reçue depuis sa venue dans le monde des esprits"
+description: "Juge Syrick, reçu par James Padgett : « Vous ne pouvez pas me perdre, comme le disent les garçons, car j’ai votre femme à mes côtés, et je pense que nous … »"
 date: 2022-06-01 06:00:01+00:188
 draft: False
 hidden: True

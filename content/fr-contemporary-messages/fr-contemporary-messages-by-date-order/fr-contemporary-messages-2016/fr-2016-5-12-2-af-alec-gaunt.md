@@ -1,7 +1,7 @@
 ---
 title: "Débarrassez-vous de vos peurs et de ce qui vous encombre"
 menu_title: ""
-description: "Débarrassez-vous de vos peurs et de ce qui vous encombre"
+description: "Alec Gaunt, reçu par Al Fike : « Il y a beaucoup de changements à venir, âmes bien-aimées, à la fois en vous et autour de vous. »"
 date: 2022-06-01 06:00:01+00:207
 draft: False
 hidden: True

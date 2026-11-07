@@ -1,7 +1,7 @@
 ---
 title: "Clarification - 2"
 menu_title: ""
-description: "Clarification - 2"
+description: "Jésus, reçu par FAB : « Permettez-moi de commenter ce que j'ai canalisé il y a trois jours. En période de troubles, les gens réagissent de différentes … »"
 date: 2022-06-01 06:00:01+00:102
 draft: False
 hidden: True

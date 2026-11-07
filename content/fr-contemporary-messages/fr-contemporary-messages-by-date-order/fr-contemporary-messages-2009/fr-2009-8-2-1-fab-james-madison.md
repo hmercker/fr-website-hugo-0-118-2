@@ -1,7 +1,7 @@
 ---
 title: "Le soi-disant problème de Madison"
 menu_title: ""
-description: "Le soi-disant problème de Madison"
+description: "James Madison, reçu par FAB : « Permettez-moi d'ajouter ma voix à celle des autres pères fondateurs. Tout d'abord, laissez-moi vous dire que le Créateur … »"
 date: 2022-06-01 06:00:01+00:74
 draft: False
 hidden: True

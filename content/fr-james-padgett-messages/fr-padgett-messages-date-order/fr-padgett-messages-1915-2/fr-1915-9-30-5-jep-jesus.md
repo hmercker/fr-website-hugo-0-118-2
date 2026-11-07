@@ -1,7 +1,7 @@
 ---
 title: "Confirme le message de Luc et qu’il est le représentant du Père pour aider son œuvre sur terre"
 menu_title: ""
-description: "Confirme le message de Luc et qu’il est le représentant du Père pour aider son œuvre sur terre"
+description: "Jésus, reçu par James Padgett : « Ce que vous avez reçu de Luc dans son dernier message est vrai. Le point culminant de vos problèmes est atteint, et à … »"
 date: 2022-06-01 06:00:01+00:284
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Samuel partage son expérience dans la sixième sphère et son progrès vers le Royaume Céleste"
 menu_title: ""
-description: "Samuel partage son expérience dans la sixième sphère et son progrès vers le Royaume Céleste"
+description: "Samuel, reçu par James Padgett : « J’ai vécu de nombreuses années dans cette vie spirituelle, plus que vous ne le pensez d’après le récit de ma vie … »"
 date: 2022-06-01 06:00:01+00:169
 draft: False
 hidden: True

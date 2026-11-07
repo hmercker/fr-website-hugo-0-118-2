@@ -1,7 +1,7 @@
 ---
 title: "Le bien qui se cache"
 menu_title: ""
-description: "Le bien qui se cache"
+description: "Judas, reçu par H : « Jésus, ayant levé les yeux, vit les riches qui mettaient leurs offrandes dans le tronc. Il vit aussi une pauvre veuve, qui y mettait … »"
 date: 2022-06-01 06:00:01+00:35
 draft: False
 hidden: True

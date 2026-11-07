@@ -1,7 +1,7 @@
 ---
 title: "Le mysticisme et les expériences personnelles en esprit de Walt Whitman"
 menu_title: ""
-description: "Le mysticisme et les expériences personnelles en esprit de Walt Whitman"
+description: "Walt Whitman, reçu par FAB : « Oh, comme j'ai aimé l'Amérique - la haute Amérique des nobles idéaux et des nobles aspirations, pas l'Amérique du … »"
 date: 2022-06-01 06:00:01+00:41
 draft: False
 hidden: True

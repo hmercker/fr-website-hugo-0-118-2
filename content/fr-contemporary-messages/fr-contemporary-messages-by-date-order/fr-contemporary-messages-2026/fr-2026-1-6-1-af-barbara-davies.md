@@ -1,7 +1,7 @@
 ---
 title: "Le monde peut être transformé par la puissance de l'Amour de Dieu"
 menu_title: ""
-description: "Le monde peut être transformé par la puissance de l'Amour de Dieu"
+description: "Barbara Davies, reçu par Albert Fike : « En ce temps de prière et de ressourcement, je souhaite que chacune d’entre vous trouve une plus grande … »"
 date: 2026-03-15 06:00:00+00:00
 draft: False
 hidden: True

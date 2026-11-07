@@ -1,7 +1,7 @@
 ---
 title: "L’Amour de Dieu est la clé"
 menu_title: ""
-description: "L’Amour de Dieu est la clé"
+description: "Jean le Bien Aimé, reçu par Al Fike : « Beaucoup, beaucoup d’âmes sont ici, priant avec vous, observant et apprenant. Car lorsque vous vous réunissez de … »"
 date: 2022-06-01 06:00:01+00:236
 draft: False
 hidden: True

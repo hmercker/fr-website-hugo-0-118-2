@@ -1,7 +1,7 @@
 ---
 title: "Priscilla Stone est heureuse de voir l’Amour du Père venir dans son âme"
 menu_title: ""
-description: "Priscilla Stone est heureuse de voir l’Amour du Père venir dans son âme"
+description: "Priscilla Stone, reçu par James Padgett : « Laissez-moi vous dire un mot. J’aimerais que son âme lui soit ouverte comme elle l’est pour moi, car il … »"
 date: 2022-06-01 06:00:01+00:124
 draft: False
 hidden: True

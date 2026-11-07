@@ -1,7 +1,7 @@
 ---
 title: "La nécessité pour les hommes de tourner leurs pensées vers les choses spirituelles"
 menu_title: ""
-description: "La nécessité pour les hommes de tourner leurs pensées vers les choses spirituelles"
+description: "St Luc, reçu par James Padgett : « Je désire écrire mon message promis, et si vous pensez que vous pouvez le recevoir, je vais essayer d’écrire. »"
 date: 2022-06-01 06:00:01+00:299
 draft: False
 hidden: True

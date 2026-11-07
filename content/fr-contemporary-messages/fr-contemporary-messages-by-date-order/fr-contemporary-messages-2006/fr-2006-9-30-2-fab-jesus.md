@@ -1,7 +1,7 @@
 ---
 title: "Jésus et le Talmud - Les deux Talmuds"
 menu_title: ""
-description: "Jésus et le Talmud - Les deux Talmuds"
+description: "Jésus, reçu par FAB : « Il y a une certaine confusion dans votre esprit au sujet des deux Talmuds. Eh bien, le Talmud palestinien a été écrit après ma … »"
 date: 2022-06-01 06:00:01+00:50
 draft: False
 hidden: True

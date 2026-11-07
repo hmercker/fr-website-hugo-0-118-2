@@ -1,7 +1,7 @@
 ---
 title: "Bénédictions pour l'anniversaire de Dorothée"
 menu_title: ""
-description: "Bénédictions pour l'anniversaire de Dorothée"
+description: "André, reçu par Albert Fike : « Je souhaite saluer la chère fille et sa fille en ce jour. Les bénédictions de l’amour sur eux. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

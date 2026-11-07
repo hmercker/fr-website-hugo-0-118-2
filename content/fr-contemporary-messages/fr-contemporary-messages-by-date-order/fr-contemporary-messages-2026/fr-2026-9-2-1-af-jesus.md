@@ -1,7 +1,7 @@
 ---
 title: "Bien que nous commencions par le plan physique, beaucoup sont bénis dans l’esprit"
 menu_title: ""
-description: "Bien que nous commencions par le plan physique, beaucoup sont bénis dans l’esprit"
+description: "Jésus, reçu par Albert Fike : « Ceux qui sont mes disciples seront bénis en conséquence ; ils seront protégés, guidés, inspirés et rendus capables d’agir … »"
 date: 2026-11-05 06:00:01+00:01
 draft: False
 hidden: True

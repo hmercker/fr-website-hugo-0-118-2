@@ -1,7 +1,7 @@
 ---
 title: "La nature consciente de l’homme"
 menu_title: ""
-description: "La nature consciente de l’homme"
+description: "Orion, reçu par Albert Fike : « Il y a une grande tendance sur votre plan terrestre à catégoriser, à restreindre et à limiter avec des définitions, des … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

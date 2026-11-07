@@ -1,7 +1,7 @@
 ---
 title: "Guerre et paix et le plan de Dieu - 2"
 menu_title: ""
-description: "Guerre et paix et le plan de Dieu - 2"
+description: "Jésus, reçu par FAB : « Je vois que vous êtes confus. Le message que j’ai communiqué par l’intermédiaire de James Padgett semble dire que nous, les Anges … »"
 date: 2022-06-01 06:00:01+00:80
 draft: False
 hidden: True

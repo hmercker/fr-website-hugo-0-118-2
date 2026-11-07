@@ -1,7 +1,7 @@
 ---
 title: "Sir Walter Raleigh sur sa progression vers la 4ème sphère"
 menu_title: ""
-description: "Sir Walter Raleigh sur sa progression vers la 4ème sphère"
+description: "Sir Walter Raleigh, reçu par James Padgett : « Eh bien, j’ai entendu ce que le dernier esprit a écrit et je veux simplement dire que la teneur de son … »"
 date: 2022-06-01 06:00:01+00:65
 draft: False
 hidden: True

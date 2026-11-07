@@ -1,7 +1,7 @@
 ---
 title: "Le pouvoir de l'amour d'effacer les erreurs"
 menu_title: ""
-description: "Le pouvoir de l'amour d'effacer les erreurs"
+description: "James Padgett, reçu par Kathryn Stokes : « Ma chère sœur, tu sais que nous sommes toujours capables de partager nos sentiments et nos pensées avec nos … »"
 date: 2022-06-01 06:00:01+00:47
 draft: False
 hidden: True

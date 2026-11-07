@@ -1,7 +1,7 @@
 ---
 title: "Le Royaume de Dieu sur terre et dans le monde des esprits ou le chemin vers le Royaume de l’homme parfait"
 menu_title: ""
-description: "Le Royaume de Dieu sur terre et dans le monde des esprits ou le chemin vers le Royaume de l’homme parfait"
+description: "Jésus, reçu par James Padgett : « Il s’agit d’un sujet que beaucoup d’hommes et enseignants se sont efforcés d’expliquer à l’humanité, et les chemins … »"
 date: 2022-06-01 06:00:01+00:118
 draft: False
 hidden: True

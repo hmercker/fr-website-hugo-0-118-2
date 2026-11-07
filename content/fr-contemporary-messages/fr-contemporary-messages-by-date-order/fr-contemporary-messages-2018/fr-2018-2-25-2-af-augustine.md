@@ -1,7 +1,7 @@
 ---
 title: "Servir avec humilité"
 menu_title: ""
-description: "Servir avec humilité"
+description: "Augustin, reçu par Al Fike : « Vous souvenez-vous de l’histoire de votre frère Jésus qui parcourait la terre en parlant de la Vérité de l’Amour Divin ? »"
 date: 2022-06-01 06:00:01+00:332
 draft: False
 hidden: True

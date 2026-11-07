@@ -1,7 +1,7 @@
 ---
 title: "Chante avec les Oiseaux"
 menu_title: ""
-description: "Chante avec les Oiseaux"
+description: "St François d'Assise, reçu par Helge Mercker : « Ma fille, écoute le vent doux, sens la chaleur de la brise de l’océan. Écoute le bruit des feuilles de … »"
 date: 2022-06-01 06:00:01+00:1092
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Jules César écrit que la position terrestre ne détermine pas la demeure spirituelle"
 menu_title: ""
-description: "Jules César écrit que la position terrestre ne détermine pas la demeure spirituelle"
+description: "Jules César, reçu par James Padgett : « Eh bien, il n’y avait qu’un seul vrai César – tous les autres sous ce nom n’étaient que des imitations. »"
 date: 2022-06-01 06:00:01+00:249
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Communication et médiumnité"
 menu_title: ""
-description: "Communication et médiumnité"
+description: "Judas, reçu par H : « Et cela signifie que nous pouvons toujours être en contact direct. Cela dépend uniquement de toi. »"
 date: 2022-06-01 06:00:01+00:21
 draft: False
 hidden: True

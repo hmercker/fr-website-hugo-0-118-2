@@ -1,7 +1,7 @@
 ---
 title: "Le Maître tient beaucoup à ce que l’humanité cesse de l’adorer comme Dieu"
 menu_title: ""
-description: "Le Maître tient beaucoup à ce que l’humanité cesse de l’adorer comme Dieu"
+description: "Jésus, reçu par James Padgett : « Vous êtes mon cher frère, et je vais vous dire ce que je désire que vous fassiez en ce moment. »"
 date: 2022-06-01 06:00:01+00:48
 draft: False
 hidden: True

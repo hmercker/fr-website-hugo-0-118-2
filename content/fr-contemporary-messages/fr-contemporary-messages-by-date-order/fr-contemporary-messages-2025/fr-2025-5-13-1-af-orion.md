@@ -1,7 +1,7 @@
 ---
 title: "Comment le jugement entrave la progression de l'âme"
 menu_title: ""
-description: "Comment le jugement entrave la progression de l'âme"
+description: "Orion, reçu par Albert Fike : « Le monde est véritablement en ébullition. Le besoin est grand, mes amis. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

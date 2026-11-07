@@ -1,7 +1,7 @@
 ---
 title: "Un message de paix de la part d’Ho Chi Minh"
 menu_title: ""
-description: "Un message de paix de la part d’Ho Chi Minh"
+description: "Ho Chi Minh, reçu par FAB : « J’ai adoré mon pays et je ne me suis pas laissé décourager par la puissance militaire de votre pays. »"
 date: 2022-06-01 06:00:01+00:130
 draft: False
 hidden: True

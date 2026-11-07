@@ -1,7 +1,7 @@
 ---
 title: "Le dégoût d'un marine américain"
 menu_title: ""
-description: "Le dégoût d'un marine américain"
+description: "Smedley Butler, reçu par FAB : « Lorsque les industriels américains m'ont approché, j'étais déjà sur la voie de la désillusion à l'égard de mon pays … »"
 date: 2022-06-01 06:00:01+00:45
 draft: False
 hidden: True

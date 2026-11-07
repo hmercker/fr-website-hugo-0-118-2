@@ -1,7 +1,7 @@
 ---
 title: "Apprendre à connaître un Président - 2"
 menu_title: ""
-description: "Apprendre à connaître un Président - 2"
+description: "Ronald Reagan, reçu par FAB : « Vous m'avez correctement canalisé lorsque j'ai dit que j'avais hérité des ténèbres, non pas à cause de ce qui était dans … »"
 date: 2022-06-01 06:00:01+00:52
 draft: False
 hidden: True

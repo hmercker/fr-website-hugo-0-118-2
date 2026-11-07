@@ -1,7 +1,7 @@
 ---
 title: "Le plus grand nombre possible d’anges tentent d’entrer en relation avec nous tous"
 menu_title: ""
-description: "Le plus grand nombre possible d’anges tentent d’entrer en relation avec nous tous"
+description: "Anna (Grand mère de Jésus), reçu par Al Fike : « Que le toucher de l’Amour de Dieu veille sur vous, mes chers et beaux amis. C’est important et nécessaire … »"
 date: 2022-06-01 06:00:01+00:50
 draft: False
 hidden: True

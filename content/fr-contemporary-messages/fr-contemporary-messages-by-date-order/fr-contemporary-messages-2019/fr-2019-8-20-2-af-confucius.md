@@ -1,7 +1,7 @@
 ---
 title: "Ouvrez-vous à la bénédiction de l'Amour de Dieu"
 menu_title: ""
-description: "Ouvrez-vous à la bénédiction de l'Amour de Dieu"
+description: "Confucius, reçu par Al Fike : « Je vais à Dieu dans mon cœur et dans mon âme avec le désir ardent de l’expiation. Je me suis consacré à vous servir, à … »"
 date: 2022-06-01 06:00:01+00:815
 draft: False
 hidden: True

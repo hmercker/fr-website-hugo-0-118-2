@@ -1,7 +1,7 @@
 ---
 title: "Honorer et accepter notre place dans un monde en mutation"
 menu_title: ""
-description: "Honorer et accepter notre place dans un monde en mutation"
+description: "Mylora, reçu par Albert Fike : « Nous aussi, nous nous préoccupons de votre Terre, des changements qui s'opèrent actuellement et de ceux qui sont à venir. »"
 date: 2026-10-04 06:00:01+00:01
 draft: False
 hidden: True

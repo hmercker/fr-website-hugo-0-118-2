@@ -1,7 +1,7 @@
 ---
 title: "L'avertissement de Woodrow Wilson"
 menu_title: ""
-description: "L'avertissement de Woodrow Wilson"
+description: "Woodrow Wilson, reçu par FAB : « Vous êtes en train de lire d'autres choses que j'ai faites et qui n'ont pas été correctes. »"
 date: 2022-06-01 06:00:01+00:112
 draft: False
 hidden: True

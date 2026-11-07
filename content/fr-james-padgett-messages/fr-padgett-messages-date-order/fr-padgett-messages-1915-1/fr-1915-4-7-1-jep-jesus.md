@@ -1,7 +1,7 @@
 ---
 title: "Jésus est étonné du pouvoir que M. Padgett a avec les esprits ténébreux et approuve son travail à cet égard"
 menu_title: ""
-description: "Jésus est étonné du pouvoir que M. Padgett a avec les esprits ténébreux et approuve son travail à cet égard"
+description: "Jésus, reçu par James Padgett : « Je tiens à vous dire que vous n’êtes pas en bonne condition ce soir pour une longue écriture car vos forces nerveuses ne … »"
 date: 2022-06-01 06:00:01+00:68
 draft: False
 hidden: True

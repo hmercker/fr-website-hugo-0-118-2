@@ -1,7 +1,7 @@
 ---
 title: "Questions-réponses avec Wendy Zammit au Global Gatherine"
 menu_title: ""
-description: "Questions-réponses avec Wendy Zammit au Global Gatherine"
+description: "Orion, reçu par Albert Fike : « N’est-ce pas ce que vous attendez de moi en tant qu’extraterrestre ? Ce que votre imagination et vos films ont décrit … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

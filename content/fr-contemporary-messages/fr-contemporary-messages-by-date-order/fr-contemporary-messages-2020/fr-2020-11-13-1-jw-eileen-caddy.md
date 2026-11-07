@@ -1,7 +1,7 @@
 ---
 title: "Commencez votre journée en vous ouvrant à Dieu"
 menu_title: ""
-description: "Commencez votre journée en vous ouvrant à Dieu"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « Vous pouvez me considérer comme votre chère Tante Eileen qui veille sur vous, et bien que cela fasse un certain … »"
 date: 2022-06-01 06:00:01+00:1312
 draft: False
 hidden: True

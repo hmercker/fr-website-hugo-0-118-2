@@ -1,7 +1,7 @@
 ---
 title: "L'expression de l'amour par le service est importante"
 menu_title: ""
-description: "L'expression de l'amour par le service est importante"
+description: "Augustin, reçu par Al Fike : « Le résultat naturel de l'Amour est la connexion avec les autres, le don aux autres, permettant au flux d'Amour de s'écouler … »"
 date: 2022-06-01 06:00:01+00:112
 draft: False
 hidden: True

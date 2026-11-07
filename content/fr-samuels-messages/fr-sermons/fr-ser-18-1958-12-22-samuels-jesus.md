@@ -1,7 +1,7 @@
 ---
 title: "18ème Sermon – L’Éloge de Dieu par le Roi David"
 menu_title: ""
-description: "18ème Sermon – L’Éloge de Dieu par le Roi David"
+description: "Jésus, reçu par Dr Samuels : « Ces sermons sur le caractère du Roi David, qui ont souligné ces épisodes montrant sa qualité essentielle de cœur dans la … »"
 date: 2022-06-01 06:00:01+00:71
 draft: False
 hidden: True

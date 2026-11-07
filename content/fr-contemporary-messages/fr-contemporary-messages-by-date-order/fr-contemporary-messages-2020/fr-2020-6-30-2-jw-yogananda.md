@@ -1,7 +1,7 @@
 ---
 title: "Apportez-le au monde!"
 menu_title: ""
-description: "Apportez-le au monde!"
+description: "Yogananda, reçu par Jimbeau Walsh : « La musique de l’amour n’est-elle pas un beau cadeau qui envoie un signal d’en haut au cœur, à travers les oreilles … »"
 date: 2022-06-01 06:00:01+00:1167
 draft: False
 hidden: True

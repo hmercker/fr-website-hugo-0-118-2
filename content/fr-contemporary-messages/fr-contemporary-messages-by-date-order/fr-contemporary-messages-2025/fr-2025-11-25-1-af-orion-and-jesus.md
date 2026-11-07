@@ -1,7 +1,7 @@
 ---
 title: "Les manifestations défieront nos attentes"
 menu_title: ""
-description: "Les manifestations défieront nos attentes"
+description: "Orion et Jésus, reçu par Albert Fike : « Il est fort probable que ce ne soit pas Jésus qui prenne la parole en premier par Voix directe, car il possède la … »"
 date: 2025-12-21 16:00:01+00:01
 draft: False
 hidden: True

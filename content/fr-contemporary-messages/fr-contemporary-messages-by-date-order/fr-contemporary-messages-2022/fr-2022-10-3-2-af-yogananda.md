@@ -1,7 +1,7 @@
 ---
 title: "N'abandonnez jamais votre recherche de la vérité"
 menu_title: ""
-description: "N'abandonnez jamais votre recherche de la vérité"
+description: "Yogananda, reçu par Al Fike : « Car la vérité viendra de plusieurs manières et vous montrera de nombreuses choses merveilleuses à mesure que vous … »"
 date: 2023-09-01 06:00:01+00:49
 draft: False
 hidden: True

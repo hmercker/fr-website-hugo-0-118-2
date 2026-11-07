@@ -1,7 +1,7 @@
 ---
 title: "Une prière de Care"
 menu_title: ""
-description: "Une prière de Care"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Mes très chers, prenons ce moment pour nous reposer dans les bras de notre Créateur aimant, loin de … »"
 date: 2026-09-08 16:00:01+00:01
 draft: False
 hidden: True

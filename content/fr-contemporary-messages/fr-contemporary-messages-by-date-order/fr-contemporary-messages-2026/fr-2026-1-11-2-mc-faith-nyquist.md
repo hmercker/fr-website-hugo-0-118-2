@@ -1,7 +1,7 @@
 ---
 title: "Libérez ce qui n'est pas aligné"
 menu_title: ""
-description: "Libérez ce qui n'est pas aligné"
+description: "Faith Nyquist, reçu par Albert Fike : « C’est toujours un plaisir, toujours une joie, de descendre parmi vous alors que vous vous élevez en esprit, et que … »"
 date: 2026-09-22 06:00:00+00:00
 draft: False
 hidden: True

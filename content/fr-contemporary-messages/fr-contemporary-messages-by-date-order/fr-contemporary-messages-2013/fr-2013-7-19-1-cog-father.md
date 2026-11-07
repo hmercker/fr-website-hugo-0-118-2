@@ -1,7 +1,7 @@
 ---
 title: "Vos mots sont les vôtres comme ils sont les miens"
 menu_title: ""
-description: "Vos mots sont les vôtres comme ils sont les miens"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Tes mots sont les tiens comme ils sont les Miens. Ils émergent de l’endroit où nous sommes UN. »"
 date: 2022-06-01 06:00:01+00:61
 draft: False
 hidden: True

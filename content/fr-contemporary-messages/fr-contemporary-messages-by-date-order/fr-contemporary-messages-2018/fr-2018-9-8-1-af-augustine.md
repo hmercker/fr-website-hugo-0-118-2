@@ -1,7 +1,7 @@
 ---
 title: "La Hiérarchie du Ciel"
 menu_title: ""
-description: "La Hiérarchie du Ciel"
+description: "Augustin, reçu par Al Fike : « Vous avez posé une question concernant la hiérarchie du Ciel et s’il existe des créatures, des anges créés par Dieu qui ne … »"
 date: 2022-06-01 06:00:01+00:471
 draft: False
 hidden: True

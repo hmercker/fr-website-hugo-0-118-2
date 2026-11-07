@@ -1,7 +1,7 @@
 ---
 title: "Demandez "
 menu_title: ""
-description: "Demandez "
+description: "Yogananda, reçu par Jimbeau Walsh : « Ne trouvez-vous pas merveilleux le sentiment que vous éprouvez quand vous aimez quelqu’un, un cadeau des plus beaux … »"
 date: 2022-06-01 06:00:01+00:1122
 draft: False
 hidden: True

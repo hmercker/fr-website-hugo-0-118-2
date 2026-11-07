@@ -1,7 +1,7 @@
 ---
 title: "Marcher sur le Chemin Éternel de l'Amour Divin"
 menu_title: ""
-description: "Marcher sur le Chemin Éternel de l'Amour Divin"
+description: "Jésus et Marie, reçu par Albert Fike : « Jésus : Merci, mon frère, d’avoir récité ma prière, une prière que j’ai prononcée et qui décrit la vérité que … »"
 date: 2026-02-21 16:00:01+00:01
 draft: False
 hidden: True

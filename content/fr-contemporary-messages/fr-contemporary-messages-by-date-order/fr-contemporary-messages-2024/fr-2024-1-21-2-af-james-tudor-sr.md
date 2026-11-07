@@ -1,7 +1,7 @@
 ---
 title: "Laissez les morts enterrer les morts"
 menu_title: ""
-description: "Laissez les morts enterrer les morts"
+description: "James Tudor Sr, reçu par Albert Fike : « Il est impératif que vous écoutiez les murmures de votre propre âme. Car c’est là que se trouvent les réponses. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

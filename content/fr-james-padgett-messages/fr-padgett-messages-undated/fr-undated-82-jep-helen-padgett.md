@@ -1,7 +1,7 @@
 ---
 title: "Hélène Padgett a localisé l’âme sœur du Père de M. Padgett. Elle est remplie d’amour et est un esprit Céleste"
 menu_title: ""
-description: "Hélène Padgett a localisé l’âme sœur du Père de M. Padgett. Elle est remplie d’amour et est un esprit Céleste"
+description: "Hélène Padgett, reçu par James Padgett : « Je vais te parler de l’âme-sœur de ton père, comme promis. C’est une femme très belle et spirituelle et elle … »"
 date: 2022-06-01 06:00:01+00:156
 draft: False
 hidden: True

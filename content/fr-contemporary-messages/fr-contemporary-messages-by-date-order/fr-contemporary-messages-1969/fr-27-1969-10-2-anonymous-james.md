@@ -1,7 +1,7 @@
 ---
 title: "Voix Directe"
 menu_title: ""
-description: "Voix Directe"
+description: "Jacques : « C'est très malheureux et plutôt douloureux pour vous lorsque je vois tant d'âmes affamées sur le plan terrestre aujourd'hui avec si peu … »"
 date: 2022-06-01 06:00:01+00:26
 draft: False
 hidden: True

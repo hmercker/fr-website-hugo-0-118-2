@@ -1,7 +1,7 @@
 ---
 title: "Le seul Vrai Dieu des Juifs"
 menu_title: ""
-description: "Le seul Vrai Dieu des Juifs"
+description: "Joseph (AT), reçu par FAB : « Le chemin que les Juifs ont parcouru à bien des égards a contribué à faire circuler l’idée du seul vrai Dieu. »"
 date: 2022-06-01 06:00:01+00:88
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le changement, c'est maintenant"
 menu_title: ""
-description: "Le changement, c'est maintenant"
+description: "Augustin, reçu par Al Fike : « C'est votre enseignant, Augustin. Quand les changements arriveront-ils ? »"
 date: 2022-06-01 06:00:01+00:704
 draft: False
 hidden: True

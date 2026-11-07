@@ -1,7 +1,7 @@
 ---
 title: "Anne Rollins corrobore l’expérience d’Hélène et raconte le bonheur des esprits dans les Sphères Célestes"
 menu_title: ""
-description: "Anne Rollins corrobore l’expérience d’Hélène et raconte le bonheur des esprits dans les Sphères célestes"
+description: "Anne Rollins, reçu par James Padgett : « Tu as reçu une assez longue lettre et, j’espère, très satisfaisante, d’Hélène. Quand elle essaie, elle peut … »"
 date: 2022-06-01 06:00:01+00:32
 draft: False
 hidden: True

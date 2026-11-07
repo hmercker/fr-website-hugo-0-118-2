@@ -1,7 +1,7 @@
 ---
 title: "Une cousine de M. Padgett écrit sur sa joie dans la troisième sphère"
 menu_title: ""
-description: "Une cousine de M. Padgett écrit sur sa joie dans la troisième sphère"
+description: "Alice, reçu par James Padgett : « Permettez-moi d’écrire quelques lignes. La mère de Marie et moi étions avec elle à ce moment-là et nous vous avons vu … »"
 date: 2022-06-01 06:00:01+00:225
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Entretenez les jardins de vos âmes"
 menu_title: ""
-description: "Entretenez les jardins de vos âmes"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Il faut s’occuper de son jardin comme le Créateur et la nature s’occupent de tout le reste. »"
 date: 2022-06-01 06:00:01+00:960
 draft: False
 hidden: True

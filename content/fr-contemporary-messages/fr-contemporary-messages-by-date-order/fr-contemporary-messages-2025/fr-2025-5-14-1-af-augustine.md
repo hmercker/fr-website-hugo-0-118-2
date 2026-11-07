@@ -1,7 +1,7 @@
 ---
 title: "Conseils pour les médiums heureux"
 menu_title: ""
-description: "Conseils pour les médiums heureux"
+description: "Augustin, reçu par Albert Fike : « C’est votre maître, Augustin, qui est ici. N’oubliez pas que chaque individu a son propre chemin et sa propre … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

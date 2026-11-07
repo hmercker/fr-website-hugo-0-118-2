@@ -1,7 +1,7 @@
 ---
 title: "Maladie mentale et musique dans le monde des esprits"
 menu_title: ""
-description: "Maladie mentale et musique dans le monde des esprits"
+description: "Stephen Foster, reçu par FAB : « Je voulais vous écrire depuis un certain temps déjà, et j'ai pensé que ce soir était approprié. »"
 date: 2022-06-01 06:00:01+00:43
 draft: False
 hidden: True

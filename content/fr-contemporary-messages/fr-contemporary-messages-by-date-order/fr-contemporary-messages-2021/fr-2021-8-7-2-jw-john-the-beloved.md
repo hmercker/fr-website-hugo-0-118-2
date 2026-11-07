@@ -1,7 +1,7 @@
 ---
 title: "Demeurer dans la grâce"
 menu_title: ""
-description: ""
+description: "Jean le Bien Aimé, reçu par Al Fike : « On m’appelle le Bien-Aimé. C’est parce que j’ai compris avec mon cœur et que j’ai permis à l’amour de toucher mon âme. »"
 date: 2022-06-01 06:00:01+00:1593
 draft: False
 hidden: True

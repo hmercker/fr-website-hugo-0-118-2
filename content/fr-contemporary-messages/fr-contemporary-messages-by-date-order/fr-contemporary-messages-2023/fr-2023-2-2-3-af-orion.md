@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes plus forts ensemble"
 menu_title: ""
-description: "Nous sommes plus forts ensemble"
+description: "Orion, reçu par Al Fike : « Car là où je vis, de tels problèmes n’existent pas. Ils sont loin de nos esprits et de nos préoccupations. »"
 date: 2023-09-01 06:00:01+00:76
 draft: False
 hidden: True

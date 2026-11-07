@@ -1,7 +1,7 @@
 ---
 title: "Seul l'Amour peut révéler la Vérité"
 menu_title: ""
-description: "Seul l'Amour peut révéler la Vérité"
+description: "Jacques, reçu par Kathryn Stokes : « Même lorsque l'écriture a commencé, nous étions encore en train de « saisir » le stylo ! Tout cela avec amour et en … »"
 date: 2022-06-01 06:00:01+00:18
 draft: False
 hidden: True

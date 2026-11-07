@@ -1,7 +1,7 @@
 ---
 title: "Écrit sur ses tentatives pour influencer son mari, le président Wilson"
 menu_title: ""
-description: "Écrit sur ses tentatives pour influencer son mari, le président Wilson"
+description: "Madame Wilson, reçu par James Padgett : « Je n’écrirai qu’une ligne ou deux. Il a aussi autour de lui d’autres esprits qui s’intéressent beaucoup au … »"
 date: 2022-06-01 06:00:01+00:50
 draft: False
 hidden: True

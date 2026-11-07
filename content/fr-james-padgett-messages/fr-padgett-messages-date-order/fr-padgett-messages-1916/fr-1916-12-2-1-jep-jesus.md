@@ -1,7 +1,7 @@
 ---
 title: "La prière donnée par Jésus comme la seule prière"
 menu_title: ""
-description: "La prière donnée par Jésus comme la seule prière"
+description: "Jésus, reçu par James Padgett : « Je voudrais simplement vous dire un mot ainsi qu’à votre ami. J’ai écouté votre conversation ce soir et ai trouvé … »"
 date: 2022-06-01 06:00:01+00:02
 draft: False
 hidden: True

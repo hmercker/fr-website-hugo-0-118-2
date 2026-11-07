@@ -1,7 +1,7 @@
 ---
 title: "Joseph de l’Ancien Testament"
 menu_title: ""
-description: "Joseph de l’Ancien Testament"
+description: "Joseph (AT), reçu par FAB : « Bien que cela fasse des milliers d’années que je n’ai pas vécu sur terre, j’en ai gardé certains souvenirs. »"
 date: 2022-06-01 06:00:01+00:87
 draft: False
 hidden: True

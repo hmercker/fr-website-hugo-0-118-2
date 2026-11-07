@@ -1,7 +1,7 @@
 ---
 title: "Hélène, par ce message, admet qu’elle n’est pas toujours présente lorsque M. Padgett reçoit des communications"
 menu_title: ""
-description: "Hélène, par ce message, admet qu’elle n’est pas toujours présente lorsque M. Padgett reçoit des communications"
+description: "Hélène Padgett, reçu par James Padgett : « Je ne crois pas qu’aucun membre du groupe n’était présent. Je ne sais pas qui a écrit sauf Jésus. »"
 date: 2022-06-01 06:00:01+00:98
 draft: False
 hidden: True

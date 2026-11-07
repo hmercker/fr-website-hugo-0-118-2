@@ -1,7 +1,7 @@
 ---
 title: "Message de clôture pour une retraite qui a renforcé nos liens"
 menu_title: ""
-description: "Message de clôture pour une retraite qui a renforcé nos liens"
+description: "André, reçu par Al Fike : « Vous avez accompli beaucoup au cours de ce court voyage ensemble et les changements et les bénédictions et les nouvelles … »"
 date: 2022-06-01 06:00:01+00:298
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Tenez-vous dans cette Vérité, instant après instant"
 menu_title: ""
-description: "Tenez-vous dans cette Vérité, instant après instant"
+description: "George Stokes, reçu par Elizabeth Mack : « Nous vous élevons bien au-dessus du plan terrestre, libérés de toutes distractions et négativités. »"
 date: 2026-01-30 16:00:01+00:01
 draft: False
 hidden: True

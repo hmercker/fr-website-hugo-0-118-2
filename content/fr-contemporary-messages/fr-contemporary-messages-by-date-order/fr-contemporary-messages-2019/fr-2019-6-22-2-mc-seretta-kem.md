@@ -1,7 +1,7 @@
 ---
 title: "L'Amour Divin apporte les réponses que vous cherchez"
 menu_title: ""
-description: "L'Amour Divin apporte les réponses que vous cherchez"
+description: "Seretta Kem, reçu par Maureen Cardoso : « Je vous accueille dans ce Cercle de Lumière, en ouvrant vos âmes et votre cœur pour recevoir le plus grand … »"
 date: 2022-06-01 06:00:01+00:754
 draft: False
 hidden: True

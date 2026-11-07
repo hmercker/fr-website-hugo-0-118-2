@@ -1,7 +1,7 @@
 ---
 title: "Nous devons faire un plus grand effort pour recevoir de Dieu"
 menu_title: ""
-description: "Nous devons faire un plus grand effort pour recevoir de Dieu"
+description: "Augustin : « Soyez bénis, mes enfants, c'est Augustin. J'attends avec impatience le jour où je pourrai venir vous parler directement. »"
 date: 2022-06-01 06:00:01+00:03
 draft: False
 hidden: True

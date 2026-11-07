@@ -1,7 +1,7 @@
 ---
 title: "Joseph Salyards a tellement progressé qu’il aide maintenant les autres esprits sombres vers la lumière"
 menu_title: ""
-description: "Joseph Salyards a tellement progressé qu’il aide maintenant les autres esprits sombres vers la lumière"
+description: "Professeur Salyards, reçu par James Padgett : « Que ces esprits sont beaux ! L’un dont la maison est loin au-delà des cieux étoilés, comme vous, les … »"
 date: 2022-06-01 06:00:01+00:143
 draft: False
 hidden: True

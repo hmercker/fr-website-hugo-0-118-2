@@ -1,7 +1,7 @@
 ---
 title: "Il est temps de dire la Vérité"
 menu_title: ""
-description: "Il est temps de dire la Vérité"
+description: "Augustin, reçu par Al Fike : « Vous avez discuté des moyens de communiquer avec vos frères et sœurs, en particulier ceux qui ne comprennent pas ou n’ont … »"
 date: 2022-06-01 06:00:01+00:490
 draft: False
 hidden: True

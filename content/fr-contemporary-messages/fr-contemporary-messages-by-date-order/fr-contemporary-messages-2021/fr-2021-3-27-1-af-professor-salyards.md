@@ -1,7 +1,7 @@
 ---
 title: "Les défis de l'âme dans un monde de pleine conscience - LightBringers Guidance"
 menu_title: ""
-description: "Les défis de l'âme dans un monde de pleine conscience - LightBringers Guidance"
+description: "Professeur Salyards, reçu par Al Fike : « En effet, en regardant les symboles que vous avez montrés, il est intéressant de constater que cette … »"
 date: 2022-06-01 06:00:01+00:1453
 draft: False
 hidden: True

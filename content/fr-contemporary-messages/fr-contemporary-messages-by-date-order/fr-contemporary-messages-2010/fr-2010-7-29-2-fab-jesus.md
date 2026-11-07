@@ -1,7 +1,7 @@
 ---
 title: "Jésus parle de la juste indignation - 3"
 menu_title: ""
-description: "Jésus parle de la juste indignation - 3"
+description: "Jésus, reçu par FAB : « King a parlé, il avait un grand sentiment d'un mal commis contre lui et son peuple. Cela lui a donné le stimulus nécessaire pour … »"
 date: 2022-06-01 06:00:01+00:143
 draft: False
 hidden: True

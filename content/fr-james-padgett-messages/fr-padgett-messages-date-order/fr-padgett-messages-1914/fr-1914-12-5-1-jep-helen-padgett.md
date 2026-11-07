@@ -1,7 +1,7 @@
 ---
 title: "Un premier message personnel d’Hélène pour l’aimer davantage de tout son cœur comme elle l’aime, et lui conseiller de faire attention aux lieux des séances auxquelles il assiste"
 menu_title: ""
-description: "Un premier message personnel d’Hélène pour l’aimer davantage de tout son cœur comme elle l’aime, et lui conseiller de faire attention aux lieux des séances auxquelles il assiste"
+description: "Hélène Padgett, reçu par James Padgett : « Tu ne fais pas ce qu’il faut en ne m’aimant pas comme tu l’as fait. Essaies de penser à moi comme tu l’as fait … »"
 date: 2022-06-01 06:00:01+00:30
 draft: False
 hidden: True

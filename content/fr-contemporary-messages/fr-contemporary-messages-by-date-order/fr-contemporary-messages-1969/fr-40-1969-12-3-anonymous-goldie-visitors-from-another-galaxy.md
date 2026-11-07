@@ -1,7 +1,7 @@
 ---
 title: "Goldie et les visiteurs d’une autre galaxie."
 menu_title: ""
-description: "Goldie et les visiteurs d’une autre galaxie."
+description: "Goldie & Visiteurs autres Galaxies : « Il y a tellement de pouvoir, vous voyez, et nous souhaitons que vous vous développiez tous et j'espère que vous … »"
 date: 2022-06-01 06:00:01+00:39
 draft: False
 hidden: True

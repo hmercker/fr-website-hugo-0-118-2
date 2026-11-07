@@ -1,7 +1,7 @@
 ---
 title: "Proust et ses guides"
 menu_title: ""
-description: "Proust et ses guides"
+description: "Marcel Proust, reçu par FAB : « Mon sens de moi-même était aiguisé non seulement par l'introspection mais aussi par ma maladie. »"
 date: 2022-06-01 06:00:01+00:119
 draft: False
 hidden: True

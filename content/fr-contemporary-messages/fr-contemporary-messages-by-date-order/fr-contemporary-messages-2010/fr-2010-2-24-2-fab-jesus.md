@@ -1,7 +1,7 @@
 ---
 title: "Sur l'abondance matérielle - 4"
 menu_title: ""
-description: "Sur l'abondance matérielle - 4"
+description: "Jésus, reçu par FAB : « Laisse-moi maintenant parler de votre propre relation avec le sujet de l'abondance matérielle, car il est important pour vous d'y … »"
 date: 2022-06-01 06:00:01+00:118
 draft: False
 hidden: True

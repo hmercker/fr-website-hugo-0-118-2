@@ -1,7 +1,7 @@
 ---
 title: "La Naissance de l’âme"
 menu_title: ""
-description: "La Naissance de l’âme"
+description: "Judas, reçu par Jimbeau Walsh : « J’ai déjà parlé des trois naissances. La première est l’entrée dans la condition humaine et la seconde est l’entrée dans … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

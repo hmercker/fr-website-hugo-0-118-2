@@ -1,7 +1,7 @@
 ---
 title: "Message de clôture de la retraite Voix Directe (Séminaire Voix Directe 2021)"
 menu_title: ""
-description: "Message de clôture de la retraite Voix Directe (Séminaire Voix Directe 2021)"
+description: "Jésus, reçu par Al Fike : « Nous vous remercions pour vos efforts, car vous avez fait de grands progrès. Des progrès que nous avons désiré faire dans le … »"
 date: 2022-06-01 06:00:01+00:1662
 draft: False
 hidden: True

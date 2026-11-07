@@ -1,7 +1,7 @@
 ---
 title: "Le but de l’Amour Divin"
 menu_title: ""
-description: "Le but de l’Amour Divin"
+description: "Judas, reçu par Al Fike : « Pour comprendre l’Amour Divin, on doit remonter aux origines. Quand le genre humain a été créé, notre Père Céleste a … »"
 date: 2022-06-01 06:00:01+00:187
 draft: False
 hidden: True

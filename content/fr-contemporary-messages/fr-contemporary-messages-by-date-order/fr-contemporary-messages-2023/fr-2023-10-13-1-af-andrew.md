@@ -1,7 +1,7 @@
 ---
 title: "Anticiper l'aube d'un nouveau mode de vie"
 menu_title: ""
-description: "Anticiper l'aube d'un nouveau mode de vie"
+description: "André, reçu par Albert Fike : « Que les bénédictions de l’Amour du Père continuent d’affluer dans vos âmes. Beaucoup d’entre vous continuent de vivre la … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

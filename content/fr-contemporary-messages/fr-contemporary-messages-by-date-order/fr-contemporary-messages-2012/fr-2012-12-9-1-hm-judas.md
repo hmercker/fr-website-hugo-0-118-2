@@ -1,7 +1,7 @@
 ---
 title: "Le vent du changement souffle"
 menu_title: ""
-description: "Le vent du changement souffle"
+description: "Judas, reçu par Helge Mercker : « Ma chère sœur, c’est ton ami angélique Judas. Ne t’encombre pas de choses qui sont faites, de choses de ta construction … »"
 date: 2022-06-01 06:00:01+00:303
 draft: False
 hidden: True

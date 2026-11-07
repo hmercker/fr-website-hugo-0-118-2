@@ -1,7 +1,7 @@
 ---
 title: "Lamlestia(un esprit ancien) parle de réincarnation et de théosophie"
 menu_title: ""
-description: "Lamlestia(un esprit ancien) parle de réincarnation et de théosophie"
+description: "Lamlestia, reçu par James Padgett : « Je fus un habitant de l’Inde alors que ce pays n’était pas connu des nations modernes, et je vivais près des grandes … »"
 date: 2022-06-01 06:00:01+00:18
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le professeur Salyards écrit au sujet de l’excellent travail que fait M. Padgett et qu’il l’aidera également"
 menu_title: ""
-description: "Le professeur Salyards écrit au sujet de l’excellent travail que fait M. Padgett et qu’il l’aidera également"
+description: "Professeur Salyards, reçu par James Padgett : « Eh bien, cela me conviendra très bien, et je serai ici, prêt à vous partager mes meilleures pensées, et … »"
 date: 2022-06-01 06:00:01+00:72
 draft: False
 hidden: True

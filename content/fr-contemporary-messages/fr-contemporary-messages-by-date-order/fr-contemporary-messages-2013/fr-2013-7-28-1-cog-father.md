@@ -1,7 +1,7 @@
 ---
 title: "Mon amour vit et tu le sens"
 menu_title: ""
-description: "Mon amour vit et tu le sens"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Mon amour vit et tu le ressens. Pour ceux qui demandent si Mon Amour est réel, Je dis : Suis l’aspiration de … »"
 date: 2022-06-01 06:00:01+00:63
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le don de discernement"
 menu_title: ""
-description: "Le don de discernement"
+description: "Daniel : « C'est un plaisir pour moi de venir vous parler car je sens que c'est une grande opportunité pour moi de pouvoir parler aux enfants de la Terre … »"
 date: 2022-06-01 06:00:01+00:27
 draft: False
 hidden: True

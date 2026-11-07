@@ -1,7 +1,7 @@
 ---
 title: "Recherchez le bonheur dans tout ce que vous faites"
 menu_title: ""
-description: "Recherchez le bonheur dans tout ce que vous faites"
+description: "St Paul : « Soyez bénis, mes enfants, Paul. Une pensée qui est servie par des conditions défavorables, des bouleversements émotionnels, ne fait pas le … »"
 date: 2022-06-01 06:00:01+00:131
 draft: False
 hidden: True

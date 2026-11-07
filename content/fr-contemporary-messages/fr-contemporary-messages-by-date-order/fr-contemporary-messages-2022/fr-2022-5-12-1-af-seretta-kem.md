@@ -1,7 +1,7 @@
 ---
 title: "Message pour Bill concernant ses dons"
 menu_title: ""
-description: "Message pour Bill concernant ses dons"
+description: "Seretta Kem, reçu par Al Fike : « Je travaille avec votre groupe, mon fils, depuis un certain temps. Car nous travaillons avec de nombreux groupes à … »"
 date: 2022-06-01 06:00:01+00:85
 draft: False
 hidden: True

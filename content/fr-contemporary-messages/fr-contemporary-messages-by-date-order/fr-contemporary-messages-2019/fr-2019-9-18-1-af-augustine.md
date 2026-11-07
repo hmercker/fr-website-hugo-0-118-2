@@ -1,7 +1,7 @@
 ---
 title: "La Volonté de Dieu ne peut être contrariée"
 menu_title: ""
-description: "La Volonté de Dieu ne peut être contrariée"
+description: "Augustin, reçu par Al Fike : « Oui nous, dans le Royaume Céleste, sommes désolés qu’il y ait une certaine réduction de votre travail dans ce lieu … »"
 date: 2022-06-01 06:00:01+00:858
 draft: False
 hidden: True

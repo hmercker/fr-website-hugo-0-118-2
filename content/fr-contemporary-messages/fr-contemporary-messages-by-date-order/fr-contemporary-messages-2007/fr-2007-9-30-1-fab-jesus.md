@@ -1,7 +1,7 @@
 ---
 title: "Esprits qui ont assisté Jésus"
 menu_title: ""
-description: "Esprits qui ont assisté Jésus"
+description: "Jésus, reçu par FAB : « Vous avez lu dans un message de James Padgett que j'ai dit : Mon développement dans la connaissance des vérités que j'ai … »"
 date: 2022-06-01 06:00:01+00:167
 draft: False
 hidden: True

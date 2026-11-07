@@ -1,7 +1,7 @@
 ---
 title: "Les anges viennent sur Terre pour enseigner les vérités de l’Amour de Dieu"
 menu_title: ""
-description: "Les anges viennent sur Terre pour enseigner les vérités de l’Amour de Dieu"
+description: "André, reçu par Albert Fike : « Nous sommes venus sur Terre à maintes reprises depuis que le Maître bien-aimé est venu apporter la bonne nouvelle de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

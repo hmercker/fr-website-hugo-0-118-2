@@ -1,7 +1,7 @@
 ---
 title: "Comment le don d’amour peut toucher une âme et changer le monde"
 menu_title: ""
-description: "Comment le don d’amour peut toucher une âme et changer le monde"
+description: "Confucius, reçu par Al Fike : « Âmes précieuses, Dieu vous a rassemblés pour prier pour Son Amour, pour être dans Sa grâce ensemble, pour faire … »"
 date: 2022-06-01 06:00:01+00:155
 draft: False
 hidden: True

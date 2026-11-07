@@ -1,7 +1,7 @@
 ---
 title: "Le Père de M. Padgett est l’un de ses anges gardiens qui le protège des esprits indésirables - il est actuellement un esprit Céleste"
 menu_title: ""
-description: "Le Père de M. Padgett est l’un de ses anges gardiens qui le protège des esprits indésirables - il est actuellement un esprit Céleste"
+description: "John Padgett, reçu par James Padgett : « Il y a longtemps que je n’ai pas écrit, mais il y en avait tant d’autres si impatients d’écrire, et qui pouvaient … »"
 date: 2022-06-01 06:00:01+00:83
 draft: False
 hidden: True

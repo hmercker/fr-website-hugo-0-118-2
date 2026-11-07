@@ -1,7 +1,7 @@
 ---
 title: "L’âme aspire au contact de Dieu"
 menu_title: ""
-description: "L’âme aspire au contact de Dieu"
+description: "André, reçu par Al Fike : « Le Père Céleste accueille tout le monde dans son étreinte et tous sont les bienvenus continuellement et toujours. »"
 date: 2022-06-01 06:00:01+00:261
 draft: False
 hidden: True

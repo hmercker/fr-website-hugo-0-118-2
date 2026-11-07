@@ -1,7 +1,7 @@
 ---
 title: "Recherchez la Lumière de l’Amour de Dieu"
 menu_title: ""
-description: "Recherchez la Lumière de l’Amour de Dieu"
+description: "Augustin, reçu par Al Fike : « C’est votre enseignant, Augustin. Puisse chacun d’entre vous en venir à reconnaître véritablement le toucher de Dieu au … »"
 date: 2026-10-24 06:00:01+00:01
 draft: False
 hidden: True

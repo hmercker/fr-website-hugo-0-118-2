@@ -1,7 +1,7 @@
 ---
 title: "Tient son engagement envers nous tous et ajoute une bénédiction pérenne"
 menu_title: ""
-description: "Tient son engagement envers nous tous et ajoute une bénédiction pérenne"
+description: "Jésus, reçu par Al Fike : « Je continuerai à être votre frère pour toute l’éternité alors que vous marchez sur ce chemin vers l’union avec Dieu. »"
 date: 2023-09-01 06:00:01+00:37
 draft: False
 hidden: True

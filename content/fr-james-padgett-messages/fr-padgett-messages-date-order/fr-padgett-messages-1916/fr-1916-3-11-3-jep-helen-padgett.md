@@ -1,7 +1,7 @@
 ---
 title: "Hélène confirme que Jean et l’étranger du nom de Mastry ont écrit"
 menu_title: ""
-description: "Hélène confirme que Jean et l’étranger du nom de Mastry ont écrit"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, tu ne dois pas douter de ce qui t’a été écrit, mais fais de ton mieux pour suivre les … »"
 date: 2022-06-01 06:00:01+00:171
 draft: False
 hidden: True

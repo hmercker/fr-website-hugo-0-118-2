@@ -1,7 +1,7 @@
 ---
 title: "Accepter la Volonté de Dieu de servir"
 menu_title: ""
-description: "Accepter la Volonté de Dieu de servir"
+description: "Yogananda, reçu par Al Fike : « J'ai entendu vos conversations concernant un voyage dans mon pays et la curiosité et l'inquiétude de cet instrument au … »"
 date: 2022-06-01 06:00:01+00:163
 draft: False
 hidden: True

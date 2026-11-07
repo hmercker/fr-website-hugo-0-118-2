@@ -1,7 +1,7 @@
 ---
 title: "Demandez ce dont vous avez besoin"
 menu_title: ""
-description: "Demandez ce dont vous avez besoin"
+description: "Marie, reçu par Elizabeth Mack : « Moi aussi, je vous apporte les bénédictions de notre Père, à vous, enfants qui marchez sur ce chemin de lumière. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

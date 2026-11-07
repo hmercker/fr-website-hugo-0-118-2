@@ -1,7 +1,7 @@
 ---
 title: "Vous faites tous partie du plan de Dieu"
 menu_title: ""
-description: "Vous faites tous partie du plan de Dieu"
+description: "Augustin, reçu par Al Fike : « Il y a des surprises et des opportunités qui s’ouvrent et vous ne devez pas fixer votre regard sur l’avenir avec trop … »"
 date: 2022-06-01 06:00:01+00:603
 draft: False
 hidden: True

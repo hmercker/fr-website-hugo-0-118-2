@@ -1,7 +1,7 @@
 ---
 title: "Taggart est reconnaissant pour ce que M. Padgett a fait pour lui et les merveilleux résultats qui ont suivi les conseils qui lui ont été donnés"
 menu_title: ""
-description: "Taggart est reconnaissant pour ce que M. Padgett a fait pour lui et les merveilleux résultats qui ont suivi les conseils qui lui ont été donnés"
+description: "Hugh Taggart, reçu par James Padgett : « Comme Mackey l’a dit, je vous suis reconnaissant pour ce que vous avez fait pour moi, et pour la grande lumière … »"
 date: 2022-06-01 06:00:01+00:157
 draft: False
 hidden: True

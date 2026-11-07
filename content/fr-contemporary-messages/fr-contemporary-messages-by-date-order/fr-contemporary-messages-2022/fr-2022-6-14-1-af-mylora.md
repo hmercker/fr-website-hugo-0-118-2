@@ -1,7 +1,7 @@
 ---
 title: "Comment Dieu veille sur nous tous"
 menu_title: ""
-description: "Comment Dieu veille sur nous tous"
+description: "Mylora, reçu par Al Fike : « Comme Dieu prend soin de nous tous, quels que soient nos besoins, quelle que soit la situation dans laquelle nous nous trouvons. »"
 date: 2022-06-01 06:00:01+00:111
 draft: False
 hidden: True

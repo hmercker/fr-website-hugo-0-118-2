@@ -1,7 +1,7 @@
 ---
 title: "Dieu a entendu vos prières"
 menu_title: ""
-description: "Dieu a entendu vos prières"
+description: "André, reçu par Al Fike : « Alors que vous continuez à tendre la main à vos frères et sœurs, créant une communauté d’amour, ainsi Dieu répond non … »"
 date: 2022-06-01 06:00:01+00:923
 draft: False
 hidden: True

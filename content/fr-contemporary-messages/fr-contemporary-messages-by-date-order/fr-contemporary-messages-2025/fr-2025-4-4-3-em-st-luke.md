@@ -1,7 +1,7 @@
 ---
 title: "À mesure que chacun d'entre nous guérit, la Terre guérit également"
 menu_title: ""
-description: "À mesure que chacun d'entre nous guérit, la Terre guérit également"
+description: "St Luc, reçu par Elizabeth Mack : « Lorsque cette Terre guérit, vous guérissez. Vous êtes connectés d’une manière que vous ne comprenez pas encore, mais … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

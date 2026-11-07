@@ -1,7 +1,7 @@
 ---
 title: "Plus d’encouragements pour enseigner les vérités de l’Amour Divin de Dieu"
 menu_title: ""
-description: "Plus d’encouragements pour enseigner les vérités de l’Amour Divin de Dieu"
+description: "Augustin, reçu par Albert Fike : « Nous voyons parmi vous beaucoup de personnes dévouées, qui recherchent ardemment la prière de l’Amour du Père, la … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

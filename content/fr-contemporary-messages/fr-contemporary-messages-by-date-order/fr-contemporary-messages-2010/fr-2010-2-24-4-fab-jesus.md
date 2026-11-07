@@ -1,7 +1,7 @@
 ---
 title: "Sur l'abondance matérielle - 6"
 menu_title: ""
-description: "Sur l'abondance matérielle - 6"
+description: "Jésus, reçu par FAB : « Le thème de ces canalisations sur l'abondance matérielle est que, quelles que soient les circonstances matérielles qui affectent … »"
 date: 2022-06-01 06:00:01+00:120
 draft: False
 hidden: True

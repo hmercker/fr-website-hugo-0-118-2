@@ -1,7 +1,7 @@
 ---
 title: "Ne dénigrez pas vos âmes : il existe une hiérarchie au Ciel"
 menu_title: ""
-description: "Ne dénigrez pas vos âmes : il existe une hiérarchie au Ciel"
+description: "Augustin, reçu par Albert Fike : « Cet instrument méprise sa désignation terrestre de ministre d’Église. Il est humble et ne se considère pas comme ayant … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

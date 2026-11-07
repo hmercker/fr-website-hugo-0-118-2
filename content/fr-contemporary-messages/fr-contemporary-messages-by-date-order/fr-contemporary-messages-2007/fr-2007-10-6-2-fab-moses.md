@@ -1,7 +1,7 @@
 ---
 title: "Moïse et le meurtre"
 menu_title: ""
-description: "Moïse et le meurtre"
+description: "Moïse, reçu par FAB : « Je souhaite écrire ce soir au sujet du meurtre du chef de chantier Égyptien, qui a effectivement eu lieu. »"
 date: 2022-06-01 06:00:01+00:170
 draft: False
 hidden: True

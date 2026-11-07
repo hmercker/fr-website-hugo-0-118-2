@@ -1,7 +1,7 @@
 ---
 title: "A de la compassion pour les conditions dans lesquelles nous vivons sur Terre"
 menu_title: ""
-description: "A de la compassion pour les conditions dans lesquelles nous vivons sur Terre"
+description: "Orion, reçu par Al Fike : « (Que) les bénédictions de l’Amour de notre Père réveillent vos âmes. Votre monde est rempli de complications, de détails … »"
 date: 2023-09-01 06:00:01+00:28
 draft: False
 hidden: True

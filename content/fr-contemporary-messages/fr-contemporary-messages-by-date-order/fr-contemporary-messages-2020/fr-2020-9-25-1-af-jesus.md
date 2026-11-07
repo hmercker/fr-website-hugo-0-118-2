@@ -1,7 +1,7 @@
 ---
 title: "Les vérités de l’âme"
 menu_title: ""
-description: "Les vérités de l’âme"
+description: "Jésus, reçu par Al Fike : « Que Dieu bénisse profondément vos âmes de Son Amour. Je souhaite vous dire que je viendrai aussi souvent que possible pour … »"
 date: 2022-06-01 06:00:01+00:1258
 draft: False
 hidden: True

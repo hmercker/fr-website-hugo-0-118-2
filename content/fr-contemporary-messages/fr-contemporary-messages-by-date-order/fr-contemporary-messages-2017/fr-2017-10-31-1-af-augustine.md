@@ -1,7 +1,7 @@
 ---
 title: "Soyez conscient des conditions qui vous entourent"
 menu_title: ""
-description: "Soyez conscient des conditions qui vous entourent"
+description: "Augustin, reçu par Al Fike : « Je vois que l'appel de ce monde continue à vous distraire parfois, même si nous vous avons fourni un espace très … »"
 date: 2022-06-01 06:00:01+00:170
 draft: False
 hidden: True

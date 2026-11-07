@@ -1,7 +1,7 @@
 ---
 title: "Jésus Connaît Chaque Âme"
 menu_title: ""
-description: "Jésus Connaît Chaque Âme"
+description: "Jésus, reçu par Al Fike : « Je dois venir prier avec chacun de vous. Je connais les désirs de votre cœur. »"
 date: 2022-07-10 06:25:48+00:80
 draft: False
 hidden: True

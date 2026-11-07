@@ -1,7 +1,7 @@
 ---
 title: "Embrasser d'autres cultures"
 menu_title: ""
-description: "Embrasser d'autres cultures"
+description: "Guru Ram Das, reçu par Maureen Cardoso : « Je m’appelle Guru Ram Das et je me joins à vous en cette heure de prière. Lorsque j’étais sur Terre, j’étais le … »"
 date: 2022-06-01 06:00:01+00:683
 draft: False
 hidden: True

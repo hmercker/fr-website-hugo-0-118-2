@@ -1,7 +1,7 @@
 ---
 title: "Les enfants de vos enfants connaîtront un monde différent"
 menu_title: ""
-description: "Les enfants de vos enfants connaîtront un monde différent"
+description: "Augustin, reçu par Al Fike : « Dieu a un grand plan en préparation pour le salut de l'humanité. L'intention de Dieu est d'apporter un plus grand équilibre … »"
 date: 2022-06-01 06:00:01+00:734
 draft: False
 hidden: True

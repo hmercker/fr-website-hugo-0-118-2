@@ -1,7 +1,7 @@
 ---
 title: "Dieu aime tous Ses enfants"
 menu_title: ""
-description: "Dieu aime tous Ses enfants"
+description: "St Paul : « Si heureux de me prélasser dans l'amour qui est au milieu de vous ce soir. Je me sens renouvelé et en paix. »"
 date: 2022-06-01 06:00:01+00:133
 draft: False
 hidden: True

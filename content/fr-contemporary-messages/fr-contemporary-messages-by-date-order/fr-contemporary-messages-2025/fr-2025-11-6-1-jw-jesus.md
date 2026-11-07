@@ -1,7 +1,7 @@
 ---
 title: "Laissez la grande bénédiction de l’Amour de Dieu imprégner votre être"
 menu_title: ""
-description: "Laissez la grande bénédiction de l’Amour de Dieu imprégner votre être"
+description: "Jésus, reçu par Jimbeau Walsh : « Que l’Amour de Dieu soit sur vous. Quand vous vous sentez vaincu, priez. »"
 date: 2025-12-12 16:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La vie spirituelle est un combat"
 menu_title: ""
-description: "La vie spirituelle est un combat"
+description: "St Luc, reçu par Jimbeau Walsh : « Sur le chemin spirituel, lorsque quelqu’un décide de changer et de commencer à considérer le destin de son âme, à un … »"
 date: 2022-06-01 06:00:01+00:47
 draft: False
 hidden: True

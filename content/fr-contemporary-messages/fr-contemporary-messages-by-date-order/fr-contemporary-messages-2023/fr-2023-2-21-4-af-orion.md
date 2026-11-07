@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes l'espoir du monde"
 menu_title: ""
-description: "Vous êtes l'espoir du monde"
+description: "Orion, reçu par Al Fike : « …prières et dédicaces, âmes bien-aimées. En effet, notre frère parle de patience. »"
 date: 2022-06-01 06:00:01+00:39
 draft: False
 hidden: True

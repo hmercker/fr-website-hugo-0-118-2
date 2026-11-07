@@ -1,7 +1,7 @@
 ---
 title: "Mettez votre âme en harmonie avec Dieu par Son Amour"
 menu_title: ""
-description: "Mettez votre âme en harmonie avec Dieu par Son Amour"
+description: "Augustin, reçu par Al Fike : « Ce monde se porterait bien mieux si davantage de personnes relevaient ce défi : apprendre à aimer, donner de l’amour. »"
 date: 2026-10-28 06:00:01+00:24
 draft: False
 hidden: True

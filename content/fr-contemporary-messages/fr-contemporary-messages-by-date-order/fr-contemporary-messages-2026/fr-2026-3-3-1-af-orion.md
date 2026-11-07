@@ -1,7 +1,7 @@
 ---
 title: "Soyez courageux, priez et soyez attentifs en ce tournant crucial pour le monde"
 menu_title: ""
-description: "Soyez courageux, priez et soyez attentifs en ce tournant crucial pour le monde"
+description: "Orion, reçu par Al Fike : « Que les bénédictions de cet Amour universel vous accompagnent. L’Essence de l’Âme de Dieu est accessible à toutes les âmes de … »"
 date: 2026-04-21 16:00:01+00:01
 draft: False
 hidden: True

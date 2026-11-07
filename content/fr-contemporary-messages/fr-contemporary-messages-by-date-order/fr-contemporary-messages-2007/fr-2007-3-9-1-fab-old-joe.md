@@ -1,7 +1,7 @@
 ---
 title: "Expériences d'un esclave Américain"
 menu_title: ""
-description: "Expériences d'un esclave Américain"
+description: "Old Joe, reçu par FAB : « Je fus un esclave à Atlanta, en Géorgie. Aucune plume ne peut décrire les tortures indicibles, tant psychologiques que … »"
 date: 2022-06-01 06:00:01+00:118
 draft: False
 hidden: True

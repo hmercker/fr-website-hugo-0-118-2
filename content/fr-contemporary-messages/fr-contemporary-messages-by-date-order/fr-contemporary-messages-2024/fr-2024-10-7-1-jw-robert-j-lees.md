@@ -1,7 +1,7 @@
 ---
 title: "Prière et expiation"
 menu_title: ""
-description: "Prière et expiation"
+description: "Robert j. Lees, reçu par Jimbeau Walsh : « Lorsque j’ai commencé à recevoir des messages de l’esprit, j’ai souvent été mis au courant des nombreuses … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

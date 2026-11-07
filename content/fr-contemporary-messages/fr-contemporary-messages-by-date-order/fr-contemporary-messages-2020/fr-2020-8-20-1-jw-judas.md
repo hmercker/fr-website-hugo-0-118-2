@@ -1,7 +1,7 @@
 ---
 title: "Guérir dans la lumière et l’amour"
 menu_title: ""
-description: "Guérir dans la lumière et l’amour"
+description: "Judas, reçu par Jimbeau Walsh : « Il est si important que chacun d’entre vous se sente en sécurité afin de permettre à votre cœur de s’ouvrir sans … »"
 date: 2022-06-01 06:00:01+00:1224
 draft: False
 hidden: True

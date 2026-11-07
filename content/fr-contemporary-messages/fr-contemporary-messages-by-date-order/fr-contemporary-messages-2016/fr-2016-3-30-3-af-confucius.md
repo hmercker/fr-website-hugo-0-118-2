@@ -1,7 +1,7 @@
 ---
 title: "Attirez la Lumière à vous"
 menu_title: ""
-description: "Attirez la Lumière à vous"
+description: "Confucius, reçu par Al Fike : « Âmes bien-aimées et précieuses, vous avez ressenti l’appel de vos âmes à vous rassembler en ce lieu, dans la prière, pour … »"
 date: 2026-10-24 06:00:01+00:01
 draft: False
 hidden: True

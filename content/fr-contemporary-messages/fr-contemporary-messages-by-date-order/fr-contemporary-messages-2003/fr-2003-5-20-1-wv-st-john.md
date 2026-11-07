@@ -1,7 +1,7 @@
 ---
 title: "Propager l’Amour"
 menu_title: ""
-description: "Propager l’Amour"
+description: "St Jean, reçu par WV : « Jusqu’à présent, tu as essayé de trouver un moyen par lequel il te serait possible de partager la vérité sur l’Amour Divin avec … »"
 date: 2022-06-01 06:00:01+00:47
 draft: False
 hidden: True

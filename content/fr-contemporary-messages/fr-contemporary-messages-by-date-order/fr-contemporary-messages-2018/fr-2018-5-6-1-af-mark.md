@@ -1,7 +1,7 @@
 ---
 title: "Les bénédictions viendront à mesure que vous construisez la lumière et l'amour en vous"
 menu_title: ""
-description: "Les bénédictions viendront à mesure que vous construisez la lumière et l'amour en vous"
+description: "Marc, reçu par Al Fike : « Dieu m’a donné cette bénédiction et j’assume cette responsabilité avec joie et avec amour, car c’est un lieu de Lumière. »"
 date: 2022-06-01 06:00:01+00:384
 draft: False
 hidden: True

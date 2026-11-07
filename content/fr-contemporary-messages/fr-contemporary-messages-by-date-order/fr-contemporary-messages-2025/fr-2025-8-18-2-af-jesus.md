@@ -1,7 +1,7 @@
 ---
 title: "Ouvrez grand vos âmes pour recevoir"
 menu_title: ""
-description: "Ouvrez grand vos âmes pour recevoir"
+description: "Jésus, reçu par Albert Fike : « Nous venons recueillir la lumière de tous les coins de votre monde, afin qu’un ange soit avec chacun de vous, une … »"
 date: 2023-07-15 06:00:01+00:01
 draft: False
 hidden: True

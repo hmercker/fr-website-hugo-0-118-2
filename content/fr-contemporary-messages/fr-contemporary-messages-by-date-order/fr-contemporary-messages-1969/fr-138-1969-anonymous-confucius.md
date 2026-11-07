@@ -1,7 +1,7 @@
 ---
 title: "Chercher la sagesse"
 menu_title: ""
-description: "Chercher la sagesse"
+description: "Confucius : « Comme un arbre qui cherche plus de soleil, l'homme doit rechercher une plus grande sagesse. »"
 date: 2022-06-01 06:00:01+00:104
 draft: False
 hidden: True

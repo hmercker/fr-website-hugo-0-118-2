@@ -1,7 +1,7 @@
 ---
 title: "Vos efforts sont décuplés par la bénédiction"
 menu_title: ""
-description: "Vos efforts sont décuplés par la bénédiction"
+description: "Augustin, reçu par Al Fike : « Tous ceux qui s’engagent à faire ce travail recevront les bénédictions et le soutien des anges. »"
 date: 2022-06-01 06:00:01+00:427
 draft: False
 hidden: True

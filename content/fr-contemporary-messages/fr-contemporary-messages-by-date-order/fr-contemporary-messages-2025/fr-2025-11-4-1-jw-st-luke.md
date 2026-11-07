@@ -1,7 +1,7 @@
 ---
 title: "La guérison dans les domaines physique et spirituel"
 menu_title: ""
-description: "La guérison dans les domaines physique et spirituel"
+description: "St Luke, reçu par Jimbeau Walsh : « Je vais vous parler aujourd’hui du point de vue de celui que l’on connaît parfois comme un médecin. »"
 date: 2025-12-12 16:00:01+00:01
 draft: False
 hidden: True

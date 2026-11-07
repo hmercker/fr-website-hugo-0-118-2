@@ -1,7 +1,7 @@
 ---
 title: "Un développement plus important est nécessaire pour la manifestation physique"
 menu_title: ""
-description: "Un développement plus important est nécessaire pour la manifestation physique"
+description: "Seretta Kem, reçu par Al Fike : « Il y a beaucoup de choses dans lesquelles nous sommes encore engagés et qui nécessitent votre connexion et vos efforts … »"
 date: 2022-06-01 06:00:01+00:31
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L'utilisation d'un langage dur"
 menu_title: ""
-description: "L'utilisation d'un langage dur"
+description: "Jésus, reçu par FAB : « Il y a eu un certain embarras à propos du fait que dans les messages de James Padgett et dans les canalisations ultérieures, un … »"
 date: 2022-06-01 06:00:01+00:117
 draft: False
 hidden: True

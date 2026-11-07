@@ -1,7 +1,7 @@
 ---
 title: "Robert Ingersoll parle de son expérience lors de l’obtention de l’Amour Divin"
 menu_title: ""
-description: "Robert Ingersoll parle de son expérience lors de l’obtention de l’Amour Divin"
+description: "Robert Ingersoll, reçu par James Padgett : « J’ai beaucoup progressé depuis la dernière fois que je vous ai écrit et j’ai reçu dans mon âme une … »"
 date: 2022-06-01 06:00:01+00:148
 draft: False
 hidden: True

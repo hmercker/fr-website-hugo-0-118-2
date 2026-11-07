@@ -1,7 +1,7 @@
 ---
 title: "Quel sera votre héritage ?"
 menu_title: ""
-description: "Quel sera votre héritage ?"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « La vie a ses rebondissements, ses complications et ses bénédictions, et il semble que très peu de gens cherchent … »"
 date: 2022-06-01 06:00:01+00:1381
 draft: False
 hidden: True

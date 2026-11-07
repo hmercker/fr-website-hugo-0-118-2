@@ -1,7 +1,7 @@
 ---
 title: "Foi, responsabilité et dévouement"
 menu_title: ""
-description: "Foi, responsabilité et dévouement"
+description: "Judas, reçu par Jimbeau Walsh : « Mais il s’est avancé et je souhaite donc vous transmettre quelques éléments. Vous connaissez tous les mots « pour entrer … »"
 date: 2022-06-01 06:00:01+00:178
 draft: False
 hidden: True

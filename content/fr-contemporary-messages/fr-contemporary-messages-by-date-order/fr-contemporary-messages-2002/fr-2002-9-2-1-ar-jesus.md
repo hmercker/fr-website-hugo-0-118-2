@@ -1,7 +1,7 @@
 ---
 title: "La personne derrière le rideau"
 menu_title: ""
-description: "La personne derrière le rideau"
+description: "Jésus, reçu par Amada Reza : « Je souhaite partager avec vous un message d'espoir qui peut vous apporter du réconfort en ces temps où des décisions sont … »"
 date: 2022-06-01 06:00:01+00:23
 draft: False
 hidden: True

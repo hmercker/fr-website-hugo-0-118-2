@@ -1,7 +1,7 @@
 ---
 title: "Priez pour les personnes qui vous sont chères"
 menu_title: ""
-description: "Priez pour les personnes qui vous sont chères"
+description: "Mylora, reçu par Al Fike : « Bénédictions pour vous, amis de la terre, enfants de Dieu. Nous continuons à être élevés dans le beau toucher de Dieu. »"
 date: 2022-06-01 06:00:01+00:1618
 draft: False
 hidden: True

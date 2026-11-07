@@ -1,7 +1,7 @@
 ---
 title: "Vm T Sherman est le même que lorsqu’il était sur terre, mais voyant ses anciens amis transformés par l’Amour Divin l’a conduit à aller avec M. Ridle pour en connaître la raison"
 menu_title: ""
-description: "Vm T Sherman est le même que lorsqu’il était sur terre, mais voyant ses anciens amis transformés par l’Amour Divin l’a conduit à aller avec M. Ridle pour en connaître la raison"
+description: "William T Sherman, reçu par James Padgett : « Non, ça n’a pas l’air si étrange. Eh bien, j’ai essayé d’écrire mon nom, mais je n’ai pas pu – pourquoi … »"
 date: 2022-06-01 06:00:01+00:11
 draft: False
 hidden: True

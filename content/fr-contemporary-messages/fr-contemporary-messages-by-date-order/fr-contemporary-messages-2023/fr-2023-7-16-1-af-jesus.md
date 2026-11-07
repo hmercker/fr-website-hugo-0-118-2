@@ -1,7 +1,7 @@
 ---
 title: "La puissance de l'amour de Dieu fait des miracles dans nos vies"
 menu_title: ""
-description: "La puissance de l'amour de Dieu fait des miracles dans nos vies"
+description: "Jésus, reçu par Albert Fike : « Tant de gens ne comprennent pas les possibilités qui viennent avec la puissance de l’Amour de Dieu, comment il peut être … »"
 date: 2023-09-01 06:00:01+00:53
 draft: False
 hidden: True

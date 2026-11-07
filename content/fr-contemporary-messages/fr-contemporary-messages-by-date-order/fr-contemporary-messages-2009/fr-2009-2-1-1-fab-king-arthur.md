@@ -1,7 +1,7 @@
 ---
 title: "Un roi légendaire - le roi Arthur - est réel"
 menu_title: ""
-description: "Un roi légendaire - le roi Arthur - est réel"
+description: "Le roi Arthur, reçu par FAB : « J'ai noté avec amusement certaines des légendes qui ont surgi à mon sujet. Mais je fus bel et bien un roi. »"
 date: 2022-06-01 06:00:01+00:12
 draft: False
 hidden: True

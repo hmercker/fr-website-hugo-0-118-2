@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes à 100 % avec vous dans nos efforts pour vous maintenir dans la Lumière"
 menu_title: ""
-description: "Nous sommes à 100 % avec vous dans nos efforts pour vous maintenir dans la Lumière"
+description: "Orion, reçu par Albert Fike : « Je vous remercie pour votre dévouement, votre constance et vos prières. Car si le monde entier était aussi dévoué que … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

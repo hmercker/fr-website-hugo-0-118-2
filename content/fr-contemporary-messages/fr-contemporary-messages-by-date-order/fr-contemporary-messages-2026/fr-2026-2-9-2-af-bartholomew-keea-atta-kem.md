@@ -1,7 +1,7 @@
 ---
 title: "Foi et Âme 2 : Ayez confiance en vous, en votre âme et en Dieu"
 menu_title: ""
-description: "Foi et Âme 2 : Ayez confiance en vous, en votre âme et en Dieu"
+description: "Barthélémy et Keea Atta Kem, reçu par Jimbeau Walsh : « Un travail considérable vous attend tous. Il y a tant à faire, mes amis, pour un monde assoiffé de … »"
 date: 2026-04-21 16:00:01+00:01
 draft: False
 hidden: True

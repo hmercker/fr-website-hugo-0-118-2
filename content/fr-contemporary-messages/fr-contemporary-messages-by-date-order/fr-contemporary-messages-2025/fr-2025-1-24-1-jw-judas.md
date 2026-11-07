@@ -1,7 +1,7 @@
 ---
 title: "La persévérance au-delà du rituel"
 menu_title: ""
-description: "La persévérance au-delà du rituel"
+description: "Judas, reçu par Jimbeau Walsh : « Cela peut parfois ressembler à une double existence, une sorte de schizophrénie spirituelle, où l’on doit faire face à … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

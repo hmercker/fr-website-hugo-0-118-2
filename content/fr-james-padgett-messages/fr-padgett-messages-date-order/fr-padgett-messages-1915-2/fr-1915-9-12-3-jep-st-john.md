@@ -1,7 +1,7 @@
 ---
 title: "Rejette l’expiation déléguée. Si les hommes pouvaient avoir la foi des apôtres, la guérison et les soi-disant miracles existeraient aujourd’hui"
 menu_title: ""
-description: "Rejette l’expiation déléguée. Si les hommes pouvaient avoir la foi des apôtres, la guérison et les soi-disant miracles existeraient aujourd’hui"
+description: "St Jean, reçu par James Padgett : « Je n’écris pas Saint Jean, parce que je ne suis pas appelé par ce nom dans les cieux spirituels, et je vous ai assez … »"
 date: 2022-06-01 06:00:01+00:242
 draft: False
 hidden: True

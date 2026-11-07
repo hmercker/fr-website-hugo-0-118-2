@@ -1,7 +1,7 @@
 ---
 title: "La suite des pensées"
 menu_title: ""
-description: "La suite des pensées"
+description: "Judas, reçu par H : « Il n’y a pas une seule pensée qui disparaît, et toutes sont accessibles à nous, et tu peux accéder à toutes celles qui sont sur ton … »"
 date: 2022-06-01 06:00:01+00:54
 draft: False
 hidden: True

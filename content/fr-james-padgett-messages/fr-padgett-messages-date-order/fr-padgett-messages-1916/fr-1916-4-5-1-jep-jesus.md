@@ -1,7 +1,7 @@
 ---
 title: "Jésus explique que beaucoup de Chrétiens Scientistes utilisent leur foi afin de se défaire de mauvaises habitudes"
 menu_title: ""
-description: "Jésus explique que beaucoup de Chrétiens Scientistes utilisent leur foi afin de se défaire de mauvaises habitudes"
+description: "Jésus, reçu par James Padgett : « Ces personnes (les Chrétiens Scientistes – Christian Scientists) obtiennent par leur étude des principes que Dieu est … »"
 date: 2022-06-01 06:00:01+00:195
 draft: False
 hidden: True

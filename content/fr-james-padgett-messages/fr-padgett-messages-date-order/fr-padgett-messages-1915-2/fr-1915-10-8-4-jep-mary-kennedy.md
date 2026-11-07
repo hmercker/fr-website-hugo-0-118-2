@@ -1,7 +1,7 @@
 ---
 title: "Progresse vers la Première Sphère Céleste et donne une description de sa nouvelle demeure"
 menu_title: ""
-description: "Progresse vers la Première Sphère Céleste et donne une description de sa nouvelle demeure"
+description: "Mary Kennedy, reçu par James Padgett : « Vous devez donc me croire lorsque je vous dis que mon amour est tellement plus abondant et que vous m’êtes plus … »"
 date: 2022-06-01 06:00:01+00:306
 draft: False
 hidden: True

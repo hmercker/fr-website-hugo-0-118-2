@@ -1,7 +1,7 @@
 ---
 title: "Sachez que vous êtes utilisé"
 menu_title: ""
-description: "Sachez que vous êtes utilisé"
+description: "Pierre le Rocher, reçu par Elizabeth Mack : « Nous venons parce que nous vous aimons. Nous suivons la volonté de Dieu en toutes choses, et la volonté de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

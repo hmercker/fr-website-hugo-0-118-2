@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes comblés de grâces"
 menu_title: ""
-description: "Vous êtes comblés de grâces"
+description: "Jacques et Jean le Bien Aimé, reçu par Elizabeth Mack : « Nous sommes Jacques et Jean. Vous êtes immensément bénis aujourd’hui. »"
 date: 2022-06-01 06:00:01+00:69
 draft: False
 hidden: True

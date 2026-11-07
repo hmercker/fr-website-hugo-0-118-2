@@ -1,7 +1,7 @@
 ---
 title: "Le Professeur Salyards commente le description de la naissance et de la vie de Jésus jusqu’à l’époque de son ministère public"
 menu_title: ""
-description: "Le Professeur Salyards commente le description de la naissance et de la vie de Jésus jusqu’à l’époque de son ministère public"
+description: "Professeur Salyards, reçu par James Padgett : « Je fus très intéressé par le dernier message du Maître, parce qu’il énonce des faits qui ne sont pas en … »"
 date: 2022-06-01 06:00:01+00:104
 draft: False
 hidden: True

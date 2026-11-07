@@ -1,7 +1,7 @@
 ---
 title: "Mettez l'Amour sur les ondes"
 menu_title: ""
-description: "Mettez l'Amour sur les ondes"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Nous nous sommes retrouvées pour nous joindre à vous dans la prière et pour vous encourager dans votre marche … »"
 date: 2022-06-01 06:00:01+00:1124
 draft: False
 hidden: True

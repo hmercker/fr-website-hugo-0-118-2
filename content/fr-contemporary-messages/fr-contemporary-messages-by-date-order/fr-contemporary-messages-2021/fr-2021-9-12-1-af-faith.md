@@ -1,7 +1,7 @@
 ---
 title: "Parler du service (Retraite Voix Directe 2021)"
 menu_title: ""
-description: "Parler du service (Retraite Voix Directe 2021)"
+description: "Faith, reçu par Al Fike : « Je souhaite vous parler du pouvoir de la démonstration de la vérité, du fait que vous ne pouvez pas vous contenter de … »"
 date: 2022-06-01 06:00:01+00:1637
 draft: False
 hidden: True

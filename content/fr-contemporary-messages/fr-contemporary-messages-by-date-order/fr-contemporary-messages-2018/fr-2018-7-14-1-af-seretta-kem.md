@@ -1,7 +1,7 @@
 ---
 title: "Expiation de l'âme par la recherche de la Vérité et la libération de l'erreur"
 menu_title: ""
-description: "Expiation de l'âme par la recherche de la Vvérité et la libération de l'erreur"
+description: "Seretta Kem, reçu par Al Fike : « J’ai été très heureux de pouvoir vous parler à travers l’instrument qui siège dans ce cercle, la chère âme qui a un … »"
 date: 2022-06-01 06:00:01+00:426
 draft: False
 hidden: True

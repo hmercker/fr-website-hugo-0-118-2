@@ -1,7 +1,7 @@
 ---
 title: "Mary dit qu’elle a progressé vers la Sphère Céleste qui n’est plus numérotée et qu’elle est parmi les esprits qui brillent équitablement du Grand Amour du Père"
 menu_title: ""
-description: "Mary dit qu’elle a progressé vers la Sphère Céleste qui n’est plus numérotée et qu’elle est parmi les esprits qui brillent équitablement du Grand Amour du Père"
+description: "Mary Kennedy, reçu par James Padgett : « Je vois que vous préférez entendre parler de moi plutôt que du dernier esprit, bien que vous souhaitiez montrer … »"
 date: 2022-06-01 06:00:01+00:195
 draft: False
 hidden: True

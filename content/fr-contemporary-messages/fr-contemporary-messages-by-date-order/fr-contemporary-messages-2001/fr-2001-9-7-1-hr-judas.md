@@ -1,7 +1,7 @@
 ---
 title: "Lumière spirituelle ou Vibrations spirituelles ?"
 menu_title: ""
-description: "Lumière spirituelle ou Vibrations spirituelles ?"
+description: "Judas, reçu par H : « Hier, j’ai promis d’écrire sur le sujet de la lumière dans le monde des esprits et regarde, nous avons une question à ce sujet de la … »"
 date: 2022-06-01 06:00:01+00:39
 draft: False
 hidden: True

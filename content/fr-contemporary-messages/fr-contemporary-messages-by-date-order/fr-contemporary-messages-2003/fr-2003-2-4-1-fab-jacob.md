@@ -1,7 +1,7 @@
 ---
 title: "La foi de Jacob en Dieu"
 menu_title: ""
-description: "La foi de Jacob en Dieu"
+description: "Jacob, reçu par FAB : « Mais avant de le faire, vous devez savoir que nous nous soucions tous de vous et que nous vous envoyons nos meilleurs vœux et nos … »"
 date: 2022-06-01 06:00:01+00:22
 draft: False
 hidden: True

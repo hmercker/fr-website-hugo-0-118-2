@@ -1,7 +1,7 @@
 ---
 title: "Leçon 3 : Ne laissez pas la peur prendre le dessus sur votre foi"
 menu_title: ""
-description: "Leçon 3 : Ne laissez pas la peur prendre le dessus sur votre foi"
+description: "Jésus, reçu par Al Fike : « Il y a une grande faim d'amour dans votre monde. L'humanité le réclame à cor et à cri. »"
 date: 2022-06-01 06:00:01+00:119
 draft: False
 hidden: True

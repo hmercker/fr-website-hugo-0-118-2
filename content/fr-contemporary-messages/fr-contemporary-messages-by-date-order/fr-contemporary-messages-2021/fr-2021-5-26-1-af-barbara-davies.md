@@ -1,7 +1,7 @@
 ---
 title: "Progression de la cinquième à la septième sphère"
 menu_title: ""
-description: "Progression de la cinquième à la septième sphère"
+description: "Barbara Davies, reçu par Al Fike : « Je tiens à féliciter ma chère Terry pour ses efforts dans la cuisine. Elle a appris quelque chose et a déployé ses … »"
 date: 2022-06-01 06:00:01+00:1515
 draft: False
 hidden: True

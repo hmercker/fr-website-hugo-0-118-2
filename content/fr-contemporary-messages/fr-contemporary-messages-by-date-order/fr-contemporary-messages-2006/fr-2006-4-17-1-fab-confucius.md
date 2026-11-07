@@ -1,7 +1,7 @@
 ---
 title: "Le Confucianisme et le présent"
 menu_title: ""
-description: "Le Confucianisme et le présent"
+description: "Confucius, reçu par FAB : « Lorsque vous lisez ma pensée, vous la traitez à travers votre filtre. C'est exactement ce que Dieu veut. »"
 date: 2022-06-01 06:00:01+00:13
 draft: False
 hidden: True

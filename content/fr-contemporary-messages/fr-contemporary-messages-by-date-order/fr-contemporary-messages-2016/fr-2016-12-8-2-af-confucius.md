@@ -1,7 +1,7 @@
 ---
 title: "N’ayez pas peur d’exprimer ce qui est dans votre âme"
 menu_title: ""
-description: "N’ayez pas peur d’exprimer ce qui est dans votre âme"
+description: "Confucius, reçu par Al Fike : « Vous avez reçu beaucoup d’enseignements à considérer pendant que vous étiez ensemble et il y a beaucoup d’autres … »"
 date: 2022-06-01 06:00:01+00:294
 draft: False
 hidden: True

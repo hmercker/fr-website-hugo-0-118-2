@@ -1,7 +1,7 @@
 ---
 title: "Encourage la prière et la confiance en Dieu"
 menu_title: ""
-description: "Encourage la prière et la confiance en Dieu"
+description: "Orion, reçu par Al Fike : « Que l’Amour du Père continue à vous éveiller, mes amis, à vous ouvrir à de nouvelles perspectives, visions, expériences et … »"
 date: 2023-09-01 06:00:01+00:09
 draft: False
 hidden: True

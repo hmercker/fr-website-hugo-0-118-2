@@ -1,7 +1,7 @@
 ---
 title: "Ouvrez vos esprits et vos âmes à la guidance de Dieu"
 menu_title: ""
-description: "Ouvrez vos esprits et vos âmes à la guidance de Dieu"
+description: "Seretta Kem, reçu par Al Fike : « Principalement, nous souhaitons créer en ce lieu un nœud de lumière qui sera utilisé dans cette partie du monde alors … »"
 date: 2022-06-01 06:00:01+00:561
 draft: False
 hidden: True

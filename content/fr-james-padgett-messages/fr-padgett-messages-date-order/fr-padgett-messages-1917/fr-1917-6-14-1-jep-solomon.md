@@ -1,7 +1,7 @@
 ---
 title: "Salomon encourage M. Padgett et souligne l’importance de recevoir ces vérités importantes sans délai, car l’humanité se tourne davantage vers les choses spirituelles"
 menu_title: ""
-description: "Salomon encourage M. Padgett et souligne l’importance de recevoir ces vérités importantes sans délai, car l’humanité se tourne davantage vers les choses spirituelles"
+description: "Salomon, reçu par James Padgett : « Il y a longtemps que je ne vous ai pas écrit, bien que j’aie été présent plusieurs fois lorsque les autres esprits … »"
 date: 2022-06-01 06:00:01+00:146
 draft: False
 hidden: True

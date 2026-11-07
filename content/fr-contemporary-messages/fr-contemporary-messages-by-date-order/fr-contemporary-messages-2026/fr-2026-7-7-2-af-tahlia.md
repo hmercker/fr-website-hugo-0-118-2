@@ -1,7 +1,7 @@
 ---
 title: "Tahlia décrit son don de guérison et explique le chemin de l’âme vers la communion avec Dieu"
 menu_title: ""
-description: "Tahlia décrit son don de guérison et explique le chemin de l’âme vers la communion avec Dieu"
+description: "Tahlia, reçu par Albert Fike : « Je ne me suis pas souvent exprimée par l’intermédiaire de cet instrument, mais j’ai été présente à vos côtés. »"
 date: 2026-10-04 06:00:01+00:01
 draft: False
 hidden: True

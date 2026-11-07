@@ -1,7 +1,7 @@
 ---
 title: "Accueillez chacun avec amour et faites preuve de douceur lorsque vous enseignez cette vérité aux autres"
 menu_title: ""
-description: "Accueillez chacun avec amour et faites preuve de douceur lorsque vous enseignez cette vérité aux autres"
+description: "Orion, reçu par Albert Fike : « Le flux d'amour et de bénédictions qui vous est destiné continue de croître et de s'intensifier. »"
 date: 2026-09-30 06:00:01+00:01
 draft: False
 hidden: True

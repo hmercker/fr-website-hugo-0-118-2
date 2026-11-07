@@ -1,7 +1,7 @@
 ---
 title: "Réveillez vos dons par l'amour"
 menu_title: ""
-description: "Réveillez vos dons par l'amour"
+description: "Augustin, reçu par Al Fike : « C’est votre enseignant, Augustin. Vous avez chacun reçu de profondes guérisons au cours de votre temps ensemble, des … »"
 date: 2022-06-01 06:00:01+00:472
 draft: False
 hidden: True

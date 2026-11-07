@@ -1,7 +1,7 @@
 ---
 title: "La reine Victoria regrette de ne pas avoir vécu suffisamment longtemps pour empêcher la Guerre Mondiale"
 menu_title: ""
-description: "La reine Victoria regrette de ne pas avoir vécu suffisamment longtemps pour empêcher la Guerre Mondiale"
+description: "La reine Victoria, reçu par James Padgett : « Je dois écrire une ligne, car j’ai écouté les communications et j’ai le sentiment qu’aucun de ceux qui ont … »"
 date: 2022-06-01 06:00:01+00:53
 draft: False
 hidden: True

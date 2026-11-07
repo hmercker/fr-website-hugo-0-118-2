@@ -1,7 +1,7 @@
 ---
 title: "Les guides alloués prennent la parole"
 menu_title: ""
-description: "Les guides alloués prennent la parole"
+description: "Keea Atta Kem, St Matthieu, Lotus Blossom, Thomas d'Aquin & Martha, reçu par Al Fike : « Mon cœur se remplit de joie et d'amour pour vous, âmes … »"
 date: 2022-06-01 06:00:01+00:156
 draft: False
 hidden: True

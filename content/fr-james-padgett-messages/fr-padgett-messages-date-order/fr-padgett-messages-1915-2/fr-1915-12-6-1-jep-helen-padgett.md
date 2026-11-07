@@ -1,7 +1,7 @@
 ---
 title: "Hélène a décidé de disputer leurs âmes sœurs mais sans la coopération de Marie"
 menu_title: ""
-description: "Hélène a décidé de disputer leurs âmes sœurs mais sans la coopération de Marie"
+description: "Hélène Padgett, reçu par James Padgett : « Je veux simplement dire que toi et le Dr Stone vous êtes des hommes très insensés de négliger vos âmes sœurs … »"
 date: 2022-06-01 06:00:01+00:80
 draft: False
 hidden: True

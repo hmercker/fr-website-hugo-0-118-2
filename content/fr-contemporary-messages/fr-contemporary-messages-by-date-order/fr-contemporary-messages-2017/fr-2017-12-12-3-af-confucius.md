@@ -1,7 +1,7 @@
 ---
 title: "La bénédiction de Confucius"
 menu_title: ""
-description: "La bénédiction de Confucius"
+description: "Confucius, reçu par Al Fike : « Belles âmes, belles âmes, mes précieux oiseaux. Les différents messages communiqués par Confucius sont accessibles par … »"
 date: 2022-06-01 06:00:01+00:271
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Jésus n'était pas destiné à mourir jeune"
 menu_title: ""
-description: "Jésus n'était pas destiné à mourir jeune"
+description: "Augustin, reçu par Albert Fike : « Que l’Amour du Père continue d’affluer en chacun de vous. Ouvrez-vous grand et exprimez le désir de recevoir cet Amour … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

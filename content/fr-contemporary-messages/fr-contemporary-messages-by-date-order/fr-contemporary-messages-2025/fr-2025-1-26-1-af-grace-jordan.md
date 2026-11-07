@@ -1,7 +1,7 @@
 ---
 title: "Exprime sa gratitude pour la retraite Starpoint"
 menu_title: ""
-description: "Exprime sa gratitude pour la retraite Starpoint"
+description: "Grace Jordan, reçu par Albert Fike : « Chacun d’entre vous a sa propre façon unique de le faire. Je veux vous encourager à découvrir, à développer et à … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Création et évolution revisitées"
 menu_title: ""
-description: "Création et évolution revisitées"
+description: "Orion, reçu par George Barnard : « Nous transportons la vie humaine, animale, y compris les insectes, et même la vie végétale, de planète en planète, mais … »"
 date: 2022-06-01 06:00:01+00:280
 draft: False
 hidden: True

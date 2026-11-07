@@ -1,7 +1,7 @@
 ---
 title: "Artisan de la Renaissance"
 menu_title: ""
-description: "Artisan de la Renaissance"
+description: "Michelangelo, reçu par NA : « Lors de ma vie terrestre, j'ai vécu une vie inspirée dans ce que vous appelez maintenant, et qui est devenu connu comme la … »"
 date: 2022-06-01 06:00:01+00:65
 draft: False
 hidden: True

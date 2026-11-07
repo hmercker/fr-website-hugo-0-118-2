@@ -1,7 +1,7 @@
 ---
 title: "Comparaison des expiations entre les voies de l'Amour Divin et naturel"
 menu_title: ""
-description: "Comparaison des expiations entre les voies de l'Amour Divin et naturel"
+description: "Fleur de Lotus, reçu par Al Fike : « Nous nous réjouissons de vos découvertes, de vos tentatives de compréhension de la Vérité profonde de l’Amour du Père … »"
 date: 2022-06-01 06:00:01+00:1112
 draft: False
 hidden: True

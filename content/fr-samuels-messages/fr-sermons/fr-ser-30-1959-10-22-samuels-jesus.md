@@ -1,7 +1,7 @@
 ---
 title: "30ème Sermon – Amos et Osée étaient obéissant à Dieu"
 menu_title: ""
-description: "30ème Sermon – Amos et Osée étaient obéissant à Dieu"
+description: "Jésus, reçu par Dr Samuels : « Je voudrais, maintenant, passer brièvement en revue et résumer la place d’Amos, en ce qui concerne le développement de … »"
 date: 2022-06-01 06:00:01+00:83
 draft: False
 hidden: True

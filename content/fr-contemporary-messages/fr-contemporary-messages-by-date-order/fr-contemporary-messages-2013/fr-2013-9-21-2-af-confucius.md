@@ -1,7 +1,7 @@
 ---
 title: "Persévérez dans vos efforts pour rechercher la Vérité et pour comprendre véritablement votre vraie nature"
 menu_title: ""
-description: "Persévérez dans vos efforts pour rechercher la Vérité et pour comprendre véritablement votre vraie nature"
+description: "Confucius, reçu par Albert Fike : « Tu as beaucoup lutté, mon fils. Une grande bataille sur le plan physique. »"
 date: 2026-10-21 06:00:01+00:09
 draft: False
 hidden: True

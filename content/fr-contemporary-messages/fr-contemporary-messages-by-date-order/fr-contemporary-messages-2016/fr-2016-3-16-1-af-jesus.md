@@ -1,7 +1,7 @@
 ---
 title: "La résonance de l'amour parmi vous"
 menu_title: ""
-description: "La résonance de l'amour parmi vous"
+description: "Jésus, reçu par Al Fike : « Mes frères et sœurs, je viens. Votre volonté d’accepter et d’embrasser l’autre est profonde dans son impact, car chacun … »"
 date: 2022-06-01 06:00:01+00:175
 draft: False
 hidden: True

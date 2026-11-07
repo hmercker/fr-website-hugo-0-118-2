@@ -1,7 +1,7 @@
 ---
 title: "St Étienne affirme que Jésus a écrit"
 menu_title: ""
-description: "St Étienne affirme que Jésus a écrit"
+description: "St Étienne, reçu par James Padgett : « Le Maître a été déçu, mais il est tellement aimant et bon qu’il ne s’est pas plaint et souhaite seulement que vous … »"
 date: 2022-06-01 06:00:01+00:177
 draft: False
 hidden: True

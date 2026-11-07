@@ -1,7 +1,7 @@
 ---
 title: "Avec le développement de ce don, un nouveau niveau de communication sera atteint"
 menu_title: ""
-description: "Avec le développement de ce don, un nouveau niveau de communication sera atteint"
+description: "Seretta Kem, reçu par Al Fike : « Je vois que vous continuez à faire vos enquêtes, à dire vos prières et à tenter de changer vos habitudes physiques et … »"
 date: 2022-06-01 06:00:01+00:59
 draft: False
 hidden: True

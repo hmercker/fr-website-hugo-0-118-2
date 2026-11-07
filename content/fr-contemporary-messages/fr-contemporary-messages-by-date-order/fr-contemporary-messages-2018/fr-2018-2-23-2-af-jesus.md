@@ -1,7 +1,7 @@
 ---
 title: "Le travail commence"
 menu_title: ""
-description: "Le travail commence"
+description: "Jésus, reçu par Al Fike : « Âmes bien-aimées, apprenez à connaître les capacités et les forces de vos âmes, comment par cette avenue et ce canal en vous … »"
 date: 2022-06-01 06:00:01+00:327
 draft: False
 hidden: True

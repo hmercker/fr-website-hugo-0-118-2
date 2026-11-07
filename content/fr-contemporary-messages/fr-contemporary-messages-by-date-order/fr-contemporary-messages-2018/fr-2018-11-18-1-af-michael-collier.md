@@ -1,7 +1,7 @@
 ---
 title: "Comment apporter la Vérité aux nouvelles âmes"
 menu_title: ""
-description: "Comment apporter la Vérité aux nouvelles âmes"
+description: "Michael Collier, reçu par Al Fike : « Nous sommes occupés à organiser et à inciter d’autres personnes à venir faire partie de ce cercle et nous sommes … »"
 date: 2022-06-01 06:00:01+00:565
 draft: False
 hidden: True

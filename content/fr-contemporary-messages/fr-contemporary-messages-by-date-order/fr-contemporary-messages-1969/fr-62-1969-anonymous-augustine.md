@@ -1,7 +1,7 @@
 ---
 title: "Vous connaissez les vôtres"
 menu_title: ""
-description: "Vous connaissez les vôtres"
+description: "Augustin : « Cela me fait du bien au cœur de vous voir, les petits, venir devant le trône du Très-Haut. »"
 date: 2022-06-01 06:00:01+00:115
 draft: False
 hidden: True

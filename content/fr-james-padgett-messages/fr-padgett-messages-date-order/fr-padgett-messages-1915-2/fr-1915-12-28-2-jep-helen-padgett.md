@@ -1,7 +1,7 @@
 ---
 title: "L’expérience de joie et de grandeur d’Hélène dans la troisième sphère céleste"
 menu_title: ""
-description: "L’expérience de joie et de grandeur d’Hélène dans la troisième sphère céleste"
+description: "Hélène Padgett, reçu par James Padgett : « Cela fait longtemps que je ne t’ai pas écrit beaucoup de détails sur moi-même, et tu ne sais pas ce qui s’est … »"
 date: 2022-06-01 06:00:01+00:106
 draft: False
 hidden: True

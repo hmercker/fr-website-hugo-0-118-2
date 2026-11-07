@@ -1,7 +1,7 @@
 ---
 title: "Par l'intégration de l'Amour Divin dans chaque aspect de votre être, vous devenez un puissant émetteur de l'essence divine"
 menu_title: ""
-description: "Par l'intégration de l'Amour Divin dans chaque aspect de votre être, vous devenez un puissant émetteur de l'essence divine"
+description: "Alec Gaunt, reçu par Maureen Cardoso : « Alors que vos âmes continuent de se tourner vers Dieu, de s’ouvrir et d’être réceptives, vous recevez un puissant … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

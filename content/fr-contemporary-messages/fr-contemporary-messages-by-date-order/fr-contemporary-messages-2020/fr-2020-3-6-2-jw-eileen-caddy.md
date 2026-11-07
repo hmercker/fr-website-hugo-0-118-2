@@ -1,7 +1,7 @@
 ---
 title: "Gardez le cap avec amour"
 menu_title: ""
-description: "Gardez le cap avec amour"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « Sur le sujet du service, je vous dis que de tout ce que mon Findhorn est devenu, ils sont toujours restés dans le … »"
 date: 2022-06-01 06:00:01+00:1015
 draft: False
 hidden: True

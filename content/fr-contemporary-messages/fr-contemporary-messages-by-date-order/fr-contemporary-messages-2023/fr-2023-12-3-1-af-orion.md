@@ -1,7 +1,7 @@
 ---
 title: "Accueille la diversité dans l’Amour Divin Universel"
 menu_title: ""
-description: "Accueille la diversité dans l’Amour Divin Universel"
+description: "Orion, reçu par Albert Fike : « Les dons que chacun de vous possède se manifestent de différentes manières. Chacun de vous est unique. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

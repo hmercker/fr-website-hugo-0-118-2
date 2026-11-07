@@ -1,7 +1,7 @@
 ---
 title: "Nous implore d'être des canaux de lumière au service de Dieu"
 menu_title: ""
-description: "Nous implore d'être des canaux de lumière au service de Dieu"
+description: "Jésus, reçu par Albert Fike : « Être une lumière dans votre monde est si important, car il y a tant d’obscurité et la lumière dissipe l’obscurité. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

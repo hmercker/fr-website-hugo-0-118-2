@@ -1,7 +1,7 @@
 ---
 title: "Shakespeare - arrivée à Londres"
 menu_title: ""
-description: "Shakespeare - arrivée à Londres"
+description: "William Shakespeare, reçu par FAB : « Il est inconnu de l'histoire. Il connaissait un de mes voisins, qui s'appelait Tom Smith. »"
 date: 2022-06-01 06:00:01+00:145
 draft: False
 hidden: True

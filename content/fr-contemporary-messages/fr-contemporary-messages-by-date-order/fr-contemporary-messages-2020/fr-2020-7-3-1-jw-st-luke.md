@@ -1,7 +1,7 @@
 ---
 title: "Soyez conscient de ce qui se trouve dans votre cœur"
 menu_title: ""
-description: "Soyez conscient de ce qui se trouve dans votre cœur"
+description: "St Luc, reçu par Jimbeau Walsh : « Je souhaite faire un commentaire sur le cœur et les désirs de l’âme. Si vous pouviez voir dans chaque âme mise à nu … »"
 date: 2022-06-01 06:00:01+00:1173
 draft: False
 hidden: True

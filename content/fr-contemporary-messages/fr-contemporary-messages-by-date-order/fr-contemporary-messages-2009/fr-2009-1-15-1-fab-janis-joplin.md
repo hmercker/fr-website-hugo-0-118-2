@@ -1,7 +1,7 @@
 ---
 title: "Le malheur de Janis Joplin"
 menu_title: ""
-description: "Le malheur de Janis Joplin"
+description: "Janis Joplin, reçu par FAB : « Mais vous devez savoir que mon existence spirituelle a été très malheureuse. Je n'ai pas eu la paix de l'esprit parce que … »"
 date: 2022-06-01 06:00:01+00:04
 draft: False
 hidden: True

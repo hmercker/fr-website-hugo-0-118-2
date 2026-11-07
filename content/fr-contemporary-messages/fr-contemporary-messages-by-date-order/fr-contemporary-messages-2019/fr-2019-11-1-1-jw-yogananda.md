@@ -1,7 +1,7 @@
 ---
 title: "Il est difficile de se débarrasser des bagages"
 menu_title: ""
-description: "Il est difficile de se débarrasser des bagages"
+description: "Yogananda, reçu par Jimbeau Walsh : « Ce monde est si enveloppé dans le désir matériel, dans la peur, avec tant d'obscurité. Si nous observons le monde … »"
 date: 2022-06-01 06:00:01+00:891
 draft: False
 hidden: True

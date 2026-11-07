@@ -1,7 +1,7 @@
 ---
 title: "Marchez dans l’innocence, la simplicité et la foi"
 menu_title: ""
-description: "Marchez dans l’innocence, la simplicité et la foi"
+description: "Augustin, reçu par Albert Fike : « Je vois que vous franchissez les étapes préparatoires à vos voyages, et je tiens à vous encourager à redoubler … »"
 date: 2026-10-21 06:00:01+00:09
 draft: False
 hidden: True

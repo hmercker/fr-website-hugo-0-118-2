@@ -1,7 +1,7 @@
 ---
 title: "Dieu communique de plusieurs façons"
 menu_title: ""
-description: "Dieu communique de plusieurs façons"
+description: "Seretta Kem, reçu par Al Fike : « Il déverse sa lumière, sa paix et son amour dans votre cercle. Durant les moments que vous avez passés ensemble, Dieu … »"
 date: 2022-06-01 06:00:01+00:462
 draft: False
 hidden: True

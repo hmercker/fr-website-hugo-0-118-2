@@ -1,7 +1,7 @@
 ---
 title: "Il est important d'établir davantage de portails et de cercles de lumière"
 menu_title: ""
-description: "Il est important d'établir davantage de portails et de cercles de lumière"
+description: "André, reçu par Jimbeau Walsh : « Nous vous remercions pour vos efforts et nous vous rejoindrons chaque fois que vous serez là dans cette belle chapelle … »"
 date: 2022-06-01 06:00:01+00:882
 draft: False
 hidden: True

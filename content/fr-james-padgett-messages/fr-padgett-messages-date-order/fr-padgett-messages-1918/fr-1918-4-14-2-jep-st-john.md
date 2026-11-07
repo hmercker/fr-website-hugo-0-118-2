@@ -1,7 +1,7 @@
 ---
 title: "Ne recommande pas de recevoir, actuellement, de tels messages"
 menu_title: ""
-description: "Ne recommande pas de recevoir, actuellement, de tels messages"
+description: "St Jean, reçu par James Padgett : « Laissez-moi vous dire un mot, j’ai attendu avec un certain intérêt que l’esprit qui vient de vous écrire Spinoza … »"
 date: 2022-06-01 06:00:01+00:29
 draft: False
 hidden: True

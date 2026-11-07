@@ -1,7 +1,7 @@
 ---
 title: "Venez soutenir toutes les femmes"
 menu_title: ""
-description: "Venez soutenir toutes les femmes"
+description: "Jeanne d'arc, Marie et Keea Ata Kem, reçu par Albert Fike : « Nombreuses sont celles qui sont là pour vous, filles bien-aimées, femmes du monde et celles … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

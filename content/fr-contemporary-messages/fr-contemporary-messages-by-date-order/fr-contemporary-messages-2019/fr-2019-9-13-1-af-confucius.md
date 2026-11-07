@@ -1,7 +1,7 @@
 ---
 title: "Dieu assigne des anges pour être avec ceux qui sont sur le Chemin Divin"
 menu_title: ""
-description: "Dieu assigne des anges pour être avec ceux qui sont sur le Chemin Divin"
+description: "Confucius, reçu par Al Fike : « Vous avez reçu un don de guérison, chacun de vous, une bénédiction sur vous. Nous venons dans ces Cercles pour parler afin … »"
 date: 2022-06-01 06:00:01+00:852
 draft: False
 hidden: True

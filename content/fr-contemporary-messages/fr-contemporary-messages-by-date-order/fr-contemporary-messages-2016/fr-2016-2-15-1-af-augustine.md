@@ -1,7 +1,7 @@
 ---
 title: "Forgez ce chemin vers vos âmes et par là vers Dieu"
 menu_title: ""
-description: "Forgez ce chemin vers vos âmes et par là vers Dieu"
+description: "Augustin, reçu par Al Fike : « Que vos âmes connaissent ce toucher profond du Père Céleste rachetant vos âmes, amenant vos âmes en alignement avec la … »"
 date: 2022-06-01 06:00:01+00:163
 draft: False
 hidden: True

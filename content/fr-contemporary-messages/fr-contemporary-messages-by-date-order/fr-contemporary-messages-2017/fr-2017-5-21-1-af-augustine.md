@@ -1,7 +1,7 @@
 ---
 title: "Le désir de l’âme est une prière"
 menu_title: ""
-description: "Le désir de l’âme est une prière"
+description: "Augustin, reçu par Al Fike : « Que vous trouviez ce que vos âmes cherchent, car c’est ce que Dieu vous invite à faire, à connaître les désirs de vos âmes … »"
 date: 2022-06-01 06:00:01+00:35
 draft: False
 hidden: True

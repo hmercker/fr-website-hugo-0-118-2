@@ -1,7 +1,7 @@
 ---
 title: "Aman apporte une correction"
 menu_title: ""
-description: "Aman apporte une correction"
+description: "Aman, reçu par James Padgett : « Je pensais que si je pouvais obtenir ces qualités, je deviendrais un Dieu et co-égal avec mon Créateur, et donc le … »"
 date: 2022-06-01 06:00:01+00:235
 draft: False
 hidden: True

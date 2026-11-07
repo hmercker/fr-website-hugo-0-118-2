@@ -1,7 +1,7 @@
 ---
 title: "Intégrer les éveils de l'âme au corps et à l'esprit"
 menu_title: ""
-description: "Intégrer les éveils de l'âme au corps et à l'esprit"
+description: "Keea Atta Kem, reçu par Maureen Cardoso : « J’aimerais venir vous parler, vous inspirer pour que vous emportiez avec vous de ce temps d’être ensemble une … »"
 date: 2022-06-01 06:00:01+00:537
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Cherchez d’abord le Royaume, et tout le reste vous sera donné"
 menu_title: ""
-description: "Cherchez d’abord le Royaume, et tout le reste vous sera donné"
+description: "St Luc, reçu par Jimbeau Walsh : « Vous pouvez voir dans vos études aujourd’hui comment une âme, même avec une goutte d’amour, peut aider une autre âme en … »"
 date: 2022-06-01 06:00:01+00:1581
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Trouve notre excentricité amusante !"
 menu_title: ""
-description: "Trouve notre excentricité amusante !"
+description: "Orion, reçu par Albert Fike : « … verse dans ton âme, inonde ton âme d’Amour. Le monde a besoin de tout ton temps pour servir, car chaque fois que vous … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

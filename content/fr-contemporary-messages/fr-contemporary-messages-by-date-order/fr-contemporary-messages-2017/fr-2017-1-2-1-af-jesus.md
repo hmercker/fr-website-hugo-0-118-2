@@ -1,7 +1,7 @@
 ---
 title: "La route est claire devant vous"
 menu_title: ""
-description: "La route est claire devant vous"
+description: "Jésus, reçu par Al Fike : « Vous apportez ce Don de Dieu. Âmes bien-aimées, vous êtes à jamais liées dans cet Amour car vous êtes chacune profondément … »"
 date: 2022-06-01 06:00:01+00:01
 draft: False
 hidden: True

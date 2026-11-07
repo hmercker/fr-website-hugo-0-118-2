@@ -1,7 +1,7 @@
 ---
 title: "La différence entre l’Amour Divin et la voie de l’amour naturel"
 menu_title: ""
-description: "La différence entre l’Amour Divin et la voie de l’amour naturel"
+description: "Professeur Salyards, reçu par Al Fike : « En effet, bien que votre nombre puisse sembler faible, je tiens à vous assurer qu’il y a beaucoup de personnes … »"
 date: 2022-06-01 06:00:01+00:1452
 draft: False
 hidden: True

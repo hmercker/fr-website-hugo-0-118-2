@@ -1,7 +1,7 @@
 ---
 title: "Impressions d'Al après la prière Voix Directe_2"
 menu_title: ""
-description: "Impressions d'Al après la prière Voix Directe_2"
+description: "Al Fike, reçu par Al Fike : « Al : Les anges étaient derrière nous et puis ces deux anneaux fusionnent ensemble. Ils sont assez grands, ils sont tous … »"
 date: 2022-06-01 06:00:01+00:352
 draft: False
 hidden: True

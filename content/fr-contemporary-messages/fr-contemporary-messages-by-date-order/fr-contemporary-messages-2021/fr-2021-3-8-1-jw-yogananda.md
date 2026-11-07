@@ -1,7 +1,7 @@
 ---
 title: "Laissez votre lumière briller sur chaque être"
 menu_title: ""
-description: "Laissez votre lumière briller sur chaque être"
+description: "Yogananda, reçu par Jimbeau Walsh : « Je souhaite parler de l’unité au milieu de toute la diversité, au milieu de toutes les différences culturelles … »"
 date: 2022-06-01 06:00:01+00:1434
 draft: False
 hidden: True

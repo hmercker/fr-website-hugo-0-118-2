@@ -1,7 +1,7 @@
 ---
 title: "Recherchez l'harmonie en toutes choses"
 menu_title: ""
-description: "Recherchez l'harmonie en toutes choses"
+description: "Seretta Kem, reçu par Al Fike : « Mon cher frère avait quelques questions concernant son retour à la maison. Il ne doit pas sentir qu’il est sous pression … »"
 date: 2022-06-01 06:00:01+00:516
 draft: False
 hidden: True

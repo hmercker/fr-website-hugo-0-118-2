@@ -1,7 +1,7 @@
 ---
 title: "Faire la Volonté de Dieu"
 menu_title: ""
-description: "Faire la Volonté de Dieu"
+description: "Barbara Davies, reçu par Albert Fike : « L’œuvre de Dieu n’est pas quelque chose de spécifique, l’œuvre de Dieu est ce qui est infusé dans tout ce que … »"
 date: 2023-09-01 06:00:01+00:52
 draft: False
 hidden: True

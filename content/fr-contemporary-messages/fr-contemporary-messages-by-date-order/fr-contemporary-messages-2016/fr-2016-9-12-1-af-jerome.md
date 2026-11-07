@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes soutenu dans vos luttes"
 menu_title: ""
-description: "Vous êtes soutenu dans vos luttes"
+description: "Jérôme, reçu par Al Fike : « Les conditions dans ce pays sont lourdes en effet, sa terre est trempée de sang. Les esprits de ceux qui habitent ce lieu … »"
 date: 2022-06-01 06:00:01+00:247
 draft: False
 hidden: True

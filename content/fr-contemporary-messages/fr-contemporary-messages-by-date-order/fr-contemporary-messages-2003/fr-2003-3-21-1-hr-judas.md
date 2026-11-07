@@ -1,7 +1,7 @@
 ---
 title: "La dynamique de la vie 1 : Le mal"
 menu_title: ""
-description: "La dynamique de la vie 1 : Le mal"
+description: "Judas, reçu par H : « Ce matin, comme c’est si souvent le cas, j’étais avec toi. Avec beaucoup d’intérêt je t’ai observé lorsque tu as traduit le message … »"
 date: 2022-06-01 06:00:01+00:31
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Se présente et présente son objectif à la retraite de Poughkeepsie"
 menu_title: ""
-description: "Se présente et présente son objectif à la retraite de Poughkeepsie"
+description: "Orion, reçu par Albert Fike : « Que la lumière et l’amour universels vous entourent tous, mes beaux amis. Car qu’est-ce que l’amitié sinon le pouvoir de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

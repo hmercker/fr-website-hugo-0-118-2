@@ -1,7 +1,7 @@
 ---
 title: "Permettez à Dieu"
 menu_title: ""
-description: "Permettez à Dieu"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « Bien que le monde soit rempli d’obstacles, et que vous ressentiez cette pression, vos prières percent des trous … »"
 date: 2022-06-01 06:00:01+00:26
 draft: False
 hidden: True

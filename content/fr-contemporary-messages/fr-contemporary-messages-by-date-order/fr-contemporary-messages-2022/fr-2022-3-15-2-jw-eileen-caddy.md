@@ -1,7 +1,7 @@
 ---
 title: "Orientation, vision et actualisation"
 menu_title: ""
-description: "Orientation, vision et actualisation"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « Comme vous le savez, la communauté de Findhorn a commencé par de simples conseils, et une vision qui nous a été … »"
 date: 2022-06-01 06:00:01+00:49
 draft: False
 hidden: True

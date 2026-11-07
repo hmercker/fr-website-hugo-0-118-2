@@ -1,7 +1,7 @@
 ---
 title: "Comment fonctionne le flux de la Volonté de Dieu"
 menu_title: ""
-description: "Comment fonctionne le flux de la Volonté de Dieu"
+description: "Augustin, reçu par Al Fixe : « Vous avez vu comment fonctionne le flux de la Volonté de Dieu et a son impact dans vos voyages et avec les personnes que … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

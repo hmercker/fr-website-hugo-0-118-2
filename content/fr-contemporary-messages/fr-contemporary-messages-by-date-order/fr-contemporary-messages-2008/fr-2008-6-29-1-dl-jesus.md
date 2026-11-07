@@ -1,7 +1,7 @@
 ---
 title: "Démontrer l'amour dans le corps et dans l'âme"
 menu_title: ""
-description: "Démontrer l'amour dans le corps et dans l'âme"
+description: "Jésus, reçu par Révérend Dave Lampron : « Et je veux vous assurer, ce dont je n'ai pas besoin, mais je dirai qu'Il a béni chacun de vous aujourd'hui avec … »"
 date: 2022-06-01 06:00:01+00:80
 draft: False
 hidden: True

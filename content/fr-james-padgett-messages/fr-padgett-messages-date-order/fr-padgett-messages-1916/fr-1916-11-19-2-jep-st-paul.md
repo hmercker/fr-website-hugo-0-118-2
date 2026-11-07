@@ -1,7 +1,7 @@
 ---
 title: "L’enfer et la durée de la peine"
 menu_title: ""
-description: "L’enfer et la durée de la peine"
+description: "St Paul, reçu par James Padgett : « Je veux simplement dire que j’étais présent ce soir à l’église et que j’ai écouté le prédicateur (Dr Ratcliff) prêcher … »"
 date: 2022-06-01 06:00:01+00:330
 draft: False
 hidden: True

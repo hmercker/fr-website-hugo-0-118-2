@@ -1,7 +1,7 @@
 ---
 title: "Jean a écrit au sujet des grands pouvoirs qui sont derrière M. Padgett pour accomplir tous ses désirs, ce qui est encouragé par la mère de Leslie, sa sœur Kate, Prof Salyards, Elizabeth Barret et de sa femme Hélène"
 menu_title: ""
-description: "Jean a écrit au sujet des grands pouvoirs qui sont derrière M. Padgett pour accomplir tous ses désirs, ce qui est encouragé par la mère de Leslie, sa sœur Kate, Prof Salyards, Elizabeth Barret et de sa femme Hélène"
+description: "St Jean, reçu par James Padgett : « Mais je dirai qu’en dépit de ce que vous avez lu ce soir en référence à vos affaires matérielles, vous devez avoir la … »"
 date: 2022-06-01 06:00:01+00:120
 draft: False
 hidden: True

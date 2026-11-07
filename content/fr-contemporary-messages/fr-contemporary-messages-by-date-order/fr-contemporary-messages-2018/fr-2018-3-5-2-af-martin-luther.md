@@ -1,7 +1,7 @@
 ---
 title: "L’éveil de l’âme, moment après moment, par la prière"
 menu_title: ""
-description: "L’éveil de l’âme, moment après moment, par la prière"
+description: "Martin Luther, reçu par Al Fike : « Que les bénédictions et l’Amour de Dieu continuent à se déverser en vous, âmes bien-aimées, et que Sa Grâce vous guide … »"
 date: 2022-06-01 06:00:01+00:341
 draft: False
 hidden: True

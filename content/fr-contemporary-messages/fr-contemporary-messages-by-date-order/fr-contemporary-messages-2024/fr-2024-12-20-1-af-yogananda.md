@@ -1,7 +1,7 @@
 ---
 title: "Opportunités d'expériences d'éveil de l'âme"
 menu_title: ""
-description: "Opportunités d'expériences d'éveil de l'âme"
+description: "Yogananda, reçu par Albert Fike : « Bénédictions à vous, mes amis. Ce cher instrument a lu certains de mes messages qui ont été délivrés au cours des … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

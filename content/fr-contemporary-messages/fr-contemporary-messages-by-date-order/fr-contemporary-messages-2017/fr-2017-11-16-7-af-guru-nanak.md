@@ -1,7 +1,7 @@
 ---
 title: "Marcher dans la lumière"
 menu_title: ""
-description: "Marcher dans la lumière"
+description: "Guru Nanak, reçu par Al Fike : « Merci de dire mon nom (M) car cet instrument avait du mal à le prononcer. Car c'est le plan de Dieu que toutes les … »"
 date: 2022-06-01 06:00:01+00:212
 draft: False
 hidden: True

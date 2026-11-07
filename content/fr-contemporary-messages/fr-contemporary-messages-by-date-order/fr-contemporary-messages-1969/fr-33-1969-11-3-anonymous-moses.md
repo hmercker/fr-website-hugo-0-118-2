@@ -1,7 +1,7 @@
 ---
 title: "Aucun d'entre nous n'est une île"
 menu_title: ""
-description: "Aucun d'entre nous n'est une île"
+description: "Moïse : « Je vous remercie de m'avoir laissé l'opportunité de revenir sur le plan terrestre. Et je trouve très intéressant de voir la condition de … »"
 date: 2022-06-01 06:00:01+00:33
 draft: False
 hidden: True

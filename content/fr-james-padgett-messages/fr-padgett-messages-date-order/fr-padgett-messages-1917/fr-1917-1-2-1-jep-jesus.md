@@ -1,7 +1,7 @@
 ---
 title: "Certaines des doctrines de la « Science Chrétienne » sont erronées"
 menu_title: ""
-description: "Certaines des doctrines de la « Science Chrétienne » sont erronées"
+description: "Jésus, reçu par James Padgett : « Un jour, je vous écrirai longuement un message sur les doctrines de la Science Chrétienne, parce que je pense qu’il est … »"
 date: 2022-06-01 06:00:01+00:01
 draft: False
 hidden: True

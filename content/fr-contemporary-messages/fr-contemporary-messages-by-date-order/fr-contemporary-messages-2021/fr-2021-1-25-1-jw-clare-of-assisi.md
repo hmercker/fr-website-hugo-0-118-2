@@ -1,7 +1,7 @@
 ---
 title: "Laissez une trace d’Amour"
 menu_title: ""
-description: "Laissez une trace d’Amour"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Lorsque mon bien-aimé François, aimé de tant de personnes, est passé en esprit, il était tellement absorbé par … »"
 date: 2022-06-01 06:00:01+00:1396
 draft: False
 hidden: True

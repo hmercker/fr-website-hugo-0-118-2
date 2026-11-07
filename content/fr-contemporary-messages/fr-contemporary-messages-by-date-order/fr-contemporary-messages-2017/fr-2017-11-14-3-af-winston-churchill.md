@@ -1,7 +1,7 @@
 ---
 title: "On a besoin de vous"
 menu_title: ""
-description: "On a besoin de vous"
+description: "Winston Churchill, reçu par Al Fike : « Moi aussi, je me tiens aux côtés de mon frère (le roi George VI) dans un effort pour ramener la raison dans ce monde. »"
 date: 2022-06-01 06:00:01+00:200
 draft: False
 hidden: True

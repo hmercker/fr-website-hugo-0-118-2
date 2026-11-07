@@ -1,7 +1,7 @@
 ---
 title: "La guérison par l'amour crée la richesse de l'âme"
 menu_title: ""
-description: "La guérison par l'amour crée la richesse de l'âme"
+description: "St Matthieu, reçu par Al Fike : « Je vois une grande volonté et un grand désir d’harmonie et de changement, le changement qui apportera une joie et une … »"
 date: 2022-06-01 06:00:01+00:543
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Fête des Pères"
 menu_title: ""
-description: "Fête des Pères"
+description: "Joseph, reçu par Al Fike : « À bien des égards, j’ai l’impression d’être le père pour vous tous, de vous porter tous dans mes prières, d’être avec vous … »"
 date: 2022-06-01 06:00:01+00:1148
 draft: False
 hidden: True

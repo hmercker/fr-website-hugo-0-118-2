@@ -1,7 +1,7 @@
 ---
 title: "La trans médiumnité comparée à la médiumnité physique ou matérielle"
 menu_title: ""
-description: "La trans médiumnité comparée à la médiumnité physique ou matérielle"
+description: "Seretta Kem, reçu par Al Fike : « Vous vous questionnez sur la différence entre la trans médiumnité et la médiumnité matérielle ou physique. »"
 date: 2022-06-01 06:00:01+00:373
 draft: False
 hidden: True

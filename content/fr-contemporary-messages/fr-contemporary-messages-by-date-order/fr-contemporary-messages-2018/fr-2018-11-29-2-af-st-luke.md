@@ -1,7 +1,7 @@
 ---
 title: "L'importance des cercles de lumière"
 menu_title: ""
-description: "L'importance des cercles de lumière"
+description: "St Luc, reçu par Al Fike : « Ces cercles de prière qui se concentrent sur la réception des bénédictions de l’amour du Père sont destinés à se répandre et … »"
 date: 2022-06-01 06:00:01+00:584
 draft: False
 hidden: True

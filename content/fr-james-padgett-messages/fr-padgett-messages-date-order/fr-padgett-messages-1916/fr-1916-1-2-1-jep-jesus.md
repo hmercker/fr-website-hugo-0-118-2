@@ -1,7 +1,7 @@
 ---
 title: "Jésus commente un livre que M. Padgett lisait sur les anges déchus, auquel certaines églises croient"
 menu_title: ""
-description: "Jésus commente un livre que M. Padgett lisait sur les anges déchus, auquel certaines églises croient"
+description: "Jésus, reçu par James Padgett : « Eh bien, tout d’abord, je tiens à dire qu’il n’existe pas de telles choses comme les anges ou esprits déchus, si ce ne … »"
 date: 2022-06-01 06:00:01+00:111
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "C'est vous qui déterminez la vitesse de progression de votre âme"
 menu_title: ""
-description: "C'est vous qui déterminez la vitesse de progression de votre âme"
+description: "Jacques, reçu par Albert Fike : « La force de votre désir déterminera votre progression, âmes bien-aimées. Avez-vous un désir profond et durable dans … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

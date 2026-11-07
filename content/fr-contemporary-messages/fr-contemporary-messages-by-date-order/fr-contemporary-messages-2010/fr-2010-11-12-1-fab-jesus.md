@@ -1,7 +1,7 @@
 ---
 title: "Militarisme"
 menu_title: ""
-description: "Militarisme"
+description: "Jésus, reçu par FAB : « Je voudrais canaliser un message qui vous a troublé pendant longtemps, et nous avons estimé que ce soir est le bon moment pour le … »"
 date: 2022-06-01 06:00:01+00:172
 draft: False
 hidden: True

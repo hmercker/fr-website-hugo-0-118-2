@@ -1,7 +1,7 @@
 ---
 title: "Du plaisir à Hawaï !"
 menu_title: ""
-description: "Du plaisir à Hawaï !"
+description: "Goldie, reçu par Al Fike : « Je vois que cet instrument s’inquiète de trop de choses. Il s’inquiète du fait que vous ne devriez pas prier et vous amuser … »"
 date: 2022-06-01 06:00:01+00:301
 draft: False
 hidden: True

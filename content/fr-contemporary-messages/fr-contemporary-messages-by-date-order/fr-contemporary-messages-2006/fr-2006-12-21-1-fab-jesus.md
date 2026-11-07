@@ -1,7 +1,7 @@
 ---
 title: "La nature exacte des accusations portées au procès de Jésus"
 menu_title: ""
-description: "La nature exacte des accusations portées au procès de Jésus"
+description: "Jésus, reçu par FAB : « Il est évident que la hiérarchie religieuse voulait me mettre à l'écart et me faire taire. »"
 date: 2022-06-01 06:00:01+00:75
 draft: False
 hidden: True

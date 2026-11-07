@@ -1,7 +1,7 @@
 ---
 title: "Que votre cœur chante"
 menu_title: ""
-description: "Que votre cœur chante"
+description: "Gene Kelly, reçu par Al Fike : « Ils sont impatients et ils observent vos progrès car nous voulons tous apporter la joie et l'Amour à l'humanité. »"
 date: 2022-06-01 06:00:01+00:233
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Hélène affirme que Francis Bacon a écrit sur la continuité de la vie après la mort"
 menu_title: ""
-description: "Hélène affirme que Francis Bacon a écrit sur la continuité de la vie après la mort"
+description: "Hélène Padgett, reçu par James Padgett : « L’esprit (Francis Bacon) qui t’a écrit était très désireux de le faire, et nous l’avons permis afin que tu … »"
 date: 2022-06-01 06:00:01+00:32
 draft: False
 hidden: True

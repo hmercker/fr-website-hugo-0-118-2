@@ -1,7 +1,7 @@
 ---
 title: "Hélène affirme que huit Esprits Célestes ont signé leurs noms"
 menu_title: ""
-description: "Hélène affirme que huit Esprits Célestes ont signé leurs noms"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, les messages ont été plutôt inhabituels ce soir. Je veux dire les messages qui corroborent … »"
 date: 2022-06-01 06:00:01+00:110
 draft: False
 hidden: True

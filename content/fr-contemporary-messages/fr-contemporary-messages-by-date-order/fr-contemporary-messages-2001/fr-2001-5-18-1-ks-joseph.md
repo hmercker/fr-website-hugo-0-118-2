@@ -1,7 +1,7 @@
 ---
 title: "Karma de groupe et libre arbitre"
 menu_title: ""
-description: "Karma de groupe et libre arbitre"
+description: "Joseph, reçu par Kathryn Stokes : « Comme tu le sais, c’est à l’individu d’appliquer les conseils donnés, et tant que les attitudes restent les mêmes et … »"
 date: 2022-06-01 06:00:01+00:11
 draft: False
 hidden: True

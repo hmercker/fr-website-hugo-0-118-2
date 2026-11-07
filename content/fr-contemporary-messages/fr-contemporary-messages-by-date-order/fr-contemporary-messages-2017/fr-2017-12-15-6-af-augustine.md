@@ -1,7 +1,7 @@
 ---
 title: "Bénédictions à tous ceux qui ont apporté leur aide à cette entreprise"
 menu_title: ""
-description: "Bénédictions à tous ceux qui ont apporté leur aide à cette entreprise"
+description: "Augustin, reçu par Al Fike : « Je souhaite reconnaître toutes ces âmes qui ont prié avec vous depuis de nombreux endroits. »"
 date: 2022-06-01 06:00:01+00:281
 draft: False
 hidden: True

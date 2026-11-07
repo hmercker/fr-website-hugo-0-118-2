@@ -1,7 +1,7 @@
 ---
 title: "Leçon 2 : Discute de la défaillance massive des ressources électriques arrivant sur Terre"
 menu_title: ""
-description: "Leçon 2 : Discute de la défaillance massive des ressources électriques arrivant sur Terre"
+description: "Jésus, reçu par Al Fike : « Nous allons poursuivre notre projet en abordant divers sujets qui peuvent intéresser ceux qui considèrent les résultats et les … »"
 date: 2022-06-01 06:00:01+00:116
 draft: False
 hidden: True

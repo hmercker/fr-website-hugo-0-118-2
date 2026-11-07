@@ -1,7 +1,7 @@
 ---
 title: "Quand vous tombez, relevez-vous dans la joie !"
 menu_title: ""
-description: "Quand vous tombez, relevez-vous dans la joie !"
+description: "Goldie, reçu par Albert Fike : « Je vois que notre cher frère a trébuché et est tombé en chemin, alors qu’il sautillait, désirant accomplir la volonté de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

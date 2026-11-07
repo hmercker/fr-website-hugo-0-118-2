@@ -1,7 +1,7 @@
 ---
 title: "37ème Révélation : Fausses croyances au sujet de Jonas et du père Abraham"
 menu_title: ""
-description: "37ème Révélation : Fausses croyances au sujet de Jonas et du père Abraham"
+description: "Jésus, reçu par Dr Samuels : « Je tiens à vous demander de continuer à prier pour l’Amour Divin avec de plus en plus d’intensité dans le désir de l’âme et … »"
 date: 2022-06-01 06:00:01+00:37
 draft: False
 hidden: True

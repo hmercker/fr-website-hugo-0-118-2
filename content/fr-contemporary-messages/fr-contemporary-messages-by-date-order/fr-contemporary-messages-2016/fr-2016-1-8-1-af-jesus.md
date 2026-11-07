@@ -1,7 +1,7 @@
 ---
 title: "Les encouragements de Jésus"
 menu_title: ""
-description: "Les encouragements de Jésus"
+description: "Jésus, reçu par Al Fike : « Bénis ces enfants qui ont en eux un grand dessein à accomplir dans cette vie. Pose ta Main sur eux, cher Père, afin qu’à … »"
 date: 2022-06-01 06:00:01+00:150
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Facultés de l'âme "
 menu_title: ""
-description: "Facultés de l'âme "
+description: "Flavius Josèphe, reçu par Al Fike : « Que Son Amour trouve un grand afflux dans votre âme. Je fus un philosophe et un enseignant de la foi Juive et j’ai … »"
 date: 2022-06-01 06:00:01+00:633
 draft: False
 hidden: True

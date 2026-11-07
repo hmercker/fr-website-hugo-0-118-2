@@ -1,7 +1,7 @@
 ---
 title: "Liberté"
 menu_title: ""
-description: "Liberté"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Chaque personne dans le monde veut la liberté, mais peut-être que le sens du mot liberté est différent selon … »"
 date: 2022-06-01 06:00:01+00:1740
 draft: False
 hidden: True

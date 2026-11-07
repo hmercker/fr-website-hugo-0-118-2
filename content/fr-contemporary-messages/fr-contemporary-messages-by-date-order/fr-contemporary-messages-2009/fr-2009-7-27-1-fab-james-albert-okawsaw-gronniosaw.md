@@ -1,7 +1,7 @@
 ---
 title: "Un voyage spirituel au dix-huitième siècle"
 menu_title: ""
-description: "Un voyage spirituel au dix-huitième siècle"
+description: "James Albert Okawsaw Gronniosaw, reçu par FAB : « Je n'ai pas été surpris du tout par la générosité de ce monde spirituel car, dans ma vie terrestre, j'ai … »"
 date: 2022-06-01 06:00:01+00:71
 draft: False
 hidden: True

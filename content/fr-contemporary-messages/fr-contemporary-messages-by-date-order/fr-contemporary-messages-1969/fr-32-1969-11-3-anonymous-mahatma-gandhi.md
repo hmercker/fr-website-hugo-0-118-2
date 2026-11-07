@@ -1,7 +1,7 @@
 ---
 title: "Que l'Amour de Dieu vous enveloppe"
 menu_title: ""
-description: "Que l'Amour de Dieu vous enveloppe"
+description: "Mahatma Gandhi : « Nous sommes si heureux de vous saluer à nouveau de l'Esprit. Cela nous donne un tel plaisir et une telle joie d'être avec vous, de vous … »"
 date: 2022-06-01 06:00:01+00:32
 draft: False
 hidden: True

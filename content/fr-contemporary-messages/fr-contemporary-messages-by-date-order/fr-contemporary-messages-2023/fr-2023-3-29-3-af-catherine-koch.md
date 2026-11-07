@@ -1,7 +1,7 @@
 ---
 title: "Catherine Koch parle de son décès"
 menu_title: ""
-description: "Catherine Koch parle de son décès"
+description: "Catherine Koch, reçu par Albert Fike : « Cela a certainement été un bon parcours, ne pensez-vous pas, quelque chose qui a commencé comme une simple idée … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

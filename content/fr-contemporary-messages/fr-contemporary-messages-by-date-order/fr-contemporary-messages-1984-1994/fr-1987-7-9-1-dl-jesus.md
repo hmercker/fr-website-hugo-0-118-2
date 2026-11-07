@@ -1,7 +1,7 @@
 ---
 title: "Le grand réseau de communication"
 menu_title: ""
-description: "Le grand réseau de communication"
+description: "Jésus, reçu par Révérend Dave Lampron : « Aujourd’hui, je voudrais discuter d’un autre aspect du progrès dans le développement de l’homme, car il concerne … »"
 date: 2022-06-01 06:00:01+00:24
 draft: False
 hidden: True

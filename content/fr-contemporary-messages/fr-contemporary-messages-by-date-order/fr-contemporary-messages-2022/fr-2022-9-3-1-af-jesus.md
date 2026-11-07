@@ -1,7 +1,7 @@
 ---
 title: "Parle du plan de Dieu et de notre appel"
 menu_title: ""
-description: "Parle du plan de Dieu et de notre appel"
+description: "Jésus, reçu par Al Fike : « Je souhaite vous parler du plan de Dieu pour le salut de l’humanité et je vois que chacun de vous s’est engagé à faire partie … »"
 date: 2022-06-01 06:00:01+00:171
 draft: False
 hidden: True

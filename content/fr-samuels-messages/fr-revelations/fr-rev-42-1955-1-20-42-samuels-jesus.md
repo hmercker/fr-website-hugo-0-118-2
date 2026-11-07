@@ -1,7 +1,7 @@
 ---
 title: "42ème Révélation : Les Hébreux – indicateurs du chemin vers le Père"
 menu_title: ""
-description: "42ème Révélation : Les Hébreux – indicateurs du chemin vers le Père"
+description: "Jésus, reçu par Dr Samuels : « Une fois de plus, pour continuer mes messages sur le Nouveau Testament, qui doit être purgé de ses erreurs, sur la vérité … »"
 date: 2022-06-01 06:00:01+00:42
 draft: False
 hidden: True

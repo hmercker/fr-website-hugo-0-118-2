@@ -1,7 +1,7 @@
 ---
 title: "Suivre les directives pour s'unir ouvre de grandes possibilités"
 menu_title: ""
-description: "Suivre les directives pour s'unir ouvre de grandes possibilités"
+description: "Matthieu, reçu par Al Fike : « L’œuvre se poursuit, n’est-ce pas ? Vos efforts, la convergence de vos désirs et de vos actions, guidés par les directives … »"
 date: 2026-05-24 16:00:01+00:01
 draft: False
 hidden: True

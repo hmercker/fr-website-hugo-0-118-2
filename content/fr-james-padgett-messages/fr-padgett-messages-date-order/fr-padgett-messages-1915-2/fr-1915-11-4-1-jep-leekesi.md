@@ -1,7 +1,7 @@
 ---
 title: "Un officiel Assyrien qui croyait en de nombreux dieux alors qu’il vivait sur terre est maintenant chrétien"
 menu_title: ""
-description: "Un officiel Assyrien qui croyait en de nombreux dieux alors qu’il vivait sur terre est maintenant chrétien"
+description: "Leekesi, reçu par James Padgett : « J’ai vécu à l’époque de la destruction de Ninive et j’étais un fonctionnaire Assyrien ; mais je ne suis pas mentionné … »"
 date: 2022-06-01 06:00:01+00:44
 draft: False
 hidden: True

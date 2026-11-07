@@ -1,7 +1,7 @@
 ---
 title: "Un appel à retrouver l'équilibre avec la création divine"
 menu_title: ""
-description: "Un appel à retrouver l'équilibre avec la création divine"
+description: "Faith Nyquist, reçu par Albert Fike : « Ce qui s’est passé dans votre monde, c’est que les lieux d’habitation idéaux pour toutes les créatures de la … »"
 date: 2025-07-15 06:00:01+00:01
 draft: False
 hidden: True

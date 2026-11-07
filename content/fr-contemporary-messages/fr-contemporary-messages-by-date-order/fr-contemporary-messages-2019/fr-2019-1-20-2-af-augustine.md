@@ -1,7 +1,7 @@
 ---
 title: "Dire les vérités de Dieu en termes simples et aimants"
 menu_title: ""
-description: "Dire les vérités de Dieu en termes simples et aimants"
+description: "Augustin, reçu par Al Fike : « J’ai vécu il y a de nombreuses années dans un pays (l’Algérie) en Afrique du Nord. J’étais l’évêque d’Hippone. »"
 date: 2022-06-01 06:00:01+00:608
 draft: False
 hidden: True

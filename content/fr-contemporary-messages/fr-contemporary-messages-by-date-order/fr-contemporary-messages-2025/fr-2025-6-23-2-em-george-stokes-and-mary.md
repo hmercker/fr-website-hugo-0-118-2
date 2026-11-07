@@ -1,7 +1,7 @@
 ---
 title: "Enseignement aux Esprits"
 menu_title: ""
-description: "Enseignement aux Esprits"
+description: "George Stokes et Marie, reçu par Elizabeth Mack : « Mais vous pouvez l’être à tout moment, si vous le souhaitez. Votre bénédiction aujourd’hui est de … »"
 date: 2026-01-30 16:00:01+00:01
 draft: False
 hidden: True

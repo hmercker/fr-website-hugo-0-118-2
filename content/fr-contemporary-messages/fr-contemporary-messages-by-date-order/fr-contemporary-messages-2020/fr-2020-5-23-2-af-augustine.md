@@ -1,7 +1,7 @@
 ---
 title: "L'intensité de votre désir apportera l'éveil de votre âme"
 menu_title: ""
-description: "L'intensité de votre désir apportera l'éveil de votre âme"
+description: "Augustin, reçu par Al Fike : « Vous êtes toutes des âmes si sérieuses, prenant si sérieusement l’invitation de Dieu à réveiller votre âme. »"
 date: 2022-06-01 06:00:01+00:1115
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "39ème Révélation : La parabole des sages et des vierges folles et l’explication de la fermeture des Cieux Célestes"
 menu_title: ""
-description: "39ème Révélation : La parabole des sages et des vierges folles et l’explication de la fermeture des Cieux Célestes"
+description: "Jésus, reçu par Dr Samuels : « Je vais continuer en parlant de la parabole des vierges sages et des vierges folles, parabole qui montre vraiment que … »"
 date: 2022-06-01 06:00:01+00:39
 draft: False
 hidden: True

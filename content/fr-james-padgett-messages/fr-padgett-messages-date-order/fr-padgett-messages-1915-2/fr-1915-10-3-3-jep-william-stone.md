@@ -1,7 +1,7 @@
 ---
 title: "William Stone est heureux que Jésus ait choisi son fils, Leslie, pour accomplir un travail spécial au nom du Royaume et il ne doit pas douter"
 menu_title: ""
-description: "William Stone est heureux que Jésus ait choisi son fils, Leslie, pour accomplir un travail spécial au nom du Royaume et il ne doit pas douter"
+description: "William Stone, reçu par James Padgett : « Et je veux qu’il sache que je n’ai pas oublié de profiter de chaque occasion d’écrire lorsqu’il me le permet. »"
 date: 2022-06-01 06:00:01+00:297
 draft: False
 hidden: True

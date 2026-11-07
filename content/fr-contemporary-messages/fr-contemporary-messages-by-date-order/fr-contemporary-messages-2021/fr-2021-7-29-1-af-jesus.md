@@ -1,7 +1,7 @@
 ---
 title: "Leçon 14 : L’âme changée par la bénédiction de l’Amour Divin changera le monde"
 menu_title: ""
-description: "Leçon 14 : L’âme changée par la bénédiction de l’Amour Divin changera le monde"
+description: "Jésus, reçu par Al Fike : « Le sujet de cette leçon concerne les changements qui se produiront au sein de l’individu et, à plus grande échelle, au sein de … »"
 date: 2022-06-01 06:00:01+00:1583
 draft: False
 hidden: True

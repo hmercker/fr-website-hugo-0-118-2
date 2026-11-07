@@ -1,7 +1,7 @@
 ---
 title: "Remarquable sera en effet ce voyage"
 menu_title: ""
-description: "Remarquable sera en effet ce voyage"
+description: "Professeur Salyards, reçu par Al Fike : « Je pense que vous découvrirez, au fil du temps, qu’il y aura un resserrement, puis une expansion de vos idées et … »"
 date: 2022-06-01 06:00:01+00:1401
 draft: False
 hidden: True

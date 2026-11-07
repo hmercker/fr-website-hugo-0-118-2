@@ -1,7 +1,7 @@
 ---
 title: "Soyez flexibles et fidèles alors que le changement nécessaire survient dans le monde"
 menu_title: ""
-description: "Soyez flexibles et fidèles alors que le changement nécessaire survient dans le monde"
+description: "Elie, reçu par Albert Fike : « Préparez-vous au changement, âmes bien-aimées. Préparez-vous au changement, car il est inévitable. »"
 date: 2026-09-30 06:00:01+00:01
 draft: False
 hidden: True

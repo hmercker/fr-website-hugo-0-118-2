@@ -1,7 +1,7 @@
 ---
 title: "Engagement de l'Âme"
 menu_title: ""
-description: "Engagement de l'Âme"
+description: "Jean le Bien Aimé, reçu par Jimbeau Walsh : « Il faut comprendre que l’amour de Jésus était l’Amour de Dieu et qu’il était égal pour chaque âme qu’il … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

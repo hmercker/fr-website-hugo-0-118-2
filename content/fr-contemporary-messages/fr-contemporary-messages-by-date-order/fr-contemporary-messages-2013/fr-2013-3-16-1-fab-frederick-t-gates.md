@@ -1,7 +1,7 @@
 ---
 title: "Un collègue de John D. Rockefeller SR. confirme son channeling"
 menu_title: ""
-description: "Un collègue de John D. Rockefeller SR. confirme son channeling"
+description: "Frederick T. Gates, reçu par FAB : « Comme je fus le promoteur et l’ami de John D. La preuve en est évidente, car Dieu lui a montré, ainsi qu’au monde des … »"
 date: 2022-06-01 06:00:01+00:41
 draft: False
 hidden: True

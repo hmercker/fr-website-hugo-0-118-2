@@ -1,7 +1,7 @@
 ---
 title: "Judas"
 menu_title: ""
-description: "Judas"
+description: "Judas, reçu par H : « C’est alors que j’entendis la voix me dire : «Je veux te montrer que l’âme moins développée ne peut pas voir l’âme plus développée». »"
 date: 2022-06-01 06:00:01+00:20
 draft: False
 hidden: True

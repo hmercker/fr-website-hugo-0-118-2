@@ -1,7 +1,7 @@
 ---
 title: "Séance de questions et réponses n°1 : L’âme"
 menu_title: ""
-description: "Séance de questions et réponses n°1 : L’âme"
+description: "Jésus, reçu par Al Fike : « Que le grand Amour de Dieu continue à trouver un afflux dans vos âmes, chers et beaux amis. »"
 date: 2022-06-01 06:00:01+00:1414
 draft: False
 hidden: True

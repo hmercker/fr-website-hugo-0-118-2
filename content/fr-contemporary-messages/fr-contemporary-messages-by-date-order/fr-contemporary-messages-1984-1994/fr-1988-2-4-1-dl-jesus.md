@@ -1,7 +1,7 @@
 ---
 title: "Né sans péché_2"
 menu_title: ""
-description: "Né sans péché_2"
+description: "Jésus, reçu par Révérend Dave Lampron : « Très cher Maître, Jésus, dans votre message, « [Les âmes lors de leur création … », communiqué en 1961 et 1962 … »"
 date: 2022-06-01 06:00:01+00:33
 draft: False
 hidden: True

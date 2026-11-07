@@ -1,7 +1,7 @@
 ---
 title: "Vous pouvez effectivement dissiper l'obscurité"
 menu_title: ""
-description: "Vous pouvez effectivement dissiper l'obscurité"
+description: "Yogananda, reçu par Jimbeau Walsh : « S’il était possible de devenir éclairé, comme il est dit, en lisant tous les livres et en écoutant la bonne musique … »"
 date: 2022-06-01 06:00:01+00:977
 draft: False
 hidden: True

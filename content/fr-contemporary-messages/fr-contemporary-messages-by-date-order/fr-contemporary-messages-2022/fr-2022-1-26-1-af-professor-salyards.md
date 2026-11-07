@@ -1,7 +1,7 @@
 ---
 title: "L’Amour Divin est la plus grande force de l’univers"
 menu_title: ""
-description: "L’Amour Divin est la plus grande force de l’univers"
+description: "Professeur Salyards, reçu par Al Fike : « Vos scientifiques ont déployé beaucoup d’efforts pour rechercher, analyser et étiqueter les différents éléments … »"
 date: 2022-06-01 06:00:01+00:19
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Vivre dans l’Amour"
 menu_title: ""
-description: "Vivre dans l’Amour"
+description: "St François d'Assise, reçu par James Reid : « Bon après-midi cher frère. Comme je l’ai dit antérieurement le message est important et doit être pris en … »"
 date: 2022-06-01 06:00:01+00:102
 draft: False
 hidden: True

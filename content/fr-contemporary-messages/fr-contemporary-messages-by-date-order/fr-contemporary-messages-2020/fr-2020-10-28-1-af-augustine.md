@@ -1,7 +1,7 @@
 ---
 title: "Barb est passée dans la Cinquième Sphère"
 menu_title: ""
-description: "Barb est passée dans la Cinquième Sphère"
+description: "Augustin, reçu par Al Fike : « Barbara, que vous appelez votre mère et votre amie, est entrée dans les royaumes de l’esprit avec facilité et nous … »"
 date: 2022-06-01 06:00:01+00:1296
 draft: False
 hidden: True

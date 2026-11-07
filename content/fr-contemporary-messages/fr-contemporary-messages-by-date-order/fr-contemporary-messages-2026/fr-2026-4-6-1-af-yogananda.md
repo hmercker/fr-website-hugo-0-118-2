@@ -1,7 +1,7 @@
 ---
 title: "L'instant présent de l'Amour Divin"
 menu_title: ""
-description: "L'instant présent de l'Amour Divin"
+description: "Yogananda, reçu par Jimbeau Walsh : « Demeurons dans cette sainte présence. Dans le monde matériel, les êtres vivent dans un temps linéaire : passé … »"
 date: 2026-05-24 16:00:01+00:01
 draft: False
 hidden: True

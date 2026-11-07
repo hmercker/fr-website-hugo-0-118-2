@@ -1,7 +1,7 @@
 ---
 title: "Soyez forts dans la lumière et résistez aux défis"
 menu_title: ""
-description: "Soyez forts dans la lumière et résistez aux défis"
+description: "Confucius, reçu par Al Fike : « Reconnaissez toujours le pouvoir des désirs de votre âme, mes belles âmes, et reconnaissez le pouvoir de Dieu dans vos … »"
 date: 2022-06-01 06:00:01+00:213
 draft: False
 hidden: True

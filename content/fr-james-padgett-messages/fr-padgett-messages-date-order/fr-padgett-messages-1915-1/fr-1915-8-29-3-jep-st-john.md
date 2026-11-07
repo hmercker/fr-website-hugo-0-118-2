@@ -1,7 +1,7 @@
 ---
 title: "Jean commente les croyances du prédicateur"
 menu_title: ""
-description: "Jean commente les croyances du prédicateur"
+description: "St Jean, reçu par James Padgett : « Et il dit qu’il n’y a pas d’autre salut que par le sang de Jésus. Comme il est dans l’erreur, et comme il trouvera la … »"
 date: 2022-06-01 06:00:01+00:218
 draft: False
 hidden: True

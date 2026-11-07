@@ -1,7 +1,7 @@
 ---
 title: "La flamme de la vérité"
 menu_title: ""
-description: "La flamme de la vérité"
+description: "Jésus, reçu par Albert Fike : « Une bénédiction qui vous soutiendra. Heureux ceux qui portent la flamme de la vérité dans un monde obscur. »"
 date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True

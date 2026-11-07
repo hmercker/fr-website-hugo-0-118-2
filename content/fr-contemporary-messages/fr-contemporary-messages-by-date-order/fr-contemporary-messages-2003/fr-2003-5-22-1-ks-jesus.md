@@ -1,7 +1,7 @@
 ---
 title: "Médiumnité"
 menu_title: ""
-description: "Médiumnité"
+description: "Jésus, reçu par Kathryn Stokes : « Tu n’as pas besoin d’attendre que nous frappions à ta porte, tu es invitée à le faire chaque fois que ton amour te … »"
 date: 2022-06-01 06:00:01+00:26
 draft: False
 hidden: True

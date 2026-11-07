@@ -1,7 +1,7 @@
 ---
 title: "Mettre l’accent sur l’amour"
 menu_title: ""
-description: "Mettre l’accent sur l’amour"
+description: "Judas, reçu par H : « Le monde est tiède, les hommes sont tièdes, tu es tiède. Tu vois les anges Célestes, rayonnant de lumière et de chaleur, sont comme … »"
 date: 2022-06-01 06:00:01+00:75
 draft: False
 hidden: True

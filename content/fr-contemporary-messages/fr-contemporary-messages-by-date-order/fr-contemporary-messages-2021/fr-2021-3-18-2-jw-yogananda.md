@@ -1,7 +1,7 @@
 ---
 title: "Joie et guérison"
 menu_title: ""
-description: "Joie et guérison"
+description: "Yogananda, reçu par Jimbeau Walsh : « Mes chers, je ne viens généralement pas à ce groupe, car Judas est l’animateur avec Claire et d’autres. »"
 date: 2022-06-01 06:00:01+00:1445
 draft: False
 hidden: True

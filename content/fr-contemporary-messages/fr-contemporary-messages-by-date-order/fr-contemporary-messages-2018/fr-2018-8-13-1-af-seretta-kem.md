@@ -1,7 +1,7 @@
 ---
 title: "Faire grandir la lumière dans vos âmes est le plus grand service rendu à Dieu"
 menu_title: ""
-description: "Faire grandir la lumière dans vos âmes est le plus grand service rendu à Dieu"
+description: "Seretta Kem, reçu par Al Fike : « Oui vous pouvez voir clairement les changements qui se produisent dans votre monde, comment la terre est déséquilibrée … »"
 date: 2022-06-01 06:00:01+00:445
 draft: False
 hidden: True

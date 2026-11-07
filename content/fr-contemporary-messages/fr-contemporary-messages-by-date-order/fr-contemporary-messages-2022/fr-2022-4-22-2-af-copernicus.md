@@ -1,7 +1,7 @@
 ---
 title: "Évoque le saut quantique que l'humanité est sur le point d'accomplir dans la conscience de l'âme"
 menu_title: ""
-description: "Évoque le saut quantique que l'humanité est sur le point d'accomplir dans la conscience de l'âme"
+description: "Copernic, reçu par Al Fike : « Bien que vous soyez alourdis par votre présence physique sur le plan terrestre, vos âmes, elles, ne le sont pas. »"
 date: 2026-05-21 06:00:01+00:71
 draft: False
 hidden: True

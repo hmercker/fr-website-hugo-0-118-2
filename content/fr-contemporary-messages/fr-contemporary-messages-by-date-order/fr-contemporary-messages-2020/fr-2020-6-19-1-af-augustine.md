@@ -1,7 +1,7 @@
 ---
 title: "Ayez confiance que Dieu entend vos prières"
 menu_title: ""
-description: "Ayez confiance que Dieu entend vos prières"
+description: "Augustin, reçu par Al Fike : « Cette condition humaine qui est si puissante dans votre monde continue à ériger ses barrières et ses difficultés dans vos … »"
 date: 2022-06-01 06:00:01+00:1145
 draft: False
 hidden: True

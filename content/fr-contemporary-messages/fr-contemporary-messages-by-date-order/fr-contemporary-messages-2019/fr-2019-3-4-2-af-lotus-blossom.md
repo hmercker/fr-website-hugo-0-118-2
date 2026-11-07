@@ -1,7 +1,7 @@
 ---
 title: "C'est l'âme qui connaît vraiment la vérité, pas l'esprit"
 menu_title: ""
-description: "C'est l'âme qui connaît vraiment la vérité, pas l'esprit"
+description: "Fleur de Lotus, reçu par Al Fike : « J’ai vécu dans ce que vous appelez la Chine il y a de nombreuses années. Il y a beaucoup d’idées parmi vous, beaucoup … »"
 date: 2022-06-01 06:00:01+00:668
 draft: False
 hidden: True

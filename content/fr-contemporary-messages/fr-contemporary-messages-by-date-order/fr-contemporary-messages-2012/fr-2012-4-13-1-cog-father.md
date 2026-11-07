@@ -1,7 +1,7 @@
 ---
 title: "Notre relation"
 menu_title: ""
-description: "Notre relation"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « C’est une bonne décision et cela te fera du bien à toi aussi. Tout ce dont nous parlons n’intéresse pas les … »"
 date: 2022-06-01 06:00:01+00:235
 draft: False
 hidden: True

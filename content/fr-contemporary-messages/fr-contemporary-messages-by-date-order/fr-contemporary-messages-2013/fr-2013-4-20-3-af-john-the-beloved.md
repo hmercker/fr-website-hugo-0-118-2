@@ -1,7 +1,7 @@
 ---
 title: "La compréhension grandira et l'erreur tombera"
 menu_title: ""
-description: "La compréhension grandira et l'erreur tombera"
+description: "Jean le Bien Aimé, reçu par Albert Fike : « Alors que vous vous rassemblez, la lumière même qui est en vous — celle de vos âmes — invoque la présence des … »"
 date: 2026-10-16 06:00:01+00:09
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Grande miséricorde pour nous qui vivons avec les conditions du monde"
 menu_title: ""
-description: "Grande miséricorde pour nous qui vivons avec les conditions du monde"
+description: "Augustin, reçu par Al Fike : « Je sais que beaucoup d’entre vous sont impatients de répondre à votre désir d’éveil spirituel, de plus grande lumière et de … »"
 date: 2022-06-01 06:00:01+00:1501
 draft: False
 hidden: True

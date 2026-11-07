@@ -1,7 +1,7 @@
 ---
 title: "Une clarification du Nouveau Testament"
 menu_title: ""
-description: "Une clarification du Nouveau Testament"
+description: "Daniel Samuels, reçu par FAB : « Nous sommes tous si heureux que vous ayez été soulagé de voir la vérité. Vous avez lu ceci dans la Révélation 7 dans … »"
 date: 2022-06-01 06:00:01+00:215
 draft: False
 hidden: True

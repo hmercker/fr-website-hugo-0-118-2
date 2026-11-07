@@ -1,7 +1,7 @@
 ---
 title: "Défaire le nœud gordien"
 menu_title: ""
-description: "Défaire le nœud gordien"
+description: "Professeur Salyards, reçu par Albert Fike : « C’est votre professeur Salyards ici. C’est le fondement de tout effort, de tout projet que vous pouvez … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

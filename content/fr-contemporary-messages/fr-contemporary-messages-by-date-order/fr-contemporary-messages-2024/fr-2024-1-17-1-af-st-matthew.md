@@ -1,7 +1,7 @@
 ---
 title: "La bienveillance de l’Amour de Dieu"
 menu_title: ""
-description: "La bienveillance de l’Amour de Dieu"
+description: "St Matthieu, reçu par Albert Fike : « L’esprit des hommes continue de tourbillonner au sein de la condition humaine. Ce sombre nuage de pensée, résultat … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

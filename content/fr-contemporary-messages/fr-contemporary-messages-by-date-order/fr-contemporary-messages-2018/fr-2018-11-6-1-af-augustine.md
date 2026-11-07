@@ -1,7 +1,7 @@
 ---
 title: "La lutte du mental matériel pour être en harmonie avec l'amour"
 menu_title: ""
-description: "La lutte du mental matériel pour être en harmonie avec l'amour"
+description: "Augustin, reçu par Al Fike : « Comment pouvez-vous être un exemple de l’Amour béni du Père si vous êtes dans un état de jugement, si vous ne pouvez pas … »"
 date: 2022-06-01 06:00:01+00:558
 draft: False
 hidden: True

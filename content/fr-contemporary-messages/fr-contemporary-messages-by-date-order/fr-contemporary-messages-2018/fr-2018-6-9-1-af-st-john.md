@@ -1,7 +1,7 @@
 ---
 title: "Chercher à connaître Dieu par l'Amour"
 menu_title: ""
-description: "Chercher à connaître Dieu par l'Amour"
+description: "St Jean, reçu par Al Fike : « Que le toucher de l’Amour de Dieu entre dans vos âmes et réveille les désirs et les envies de Dieu au plus profond de vous. »"
 date: 2022-06-01 06:00:01+00:408
 draft: False
 hidden: True

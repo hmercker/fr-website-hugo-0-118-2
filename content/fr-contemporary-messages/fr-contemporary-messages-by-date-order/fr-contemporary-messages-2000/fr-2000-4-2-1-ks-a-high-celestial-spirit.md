@@ -1,7 +1,7 @@
 ---
 title: "Faits, noms, dates et divergences"
 menu_title: ""
-description: "Faits, noms, dates et divergences"
+description: "Esprit Céleste Elevé, reçu par Kathryn Stokes : « Il y aura toujours une grande différence entre ce que les gens pensent qu’il s’est passé et ce qui s’est … »"
 date: 2022-06-01 06:00:01+00:10
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Connaissez votre âme éveillée"
 menu_title: ""
-description: "Connaissez votre âme éveillée"
+description: "Augustin, reçu par Al Fike : « Comment allez-vous changer ? Qu’est-ce qui résulte de cette grande bénédiction ? »"
 date: 2022-06-01 06:00:01+00:293
 draft: False
 hidden: True

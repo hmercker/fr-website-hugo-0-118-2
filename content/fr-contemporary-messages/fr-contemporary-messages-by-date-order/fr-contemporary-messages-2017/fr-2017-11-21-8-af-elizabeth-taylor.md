@@ -1,7 +1,7 @@
 ---
 title: "Nous souhaitons partager ces vérités de belles manières"
 menu_title: ""
-description: "Nous souhaitons partager ces vérités de belles manières"
+description: "Elizabeth Taylor, reçu par Al Fike : « Je m'appelle Elizabeth Taylor. Je souhaite moi aussi me joindre à mes amis pour parler des gloires de Dieu et des … »"
 date: 2022-06-01 06:00:01+00:230
 draft: False
 hidden: True

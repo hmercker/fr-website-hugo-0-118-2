@@ -1,7 +1,7 @@
 ---
 title: "Foi et Persévérance"
 menu_title: ""
-description: "Foi et Persévérance"
+description: "François d'Assise, reçu par Jimbeau Walsh : « J’étais soldat, j’en avais assez vu et j’avais assez pillé et j’ai pensé que je devais passer. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

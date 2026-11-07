@@ -1,7 +1,7 @@
 ---
 title: "L’affirmation de John Wesley"
 menu_title: ""
-description: "L’affirmation de John Wesley"
+description: "John Wesley, reçu par James Padgett : « Lorsque le Maître a dit : « Nourrir mes brebis », il ne voulait pas seulement dire que Pierre, et ceux à qui il … »"
 date: 2022-06-01 06:00:01+00:286
 draft: False
 hidden: True

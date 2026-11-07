@@ -1,7 +1,7 @@
 ---
 title: "La sœur de Dr Stone fait référence, comme l’a fait John Padgett à l’influence dépressive que Richard III a apportée"
 menu_title: ""
-description: "La sœur de Dr Stone fait référence, comme l’a fait John Padgett à l’influence dépressive que Richard III a apportée"
+description: "Kate Stone, reçu par James Padgett : « Laissez-moi vous dire un mot, car je veux vous dire que ce mauvais esprit (Richard III) est parti et que son … »"
 date: 2022-06-01 06:00:01+00:326
 draft: False
 hidden: True

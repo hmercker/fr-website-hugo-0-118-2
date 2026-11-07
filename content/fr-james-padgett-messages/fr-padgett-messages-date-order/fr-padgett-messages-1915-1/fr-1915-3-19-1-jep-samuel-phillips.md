@@ -1,7 +1,7 @@
 ---
 title: "Samuel R. Phillips, un frère avocat, dans l’obscurité, a appris que M. Padgett aidait les esprits dans l’obscurité et a pensé qu’il ne refuserait pas de l’aider"
 menu_title: ""
-description: "Samuel R. Phillips, un frère avocat, dans l’obscurité, a appris que M. Padgett aidait les esprits dans l’obscurité et a pensé qu’il ne refuserait pas de l’aider"
+description: "Samuel R Phillips, reçu par James Padgett : « J’étais une de vos connaissances et un avocat, comme vous vous en souviendrez, et je désire vous demander de … »"
 date: 2022-06-01 06:00:01+00:36
 draft: False
 hidden: True

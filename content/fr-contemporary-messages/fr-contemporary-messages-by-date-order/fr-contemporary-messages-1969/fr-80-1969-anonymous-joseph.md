@@ -1,7 +1,7 @@
 ---
 title: "Vous devez aller de l'avant comme Jésus l'a fait"
 menu_title: ""
-description: "Vous devez aller de l'avant comme Jésus l'a fait"
+description: "Joseph : « Que l'Amour de Dieu trouve un véritable canal dans vos âmes, mes amis. Nous ne venons pas à vous d'une manière mystérieuse. »"
 date: 2022-06-01 06:00:01+00:67
 draft: False
 hidden: True

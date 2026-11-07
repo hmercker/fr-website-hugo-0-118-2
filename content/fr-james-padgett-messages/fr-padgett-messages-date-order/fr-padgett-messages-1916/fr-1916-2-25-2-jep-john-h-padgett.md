@@ -1,7 +1,7 @@
 ---
 title: "John H. Padgett : Affirmation que la grand-mère de M. Padgett a écrit le message « Qui et qu’est ce que Dieu ? »"
 menu_title: ""
-description: "John H. Padgett : Affirmation que la grand-mère de M. Padgett a écrit le message « Qui et qu’est ce que Dieu ? »"
+description: "John H Padgett, reçu par James Padgett : « J’ai écouté le message de ta grand-mère et j’ai été intéressé en observant la façon dont tu l’as reçu, car … »"
 date: 2022-06-01 06:00:01+00:153
 draft: False
 hidden: True

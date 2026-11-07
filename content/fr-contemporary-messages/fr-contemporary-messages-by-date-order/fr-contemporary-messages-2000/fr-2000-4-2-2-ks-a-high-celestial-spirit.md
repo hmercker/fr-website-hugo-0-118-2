@@ -1,7 +1,7 @@
 ---
 title: "Faits, noms, dates et divergences"
 menu_title: ""
-description: "Faits, noms, dates et divergences"
+description: "Esprit Céleste Elevé, reçu par Kathryn Stokes : « S’il vous plaît, aidez-nous, chers anges, à éclaircir certaines de ces divergences, si possible, afin … »"
 date: 2022-06-01 06:00:01+00:10
 draft: False
 hidden: True

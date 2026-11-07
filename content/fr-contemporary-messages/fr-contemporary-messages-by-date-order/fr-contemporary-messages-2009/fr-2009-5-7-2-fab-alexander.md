@@ -1,7 +1,7 @@
 ---
 title: "L'expérience d'Alexandre"
 menu_title: ""
-description: "L'expérience d'Alexandre"
+description: "Alexandre, reçu par FAB : « Comme j'ai eu un impact très puissant sur l'histoire, je veux vous faire part de mon point de vue actuel sur ma vie. »"
 date: 2022-06-01 06:00:01+00:38
 draft: False
 hidden: True

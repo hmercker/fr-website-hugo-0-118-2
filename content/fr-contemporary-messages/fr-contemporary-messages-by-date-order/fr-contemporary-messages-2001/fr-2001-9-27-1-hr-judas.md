@@ -1,7 +1,7 @@
 ---
 title: "La sixième sphère"
 menu_title: ""
-description: "La sixième sphère"
+description: "Judas, reçu par H : « Il est conseillé de changer le mode de réception chaque fois que cela est possible, tu gagneras ainsi beaucoup plus de confiance et … »"
 date: 2022-06-01 06:00:01+00:51
 draft: False
 hidden: True

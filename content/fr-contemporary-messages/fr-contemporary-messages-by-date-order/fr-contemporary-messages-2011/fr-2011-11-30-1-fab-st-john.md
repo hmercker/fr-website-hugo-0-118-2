@@ -1,7 +1,7 @@
 ---
 title: "Logos et pensée Juive"
 menu_title: ""
-description: "Logos et pensée Juive"
+description: "St Jean, reçu par FAB : « Vous ne devriez pas douter de votre canalisation si vous lisez d’autres choses qui semblent dire quelque chose de différent. »"
 date: 2022-06-01 06:00:01+00:209
 draft: False
 hidden: True

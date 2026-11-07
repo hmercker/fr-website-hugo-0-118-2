@@ -1,7 +1,7 @@
 ---
 title: "Confirme le message d'Orion et encourage l'ouverture aux possibilités"
 menu_title: ""
-description: "Confirme le message d'Orion et encourage l'ouverture aux possibilités"
+description: "Jésus, reçu par Al Fike : « Un nombre inimaginable de chères et bien-aimées âmes, cherchant comme vous cherchez, vivant comme vous vivez, pour exprimer … »"
 date: 2022-06-01 06:00:01+00:187
 draft: False
 hidden: True

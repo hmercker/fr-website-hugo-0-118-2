@@ -1,7 +1,7 @@
 ---
 title: "Dire que vous êtes bénis est insuffisant"
 menu_title: ""
-description: "Dire que vous êtes bénis est insuffisant"
+description: "Jean le Baptiste, reçu par Elizabeth Mack : « Car en vérité, votre Créateur, votre Père, est la Source de toutes choses. Prêter allégeance, donner le … »"
 date: 2026-05-21 06:00:01+00:01
 draft: False
 hidden: True

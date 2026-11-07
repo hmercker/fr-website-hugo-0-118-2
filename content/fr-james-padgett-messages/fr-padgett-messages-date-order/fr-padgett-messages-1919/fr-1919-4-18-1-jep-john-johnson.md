@@ -1,7 +1,7 @@
 ---
 title: "Johnson commente le livre que M. Padgett lisait"
 menu_title: ""
-description: "Johnson commente le livre que M. Padgett lisait"
+description: "John Johnson, reçu par James Padgett : « Laissez-moi vous dire un mot. J’étais avec vous ce soir lorsque vous avez lu le livre et que vous y avez trouvé … »"
 date: 2022-06-01 06:00:01+00:24
 draft: False
 hidden: True

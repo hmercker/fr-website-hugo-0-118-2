@@ -1,7 +1,7 @@
 ---
 title: "Esprit contre âme et les modèles actuels de l’esprit"
 menu_title: ""
-description: "Esprit contre âme et les modèles actuels de l’esprit"
+description: "Judas, reçu par H : « Mon cher frère H , plusieurs jours se sont écoulés depuis notre dernière rencontre. Une fois de plus tu as repris l’habitude de ne … »"
 date: 2022-06-01 06:00:01+00:75
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Marcher au service de Dieu"
 menu_title: ""
-description: "Marcher au service de Dieu"
+description: "Marc, reçu par Albert Fike : « J’ai souvent utilisé cet instrument et nous aidons à guider une église sur son chemin vers la lumière et vers ceux qui … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

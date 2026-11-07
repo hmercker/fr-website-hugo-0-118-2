@@ -1,7 +1,7 @@
 ---
 title: "Cherchez la réalité de Dieu"
 menu_title: ""
-description: "Cherchez la réalité de Dieu"
+description: "André, reçu par Al Fike : « Notre frère bien-aimé, Jésus, vient bénir chacun d’entre vous et il a été très actif avec votre autre cercle qui s’est réuni … »"
 date: 2023-09-01 06:00:01+00:43
 draft: False
 hidden: True

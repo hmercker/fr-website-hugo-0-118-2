@@ -1,7 +1,7 @@
 ---
 title: "Un sanctuaire de lumière"
 menu_title: ""
-description: "Un sanctuaire de lumière"
+description: "St Pierre, reçu par Al Fike : « C’est une source de nourriture pour vos âmes. C’est le lieu où Son Amour peut régner en maître, en ce lieu. »"
 date: 2022-06-01 06:00:01+00:158
 draft: False
 hidden: True

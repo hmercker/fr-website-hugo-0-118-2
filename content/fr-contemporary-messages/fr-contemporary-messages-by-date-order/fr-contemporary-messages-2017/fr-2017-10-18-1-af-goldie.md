@@ -1,7 +1,7 @@
 ---
 title: "Ne vous prenez pas trop au sérieux"
 menu_title: ""
-description: "Ne vous prenez pas trop au sérieux"
+description: "Goldie, reçu par Al Fike : « Nous sommes très excités aussi ! !! Ne vous prenez pas trop au sérieux, mes amis. »"
 date: 2022-06-01 06:00:01+00:146
 draft: False
 hidden: True

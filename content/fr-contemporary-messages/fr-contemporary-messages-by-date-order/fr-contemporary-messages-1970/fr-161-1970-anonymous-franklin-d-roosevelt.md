@@ -1,7 +1,7 @@
 ---
 title: "Donnez à votre prochain la seule chose qui peut le libérer"
 menu_title: ""
-description: "Donnez à votre prochain la seule chose qui peut le libérer"
+description: "Franklin D Roosevelt : « Aujourd'hui, plus que jamais, l'homme doit se tourner vers Dieu parce qu'il réalise enfin et sait qu'il n'y a pas de liberté … »"
 date: 2022-06-01 06:00:01+00:163
 draft: False
 hidden: True

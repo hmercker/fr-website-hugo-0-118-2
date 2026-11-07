@@ -1,7 +1,7 @@
 ---
 title: "Comprendre Dieu"
 menu_title: ""
-description: "Comprendre Dieu"
+description: "James Padgett, reçu par Jimbeau Walsh : « J’ai écouté aujourd’hui les lectures et les discussions intenses sur le sujet « Qui et qu’est-ce que Dieu ? » … »"
 date: 2022-06-01 06:00:01+00:1537
 draft: False
 hidden: True

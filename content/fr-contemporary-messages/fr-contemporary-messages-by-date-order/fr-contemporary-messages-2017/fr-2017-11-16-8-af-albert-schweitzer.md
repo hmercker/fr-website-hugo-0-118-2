@@ -1,7 +1,7 @@
 ---
 title: "Je suis avec vous"
 menu_title: ""
-description: "Je suis avec vous"
+description: "Albert Schweitzer, reçu par Al Fike : « Je parlerai dans ma propre langue à mon peuple. J'espère apporter plus de raison et de vérité à mes compatriotes … »"
 date: 2022-06-01 06:00:01+00:213
 draft: False
 hidden: True

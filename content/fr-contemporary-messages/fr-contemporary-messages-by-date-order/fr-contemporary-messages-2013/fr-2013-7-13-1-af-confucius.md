@@ -1,7 +1,7 @@
 ---
 title: "Ayez de la compassion pour ceux qui se trouvent dans un état négatif"
 menu_title: ""
-description: "Ayez de la compassion pour ceux qui se trouvent dans un état négatif"
+description: "Confucius, reçu par Albert Fike : « Chacun de vous aspire à la lumière. Chacune de vos âmes désire ardemment se trouver dans la lumière de Dieu. »"
 date: 2026-10-16 06:00:01+00:09
 draft: False
 hidden: True

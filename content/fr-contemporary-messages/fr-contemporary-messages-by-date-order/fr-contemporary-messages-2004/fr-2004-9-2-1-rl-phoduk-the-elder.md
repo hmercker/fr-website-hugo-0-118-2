@@ -1,7 +1,7 @@
 ---
 title: "Anciens Secrets"
 menu_title: ""
-description: "Anciens Secrets"
+description: "Phoduk l'Ancien, reçu par RL : « Phoduk : Lorsque le soleil se levait brillamment à l'horizon, avec une lumière jaune pure, je remontais la rivière en … »"
 date: 2022-06-01 06:00:01+00:38
 draft: False
 hidden: True

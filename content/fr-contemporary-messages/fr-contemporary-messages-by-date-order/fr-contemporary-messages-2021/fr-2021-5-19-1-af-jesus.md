@@ -1,7 +1,7 @@
 ---
 title: "Leçon 8 : La vie sur d’autres planètes prête à nous aider sur Terre"
 menu_title: ""
-description: "Leçon 8 : La vie sur d’autres planètes prête à nous aider sur Terre"
+description: "Jésus, reçu par Al Fike : « Aujourd’hui, je souhaite parler de la vie sur d’autres planètes dans l’univers qui est vaste, apparemment infini et tout ce … »"
 date: 2022-06-01 06:00:01+00:1509
 draft: False
 hidden: True

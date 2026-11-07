@@ -1,7 +1,7 @@
 ---
 title: "Le beau jardin de l’Amour de Dieu"
 menu_title: ""
-description: "Le beau jardin de l’Amour de Dieu"
+description: "St François d'Assise, reçu par Al Fike : « Cette belle condition d’Amour, l’harmonie qui existe ici, chaque âme qui vient dans ce jardin est affectée … »"
 date: 2022-06-01 06:00:01+00:28
 draft: False
 hidden: True

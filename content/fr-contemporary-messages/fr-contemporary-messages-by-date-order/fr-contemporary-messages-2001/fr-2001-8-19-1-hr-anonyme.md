@@ -1,7 +1,7 @@
 ---
 title: "L’Âme"
 menu_title: ""
-description: "L’Âme"
+description: "Anonyme, reçu par H : « L’ouverture de l’âme n’est pas une attitude passive ; c’est quelque chose d’actif, où tu dois t’impliquer avec beaucoup de volonté … »"
 date: 2022-06-01 06:00:01+00:18
 draft: False
 hidden: True

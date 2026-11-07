@@ -1,7 +1,7 @@
 ---
 title: "Décrit son service et ses sensibilités sur Terre"
 menu_title: ""
-description: "Décrit son service et ses sensibilités sur Terre"
+description: "Barbara Davies, reçu par Albert Fike : « Grâce aux événements de ma vie, j’ai été ouverte et sensible dès mon plus jeune âge. Je tiens à vous dire que … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

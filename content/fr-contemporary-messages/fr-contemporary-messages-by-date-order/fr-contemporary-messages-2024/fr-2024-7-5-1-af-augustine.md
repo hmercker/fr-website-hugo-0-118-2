@@ -1,7 +1,7 @@
 ---
 title: "Suivre la volonté de Dieu et la loi de progression"
 menu_title: ""
-description: "Suivre la volonté de Dieu et la loi de progression"
+description: "Augustin, reçu par Albert Fike : « Mes chers étudiants, si vous le permettez, Dieu bénira tout ce que vous faites. La Volonté de Dieu n’est pas une chose … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

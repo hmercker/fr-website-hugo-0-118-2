@@ -1,7 +1,7 @@
 ---
 title: "L’importance de la prière"
 menu_title: ""
-description: "L’importance de la prière"
+description: "Augustin, reçu par Al Fike : « Âmes bien-aimées, c’est votre enseignant Augustin qui est ici. Je souhaite vous encourager à poursuivre vos efforts pour … »"
 date: 2022-06-01 06:00:01+00:180
 draft: False
 hidden: True

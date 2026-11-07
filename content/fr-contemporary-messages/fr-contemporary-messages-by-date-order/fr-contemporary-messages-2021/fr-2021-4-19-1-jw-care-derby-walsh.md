@@ -1,7 +1,7 @@
 ---
 title: "Plantez les graines et reflétez l’amour"
 menu_title: ""
-description: "Plantez les graines et reflétez l’amour"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Je pouvais m’identifier à cela sur terre. Les premiers Chrétiens, dont beaucoup furent de martyrs, sont morts … »"
 date: 2022-06-01 06:00:01+00:1474
 draft: False
 hidden: True

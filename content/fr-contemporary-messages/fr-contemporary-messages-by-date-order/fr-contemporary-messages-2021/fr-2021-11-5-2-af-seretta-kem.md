@@ -1,7 +1,7 @@
 ---
 title: "Continuer à bâtir sur les fondations de l'Amour de Dieu (2021 Groupe des douze)"
 menu_title: ""
-description: "Continuer à bâtir sur les fondations de l'Amour de Dieu (2021 Groupe des douze)"
+description: "Seretta Kem, reçu par Al Fike : « Le monde commence à s’éveiller au fait que la Terre est en train de changer. Ils voient faiblement dans l’avenir et … »"
 date: 2022-06-01 06:00:01+00:1705
 draft: False
 hidden: True

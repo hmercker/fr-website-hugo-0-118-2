@@ -1,7 +1,7 @@
 ---
 title: "J’apprécie vraiment vos prières"
 menu_title: ""
-description: "J’apprécie vraiment vos prières"
+description: "Care Derby Walsh, reçu par Al Fike : « Poursuivez vos efforts et vos prières. Continuez à vous aimer les uns les autres. »"
 date: 2026-10-24 06:00:01+00:01
 draft: False
 hidden: True

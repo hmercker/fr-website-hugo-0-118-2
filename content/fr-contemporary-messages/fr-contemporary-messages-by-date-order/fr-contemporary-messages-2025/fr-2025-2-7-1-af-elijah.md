@@ -1,7 +1,7 @@
 ---
 title: "Vient affirmer la vie et renforcer la vérité"
 menu_title: ""
-description: "Vient affirmer la vie et renforcer la vérité"
+description: "Élie, reçu par Albert Fike : « Bénédictions à vous tous sur Terre. Car c’est le don de la vie que Dieu a fait à cette Terre et à tout ce qu’elle contient … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

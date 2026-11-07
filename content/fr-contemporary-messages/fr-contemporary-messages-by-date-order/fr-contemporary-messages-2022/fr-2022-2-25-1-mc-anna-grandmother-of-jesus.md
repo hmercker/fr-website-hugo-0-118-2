@@ -1,7 +1,7 @@
 ---
 title: "La grand-mère de Jésus se présente"
 menu_title: ""
-description: "La grand-mère de Jésus se présente"
+description: "Anna (Grand mère de Jésus), reçu par Maureen Cardoso : « J’ai surtout travaillé dans les coulisses pour les belles âmes de la Terre. J’ai travaillé pour … »"
 date: 2022-06-01 06:00:01+00:36
 draft: False
 hidden: True

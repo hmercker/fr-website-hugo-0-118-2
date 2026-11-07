@@ -1,7 +1,7 @@
 ---
 title: "Barbara décrit sa vie au service des autres et comment nous pouvons faire de même"
 menu_title: ""
-description: "Barbara décrit sa vie au service des autres et comment nous pouvons faire de même"
+description: "Barbara Davies, reçu par Albert Fike : « J'ai relevé ce défi lorsque je vivais parmi les hommes. Je voulais être un canal d'amour dans le monde. »"
 date: 2026-02-03 16:00:01+00:01
 draft: False
 hidden: True

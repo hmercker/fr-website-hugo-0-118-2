@@ -1,7 +1,7 @@
 ---
 title: "Un souverain médiéval œuvre désormais pour la paix"
 menu_title: ""
-description: "Un souverain médiéval œuvre désormais pour la paix"
+description: "Guillaume le Conquérant, reçu par FAB : « Merci d'avoir rendu ce privilège possible. Il me semblait que rien de ce que j'avais fait en tant que mortel … »"
 date: 2022-06-01 06:00:01+00:176
 draft: False
 hidden: True

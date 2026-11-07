@@ -1,7 +1,7 @@
 ---
 title: "Appel à tous les médiums"
 menu_title: ""
-description: "Appel à tous les médiums"
+description: "Salomon, reçu par CC : « Tu n’as pas besoin de dire que je te manque. J’ai souvent été avec toi. »"
 date: 2022-06-01 06:00:01+00:79
 draft: False
 hidden: True

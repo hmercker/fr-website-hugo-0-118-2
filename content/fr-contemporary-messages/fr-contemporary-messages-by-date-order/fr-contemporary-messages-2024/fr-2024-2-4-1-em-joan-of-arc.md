@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes prêts et disposés à vous aider à exprimer vos dons "
 menu_title: ""
-description: "Nous sommes prêts et disposés à vous aider à exprimer vos dons "
+description: "Jeanne d'Arc, reçu par Elizabeth Mack : « Nous nous joignons tous à vous dans la prière, donnant notre amour à notre Père Céleste, nous engageant à faire … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Encouragement donné à W___"
 menu_title: ""
-description: "Encouragement donné à W___"
+description: "Marie et Jean, reçu par Amada Réza : « Je vais passer la plume à mon cher frère en Christ, Jean, qui est connu comme l’apôtre de Jésus et l’auteur de l’un … »"
 date: 2022-06-01 06:00:01+00:24
 draft: False
 hidden: True

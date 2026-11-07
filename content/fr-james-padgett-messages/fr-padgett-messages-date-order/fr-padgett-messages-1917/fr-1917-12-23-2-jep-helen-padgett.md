@@ -1,7 +1,7 @@
 ---
 title: "Hélène dit qu’Emmanuel Swedenborg a écrit avec autorité"
 menu_title: ""
-description: "Hélène dit qu’Emmanuel Swedenborg a écrit avec autorité"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, tu as reçu des messages importants ce soir et j’espère que tu les liras et que tu y … »"
 date: 2022-06-01 06:00:01+00:200
 draft: False
 hidden: True

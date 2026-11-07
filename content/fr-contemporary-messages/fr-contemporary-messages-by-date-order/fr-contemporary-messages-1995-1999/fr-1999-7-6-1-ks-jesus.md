@@ -1,7 +1,7 @@
 ---
 title: "Sur l’autodéfense"
 menu_title: ""
-description: "Sur l’autodéfense"
+description: "Jésus, reçu par Kathryn Stokes : « Je sais et je comprends que l’on est fortement motivé pour prendre les armes contre un intrus parce qu’il est tout à … »"
 date: 2022-06-01 06:00:01+00:14
 draft: False
 hidden: True

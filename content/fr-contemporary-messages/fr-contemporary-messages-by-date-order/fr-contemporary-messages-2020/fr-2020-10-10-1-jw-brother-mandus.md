@@ -1,7 +1,7 @@
 ---
 title: "La porte de la grâce de Dieu"
 menu_title: ""
-description: "La porte de la grâce de Dieu"
+description: "Frère Mandus Nyquist, reçu par Jimbeau Walsh : « Je vous remercie de m’avoir appelé. J’étais avec vous lors de votre discussion précédente et vous avez … »"
 date: 2022-06-01 06:00:01+00:1276
 draft: False
 hidden: True

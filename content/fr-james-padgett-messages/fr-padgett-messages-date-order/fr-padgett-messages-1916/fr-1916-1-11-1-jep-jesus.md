@@ -1,7 +1,7 @@
 ---
 title: "L’importance pour l’humanité de chercher l’Amour Divin - Suite 1"
 menu_title: ""
-description: "L’importance pour l’humanité de chercher l’Amour Divin - Suite 1"
+description: "Jésus, reçu par James Padgett : « Je vais continuer mon discours de la nuit dernière. Je disais que les Juifs et les enseignants nommés ou plutôt qui … »"
 date: 2022-06-01 06:00:01+00:123
 draft: False
 hidden: True

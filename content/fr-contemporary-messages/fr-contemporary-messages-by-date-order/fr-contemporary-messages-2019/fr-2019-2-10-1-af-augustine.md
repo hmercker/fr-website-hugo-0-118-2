@@ -1,7 +1,7 @@
 ---
 title: "Choisir la lumière plutôt que l’obscurité"
 menu_title: ""
-description: "Choisir la lumière plutôt que l’obscurité"
+description: "Augustin, reçu par Al Fike : « Chaque jour vous devez faire face à de nombreux choix. La façon dont vous réagissez à la vie, ce que vous choisissez dans … »"
 date: 2022-06-01 06:00:01+00:639
 draft: False
 hidden: True

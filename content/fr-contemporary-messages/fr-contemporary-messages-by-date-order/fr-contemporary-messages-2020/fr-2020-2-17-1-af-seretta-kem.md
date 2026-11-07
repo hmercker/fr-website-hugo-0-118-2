@@ -1,7 +1,7 @@
 ---
 title: "Encourager et accueillir les différences"
 menu_title: ""
-description: "Encourager et accueillir les différences"
+description: "Seretta Kem, reçu par Al Fike : « Vous êtes tous nécessaires dans cette grande entreprise à laquelle vous aspirez pour la Voix Directe. »"
 date: 2022-06-01 06:00:01+00:999
 draft: False
 hidden: True

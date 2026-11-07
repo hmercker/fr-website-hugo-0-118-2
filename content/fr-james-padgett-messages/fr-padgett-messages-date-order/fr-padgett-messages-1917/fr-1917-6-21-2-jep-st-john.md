@@ -1,7 +1,7 @@
 ---
 title: "Confirmation de l’expérience vécue par le « Juif errant »"
 menu_title: ""
-description: "Confirmation de l’expérience vécue par le « Juif errant »"
+description: "St Jean, reçu par James Padgett : « Eh bien, vous avez été surpris par le dernier message, et il n’est pas surprenant que vous l’ayez été, car je sais … »"
 date: 2022-06-01 06:00:01+00:153
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le pouvoir de l’astronomie et de l’astrologie est limité"
 menu_title: ""
-description: "Le pouvoir de l’astronomie et de l’astrologie est limité"
+description: "Aekarius, reçu par Al Fike : « Je m’appelle Aekarius et je ne me suis jamais exprimé par le biais de cet instrument auparavant. »"
 date: 2022-06-01 06:00:01+00:18
 draft: False
 hidden: True

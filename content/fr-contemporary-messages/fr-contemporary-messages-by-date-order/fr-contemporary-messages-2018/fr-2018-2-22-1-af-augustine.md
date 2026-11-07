@@ -1,7 +1,7 @@
 ---
 title: "Un parcours de service"
 menu_title: ""
-description: "Un parcours de service"
+description: "Augustin, reçu par Al Fike : « Il y a un but à vos efforts. Vous serez porté et nous attirerons les âmes qui sont désireuses de connaître votre message … »"
 date: 2022-06-01 06:00:01+00:325
 draft: False
 hidden: True

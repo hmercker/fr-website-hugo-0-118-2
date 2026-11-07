@@ -1,7 +1,7 @@
 ---
 title: "Matthieu, apôtre de Jésus"
 menu_title: ""
-description: "Matthieu, apôtre de Jésus"
+description: "St Matthieu, reçu par H : « Hier soir, j’étais déjà présent, mais tu étais très somnolent, je n’ai donc pas essayé de transmettre un message. »"
 date: 2022-06-01 06:00:01+00:86
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Marcher sur le chemin Divin"
 menu_title: ""
-description: "Marcher sur le chemin Divin"
+description: "Augustin, reçu par Al Fike : « Soyez bénis mes chers et doux enfants, c’est votre maître Augustin. C’est un exercice de votre volonté et vous avez tous le … »"
 date: 2022-06-01 06:00:01+00:87
 draft: False
 hidden: True

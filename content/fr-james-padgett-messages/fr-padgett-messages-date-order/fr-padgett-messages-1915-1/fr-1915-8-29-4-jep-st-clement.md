@@ -1,7 +1,7 @@
 ---
 title: "St. Clément : Les erreurs de l’Église dont il était membre doivent être détruites"
 menu_title: ""
-description: "St. Clément : Les erreurs de l’Église dont il était membre doivent être détruites"
+description: "St Clément, reçu par James Padgett : « Moi, St Clément , je veux écrire quelques lignes. Je vous ai déjà écrit une fois et je vous ai parlé des maux et … »"
 date: 2022-06-01 06:00:01+00:219
 draft: False
 hidden: True

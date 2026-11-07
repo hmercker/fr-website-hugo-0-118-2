@@ -1,7 +1,7 @@
 ---
 title: "Prise de conscience de la nouvelle vie"
 menu_title: ""
-description: "Prise de conscience de la nouvelle vie"
+description: "Seretta Kem, reçu par Helge Mercker : « Mes enfants, nous vous embrassons dans notre amour. Nous venons pour être proches de vous et répondre à vos appels … »"
 date: 2022-06-01 06:00:01+00:1198
 draft: False
 hidden: True

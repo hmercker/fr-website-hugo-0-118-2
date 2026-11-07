@@ -1,7 +1,7 @@
 ---
 title: "Le récit de l’Exode"
 menu_title: ""
-description: "Le récit de l’Exode"
+description: "Moïse, reçu par FAB : « Je vais maintenant parler de de l’Exode. Bien sûr, beaucoup m’ont reconnu, mais ils ont remarqué que j’étais complètement différent. »"
 date: 2022-06-01 06:00:01+00:07
 draft: False
 hidden: True

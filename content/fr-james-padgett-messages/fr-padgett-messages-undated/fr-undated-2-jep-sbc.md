@@ -1,7 +1,7 @@
 ---
 title: "Ses croyances étaient simplement intellectuelles. Après un certain temps est devenu sceptique"
 menu_title: ""
-description: "Ses croyances étaient simplement intellectuelles. Après un certain temps est devenu sceptique"
+description: "SBC, reçu par James Padgett : « Mais pour être franc, je ne m’attends pas à ce que vous puissiez m’aider, car j’ai perdu l’espoir, et seul un désespoir … »"
 date: 2022-06-01 06:00:01+00:76
 draft: False
 hidden: True

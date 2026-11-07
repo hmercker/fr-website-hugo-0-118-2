@@ -1,7 +1,7 @@
 ---
 title: "Vous serez unis par un grand amour"
 menu_title: ""
-description: "Vous serez unis par un grand amour"
+description: "Jésus, reçu par Al Fike : « J’apporte une bénédiction pour vous unir et vous rassemblez car, ensemble, vous serez liés dans un grand amour, une grande … »"
 date: 2022-06-01 06:00:01+00:983
 draft: False
 hidden: True

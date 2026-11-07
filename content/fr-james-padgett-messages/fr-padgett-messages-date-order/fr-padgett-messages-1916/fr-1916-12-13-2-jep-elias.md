@@ -1,7 +1,7 @@
 ---
 title: "Élie – L’espoir que tous les mortels ont dans un futur destin d’absence de soins et de malheur"
 menu_title: ""
-description: "Élie – L’espoir que tous les mortels ont dans un futur destin d’absence de soins et de malheur"
+description: "Élie, reçu par James Padgett : « Je désire, ce soir, écrire quelques lignes sur un sujet qui, selon moi, pourrait vous intéresser : « L’espoir que tous … »"
 date: 2022-06-01 06:00:01+00:13
 draft: False
 hidden: True

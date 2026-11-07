@@ -1,7 +1,7 @@
 ---
 title: "Le prisme de nos âmes"
 menu_title: ""
-description: "Le prisme de nos âmes"
+description: "Keea Atta Kem, reçu par Al Fike : « Chaque être a des dons, des capacités et des inclinations. Et beaucoup de ces dons et capacités dans l’être naturel … »"
 date: 2022-06-01 06:00:01+00:189
 draft: False
 hidden: True

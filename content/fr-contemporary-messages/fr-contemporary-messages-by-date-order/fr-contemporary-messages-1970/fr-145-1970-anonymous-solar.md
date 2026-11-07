@@ -1,7 +1,7 @@
 ---
 title: "L'Amour de Dieu est la seule chose qui puisse apporter le vrai bonheur et la paix sur terre"
 menu_title: ""
-description: "L'Amour de Dieu est la seule chose qui puisse apporter le vrai bonheur et la paix sur terre"
+description: "Solar : « « Père béni, alors que nous nous rassemblons dans cette paix merveilleuse, nous savons que nous sommes vraiment bénis par le déversement de Ton … »"
 date: 2022-06-01 06:00:01+00:146
 draft: False
 hidden: True

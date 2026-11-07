@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes ensemble dans la vérité de l'Amour de Dieu"
 menu_title: ""
-description: "Nous sommes ensemble dans la vérité de l'Amour de Dieu"
+description: "Jésus, reçu par Albert Fike : « Chacun de vous est unique. Chacun de vous a son propre langage, sa propre capacité et sa propre manière de communiquer … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

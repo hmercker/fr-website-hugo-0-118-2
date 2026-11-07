@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes appelés à diriger"
 menu_title: ""
-description: "Nous sommes appelés à diriger"
+description: "Moïse, reçu par Al Fike : « Il est temps pour chaque âme d’entendre l’appel de Dieu, de s’éveiller à son appel, et non seulement d’être en relation … »"
 date: 2023-09-01 06:00:01+00:42
 draft: False
 hidden: True

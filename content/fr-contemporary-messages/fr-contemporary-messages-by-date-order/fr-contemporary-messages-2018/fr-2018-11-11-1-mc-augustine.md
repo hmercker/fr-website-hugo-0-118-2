@@ -1,7 +1,7 @@
 ---
 title: "Remettez à Dieu les blessures et les fardeaux de votre âme"
 menu_title: ""
-description: "Remettez à Dieu les blessures et les fardeaux de votre âme"
+description: "Augustin, reçu par Maureen Cardoso : « Et je voudrais vous encourager aujourd’hui à réaliser que ce sont des occasions pour vous de venir devant votre … »"
 date: 2022-06-01 06:00:01+00:560
 draft: False
 hidden: True

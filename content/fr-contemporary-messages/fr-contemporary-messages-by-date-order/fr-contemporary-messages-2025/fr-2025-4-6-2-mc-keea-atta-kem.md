@@ -1,7 +1,7 @@
 ---
 title: "Entrez sur la piste de danse et dansez la vie avec Dieu"
 menu_title: ""
-description: "Entrez sur la piste de danse et dansez la vie avec Dieu"
+description: "Keea Atta Kem, reçu par Maureen Cardoso : « N’oubliez jamais ceci, mes chers : tout dépend du désir, de la puissance de vos désirs et de l’endroit où vous … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

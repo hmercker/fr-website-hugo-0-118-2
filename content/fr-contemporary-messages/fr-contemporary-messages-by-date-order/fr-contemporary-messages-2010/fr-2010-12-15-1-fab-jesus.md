@@ -1,7 +1,7 @@
 ---
 title: "Jésus, le mythe et la Bible"
 menu_title: ""
-description: "Jésus, le mythe et la Bible"
+description: "Jésus, reçu par FAB : « Vous reconnaissez l'importance du mythe pour la psyché humaine. Vous aimeriez savoir ce que j'en pense. »"
 date: 2022-06-01 06:00:01+00:178
 draft: False
 hidden: True

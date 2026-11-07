@@ -1,7 +1,7 @@
 ---
 title: "Nous marchons tous dans la même direction"
 menu_title: ""
-description: "Nous marchons tous dans la même direction"
+description: "Jésus, reçu par Albert Fike : « Nous marchons tous dans la même direction vers notre Père Céleste et nous trouverons notre chemin sur la voie qui nous … »"
 date: 2026-04-03 16:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le Pouvoir de la Lumière de l'Âme : Une Leçon pour Toucher les Cœurs Au-delà des Mots"
 menu_title: ""
-description: "Le Pouvoir de la Lumière de l'Âme : Une Leçon pour Toucher les Cœurs Au-delà des Mots"
+description: "Orion et Jésus, reçu par Albert Fike : « On m’a demandé comment enseigner ces vérités à mes frères et sœurs dans ce monde si absorbé par les biens … »"
 date: 2025-12-21 16:00:01+00:01
 draft: False
 hidden: True

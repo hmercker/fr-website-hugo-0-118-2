@@ -1,7 +1,7 @@
 ---
 title: "Pré-existence des Cieux Célestes - 2"
 menu_title: ""
-description: "Pré-existence des Cieux Célestes - 2"
+description: "Jésus, reçu par FAB : « Vous venez de lire que j'ai canalisé à travers M. Et si l'homme n'avait jamais reçu cet Amour Divin dans son âme, il n'y aurait … »"
 date: 2022-06-01 06:00:01+00:14
 draft: False
 hidden: True

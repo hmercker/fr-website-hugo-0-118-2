@@ -1,7 +1,7 @@
 ---
 title: "Confirme que c’est bien un prêtre Orthodoxe qui vient de délivrer un message"
 menu_title: ""
-description: "Confirme que c’est bien un prêtre Orthodoxe qui vient de délivrer un message"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien mon cher, tu es un peu fatigué et je ne dois pas écrire beaucoup. L’esprit qui t’a écrit était à la … »"
 date: 2022-06-01 06:00:01+00:159
 draft: False
 hidden: True

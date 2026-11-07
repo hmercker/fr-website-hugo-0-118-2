@@ -1,7 +1,7 @@
 ---
 title: "Hélène Padgett explique que le livre qu’il lisait (Pasteur Russel sur le Spiritualisme) n’a pas eu une bonne influence sur lui"
 menu_title: ""
-description: "Hélène Padgett explique que le livre qu’il lisait (Pasteur Russel sur le Spiritualisme) n’a pas eu une bonne influence sur lui"
+description: "Hélène Padgett, reçu par James Padgett : « Je ne suis pas l’esprit d’un ange perdu de Dieu, mais l’esprit d’une femme qui fut ta femme sur la terre. »"
 date: 2022-06-01 06:00:01+00:110
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Q&R : Les adeptes du Livre d’Urantia sont-ils à l’écoute de leur âme ?"
 menu_title: ""
-description: "Q&R : Les adeptes du Livre d’Urantia sont-ils à l’écoute de leur âme ?"
+description: "Flavius Josèphe, reçu par Al Fike : « Cela semble être deux questions. Il y a des esprits très obligeants qui leur donnent beaucoup d’informations. »"
 date: 2022-06-01 06:00:01+00:943
 draft: False
 hidden: True

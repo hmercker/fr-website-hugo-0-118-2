@@ -1,7 +1,7 @@
 ---
 title: "Tant de choses continueront à être données"
 menu_title: ""
-description: "Tant de choses continueront à être données"
+description: "Goldie, reçu par Al Fike : « Vous ne pouviez pas partir sans que je vous dise au revoir, votre amie Goldie, pour vous souhaiter un merveilleux voyage et … »"
 date: 2022-06-01 06:00:01+00:548
 draft: False
 hidden: True

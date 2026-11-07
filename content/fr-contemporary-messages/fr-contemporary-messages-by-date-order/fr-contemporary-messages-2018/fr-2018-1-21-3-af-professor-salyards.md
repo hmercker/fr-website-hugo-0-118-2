@@ -1,7 +1,7 @@
 ---
 title: "Qui apportera la Vérité à ce monde ?"
 menu_title: ""
-description: "Qui apportera la Vérité à ce monde ?"
+description: "Professeur Salyards, reçu par Al Fike : « J’ai pris un vif intérêt à votre travail ensemble. Je voudrais vous montrer tous les nombreux détails et aspects … »"
 date: 2022-06-01 06:00:01+00:306
 draft: False
 hidden: True

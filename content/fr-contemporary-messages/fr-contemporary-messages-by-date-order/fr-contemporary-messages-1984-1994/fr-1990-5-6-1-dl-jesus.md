@@ -1,7 +1,7 @@
 ---
 title: "Confirmation de l'ordination"
 menu_title: ""
-description: "Confirmation de l'ordination"
+description: "Jésus, reçu par Révérend Dave Lampron : « Nous savons tous combien il est spécial pour tout mortel d'être gratifié de votre réponse personnelle, et je … »"
 date: 2022-06-01 06:00:01+00:46
 draft: False
 hidden: True

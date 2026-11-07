@@ -1,7 +1,7 @@
 ---
 title: "Orientation Voix Directe (Seretta Kem) et être au service (Luc)"
 menu_title: ""
-description: "Orientation Voix Directe (Seretta Kem) et être au service (Luc)"
+description: "St Luc & Seretta Kem, reçu par Al Fike : « Lorsque vous avez parlé à l’église aujourd’hui, nous avons fait des expériences pour voir si nous pouvions … »"
 date: 2022-06-01 06:00:01+00:439
 draft: False
 hidden: True

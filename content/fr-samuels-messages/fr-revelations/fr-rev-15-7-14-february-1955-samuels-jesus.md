@@ -1,7 +1,7 @@
 ---
 title: "15ème Révélation : Prophéties de l’ancien Testament"
 menu_title: ""
-description: "15ème Révélation : Prophéties de l’ancien Testament"
+description: "Jésus, reçu par Dr Samuels : « Ce soir je vais communiquer certaines informations pour votre profit et celui l’humanité au sujet de certaines prophéties … »"
 date: 2022-06-01 06:00:01+00:15
 draft: False
 hidden: True

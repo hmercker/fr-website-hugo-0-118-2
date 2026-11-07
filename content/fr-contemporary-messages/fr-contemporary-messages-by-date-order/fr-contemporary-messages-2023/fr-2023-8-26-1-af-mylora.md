@@ -1,7 +1,7 @@
 ---
 title: "Nous avons tous de puissants dons de guérison"
 menu_title: ""
-description: "Nous avons tous de puissants dons de guérison"
+description: "Mylora, reçu par Albert Fike : « Vous ne considérez pas souvent qu’une partie de votre rôle et une partie du plan en cours d’élaboration consiste à … »"
 date: 2023-09-01 06:00:01+00:67
 draft: False
 hidden: True

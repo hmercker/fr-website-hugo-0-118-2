@@ -1,7 +1,7 @@
 ---
 title: "Redoublez de prières pour demeurer en harmonie dans un monde obscur"
 menu_title: ""
-description: "Redoublez de prières pour demeurer en harmonie dans un monde obscur"
+description: "Orion, reçu par Al Fike : « La prière est votre plus grand soutien dans un monde si tumultueux, un monde empli de disharmonie et de manque de lumière. »"
 date: 2026-05-24 16:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La porte est ouverte pour chacun de nous"
 menu_title: ""
-description: "La porte est ouverte pour chacun de nous"
+description: "Jésus, reçu par Al Fike : « Je vous exhorte à prier ensemble avec ferveur, chacun d’entre vous. Avec le sérieux de votre âme, priez pour obtenir … »"
 date: 2022-07-10 06:25:48+00:80
 draft: False
 hidden: True

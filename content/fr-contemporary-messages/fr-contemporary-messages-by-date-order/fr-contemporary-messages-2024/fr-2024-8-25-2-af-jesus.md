@@ -1,7 +1,7 @@
 ---
 title: "Apporte des bénédictions d'amour"
 menu_title: ""
-description: "Apporte des bénédictions d'amour"
+description: "Jésus, reçu par Albert Fike : « Heureux les enfants qui cherchent leur Créateur, qui aspirent, désirent cette connexion et cette bénédiction de Dieu. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

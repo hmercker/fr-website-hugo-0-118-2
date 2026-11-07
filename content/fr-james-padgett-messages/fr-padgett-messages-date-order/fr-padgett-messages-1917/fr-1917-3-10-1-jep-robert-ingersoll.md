@@ -1,7 +1,7 @@
 ---
 title: "La vie et la mort, les amis du mortel, doivent toutes les deux être acceptées - L’une, l’amie pour l’éternité, l’autre, l’amie pour un moment seulement, mais quelle amie !"
 menu_title: ""
-description: "La vie et la mort, les amis du mortel, doivent toutes les deux être acceptées - L’une, l’amie pour l’éternité, l’autre, l’amie pour un moment seulement, mais quelle amie !"
+description: "Robert Ingersoll, reçu par James Padgett : « La vie sur terre n’est qu’une courte respiration de l’âme en servitude, pourtant si chère aux mortels ; et la … »"
 date: 2022-06-01 06:00:01+00:81
 draft: False
 hidden: True

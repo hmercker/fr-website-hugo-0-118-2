@@ -1,7 +1,7 @@
 ---
 title: "L’attitude de la famille de Jésus en l’an 26"
 menu_title: ""
-description: "L’attitude de la famille de Jésus en l’an 26"
+description: "Judas, reçu par H : « Mon cher H , maintenant nous allons mettre l’accent sur l’année 26. Quand j’ai parlé d’événements importants, je faisais allusion … »"
 date: 2022-06-01 06:00:01+00:38
 draft: False
 hidden: True

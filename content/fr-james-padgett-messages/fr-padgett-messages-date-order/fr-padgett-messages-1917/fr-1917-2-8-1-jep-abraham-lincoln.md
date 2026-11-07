@@ -1,7 +1,7 @@
 ---
 title: "L‘Amour est plus grand que la haine ; Dieu bénit tous les peuples de la terre"
 menu_title: ""
-description: "L‘Amour est plus grand que la haine ; Dieu bénit tous les peuples de la terre"
+description: "Abraham Lincoln, reçu par James Padgett : « L’amour est plus grand que la haine, la guerre prendra fin, l’amour viendra et la paix sera à nouveau établie. »"
 date: 2022-06-01 06:00:01+00:48
 draft: False
 hidden: True

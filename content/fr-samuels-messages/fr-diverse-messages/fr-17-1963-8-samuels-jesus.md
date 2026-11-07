@@ -1,7 +1,7 @@
 ---
 title: "Yom Kippour, Jour de Repentance, Jean le Baptiste, Première Observance, Dernier samedi de Septembre"
 menu_title: ""
-description: "Yom Kippour, Jour de Repentance, Jean le Baptiste, Première Observance, Dernier samedi de Septembre"
+description: "Jésus, reçu par Dr Samuels Août : « Au sujet des fêtes à observer par l’Église de la Nouvelle Naissance, il ne s’agit pas d’instituer de nouveaux jours de … »"
 date: 2022-06-01 06:00:01+00:17
 draft: False
 hidden: True

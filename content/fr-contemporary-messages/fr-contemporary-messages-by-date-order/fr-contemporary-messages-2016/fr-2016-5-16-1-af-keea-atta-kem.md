@@ -1,7 +1,7 @@
 ---
 title: "Comment l’Amour Divin change l’Âme"
 menu_title: ""
-description: "Comment l’Amour Divin change l’Âme"
+description: "Keea Atta Kem, reçu par Al Fike : « Nous en retirons une grande joie et nous partageons des expériences merveilleuses que je ne saurais vous décrire. »"
 date: 2022-06-01 06:00:01+00:208
 draft: False
 hidden: True

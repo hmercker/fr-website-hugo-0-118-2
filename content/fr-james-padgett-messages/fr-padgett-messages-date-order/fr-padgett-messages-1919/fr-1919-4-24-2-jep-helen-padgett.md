@@ -1,7 +1,7 @@
 ---
 title: "Hélène Padgett affirme que le père du Dr Arbelee lui a écrit et lui a donné quelques conseils"
 menu_title: ""
-description: "Hélène Padgett affirme que le père du Dr Arbelee lui a écrit et lui a donné quelques conseils"
+description: "Hélène Padgett, reçu par James Padgett : « Il voulait tellement écrire et il était prêt à le faire dès que tu lui en donnerais l’occasion. »"
 date: 2022-06-01 06:00:01+00:29
 draft: False
 hidden: True

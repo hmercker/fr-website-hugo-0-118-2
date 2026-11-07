@@ -1,7 +1,7 @@
 ---
 title: "Préparatifs pour la voix Directe"
 menu_title: ""
-description: "Préparatifs pour la Voix Directe"
+description: "Seretta Kem, reçu par Al Fike : « Mes protégés ont demandé quelques conseils concernant la préparation et la mise en condition pour s’asseoir en harmonie … »"
 date: 2022-06-01 06:00:01+00:39
 draft: False
 hidden: True

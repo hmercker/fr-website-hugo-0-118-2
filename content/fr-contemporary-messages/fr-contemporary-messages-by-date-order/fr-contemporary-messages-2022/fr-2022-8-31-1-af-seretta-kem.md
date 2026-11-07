@@ -1,7 +1,7 @@
 ---
 title: "Se libérer de l'occupation d'une entité inférieure"
 menu_title: ""
-description: "Se libérer de l'occupation d'une entité inférieure"
+description: "Seretta Kem, reçu par Al Fike : « J'ai assisté à vos discussions et j'ai suivi les aspects et les éléments de ce travail que vous appelez la libération … »"
 date: 2022-06-01 06:00:01+00:169
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le réconfort de l'inspiration de la Mélodie du Bonheur"
 menu_title: ""
-description: "Le réconfort de l'inspiration de la Mélodie du Bonheur"
+description: "Baron von Trapp, reçu par FAB : « Je savais que ma carrière inspirerait les autres. Je savais aussi que les nazis seraient vaincus, non pas à cause de … »"
 date: 2022-06-01 06:00:01+00:106
 draft: False
 hidden: True

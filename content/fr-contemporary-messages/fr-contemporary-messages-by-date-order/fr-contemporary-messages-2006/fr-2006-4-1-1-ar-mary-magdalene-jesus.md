@@ -1,7 +1,7 @@
 ---
 title: "Observer l'âme humaine"
 menu_title: ""
-description: "Observer l'âme humaine"
+description: "Marie Madeleine & Jésus, reçu par Amada Reza : « Je [Marie] souhaite partager mes réflexions sur la relation entre le mental et l'âme, en particulier pour … »"
 date: 2022-06-01 06:00:01+00:06
 draft: False
 hidden: True

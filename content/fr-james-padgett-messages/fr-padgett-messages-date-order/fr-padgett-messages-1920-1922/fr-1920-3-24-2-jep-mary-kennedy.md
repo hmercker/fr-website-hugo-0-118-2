@@ -1,7 +1,7 @@
 ---
 title: "Mary est si heureuse que le Dr Stone ait maintenant une photo d’elle"
 menu_title: ""
-description: "Mary est si heureuse que le Dr Stone ait maintenant une photo d’elle"
+description: "Mary Kennedy, reçu par James Padgett : « Permettez-moi d’écrire, car j’ai très hâte de dire un mot à mon bien-aimé. J’ai écouté sa mère lorsqu’elle a … »"
 date: 2022-06-01 06:00:01+00:58
 draft: False
 hidden: True

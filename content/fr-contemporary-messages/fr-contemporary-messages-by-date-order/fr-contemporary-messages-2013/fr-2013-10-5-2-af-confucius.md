@@ -1,7 +1,7 @@
 ---
 title: "Recherchez l'Amour de Dieu à chaque souffle, et vous connaîtrez la gloire du vol"
 menu_title: ""
-description: "Recherchez l'Amour de Dieu à chaque souffle, et vous connaîtrez la gloire du vol"
+description: "Confucius, reçu par Albert Fike : « Mes enfants, c’est Confucius. Je vous aime et je vous apporte mon amour ainsi que la guérison, mes enfants. »"
 date: 2026-10-21 06:00:01+00:09
 draft: False
 hidden: True

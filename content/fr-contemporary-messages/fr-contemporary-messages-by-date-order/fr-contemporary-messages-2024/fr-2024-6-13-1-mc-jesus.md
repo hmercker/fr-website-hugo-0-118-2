@@ -1,7 +1,7 @@
 ---
 title: "La grâce de l'essence de Dieu s'accompagne de responsabilité"
 menu_title: ""
-description: "La grâce de l'essence de Dieu s'accompagne de responsabilité "
+description: "Jésus, reçu par Maureen Cardoso : « Je me tiens devant mes disciples, dont les âmes grandissent à la lumière de Dieu, dont les âmes sont illuminées par … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

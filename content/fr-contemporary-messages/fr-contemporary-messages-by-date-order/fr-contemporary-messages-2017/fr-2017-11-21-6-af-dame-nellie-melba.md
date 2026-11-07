@@ -1,7 +1,7 @@
 ---
 title: "Le monde a besoin de vous maintenant"
 menu_title: ""
-description: "Le monde a besoin de vous maintenant"
+description: "Dame Nellie Melba, reçu par Al Fike : « Je fus une chanteuse de renom sur la scène il y a de nombreuses années. Je souhaite chanter pour l'humanité … »"
 date: 2022-06-01 06:00:01+00:228
 draft: False
 hidden: True

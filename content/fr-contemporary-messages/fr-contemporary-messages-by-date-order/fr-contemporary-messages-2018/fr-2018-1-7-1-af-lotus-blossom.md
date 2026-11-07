@@ -1,7 +1,7 @@
 ---
 title: "Le pouvoir de l'amour"
 menu_title: ""
-description: "Le pouvoir de l'amour"
+description: "Fleur de Lotus, reçu par Al Fike : « Le monde est privé d’amour. Le monde est perdu parce qu’il ne sait pas comment aimer. »"
 date: 2022-06-01 06:00:01+00:297
 draft: False
 hidden: True

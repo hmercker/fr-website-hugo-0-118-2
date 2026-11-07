@@ -1,7 +1,7 @@
 ---
 title: "Faire le premier pas"
 menu_title: ""
-description: "Faire le premier pas"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « Que l'Amour de Dieu vous accompagne et que vos âmes soient soumises à Sa Volonté. Ceux d'entre vous qui … »"
 date: 2025-12-12 16:00:01+00:01
 draft: False
 hidden: True

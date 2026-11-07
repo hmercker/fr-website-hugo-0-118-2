@@ -1,7 +1,7 @@
 ---
 title: "La vérité passe par l'âme"
 menu_title: ""
-description: "La vérité passe par l'âme"
+description: "Confucius, reçu par Al Fike : « J'espère que vous pouvez m'entendre. Chacun de vous est précieux aux yeux de Dieu. »"
 date: 2022-06-01 06:00:01+00:68
 draft: False
 hidden: True

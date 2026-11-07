@@ -1,7 +1,7 @@
 ---
 title: "Être dans la lumière demande un effort conscient"
 menu_title: ""
-description: "Être dans la lumière demande un effort conscient"
+description: "Augustin, reçu par Al Fike : « C’est votre enseignant Augustin. Il semble que vous avez appris une leçon précieuse sur vos pensées, sur l’importance de … »"
 date: 2022-06-01 06:00:01+00:248
 draft: False
 hidden: True

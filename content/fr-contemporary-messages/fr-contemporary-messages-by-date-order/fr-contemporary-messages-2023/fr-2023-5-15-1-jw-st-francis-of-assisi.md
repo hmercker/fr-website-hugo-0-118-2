@@ -1,7 +1,7 @@
 ---
 title: "Perfection en Grâce"
 menu_title: ""
-description: "Perfection en Grâce"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Pour le voyageur terrestre, une boussole peut aider à trouver une direction. Pour le voyageur spirituel … »"
 date: 2023-09-01 06:00:01+00:21
 draft: False
 hidden: True

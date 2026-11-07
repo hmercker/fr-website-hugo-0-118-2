@@ -1,7 +1,7 @@
 ---
 title: "L’Amour Divin – ce qu’il est et ce qu’il n’est pas. Comment il peut être obtenu"
 menu_title: ""
-description: "L’Amour Divin – ce qu’il est et ce qu’il n’est pas. Comment il peut être obtenu"
+description: "St Jean, reçu par James Padgett : « Cet amour est la plus grande chose dans le monde entier, et la seule chose qui puisse rendre l’homme Un avec le Père … »"
 date: 2022-06-01 06:00:01+00:261
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Bénissez les voyageurs qui répandent les vérités de l’amour de Dieu"
 menu_title: ""
-description: "Bénissez les voyageurs qui répandent les vérités de l’amour de Dieu"
+description: "Confucius, reçu par Albert Fike : « En fait, il y aura des moments où je me reposerai à l’avant du véhicule avec le vent soufflant dans mes cheveux, ma … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

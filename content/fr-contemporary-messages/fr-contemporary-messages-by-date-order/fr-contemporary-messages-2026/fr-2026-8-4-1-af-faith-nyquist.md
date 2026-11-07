@@ -1,7 +1,7 @@
 ---
 title: "Maintenez-vous dans un état de lumière et d'amour pour nourrir votre rôle d'instrument"
 menu_title: ""
-description: "Maintenez-vous dans un état de lumière et d'amour pour nourrir votre rôle d'instrument"
+description: "Faith Nyquist, reçu par Albert Fike : « En agissant ainsi, vous renforcez la lumière qui vous entoure. Vous permettez à vos amis angéliques de s'approcher. »"
 date: 2026-10-04 06:00:01+00:01
 draft: False
 hidden: True

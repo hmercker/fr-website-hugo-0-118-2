@@ -1,7 +1,7 @@
 ---
 title: "Les Âmes à la création, le Développement et la Dématérialisation"
 menu_title: ""
-description: "Les Âmes à la création, le Développement et la Dématérialisation"
+description: "Jésus, reçu par Dr Samuels : « Je veux vous écrire sur les questions qui sont source de questionnement pour quelques-uns des membres Californiens de la … »"
 date: 2022-06-01 06:00:01+00:10
 draft: False
 hidden: True

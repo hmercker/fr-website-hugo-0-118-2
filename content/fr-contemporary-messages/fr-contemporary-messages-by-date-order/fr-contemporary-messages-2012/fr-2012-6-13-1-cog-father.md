@@ -1,7 +1,7 @@
 ---
 title: "Aime-toi d’abord"
 menu_title: ""
-description: "Aime-toi d’abord"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Mon enfant bien aimé, nous avons parlé du besoin humain d’amour humain et tu étais un peu déconcerté. »"
 date: 2022-06-01 06:00:01+00:269
 draft: False
 hidden: True

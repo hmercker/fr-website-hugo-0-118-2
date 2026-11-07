@@ -1,7 +1,7 @@
 ---
 title: "La loi d'activation est activée par la prière"
 menu_title: ""
-description: "La loi d'activation est activée par la prière"
+description: "Michaël Collier, reçu par Al Fike : « Comme vous le savez tous, le monde change et se transforme. Les façons de faire des affaires changent. »"
 date: 2022-06-01 06:00:01+00:1088
 draft: False
 hidden: True

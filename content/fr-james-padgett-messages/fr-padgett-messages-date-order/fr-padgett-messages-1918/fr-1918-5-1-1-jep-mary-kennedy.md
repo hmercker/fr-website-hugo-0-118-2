@@ -1,7 +1,7 @@
 ---
 title: "Mary progresse tout le temps"
 menu_title: ""
-description: "Mary progresse tout le temps"
+description: "Mary Kennedy, reçu par James Padgett : « Je sais qu’il se préoccupe tout le temps de moi, car je sais qu’il m’aime et, là où l’amour est présent, il ne … »"
 date: 2022-06-01 06:00:01+00:37
 draft: False
 hidden: True

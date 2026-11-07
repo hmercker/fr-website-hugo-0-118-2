@@ -1,7 +1,7 @@
 ---
 title: "Votre but et votre destin"
 menu_title: ""
-description: "Votre but et votre destin"
+description: "Jésus, reçu par Albert Fike : « Votre âme a été créée unique, précieuse et belle. En marchant sur ce plan terrestre, puissiez-vous comprendre la vérité … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

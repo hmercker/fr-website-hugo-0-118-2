@@ -1,7 +1,7 @@
 ---
 title: "Poursuite de l’éveil de l’âme"
 menu_title: ""
-description: "Poursuite de l’éveil de l’âme"
+description: "Orion, reçu par Albert Fike : « Vous avez accompli beaucoup de choses pendant votre temps ensemble. Vous avez pris conscience en vous de certaines … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

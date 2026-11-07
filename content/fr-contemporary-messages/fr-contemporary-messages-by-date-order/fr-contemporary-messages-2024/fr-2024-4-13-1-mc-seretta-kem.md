@@ -1,7 +1,7 @@
 ---
 title: "Découverte des attributs de l'âme"
 menu_title: ""
-description: "Découverte des attributs de l'âme"
+description: "Serett Kem, reçu par Maureen Cardoso : « Un mois est passé depuis le temps où nous avons été ensemble et que vous vous asseyez seul ou simultanément avec … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

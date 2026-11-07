@@ -1,7 +1,7 @@
 ---
 title: "Suivez votre cœur"
 menu_title: ""
-description: "Suivez votre cœur"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Quelle belle prière d’une belle âme ! Il y a tant de considérations pratiques dans la vie terrestre qui … »"
 date: 2023-09-01 06:00:01+00:36
 draft: False
 hidden: True

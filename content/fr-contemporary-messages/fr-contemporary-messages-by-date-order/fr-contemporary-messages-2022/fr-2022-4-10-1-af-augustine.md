@@ -1,7 +1,7 @@
 ---
 title: "Démystifie la réincarnation"
 menu_title: ""
-description: "Démystifie la réincarnation"
+description: "Augustin, reçu par Al Fike : « J’ai vécu dans le monde des esprits pendant plusieurs centaines d’années. J’ai grandi dans mon âme et j’ai progressé dans … »"
 date: 2022-06-01 06:00:01+00:62
 draft: False
 hidden: True

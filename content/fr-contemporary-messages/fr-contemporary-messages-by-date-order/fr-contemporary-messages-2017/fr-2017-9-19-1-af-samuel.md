@@ -1,7 +1,7 @@
 ---
 title: "C'est aujourd'hui que vous servez Dieu"
 menu_title: ""
-description: "C'est aujourd'hui que vous servez Dieu"
+description: "Samuel, reçu par Al Fike : « Lorsque vous êtes avec Dieu, ne permettez à rien de la nature matérielle et de votre mental de perturber et d'interférer avec … »"
 date: 2022-06-01 06:00:01+00:108
 draft: False
 hidden: True

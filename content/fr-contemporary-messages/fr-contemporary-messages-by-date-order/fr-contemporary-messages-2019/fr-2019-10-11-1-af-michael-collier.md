@@ -1,7 +1,7 @@
 ---
 title: "Les changements à venir dans les conditions de la terre"
 menu_title: ""
-description: "Les changements à venir dans les conditions de la terre"
+description: "Michaël Collier, reçu par Al Fike : « Veuillez continuer à prier pour eux. Pour le cher qui est mon homonyme, continuez à prier. »"
 date: 2022-06-01 06:00:01+00:875
 draft: False
 hidden: True

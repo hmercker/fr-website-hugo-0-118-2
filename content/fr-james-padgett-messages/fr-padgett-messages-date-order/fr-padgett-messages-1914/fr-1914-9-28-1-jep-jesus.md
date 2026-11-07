@@ -1,7 +1,7 @@
 ---
 title: "Ici, le Maître, lors de ses premiers messages, explique qui il était vraiment"
 menu_title: ""
-description: "Ici, le Maître, lors de ses premiers messages, explique qui il était vraiment"
+description: "Jésus, reçu par James Padgett : « Vous êtes mon vrai frère et vous aurez bientôt l’Amour de notre Père dans votre cœur. Ne soyez pas découragé ou accablé … »"
 date: 2022-06-01 06:00:01+00:18
 draft: False
 hidden: True

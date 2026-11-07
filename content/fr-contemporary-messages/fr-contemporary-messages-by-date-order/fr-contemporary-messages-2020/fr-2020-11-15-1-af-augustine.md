@@ -1,7 +1,7 @@
 ---
 title: "Sentir l’afflux de l’Amour Divin dans l’âme et sentir les barrières"
 menu_title: ""
-description: "Sentir l’afflux de l’Amour Divin dans l’âme et sentir les barrières"
+description: "Augustin, reçu par Al Fike : « Chers enfants, nous sommes très heureux, dans le Royaume Céleste, de vous voir ainsi réunis. »"
 date: 2022-06-01 06:00:01+00:1315
 draft: False
 hidden: True

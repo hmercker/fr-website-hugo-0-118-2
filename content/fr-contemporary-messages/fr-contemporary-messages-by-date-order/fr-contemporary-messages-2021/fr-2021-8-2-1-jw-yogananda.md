@@ -1,7 +1,7 @@
 ---
 title: "Votre cœur vous conduira à Dieu"
 menu_title: ""
-description: "Votre cœur vous conduira à Dieu"
+description: "Yogananda, reçu par Jimbeau Walsh : « Que la Grâce de notre Père Céleste soit sur vous comme une douce pluie remplie de Sa lumière et de Son amour dans la … »"
 date: 2022-06-01 06:00:01+00:1588
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Toute vérité commence avec l’âme éveillée dans l’Amour – Retraite F.U.S.C."
 menu_title: ""
-description: "Toute vérité commence avec l’âme éveillée dans l’Amour – Retraite F.U.S.C."
+description: "John Wesley, reçu par Al Fike : « Pour beaucoup d’entre vous, votre vie est un rêve dont vous devez vous réveiller. Car vous vivez dans vos pensées, et … »"
 date: 2022-06-01 06:00:01+00:409
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Être un véritable enfant de Dieu"
 menu_title: ""
-description: "Être un véritable enfant de Dieu"
+description: "Keea Atta Kem : « Vous devez réaliser qu'elles aussi, aussi hautement évoluées qu'elles soient, doivent se préparer à ce travail. »"
 date: 2022-06-01 06:00:01+00:123
 draft: False
 hidden: True

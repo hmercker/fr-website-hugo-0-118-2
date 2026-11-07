@@ -1,7 +1,7 @@
 ---
 title: "Le plus grand péché est contre l’Esprit Saint qui transmet l’Amour Divin dans l’âme"
 menu_title: ""
-description: "Le plus grand péché est contre l’Esprit Saint qui transmet l’Amour Divin dans l’âme"
+description: "Judas, reçu par James Padgett : « Maintenant, pour moi, pendant longtemps, le plus grand péché, dans tout l’univers de Dieu, fut mon péché de trahison de … »"
 date: 2022-06-01 06:00:01+00:301
 draft: False
 hidden: True

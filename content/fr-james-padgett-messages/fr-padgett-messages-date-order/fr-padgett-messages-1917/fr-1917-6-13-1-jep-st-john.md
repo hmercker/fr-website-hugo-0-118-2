@@ -1,7 +1,7 @@
 ---
 title: "Jean, l’ange gardien de M. Padgett, est très souvent avec lui et le conseille sur les exposés donnés par les différents conférenciers"
 menu_title: ""
-description: "Jean, l’ange gardien de M. Padgett, est très souvent avec lui et le conseille sur les exposés donnés par les différents conférenciers"
+description: "St Jean, reçu par James Padgett : « J’étais avec vous ce soir lors de l’exposé du conférencier, (sur la Nouvelle Pensée) et la présentation de ce qui n’a … »"
 date: 2022-06-01 06:00:01+00:145
 draft: False
 hidden: True

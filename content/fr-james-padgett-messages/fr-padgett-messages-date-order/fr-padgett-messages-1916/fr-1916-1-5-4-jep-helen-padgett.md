@@ -1,7 +1,7 @@
 ---
 title: "Confirmation que les esprits qui ont écrit l’ont effectivement fait"
 menu_title: ""
-description: "Confirmation que les esprits qui ont écrit l’ont effectivement fait"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, tu as eu une variété d’écrits ce soir, et j’ai été très impressionnée par le dernier message … »"
 date: 2022-06-01 06:00:01+00:119
 draft: False
 hidden: True

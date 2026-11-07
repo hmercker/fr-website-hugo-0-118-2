@@ -1,7 +1,7 @@
 ---
 title: "La longévité dans la première famille"
 menu_title: ""
-description: "La longévité dans la première famille"
+description: "Jael, reçu par FAB : « Vous vous demandez, étant donné que j'ai été témoin de la mort de mes parents à un âge anormalement avancé, cela ne signifie-t-il … »"
 date: 2022-06-01 06:00:01+00:120
 draft: False
 hidden: True

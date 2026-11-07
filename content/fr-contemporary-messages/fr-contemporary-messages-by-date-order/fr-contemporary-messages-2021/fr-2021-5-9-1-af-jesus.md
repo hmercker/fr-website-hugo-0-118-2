@@ -1,7 +1,7 @@
 ---
 title: "Bénédiction de la fête des mères"
 menu_title: ""
-description: "Bénédiction de la fête des mères"
+description: "Jésus, reçu par Al Fike : « Une multiplicité de bénédictions pour vous et pour ce monde, alors que Dieu continue à utiliser Ses canaux et Ses opportunités … »"
 date: 2022-06-01 06:00:01+00:1496
 draft: False
 hidden: True

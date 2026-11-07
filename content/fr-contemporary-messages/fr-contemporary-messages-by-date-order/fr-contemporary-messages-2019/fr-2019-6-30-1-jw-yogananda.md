@@ -1,7 +1,7 @@
 ---
 title: "Une douce pluie de lumière tombe sur la terre"
 menu_title: ""
-description: "Une douce pluie de lumière tombe sur la terre"
+description: "Yogananda, reçu par Jimbeau Walsh : « Imaginez que la Terre entière soit ouverte pour recevoir ce doux flux de Lumière et d'Amour du Père. »"
 date: 2022-06-01 06:00:01+00:761
 draft: False
 hidden: True

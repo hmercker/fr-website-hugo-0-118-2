@@ -1,7 +1,7 @@
 ---
 title: "Découvrir le fonctionnement des lois spirituelles dans votre vie grâce à l'étude et à l'observation"
 menu_title: ""
-description: "Découvrir le fonctionnement des lois spirituelles dans votre vie grâce à l'étude et à l'observation"
+description: "Jacques, reçu par Maureen Cardoso : « Vous m'attirez parmi vous par les désirs de votre âme, votre aspiration à l'Amour de Dieu, votre réceptivité à cet … »"
 date: 2026-09-22 06:00:00+00:00
 draft: False
 hidden: True

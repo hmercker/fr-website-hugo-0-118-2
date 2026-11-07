@@ -1,7 +1,7 @@
 ---
 title: "Les chocs du changement sont de véritables cadeaux"
 menu_title: ""
-description: "Les chocs du changement sont de véritables cadeaux"
+description: "G Gurdjieff, reçu par reçu par Jimbeau Walsh : « Le message de Noé est tellement pertinent en ces temps terrestres. L’essentiel de son message est … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

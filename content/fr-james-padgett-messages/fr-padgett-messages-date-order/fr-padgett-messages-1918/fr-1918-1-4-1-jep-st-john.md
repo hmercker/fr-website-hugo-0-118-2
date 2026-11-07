@@ -1,7 +1,7 @@
 ---
 title: "Lois du rapport, suite"
 menu_title: ""
-description: "Lois du rapport, suite"
+description: "St Jean, reçu par James Padgett : « Je désire écrire brièvement ce soir sur un sujet que je considère important et que vous pouvez considérer comme … »"
 date: 2022-06-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Élevez vos pensées"
 menu_title: ""
-description: "Élevez vos pensées"
+description: "Yogananda, reçu par Jimbeau Walsh : « Je souhaite faire un commentaire sur les pensées et non pas tant sur la façon dont les pensées deviennent des choses … »"
 date: 2022-06-01 06:00:01+00:836
 draft: False
 hidden: True

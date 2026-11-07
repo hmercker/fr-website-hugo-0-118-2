@@ -1,7 +1,7 @@
 ---
 title: "Intégration du portail"
 menu_title: ""
-description: "Intégration du portail"
+description: "Seretta Kem, reçu par Maureen Cardoso : « C’est un grand honneur de venir vous parler à tous les deux, alors que vous vous êtes réunis de cette manière … »"
 date: 2022-06-01 06:00:01+00:26
 draft: False
 hidden: True

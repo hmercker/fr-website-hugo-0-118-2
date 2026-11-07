@@ -1,7 +1,7 @@
 ---
 title: "Vous n'êtes jamais seul"
 menu_title: ""
-description: "Vous n'êtes jamais seul"
+description: "St Matthieu, reçu par Al Fike : « Que l'Amour soit sur vous, âmes bien-aimées et belles, frères et sœurs tous dans l'Amour du Père. »"
 date: 2022-06-01 06:00:01+00:715
 draft: False
 hidden: True

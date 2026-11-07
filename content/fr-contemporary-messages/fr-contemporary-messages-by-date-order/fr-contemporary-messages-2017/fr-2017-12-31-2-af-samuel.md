@@ -1,7 +1,7 @@
 ---
 title: "Message pour la Nouvelle Année"
 menu_title: ""
-description: "Message pour la Nouvelle Année"
+description: "Samuel, reçu par Al Fike : « Dieu a beaucoup de travail à vous faire faire et beaucoup de nouvelles âmes à rencontrer, beaucoup d'efforts de la part de … »"
 date: 2022-06-01 06:00:01+00:292
 draft: False
 hidden: True

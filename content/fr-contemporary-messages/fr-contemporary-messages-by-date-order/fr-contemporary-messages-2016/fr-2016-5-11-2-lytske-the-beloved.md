@@ -1,7 +1,7 @@
 ---
 title: "Votre plan de vie"
 menu_title: ""
-description: "Votre plan de vie"
+description: "Le bien-aimé, reçu par Lytske : « Le Bien-Aimé : « J’ai suivi vos pensées comme toujours et je souhaite commenter vos délibérations sur les personnalités … »"
 date: 2022-06-01 06:00:01+00:204
 draft: False
 hidden: True

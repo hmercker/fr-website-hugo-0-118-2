@@ -1,7 +1,7 @@
 ---
 title: "Avancer dans le monde par l'amour"
 menu_title: ""
-description: "Avancer dans le monde par l'amour"
+description: "Professeur Salyards, reçu par Al Fike : « Il n’est pas surprenant pour vous qu’il y ait des différences dans le monde, car ce monde est un endroit très … »"
 date: 2022-06-01 06:00:01+00:07
 draft: False
 hidden: True

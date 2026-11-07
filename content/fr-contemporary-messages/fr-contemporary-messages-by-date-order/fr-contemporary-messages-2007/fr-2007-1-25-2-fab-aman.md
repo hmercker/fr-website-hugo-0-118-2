@@ -1,7 +1,7 @@
 ---
 title: "Souvenirs et Espoir du Paradis"
 menu_title: ""
-description: "Souvenirs et Espoir du Paradis"
+description: "Aman, reçu par FAB : « En référence à mon message précédent, vous vous demandez si l'humanité a conservé un souvenir vague et inconscient de la vie avant … »"
 date: 2022-06-01 06:00:01+00:106
 draft: False
 hidden: True

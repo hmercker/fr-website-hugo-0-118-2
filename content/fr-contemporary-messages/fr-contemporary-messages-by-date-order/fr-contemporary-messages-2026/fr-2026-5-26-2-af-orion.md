@@ -1,7 +1,7 @@
 ---
 title: "Il nous encourage à nous engager dans le monde et à affronter directement ses nombreuses épreuves"
 menu_title: ""
-description: "Il nous encourage à nous engager dans le monde et à affronter directement ses nombreuses épreuves"
+description: "Orion, reçu par Albert Fike : « Je réalise à quel point il est difficile, sur votre plan terrestre, de rester continuellement concentré sur votre état … »"
 date: 2026-09-30 06:00:01+00:01
 draft: False
 hidden: True

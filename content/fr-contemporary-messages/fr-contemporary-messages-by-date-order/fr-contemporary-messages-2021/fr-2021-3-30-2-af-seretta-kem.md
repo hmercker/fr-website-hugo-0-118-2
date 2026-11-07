@@ -1,7 +1,7 @@
 ---
 title: "Le fleuve d’Amour de Dieu"
 menu_title: ""
-description: "Le fleuve d’Amour de Dieu"
+description: "Seretta Kem, reçu par Al Fike : « La rivière de l’Amour de Dieu continue de nous porter, n’est-ce pas ? En effet, ses eaux douces nous nourrissent, nous … »"
 date: 2022-06-01 06:00:01+00:1455
 draft: False
 hidden: True

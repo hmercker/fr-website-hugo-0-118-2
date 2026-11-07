@@ -1,7 +1,7 @@
 ---
 title: "Médiumnité d'Al et capacité de communiquer pour tous"
 menu_title: ""
-description: "Médiumnité d'Al et capacité de communiquer pour tous"
+description: "André, reçu par Al Fike : « Je souhaite parler un peu plus de la médiumnité et de cet instrument en ce qui concerne le travail que nous faisons ensemble. »"
 date: 2022-06-01 06:00:01+00:659
 draft: False
 hidden: True

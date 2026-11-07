@@ -1,7 +1,7 @@
 ---
 title: "Foi et Âme 6 : Ayez foi en la puissance de l’Amour de Dieu pour vous mettre en communion avec les anges et vous aligner sur Dieu"
 menu_title: ""
-description: "Foi et Âme 6 : Ayez foi en la puissance de l’Amour de Dieu pour vous mettre en communion avec les anges et vous aligner sur Dieu"
+description: "Jésus, reçu par Al Fike : « Vous avez obéi à la volonté et au plan de Dieu en voyageant, en vous connectant et en priant ensemble. »"
 date: 2026-05-24 16:00:01+00:01
 draft: False
 hidden: True

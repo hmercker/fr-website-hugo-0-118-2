@@ -1,7 +1,7 @@
 ---
 title: "La dualité de l'âme et de l'esprit"
 menu_title: ""
-description: "La dualité de l'âme et de l'esprit"
+description: "Sri Yukteswar, reçu par Al Fike : « Que l'amour de Dieu trouve une place profonde dans votre cœur. Je souhaite vous dire que dans les Royaumes des Cieux … »"
 date: 2022-06-01 06:00:01+00:705
 draft: False
 hidden: True

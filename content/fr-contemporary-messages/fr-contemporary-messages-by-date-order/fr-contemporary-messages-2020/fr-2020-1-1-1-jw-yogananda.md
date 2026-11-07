@@ -1,7 +1,7 @@
 ---
 title: "Le chemin de la transformation et de l’illumination"
 menu_title: ""
-description: "Le chemin de la transformation et de l’illumination"
+description: "Yogananda, reçu par Jimbeau Walsh : « S'il était possible de devenir éclairé, comme on dit, en lisant tous les livres et en écoutant la bonne musique, en … »"
 date: 2022-06-01 06:00:01+00:970
 draft: False
 hidden: True

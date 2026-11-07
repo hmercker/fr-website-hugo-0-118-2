@@ -1,7 +1,7 @@
 ---
 title: "76ème Sermon – Jésus, sur la terre, a été impressionné par les écrits de Zacharie"
 menu_title: ""
-description: "76ème Sermon – Jésus, sur la terre, a été impressionné par les écrits de Zacharie"
+description: "Jésus, reçu par Dr Samuels : « Avec le neuvième chapitre de Zacharie, il est nécessaire de faire une pause et faire quelques commentaires. »"
 date: 2022-06-01 06:00:01+00:129
 draft: False
 hidden: True

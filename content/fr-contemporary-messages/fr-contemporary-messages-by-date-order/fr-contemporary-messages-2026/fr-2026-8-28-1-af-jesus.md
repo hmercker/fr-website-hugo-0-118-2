@@ -1,7 +1,7 @@
 ---
 title: "Il est temps d’avancer dans le service Divin"
 menu_title: ""
-description: "Il est temps d’avancer dans le service Divin"
+description: "Jésus, reçu par Albert Fike : « Même sur un chemin qui peut sembler difficile, voire impossible, si telle est la volonté de Dieu, alors Sa volonté … »"
 date: 2026-11-05 06:00:01+00:01
 draft: False
 hidden: True

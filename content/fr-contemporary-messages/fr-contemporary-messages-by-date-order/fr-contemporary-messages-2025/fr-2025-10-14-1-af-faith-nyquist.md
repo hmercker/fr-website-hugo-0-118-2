@@ -1,7 +1,7 @@
 ---
 title: "Ancrez votre vie dans la prière"
 menu_title: ""
-description: "Ancrez votre vie dans la prière"
+description: "Faith Nyquist, reçu par Albert Fike : « Faites de la prière l'ancre de votre vie, mes amis. Lorsque vous érigez votre magnifique tente de lumière … »"
 date: 2025-12-12 16:00:01+00:01
 draft: False
 hidden: True

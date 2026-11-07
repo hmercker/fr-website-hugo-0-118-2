@@ -1,7 +1,7 @@
 ---
 title: "Guerre et paix et le plan de Dieu Partie 3"
 menu_title: ""
-description: "Guerre et paix et le plan de Dieu Partie 3"
+description: "Jésus, reçu par FAB : « Permettez-moi de poursuivre ma discussion sur la guerre et la paix en relation avec le Plan de Dieu, car vous ne vous sentez … »"
 date: 2022-06-01 06:00:01+00:97
 draft: False
 hidden: True

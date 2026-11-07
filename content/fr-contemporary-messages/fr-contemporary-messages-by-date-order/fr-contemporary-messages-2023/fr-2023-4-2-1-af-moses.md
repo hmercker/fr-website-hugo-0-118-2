@@ -1,7 +1,7 @@
 ---
 title: "Surmonter les exigences du monde"
 menu_title: ""
-description: "Surmonter les exigences du monde"
+description: "Moïse, reçu par Al Fike : « Que la grande bénédiction de l’Amour du Père arrive sur chacune de vos âmes. Vous vivez sur une Terre qui vous tire dans de … »"
 date: 2023-09-01 06:00:01+00:111
 draft: False
 hidden: True

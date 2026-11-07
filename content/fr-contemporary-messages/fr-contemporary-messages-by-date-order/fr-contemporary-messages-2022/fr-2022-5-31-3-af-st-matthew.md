@@ -1,7 +1,7 @@
 ---
 title: "Être une expression de l'amour et de la lumière de Dieu"
 menu_title: ""
-description: "Être une expression de l'amour et de la lumière de Dieu"
+description: "St Matthieu, reçu par Al Fike : « Âmes bien-aimées, chacun d’entre vous est une lumière. Marchez dans le monde comme cette lumière. »"
 date: 2023-09-01 06:00:01+00:31
 draft: False
 hidden: True

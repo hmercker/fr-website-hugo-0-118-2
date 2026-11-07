@@ -1,7 +1,7 @@
 ---
 title: "La Joie"
 menu_title: ""
-description: "La Joie"
+description: "Jésus (Yeshua ben Yosef), reçu par Jane Gartshore : « Je souhaite parler de la joie. Pour beaucoup, la joie est insaisissable en ces temps. »"
 date: 2022-07-10 06:25:48+00:80
 draft: False
 hidden: True

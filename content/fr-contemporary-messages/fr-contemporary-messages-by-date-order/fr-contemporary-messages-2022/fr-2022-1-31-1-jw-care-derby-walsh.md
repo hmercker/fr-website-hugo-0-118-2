@@ -1,7 +1,7 @@
 ---
 title: "C’est une question de cœur"
 menu_title: ""
-description: "C’est une question de cœur"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Car le chemin du cœur est vivant et bien vivant dans ce cercle et au-delà. Ceux qui peuvent ouvrir leur cœur … »"
 date: 2022-06-01 06:00:01+00:22
 draft: False
 hidden: True

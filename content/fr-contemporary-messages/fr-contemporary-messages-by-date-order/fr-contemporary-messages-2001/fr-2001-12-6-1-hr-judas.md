@@ -1,7 +1,7 @@
 ---
 title: "La méditation"
 menu_title: ""
-description: "La méditation"
+description: "Judas, reçu par H : « Tu n’as pas écrit ce que je t’ai dit à midi. Non, rien ne manque, tu as tout reçu. »"
 date: 2022-06-01 06:00:01+00:94
 draft: False
 hidden: True

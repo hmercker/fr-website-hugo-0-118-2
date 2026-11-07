@@ -1,7 +1,7 @@
 ---
 title: "Hélène commente le sermon du prédicateur"
 menu_title: ""
-description: "Hélène commente le sermon du prédicateur"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, je vois que tu n’as pas été très éclairé par le discours du prédicateur (Dr Swain) ce soir … »"
 date: 2022-06-01 06:00:01+00:21
 draft: False
 hidden: True

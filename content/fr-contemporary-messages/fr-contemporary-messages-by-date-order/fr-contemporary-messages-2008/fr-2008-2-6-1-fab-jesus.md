@@ -1,7 +1,7 @@
 ---
 title: "Quelle est la vérité sur l'évolution - 3"
 menu_title: ""
-description: "Quelle est la vérité sur l'évolution - 3"
+description: "Jésus, reçu par FAB : « Les esprits Célestes étant principalement préoccupés par les Vérités supérieures impliquant l'Amour Divin, nous ne sommes pas … »"
 date: 2022-06-01 06:00:01+00:19
 draft: False
 hidden: True

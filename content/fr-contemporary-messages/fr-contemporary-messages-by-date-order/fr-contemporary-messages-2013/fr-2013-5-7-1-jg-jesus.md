@@ -1,7 +1,7 @@
 ---
 title: "Paix, deuxième partie"
 menu_title: ""
-description: "Paix, deuxième partie"
+description: "Jésus, reçu par Jane Gartshore : « Le thème du message de ce soir est la paix qui dépasse l’entendement. Ce que vous devez comprendre de cette paix, c’est … »"
 date: 2022-06-01 06:00:01+00:56
 draft: False
 hidden: True

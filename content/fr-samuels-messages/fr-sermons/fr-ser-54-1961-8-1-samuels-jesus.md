@@ -1,7 +1,7 @@
 ---
 title: "54ème Sermon – Habacuc, chanteur et étudiant des Psaumes"
 menu_title: ""
-description: "54ème Sermon – Habacuc, chanteur et étudiant des Psaumes"
+description: "Jésus, reçu par Dr Samuels : « Vous avez vu que, chaque fois qu’une menace, de la part d’une puissance militaire étrangère, se profile contre Israël et … »"
 date: 2022-06-01 06:00:01+00:107
 draft: False
 hidden: True

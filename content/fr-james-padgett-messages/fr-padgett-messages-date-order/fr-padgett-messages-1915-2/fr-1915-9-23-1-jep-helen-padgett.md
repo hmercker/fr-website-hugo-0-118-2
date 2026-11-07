@@ -1,7 +1,7 @@
 ---
 title: "Hélène affirme que R.G Ingersoll a écrit"
 menu_title: ""
-description: "Hélène affirme que R.G Ingersoll a écrit"
+description: "Hélène Padgett, reçu par James Padgett : « Il étudie et prie comme il le dit, et très bientôt, je crois, il trouvera le chemin, la vérité et la lumière. »"
 date: 2022-06-01 06:00:01+00:265
 draft: False
 hidden: True

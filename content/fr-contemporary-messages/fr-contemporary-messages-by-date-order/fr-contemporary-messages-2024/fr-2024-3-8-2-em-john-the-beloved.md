@@ -1,7 +1,7 @@
 ---
 title: "Apprenez à connaître vos propres capacités"
 menu_title: ""
-description: "Apprenez à connaître vos propres capacités"
+description: "Jean le Bien Aimé, reçu par Elizabeth Mack : « Je m'avancerai pour parler à cette congrégation de belles âmes. Vous avez un tel amour dans vos âmes, comme … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

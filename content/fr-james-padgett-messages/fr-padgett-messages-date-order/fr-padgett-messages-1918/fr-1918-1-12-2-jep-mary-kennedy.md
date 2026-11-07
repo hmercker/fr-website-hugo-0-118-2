@@ -1,7 +1,7 @@
 ---
 title: "Mary Kennedy dit que peu importe le nombre d’épouses que Leslie a pu avoir, aucune d’entre elles ne peut être son âme sœur, seulement moi"
 menu_title: ""
-description: "Mary Kennedy dit que peu importe le nombre d’épouses que Leslie a pu avoir, aucune d’entre elles ne peut être son âme sœur, seulement moi"
+description: "Mary Kennedy, reçu par James Padgett : « N’est-ce pas une chose glorieuse ? Peu importe le nombre d’épouses qu’il peut avoir, aucune d’entre elles ne peut … »"
 date: 2022-06-01 06:00:01+00:07
 draft: False
 hidden: True

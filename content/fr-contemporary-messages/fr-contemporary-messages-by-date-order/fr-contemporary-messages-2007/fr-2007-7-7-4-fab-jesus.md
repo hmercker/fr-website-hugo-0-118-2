@@ -1,7 +1,7 @@
 ---
 title: "Meher Baba"
 menu_title: ""
-description: "Meher Baba"
+description: "Jésus, reçu par FAB : « Je souhaite parler de Meher Baba, comme l'a demandé un collègue de l'église. Sur Terre, il s'est considérablement développé dans … »"
 date: 2022-06-01 06:00:01+00:134
 draft: False
 hidden: True

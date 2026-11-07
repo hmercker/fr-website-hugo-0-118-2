@@ -1,7 +1,7 @@
 ---
 title: "Je vous guiderai"
 menu_title: ""
-description: "Je vous guiderai"
+description: "Robert James Lees, reçu par Jimbeau Walsh : « J’ai suivi aujourd’hui ce que vous avez perçu, avec beaucoup de bonheur et de gratitude. Je serais, bien … »"
 date: 2022-06-01 06:00:01+00:1546
 draft: False
 hidden: True

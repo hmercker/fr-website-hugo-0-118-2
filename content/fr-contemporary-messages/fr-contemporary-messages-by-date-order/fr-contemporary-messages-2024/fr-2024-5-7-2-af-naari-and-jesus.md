@@ -1,7 +1,7 @@
 ---
 title: "Se présente comme l'un des anges Célestes anonymes qui viennent nous administrer à tous la guérison, la bénédiction de la guérison"
 menu_title: ""
-description: "Se présente comme l'un des anges Célestes anonymes qui viennent nous administrer à tous la guérison, la bénédiction de la guérison"
+description: "Naari et Jésus, reçu par Albert Fike : « Bien que ma vie ait été vécue dans l’obscurité, nous sommes nombreux à vivre dans cet endroit exalté et à avoir … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

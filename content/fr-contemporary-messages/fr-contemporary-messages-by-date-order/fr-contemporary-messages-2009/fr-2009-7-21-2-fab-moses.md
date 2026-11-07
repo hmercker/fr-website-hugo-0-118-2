@@ -1,7 +1,7 @@
 ---
 title: "Préparation de Moïse à l’approche Hébraïque de Dieu – 2"
 menu_title: ""
-description: "Préparation de Moïse à l’approche Hébraïque de Dieu – 2"
+description: "Moïse, reçu par FAB : « Lorsque Joseph est venu en Égypte, il a apporté avec lui une foi intense en Dieu, qu’il avait apprise de ses parents, Jacob et Rachel. »"
 date: 2022-06-01 06:00:01+00:68
 draft: False
 hidden: True

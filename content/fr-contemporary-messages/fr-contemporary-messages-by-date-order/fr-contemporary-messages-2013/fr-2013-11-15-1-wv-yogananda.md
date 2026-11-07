@@ -1,7 +1,7 @@
 ---
 title: "Transcender ses émotions"
 menu_title: ""
-description: "Transcender ses émotions"
+description: "Yogananda, reçu par WV : « Aujourd’hui, je voudrais vous dire quelque chose sur les émotions terrestres ; le chagrin, la douleur, la colère, la tristesse … »"
 date: 2022-06-01 06:00:01+00:72
 draft: False
 hidden: True

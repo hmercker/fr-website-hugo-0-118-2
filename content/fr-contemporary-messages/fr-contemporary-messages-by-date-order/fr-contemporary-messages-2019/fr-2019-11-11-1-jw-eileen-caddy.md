@@ -1,7 +1,7 @@
 ---
 title: "Ne soyez regardé par personne d'autre que Dieu"
 menu_title: ""
-description: "Ne soyez regardé par personne d'autre que Dieu"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « Je souhaite vous transmettre à tous quelque chose de très simple. Ne soyez redevables à personne, sauf à Dieu. »"
 date: 2022-06-01 06:00:01+00:905
 draft: False
 hidden: True

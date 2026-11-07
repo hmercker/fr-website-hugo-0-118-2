@@ -1,7 +1,7 @@
 ---
 title: "Mary écrit qu’elle a à la fois faim et soif de l’amour du Dr Stone"
 menu_title: ""
-description: "Mary écrit qu’elle a à la fois faim et soif de l’amour du Dr Stone"
+description: "Mary Kennedy, reçu par James Padgett : « Laissez-moi dire un mot et je serai satisfaite, car j’ai tellement envie de dire à Leslie que j’ai faim et soif … »"
 date: 2022-06-01 06:00:01+00:111
 draft: False
 hidden: True

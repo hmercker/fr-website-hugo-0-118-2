@@ -1,7 +1,7 @@
 ---
 title: "Prière et réponse"
 menu_title: ""
-description: "Prière et réponse"
+description: "Marie, reçu par Amada Réza : « Il existe de nombreuses raisons pour lesquelles l’âme recherche l’aide supérieure que Dieu offre à ses enfants dans son … »"
 date: 2022-06-01 06:00:01+00:25
 draft: False
 hidden: True

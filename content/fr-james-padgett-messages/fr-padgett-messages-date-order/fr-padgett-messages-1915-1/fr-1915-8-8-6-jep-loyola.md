@@ -1,7 +1,7 @@
 ---
 title: "Loyola est une adepte du Maître et un habitant du Royaume du Père"
 menu_title: ""
-description: "Loyola est une adepte du Maître et un habitant du Royaume du Père"
+description: "Loyola, reçu par James Padgett : « Je fus un persécuteur de ceux qui différaient de moi dans ma vision des choses et du devoir religieux et, par … »"
 date: 2022-06-01 06:00:01+00:183
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Décrit les bienfaits de la respiration"
 menu_title: ""
-description: "Décrit les bienfaits de la respiration"
+description: "Fleur de Lotus, reçu par Albert Fike : « On vous a dit que nous travaillons avec vous sur le système nerveux, aidant votre corps physique à libérer les … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

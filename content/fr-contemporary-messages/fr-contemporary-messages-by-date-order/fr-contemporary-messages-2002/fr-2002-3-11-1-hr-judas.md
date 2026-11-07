@@ -1,7 +1,7 @@
 ---
 title: "Marie Madeleine"
 menu_title: ""
-description: "Marie Madeleine"
+description: "Judas, reçu par H : « Je pense que tu es conscient que notre histoire a déjà atteint l’année 26. Quelques années plus tôt Hérode Antipas avait ordonné la … »"
 date: 2022-06-01 06:00:01+00:35
 draft: False
 hidden: True

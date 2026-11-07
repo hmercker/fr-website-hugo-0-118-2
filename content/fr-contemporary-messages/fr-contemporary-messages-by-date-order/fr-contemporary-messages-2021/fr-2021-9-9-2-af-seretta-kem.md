@@ -1,7 +1,7 @@
 ---
 title: "Notre magnifique voyage ensemble"
 menu_title: ""
-description: "Notre magnifique voyage ensemble"
+description: "Seretta Kem, reçu par Al Fike : « Certains d’entre vous commencent à se familiariser avec ce que nous faisons en matière de développement avec ce groupe. »"
 date: 2022-06-01 06:00:01+00:1631
 draft: False
 hidden: True

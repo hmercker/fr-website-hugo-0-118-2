@@ -1,7 +1,7 @@
 ---
 title: "Leçon 6 : La nature de la réalité"
 menu_title: ""
-description: "Leçon 6 : La nature de la réalité"
+description: "Jésus, reçu par Al Fike : « Bénédictions pour vous, âmes bien-aimées. En effet, vous avez prié pour être un instrument, un canal d'amour, pour être au … »"
 date: 2022-06-01 06:00:01+00:125
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Notre âme et la loi de l’attraction"
 menu_title: ""
-description: "Notre âme et la loi de l’attraction"
+description: "Confucius, reçu par Al Fike : « Pourtant, ne sentez-vous pas tous que vous faites partie d’une seule famille, une famille précieuse dans la lumière de … »"
 date: 2022-06-01 06:00:01+00:13
 draft: False
 hidden: True

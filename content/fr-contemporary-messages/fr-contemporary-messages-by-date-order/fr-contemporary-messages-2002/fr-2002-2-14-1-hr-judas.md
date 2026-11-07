@@ -1,7 +1,7 @@
 ---
 title: "Vivre dans ce monde, sans en faire partie"
 menu_title: ""
-description: "Vivre dans ce monde, sans en faire partie"
+description: "Judas, reçu par H : « Ce carnaval fut fabuleux ! Lundi tu as passé un bon moment, presque sans alcool, bavardant et jouant au poker. »"
 date: 2022-06-01 06:00:01+00:23
 draft: False
 hidden: True

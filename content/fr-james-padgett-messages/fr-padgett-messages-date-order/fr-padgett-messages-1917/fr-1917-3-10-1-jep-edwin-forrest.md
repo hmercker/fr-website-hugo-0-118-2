@@ -1,7 +1,7 @@
 ---
 title: "Edwin Forrest écrit qu’il progresse et est capable de voir la lumière"
 menu_title: ""
-description: "Edwin Forrest écrit qu’il progresse et est capable de voir la lumière"
+description: "Edwin Forrest, reçu par James Padgett : « Eh bien, Ned, je reviens , mais je ne te retiendrai pas longtemps, car je souhaite simplement te dire que je … »"
 date: 2022-06-01 06:00:01+00:80
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L'humilité et la foi grandissent à mesure que vous recevez l'amour divin dans votre âme"
 menu_title: ""
-description: "L'humilité et la foi grandissent à mesure que vous recevez l'amour divin dans votre âme"
+description: "Faith, reçu par Albert Fike : « Non seulement cela vous apporte la substance de Dieu à travers les désirs de votre amour et la diffusion de votre essence … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

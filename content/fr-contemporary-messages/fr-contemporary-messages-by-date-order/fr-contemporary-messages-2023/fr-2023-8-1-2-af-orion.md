@@ -1,7 +1,7 @@
 ---
 title: "Vivre dans la joie de l’Amour de Dieu"
 menu_title: ""
-description: "Vivre dans la joie de l’Amour de Dieu"
+description: "Orion, reçu par Albert Fike : « La joie de vivre, la joie d’être engagé dans ce grand don qu’est la vie. Car c’est dans cette reconnaissance, cette … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Assumez la responsabilité de vos pensées"
 menu_title: ""
-description: "Assumez la responsabilité de vos pensées"
+description: "Orion, reçu par Albert Fike : « C’est quelque chose qui est si nécessaire dans votre monde. Vous ouvrez la voie aux autres. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

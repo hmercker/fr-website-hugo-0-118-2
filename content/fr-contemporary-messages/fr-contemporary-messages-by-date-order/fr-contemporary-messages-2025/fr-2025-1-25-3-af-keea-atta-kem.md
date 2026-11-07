@@ -1,7 +1,7 @@
 ---
 title: "Éveillez-vous à la sagesse et aux aspirations de votre âme"
 menu_title: ""
-description: "Éveillez-vous à la sagesse et aux aspirations de votre âme"
+description: "Keea Atta Kem, reçu par Albert Fike : « Je vous invite à laisser votre esprit se détendre, votre cœur s’ouvrir, à avoir confiance et foi que, dans votre … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

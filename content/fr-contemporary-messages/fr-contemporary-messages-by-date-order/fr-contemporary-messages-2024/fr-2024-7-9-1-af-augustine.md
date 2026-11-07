@@ -1,7 +1,7 @@
 ---
 title: "Une leçon importante pour développer la médiumnité de l’Amour Divin"
 menu_title: ""
-description: "Une leçon importante pour développer la médiumnité de l’Amour Divin"
+description: "Augustin, reçu par Albert Fike : « Cet instrument bien-aimé n’a pas à se soucier des préoccupations matérielles lors de ses voyages et dans son ministère. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

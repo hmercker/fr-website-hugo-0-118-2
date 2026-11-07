@@ -1,7 +1,7 @@
 ---
 title: "Conseils sur notre but et nos besoins"
 menu_title: ""
-description: "Conseils sur notre but et nos besoins"
+description: "Augustin, reçu par Al Fike : « Il est bon que vous priiez pour ces Portails de Lumière, âmes bien-aimées. Tout comme la chère âme (M) a été guidée à … »"
 date: 2022-06-01 06:00:01+00:606
 draft: False
 hidden: True

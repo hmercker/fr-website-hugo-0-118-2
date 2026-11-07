@@ -1,7 +1,7 @@
 ---
 title: "Préoccupations des mortels"
 menu_title: ""
-description: "Préoccupations des mortels"
+description: "Jésus, reçu par FAB : « Comme je l'ai déjà dit, nous ne sommes pas indifférents aux préoccupations des mortels, pour deux raisons : (1) nous aimons nos … »"
 date: 2022-06-01 06:00:01+00:167
 draft: False
 hidden: True

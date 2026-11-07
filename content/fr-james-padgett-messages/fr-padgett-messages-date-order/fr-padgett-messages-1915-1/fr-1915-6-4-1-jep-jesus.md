@@ -1,7 +1,7 @@
 ---
 title: "Pourquoi les hommes doivent recevoir cet Amour Divin afin d’être admis dans le Royaume Céleste"
 menu_title: ""
-description: "Pourquoi les hommes doivent recevoir cet Amour Divin afin d’être admis dans le Royaume Céleste"
+description: "Jésus, reçu par James Padgett : « Mon cher frère, vous avez, cette nuit, en grande partie, l’Amour du Père dans votre âme, et je vois que vous êtes très … »"
 date: 2022-06-01 06:00:01+00:95
 draft: False
 hidden: True

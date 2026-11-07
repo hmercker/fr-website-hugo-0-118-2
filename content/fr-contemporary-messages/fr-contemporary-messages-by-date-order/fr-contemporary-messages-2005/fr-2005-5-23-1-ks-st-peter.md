@@ -1,7 +1,7 @@
 ---
 title: "Répandre la vérité par l'Amour"
 menu_title: ""
-description: "Répandre la vérité par l'Amour"
+description: "St Pierre, reçu par Kathryn Stokes : « Mais comme vous le savez parfaitement, l'état d'esprit d'une personne est un puissant moyen de dissuasion pour … »"
 date: 2022-06-01 06:00:01+00:48
 draft: False
 hidden: True

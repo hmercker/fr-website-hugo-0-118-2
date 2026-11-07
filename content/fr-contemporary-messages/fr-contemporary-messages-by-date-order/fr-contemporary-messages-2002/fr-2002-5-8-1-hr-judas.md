@@ -1,7 +1,7 @@
 ---
 title: "L’âme de Dieu"
 menu_title: ""
-description: "L’âme de Dieu"
+description: "Judas, reçu par H : « Tu as raison, mon cher frère, il est inutile d’attendre un moment défini pour publier un livre de nos messages. »"
 date: 2022-06-01 06:00:01+00:66
 draft: False
 hidden: True

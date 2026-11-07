@@ -1,7 +1,7 @@
 ---
 title: "Parle sur nos dons et nos destinées"
 menu_title: ""
-description: "Parle sur nos dons et nos destinées"
+description: "Flavius Josèphe, reçu par Albert Fike : « Que les bénédictions de l’Amour du Père pénètrent dans vos âmes. C’est le destin de cet Amour. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

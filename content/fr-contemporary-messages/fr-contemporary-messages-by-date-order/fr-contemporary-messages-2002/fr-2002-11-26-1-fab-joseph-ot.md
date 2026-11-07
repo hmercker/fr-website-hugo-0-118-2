@@ -1,7 +1,7 @@
 ---
 title: "Joseph explique qu’il s’agit d’un travail important"
 menu_title: ""
-description: "Joseph explique qu’il s’agit d’un travail important"
+description: "Joseph (AT), reçu par FAB : « Il dit qu’il écrira éventuellement des messages à travers vous. Il y a beaucoup de choses sur sa vie qu’il aimerait voir … »"
 date: 2022-06-01 06:00:01+00:93
 draft: False
 hidden: True

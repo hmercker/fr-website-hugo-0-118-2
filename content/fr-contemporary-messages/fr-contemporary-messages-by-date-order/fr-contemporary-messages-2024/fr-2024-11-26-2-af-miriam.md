@@ -1,7 +1,7 @@
 ---
 title: "Continuez à être une lumière dans le monde de Dieu"
 menu_title: ""
-description: "Continuez à être une lumière dans le monde de Dieu"
+description: "Miriam, reçu par Albert Fike : « Que les bénédictions de Dieu remplissent vos âmes, afin qu’elles débordent d’Amour. Vous me connaissez sous le nom de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

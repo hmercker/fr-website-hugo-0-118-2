@@ -1,7 +1,7 @@
 ---
 title: "Entrerai bientôt dans les Cieux Célestes"
 menu_title: ""
-description: "Entrerai bientôt dans les Cieux Célestes"
+description: "James Reid, reçu par Al Fike : « Je réside actuellement dans la septième sphère et je me suis frayé un chemin jusqu’au sommet de cette sphère de vie à … »"
 date: 2022-06-01 06:00:01+00:1552
 draft: False
 hidden: True

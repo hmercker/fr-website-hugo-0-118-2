@@ -1,7 +1,7 @@
 ---
 title: "Le treillis de la lumière a de nombreuses fonctions"
 menu_title: ""
-description: "Le treillis de la lumière a de nombreuses fonctions"
+description: "Augustin, reçu par Al Fike : « Âmes bien-aimées, c'est votre maître Augustin qui est venu vous parler aujourd'hui, belles âmes réparties à travers ce … »"
 date: 2022-06-01 06:00:01+00:795
 draft: False
 hidden: True

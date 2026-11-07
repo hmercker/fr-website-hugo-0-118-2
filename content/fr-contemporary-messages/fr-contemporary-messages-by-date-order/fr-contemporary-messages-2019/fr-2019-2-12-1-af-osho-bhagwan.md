@@ -1,7 +1,7 @@
 ---
 title: "L'Amour de Dieu est la véritable voie de la libération"
 menu_title: ""
-description: "L'Amour de Dieu est la véritable voie de la libération"
+description: "Osho Bhagwan, reçu par Al Fike : « J’ai beaucoup appris pendant le temps que j’ai passé dans le corps spirituel, et je souhaite faire des commentaires sur … »"
 date: 2022-06-01 06:00:01+00:642
 draft: False
 hidden: True

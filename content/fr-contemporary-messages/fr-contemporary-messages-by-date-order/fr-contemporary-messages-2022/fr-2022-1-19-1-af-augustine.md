@@ -1,7 +1,7 @@
 ---
 title: "Réponse à la demande de conseil"
 menu_title: ""
-description: "Réponse à la demande de conseil"
+description: "Augustin, reçu par Al Fike : « Si vous avez décidé de servir Dieu et de mettre en mouvement les aspects du plan matériel qui requièrent votre attention … »"
 date: 2022-06-01 06:00:01+00:15
 draft: False
 hidden: True

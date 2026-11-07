@@ -1,7 +1,7 @@
 ---
 title: "La sœur de docteur Stone lui parle de son travail dans le monde des esprits et l’informe que ses efforts pour aider les esprits à se tourner vers le Père pour recevoir Son Amour ont des résultats positifs"
 menu_title: ""
-description: "La sœur de docteur Stone lui parle de son travail dans le monde des esprits et l’informe que ses efforts pour aider les esprits à se tourner vers le Père pour recevoir Son Amour ont des résultats positifs"
+description: "Kate Stone, reçu par James Padgett : « Dites à mon frère que ce qu’il a entendu, il y a quelques nuits, à mon sujet, est vrai. Le fait d’être un … »"
 date: 2022-06-01 06:00:01+00:151
 draft: False
 hidden: True

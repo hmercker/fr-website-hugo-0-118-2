@@ -1,7 +1,7 @@
 ---
 title: "L’instrumentalité du Dr Samuels sert un double objectif"
 menu_title: ""
-description: "L’instrumentalité du Dr Samuels sert un double objectif"
+description: "Jésus, reçu par Dr Samuels : « Je sais que ma venue, de nouveau, vous surprend puisque vous ne pensiez pas que je reviendrais. »"
 date: 2022-06-01 06:00:01+00:07
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Dans les bras du Ciel, tu demeureras"
 menu_title: ""
-description: "Dans les bras du Ciel, tu demeureras"
+description: "Elizabeth Barret Browning, reçu par Jimbeau Walsh : « Que votre jardin change sans cesse Les fleurs se réarrangent Dans la gloire éternelle Des teintes … »"
 date: 2023-09-01 06:00:01+00:91
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La personnalité de Whitman en tant que poète et personne"
 menu_title: ""
-description: "La personnalité de Whitman en tant que poète et personne"
+description: "Walt Whitman, reçu par FAB : « Permettez-moi d'élaborer sur ma canalisation du 4 Janvier 2005. J'y ai dit : « Alors que j'étais en fait différent, dans la … »"
 date: 2022-06-01 06:00:01+00:58
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Félicitez-nous pour notre force, notre persévérance et nos choix au service de Dieu"
 menu_title: ""
-description: "Félicitez-nous pour notre force, notre persévérance et nos choix au service de Dieu"
+description: "André, reçu par Albert Fike : « Votre Terre dort dans l’acquiescement. Elle sommeille dans l’apathie. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "70ème Sermon – Jésus a utilisé les premières lignes du troisième Isaïe lorsqu’il a parlé à Nazareth"
 menu_title: ""
-description: "70ème Sermon – Jésus a utilisé les premières lignes du troisième Isaïe lorsqu’il a parlé à Nazareth"
+description: "Jésus, reçu par Dr Samuels ler Septembre : « Ces grandes lignes du Troisième Isaïe ont eu une importance considérable pour ceux qui ont entendu son discours. »"
 date: 2022-06-01 06:00:01+00:123
 draft: False
 hidden: True

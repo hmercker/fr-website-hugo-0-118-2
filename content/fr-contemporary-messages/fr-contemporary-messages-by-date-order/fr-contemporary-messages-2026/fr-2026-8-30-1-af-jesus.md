@@ -1,7 +1,7 @@
 ---
 title: "De la confusion du mental à la sagesse de l'âme"
 menu_title: ""
-description: "De la confusion du mental à la sagesse de l'âme"
+description: "Jésus, reçu par Albert Fike : « Ouvrez grand les aspirations de votre âme vers Dieu, désireux de recevoir la bénédiction de Son Toucher et les grâces de … »"
 date: 2026-10-12 06:00:01+00:01
 draft: False
 hidden: True

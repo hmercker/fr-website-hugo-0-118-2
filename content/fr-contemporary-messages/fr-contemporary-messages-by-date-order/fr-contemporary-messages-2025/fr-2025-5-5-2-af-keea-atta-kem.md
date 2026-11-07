@@ -1,7 +1,7 @@
 ---
 title: "L'importance de se réunir en personne"
 menu_title: ""
-description: "L'importance de se réunir en personne"
+description: "Keea Atta Kem, reçu par Albert Fike : « Vous avez évoqué l’importance de se réunir en chair et en os. Cela nous permet de mélanger les énergies. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

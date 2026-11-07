@@ -1,7 +1,7 @@
 ---
 title: "Votre vérité est plus élevée et plus puissante"
 menu_title: ""
-description: "Votre vérité est plus élevée et plus puissante"
+description: "Matthieu, reçu par Al Fike : « Il y a beaucoup de mortels dans votre monde qui ont revêtu le manteau d'enseignant et qui ont confiance dans les mots … »"
 date: 2022-06-01 06:00:01+00:749
 draft: False
 hidden: True

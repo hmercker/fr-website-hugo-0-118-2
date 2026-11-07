@@ -1,7 +1,7 @@
 ---
 title: "Choisissez de faire partie d'un monde plus harmonieux"
 menu_title: ""
-description: "Choisissez de faire partie d'un monde plus harmonieux"
+description: "Michael Collier, reçu par Albert Fike : « Elle vous submergera, vous et tous les habitants de ce monde. Ce n’est pas la vague de la peur. »"
 date: 2025-11-10 06:00:01+00:01
 draft: False
 hidden: True

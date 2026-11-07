@@ -1,7 +1,7 @@
 ---
 title: "Différences de perception entre le mental matériel et le mental de l'âme"
 menu_title: ""
-description: "Différences de perception entre le mental matériel et le mental de l'âme"
+description: "Matthieu, reçu par Al Fike : « La plupart de ceux qui habitent votre monde et qui suivent un chemin particulier de progression dans leur compréhension … »"
 date: 2022-06-01 06:00:01+00:738
 draft: False
 hidden: True

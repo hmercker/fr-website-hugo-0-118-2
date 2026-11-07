@@ -1,7 +1,7 @@
 ---
 title: "Le second message de leur fille ne peut pas être la longue lettre qu’elle voulait écrire pour parler de son expérience lors de son passage dans le monde des esprits, mais est heureuse d’attendre pour un moment plus favorable"
 menu_title: ""
-description: "Le second message de leur fille ne peut pas être la longue lettre qu’elle voulait écrire pour parler de son expérience lors de son passage dans le monde des esprits, mais est heureuse d’attendre pour un moment plus favorable"
+description: "Nita Padgett, reçu par James Padgett : « Je progresse et je deviens de plus en plus heureuse et belle, comme maman me le dit tout le temps. »"
 date: 2022-06-01 06:00:01+00:77
 draft: False
 hidden: True

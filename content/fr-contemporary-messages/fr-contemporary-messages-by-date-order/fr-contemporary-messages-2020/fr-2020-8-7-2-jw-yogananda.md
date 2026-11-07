@@ -1,7 +1,7 @@
 ---
 title: "Les pensées que vous absorbez et émettez"
 menu_title: ""
-description: "Les pensées que vous absorbez et émettez"
+description: "Yogananda, reçu par Jimbeau Walsh : « Vous en voyez des manifestations partout. Il est également vrai que lorsque vous nous envoyez des pensées, nous les … »"
 date: 2022-06-01 06:00:01+00:1212
 draft: False
 hidden: True

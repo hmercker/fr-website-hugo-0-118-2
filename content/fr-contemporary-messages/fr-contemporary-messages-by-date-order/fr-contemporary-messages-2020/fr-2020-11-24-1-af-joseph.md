@@ -1,7 +1,7 @@
 ---
 title: "L’Aube d’une ère nouvelle"
 menu_title: ""
-description: "L’Aube d’une ère nouvelle"
+description: "Joseph, reçu par Al Fike : « Un nouveau jour se lève, une nouvelle ère pour l’humanité, pour redresser les torts, pour guérir l’erreur, pour apporter la … »"
 date: 2022-06-01 06:00:01+00:1325
 draft: False
 hidden: True

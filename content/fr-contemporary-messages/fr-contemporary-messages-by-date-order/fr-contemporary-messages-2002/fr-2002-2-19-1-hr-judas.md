@@ -1,7 +1,7 @@
 ---
 title: "Le vrai sens des paroles de Jésus"
 menu_title: ""
-description: "Le vrai sens des paroles de Jésus"
+description: "Judas, reçu par H : « Tu sais, le sujet d’aujourd’hui m’attriste presque, parce que je voudrais parler d’une beauté extraordinaire que je ne peux pas … »"
 date: 2022-06-01 06:00:01+00:26
 draft: False
 hidden: True

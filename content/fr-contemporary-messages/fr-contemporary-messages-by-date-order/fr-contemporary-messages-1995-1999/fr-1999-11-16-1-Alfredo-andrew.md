@@ -1,7 +1,7 @@
 ---
 title: "Sur les doutes d’Alfredo"
 menu_title: ""
-description: "Sur les doutes d’Alfredo"
+description: "André, reçu par Alfredo : « C’est ton attitude que tu n’élimines pas de ta personnalité. Croire impossible ce qui t’arrive réellement. »"
 date: 2022-06-01 06:00:01+00:29
 draft: False
 hidden: True

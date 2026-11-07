@@ -1,7 +1,7 @@
 ---
 title: "Quand le cœur s'humilie, l'âme s'élève"
 menu_title: ""
-description: "Quand le cœur s'humilie, l'âme s'élève"
+description: "Jésus, reçu par Jimbeau Walsh : « Quand le cœur s'humilie, l'âme s'élève. Lorsque vous vous approchez du Père avec faiblesse et fragilité humaine, Il vous … »"
 date: 2026-04-03 16:00:01+00:01
 draft: False
 hidden: True

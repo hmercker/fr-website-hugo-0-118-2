@@ -1,7 +1,7 @@
 ---
 title: "Soulagements à venir"
 menu_title: ""
-description: "Soulagements à venir"
+description: "Jésus, reçu par FAB : « Cependant, nous mettrons fin à cette tyrannie à la manière de Dieu. Il doit y avoir une évolution du développement vers les … »"
 date: 2022-06-01 06:00:01+00:170
 draft: False
 hidden: True

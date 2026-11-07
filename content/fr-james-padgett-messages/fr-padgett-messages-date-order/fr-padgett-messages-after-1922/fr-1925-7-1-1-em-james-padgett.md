@@ -1,7 +1,7 @@
 ---
 title: "Le prochain message important reçu par Eugène Morgan de la part de M. Padgett le fut environ deux ans plus tard, le 1er juillet 1925"
 menu_title: ""
-description: "Le prochain message important reçu par Eugène Morgan de la part de M. Padgett le fut environ deux ans plus tard, le 1er juillet 1925"
+description: "James Padgett, reçu par Eugene Morgan : « Parmi ceux qui sont présents ce soir, il y a votre vieil ami Padgett, très étonné. Morgan vous êtes capable de … »"
 date: 2022-06-01 06:00:01+00:37
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Jours ensoleillés en vous : Vivre dans l’Amour de Dieu"
 menu_title: ""
-description: "Jours ensoleillés en vous : Vivre dans l’Amour de Dieu"
+description: "Goldie, reçu par Albert Fike : « Dieu désire des jours ensoleillés pour vous chaque jour. Même si les nuages ​​s’accumulent et que la pluie tombe sur … »"
 date: 2025-07-15 06:00:01+00:01
 draft: False
 hidden: True

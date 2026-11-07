@@ -1,7 +1,7 @@
 ---
 title: "Le soleil est en vous"
 menu_title: ""
-description: "Le soleil est en vous"
+description: "Goldie, reçu par Al Fike : « Je m’appelle Goldie. [chantant] Y a-t-il du soleil dans votre âme aujourd’hui ? Est-ce important qu’il y ait des nuages quand … »"
 date: 2022-06-01 06:00:01+00:358
 draft: False
 hidden: True

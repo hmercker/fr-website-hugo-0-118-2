@@ -1,7 +1,7 @@
 ---
 title: "Hélène confirme ce que Jésus a écrit"
 menu_title: ""
-description: "Hélène confirme ce que Jésus a écrit"
+description: "Hélène Padgett, reçu par James Padgett : « Tu dois donc y réfléchir et tu pourras alors en bénéficier. Le professeur a été déçu qu’il ne pourrait pas … »"
 date: 2022-06-01 06:00:01+00:88
 draft: False
 hidden: True

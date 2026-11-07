@@ -1,7 +1,7 @@
 ---
 title: "Communication personnelle"
 menu_title: ""
-description: "Communication personnelle"
+description: "Marie Madeleine, reçu par Révérend Dave Lampron : « Et, bien sûr, avec moi, se trouve mon bien-aimé compagnon d’âme, Jésus, qui est le Maître des Cieux … »"
 date: 2022-06-01 06:00:01+00:53
 draft: False
 hidden: True

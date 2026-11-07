@@ -1,7 +1,7 @@
 ---
 title: "Jean dit que le Dr Stone et Eugène Morgan ont beaucoup d’amour dans leurs âmes"
 menu_title: ""
-description: "Jean dit que le Dr Stone et Eugène Morgan ont beaucoup d’amour dans leurs âmes"
+description: "St Jean, reçu par James Padgett : « Je veux simplement dire que ce que le Maître et moi avons dit il y a quelques nuits au Dr Stone s’applique à votre ami … »"
 date: 2022-06-01 06:00:01+00:317
 draft: False
 hidden: True

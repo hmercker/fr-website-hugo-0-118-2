@@ -1,7 +1,7 @@
 ---
 title: "Demeurez, en toute simplicité, au service de l’Amour et accomplissez la Volonté de Dieu"
 menu_title: ""
-description: "Demeurez, en toute simplicité, au service de l’Amour et accomplissez la Volonté de Dieu"
+description: "Jésus, reçu par Al Fike : « …et vous devez apporter un cœur ouvert ainsi que votre glorieuse Lumière ; votre présence auprès de Dieu dans vos prières, et … »"
 date: 2026-10-24 06:00:01+00:01
 draft: False
 hidden: True

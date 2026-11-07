@@ -1,7 +1,7 @@
 ---
 title: "Hélène assure M. Padgett que le professeur Salyards l’aime et que c’est bien lui qui a écrit"
 menu_title: ""
-description: "Hélène assure M. Padgett que le professeur Salyards l’aime et que c’est bien lui qui a écrit"
+description: "Hélène Padgett, reçu par James Padgett : « Tu as certainement écrit une longue lettre. Le professeur Salyards s’intéresse beaucoup à toi et tu dois croire … »"
 date: 2022-06-01 06:00:01+00:43
 draft: False
 hidden: True

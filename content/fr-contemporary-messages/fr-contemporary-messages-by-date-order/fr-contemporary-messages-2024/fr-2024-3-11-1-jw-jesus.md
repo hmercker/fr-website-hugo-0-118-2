@@ -1,7 +1,7 @@
 ---
 title: "Le Sacré-Cœur"
 menu_title: ""
-description: "Le Sacré-Cœur"
+description: "Jésus, reçu par Jimbeau Walsh : « Vous pouvez faire confiance à votre cœur pour savoir ce qu’est l’amour. Mon cœur est transformé et pourtant il bat … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

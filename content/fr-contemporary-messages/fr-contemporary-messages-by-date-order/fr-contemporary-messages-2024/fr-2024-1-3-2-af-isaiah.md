@@ -1,7 +1,7 @@
 ---
 title: "Nouveaux  départs en République Dominicaine"
 menu_title: ""
-description: "Nouveaux  départs en République Dominicaine"
+description: "Isaïe, reçu par Al Fike : « Le monde dans lequel vous vivez s’effondre sous vos yeux. Même si vous êtes assis dans cette opulence et ce luxe, c’est une … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

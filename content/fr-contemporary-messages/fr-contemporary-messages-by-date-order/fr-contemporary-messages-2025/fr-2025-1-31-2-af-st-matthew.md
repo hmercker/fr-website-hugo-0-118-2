@@ -1,7 +1,7 @@
 ---
 title: "Les Anges bénissent la diversité culturelle de l'humanité sur Terre"
 menu_title: ""
-description: "Les Anges bénissent la diversité culturelle de l'humanité sur Terre"
+description: "Matthieu, reçu par Albert Fike : « Le monde est un endroit très diversifié, n’est-ce pas ? Dieu ne souhaite pas perturber ni détruire les cultures créées … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

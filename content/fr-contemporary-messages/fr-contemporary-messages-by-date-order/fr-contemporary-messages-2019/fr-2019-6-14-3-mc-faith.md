@@ -1,7 +1,7 @@
 ---
 title: "Vous apportez l'Amour de Dieu par votre présence"
 menu_title: ""
-description: "Vous apportez l'Amour de Dieu par votre présence"
+description: "Faith, reçu par Maureen Cardoso : « Mon gracieux frère et ma gracieuse sœur, je vous remercie. Merci pour votre service d'amour. »"
 date: 2022-06-01 06:00:01+00:746
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Introduction à la création d'un cercle de lumière"
 menu_title: ""
-description: "Introduction à la création d'un cercle de lumière"
+description: "St Luc, reçu par Al Fike : « Vous êtes dans un cercle, vous êtes ensemble avec plus ou moins les mêmes désirs et vous suppliez Dieu pour les bénédictions … »"
 date: 2022-06-01 06:00:01+00:356
 draft: False
 hidden: True

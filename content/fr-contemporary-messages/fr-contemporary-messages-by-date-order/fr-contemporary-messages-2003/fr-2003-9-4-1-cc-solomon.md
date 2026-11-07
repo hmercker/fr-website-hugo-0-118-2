@@ -1,7 +1,7 @@
 ---
 title: "Humilité et confiance"
 menu_title: ""
-description: "Humilité et confiance"
+description: "Salomon, reçu par CC : « Cher fils, c’est un plaisir de venir te voir. J’étais avec toi lorsque tu as réfléchi à la note personnelle (Voir message du … »"
 date: 2022-06-01 06:00:01+00:62
 draft: False
 hidden: True

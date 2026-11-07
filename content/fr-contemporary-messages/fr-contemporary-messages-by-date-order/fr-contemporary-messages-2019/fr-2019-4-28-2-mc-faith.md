@@ -1,7 +1,7 @@
 ---
 title: "Comment la foi s'obtient et change la vie d'une personne"
 menu_title: ""
-description: "Comment la foi s'obtient et change la vie d'une personne"
+description: "Faith, reçu par Maureen Cardoso : « Je réside dans le Royaume Céleste et mon âme a été transformée en un Ange Divin par le don de l'Amour Divin de Dieu. »"
 date: 2022-06-01 06:00:01+00:720
 draft: False
 hidden: True

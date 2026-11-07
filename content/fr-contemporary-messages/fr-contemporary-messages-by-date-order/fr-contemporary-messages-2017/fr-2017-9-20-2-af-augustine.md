@@ -1,7 +1,7 @@
 ---
 title: "La loi du désir (populairement confondue avec la loi de l'attraction)"
 menu_title: ""
-description: "La loi du désir (populairement confondue avec la loi de l'attraction)"
+description: "Augustin, reçu par Al Fike : « Je souhaite parler de la loi du désir , de son importance dans le déroulement de la vie de chaque âme dans ce monde et dans … »"
 date: 2022-06-01 06:00:01+00:110
 draft: False
 hidden: True

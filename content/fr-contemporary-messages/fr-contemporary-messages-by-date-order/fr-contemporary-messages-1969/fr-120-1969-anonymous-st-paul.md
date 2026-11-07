@@ -1,7 +1,7 @@
 ---
 title: "Puissiez-vous être un véritable exemple de ce que ces bénédictions peuvent faire pour l'humanité"
 menu_title: ""
-description: "Puissiez-vous être un véritable exemple de ce que ces bénédictions peuvent faire pour l'humanité"
+description: "St Paul : « La paix du monde est entre vos mains, ne l'oubliez pas mes amis. Cela semble être une déclaration vaste et énorme et ça l'est vraiment, parce … »"
 date: 2022-06-01 06:00:01+00:85
 draft: False
 hidden: True

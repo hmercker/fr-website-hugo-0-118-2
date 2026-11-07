@@ -1,7 +1,7 @@
 ---
 title: "Je suis votre frère"
 menu_title: ""
-description: "Je suis votre frère"
+description: "Jésus, reçu par Al Fike : « Et je marche parmi vous, âmes bien-aimées. Je marche parmi vous et avec chaque âme qui aspire à l’Amour du Père, je vais … »"
 date: 2022-06-01 06:00:01+00:232
 draft: False
 hidden: True

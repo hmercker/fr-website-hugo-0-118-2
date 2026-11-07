@@ -1,7 +1,7 @@
 ---
 title: "Le monde s’approche rapidement d’une période de chaos"
 menu_title: ""
-description: "Le monde s’approche rapidement d’une période de chaos"
+description: "Jésus, reçu par Al Fike : « Mes âmes précieuses, vous aspirez à connaître de nombreuses réponses qui se rapportent à vos vies personnelles et à la façon … »"
 date: 2022-06-01 06:00:01+00:135
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Les changements à venir et nos familles"
 menu_title: ""
-description: "Les changements à venir et nos familles"
+description: "Samuel, reçu par Al Fike : « Les conditions du monde et la condition humaine n’ont pas tellement changé au point qu’il y ait une grande différence entre … »"
 date: 2022-06-01 06:00:01+00:1725
 draft: False
 hidden: True

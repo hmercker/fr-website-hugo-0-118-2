@@ -1,7 +1,7 @@
 ---
 title: "Hortense, belle-fille de Napoléon, connaît maintenant le Chemin vers les Cieux Célestes"
 menu_title: ""
-description: "Hortense, belle-fille de Napoléon, connaît maintenant le Chemin vers les Cieux Célestes"
+description: "Hélène Hortense, reçu par James Padgett : « Lorsque j’étais sur terre, étant la fille d’un Empereur, mes pensées étaient tournées vers toute autre chose … »"
 date: 2022-06-01 06:00:01+00:22
 draft: False
 hidden: True

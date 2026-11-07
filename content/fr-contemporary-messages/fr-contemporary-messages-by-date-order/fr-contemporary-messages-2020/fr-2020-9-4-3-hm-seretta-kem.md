@@ -1,7 +1,7 @@
 ---
 title: "Guérison de l'âme"
 menu_title: ""
-description: "Guérison de l'âme"
+description: "Seretta Kem, reçu par Helge Mercker : « C’est Seretta Kem et je te salue cet après-midi. C’est la guérison de l’âme à laquelle tu penses, la guérison de … »"
 date: 2022-06-01 06:00:01+00:1243
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Parler aux esprits de la terre"
 menu_title: ""
-description: "Parler aux esprits de la terre"
+description: "Samuel : « Ces esprits qui sont avec nous ce soir savent sans l'ombre d'un doute qu'ils ne sont pas morts mais bien vivants. »"
 date: 2022-06-01 06:00:01+00:46
 draft: False
 hidden: True

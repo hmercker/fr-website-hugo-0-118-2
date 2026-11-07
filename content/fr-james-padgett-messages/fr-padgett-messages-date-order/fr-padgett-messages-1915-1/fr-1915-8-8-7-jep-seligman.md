@@ -1,7 +1,7 @@
 ---
 title: "Les Cieux Musulmans et les Cieux Chrétiens"
 menu_title: ""
-description: "Les Cieux Musulmans et les Cieux Chrétiens"
+description: "Selligman, reçu par James Padgett : « Je n’ai pas connaissance du temps, mais (j’ai vécu) il y a environ quatre cents ans. Allah est son nom et Mohammed … »"
 date: 2022-06-01 06:00:01+00:184
 draft: False
 hidden: True

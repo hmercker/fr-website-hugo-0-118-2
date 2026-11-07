@@ -1,7 +1,7 @@
 ---
 title: "Apportez la Volonté de Dieu dans tout ce que vous faites"
 menu_title: ""
-description: "Apportez la Volonté de Dieu dans tout ce que vous faites"
+description: "Professeur Salyards, reçu par Al Fike : « En effet, il y a beaucoup à faire et ma seule préoccupation concernant votre approche est que vous pourriez vous … »"
 date: 2022-06-01 06:00:01+00:32
 draft: False
 hidden: True

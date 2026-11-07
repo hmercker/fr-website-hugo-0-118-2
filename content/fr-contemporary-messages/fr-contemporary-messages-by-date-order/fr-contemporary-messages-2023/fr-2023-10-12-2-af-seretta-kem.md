@@ -1,7 +1,7 @@
 ---
 title: "Les anges sont prêts et attendent"
 menu_title: ""
-description: "Les anges sont prêts et attendent"
+description: "Seretta Kem, reçu par Albert Fike : « Les vrilles de l’amour continuent de s’enrouler autour de tous ceux qui sont impliqués dans ce magnifique cercle qui … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

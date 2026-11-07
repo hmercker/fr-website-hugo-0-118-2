@@ -1,7 +1,7 @@
 ---
 title: "Ce chemin exige que vous sachiez ce qui est important"
 menu_title: ""
-description: "Ce chemin exige que vous sachiez ce qui est important"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « C’est une nouvelle année pour vous tous. Alors que vous l’accueillez dans la prière, nous nous joignons à … »"
 date: 2022-06-01 06:00:01+00:1361
 draft: False
 hidden: True

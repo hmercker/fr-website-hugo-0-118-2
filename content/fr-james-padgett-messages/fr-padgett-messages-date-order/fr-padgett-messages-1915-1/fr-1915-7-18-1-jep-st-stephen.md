@@ -1,7 +1,7 @@
 ---
 title: "Confirmation par St Étienne que M. Padgett est choisi pour faire ce travail"
 menu_title: ""
-description: "Confirmation par St Étienne que M. Padgett est choisi pour faire ce travail"
+description: "St Étienne, reçu par James Padgett : « Je fus un mortel engagé dans l’enseignement des vérités du Maître, et j’ai souffert des douleurs et des tourments … »"
 date: 2022-06-01 06:00:01+00:141
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Utiliser l'humour pour dénoncer la cupidité, l'injustice et l'inégalité"
 menu_title: ""
-description: "Utiliser l'humour pour dénoncer la cupidité, l'injustice et l'inégalité"
+description: "Charlie Chaplin, reçu par Jimbeau Walsh : « Quelle bénédiction d’être ici, dans votre magnifique cercle, élevé au-dessus du monde et de son poids sur vos … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L'amour allume la puissance des dons spirituels"
 menu_title: ""
-description: "L'amour allume la puissance des dons spirituels"
+description: "Mylora, reçu par Al Fike : « Nous sommes avec vous alors que vous continuez à grandir dans cette voie, et nous vous aiderons dans ce voyage particulier. »"
 date: 2022-06-01 06:00:01+00:1696
 draft: False
 hidden: True

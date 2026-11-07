@@ -1,7 +1,7 @@
 ---
 title: "Pas d'approbation supérieure - Réunion de l'équipe de base"
 menu_title: ""
-description: "Pas d'approbation supérieure - Réunion de l'équipe de base"
+description: "Professeur Salyards, reçu par Al Fike : « Je ne pense pas que vous puissiez obtenir un soutien plus important que cela, mes amis. Nous aussi, nous sommes … »"
 date: 2022-06-01 06:00:01+00:1375
 draft: False
 hidden: True

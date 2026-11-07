@@ -1,7 +1,7 @@
 ---
 title: "Questions-Réponses : Orion ouvre la parole aux questions, aborde la conscience de l'âme et comment discerner les différentes influences stellaires/spirituelles"
 menu_title: ""
-description: "Questions-Réponses : Orion ouvre la parole aux questions, aborde la conscience de l'âme et comment discerner les différentes influences stellaires/spirituelles"
+description: "Orion, reçu par Al Fike : « Avant d’aller plus loin, j’aimerais ouvrir la parole aux questions que vous pourriez me poser, afin de vous donner l’occasion … »"
 date: 2026-05-24 16:00:01+00:01
 draft: False
 hidden: True

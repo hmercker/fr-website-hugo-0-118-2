@@ -1,7 +1,7 @@
 ---
 title: "Nous encourage à travers les luttes du monde"
 menu_title: ""
-description: "Nous encourage à travers les luttes du monde"
+description: "St Paul, reçu par Albert Fike : « Que le grand don de Son Amour soit accordé à vos âmes. Ce monde a toujours été un monde de lutte. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

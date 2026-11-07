@@ -1,7 +1,7 @@
 ---
 title: "Ulysses S. Grant a eu ses yeux spirituels ouverts et il recherche l’Amour Divin du Père"
 menu_title: ""
-description: "Ulysses S. Grant a eu ses yeux spirituels ouverts et il recherche l’Amour Divin du Père"
+description: "Ulysses S Grant, reçu par James Padgett : « Je fus le président de votre pays ainsi que le général des armées fédérales. J’ai dû répondre de beaucoup de … »"
 date: 2022-06-01 06:00:01+00:10
 draft: False
 hidden: True

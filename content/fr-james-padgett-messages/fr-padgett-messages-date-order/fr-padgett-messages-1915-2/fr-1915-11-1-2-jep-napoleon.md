@@ -1,7 +1,7 @@
 ---
 title: "Napoléon ressent un très fort amour pour la patrie"
 menu_title: ""
-description: "Napoléon ressent un très fort amour pour la patrie"
+description: "Napoléon, reçu par James Padgett : « Je veux simplement dire que ma fille m’a raconté son expérience d’il y a quelques nuits et que je me suis beaucoup … »"
 date: 2022-06-01 06:00:01+00:37
 draft: False
 hidden: True

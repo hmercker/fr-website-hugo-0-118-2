@@ -1,7 +1,7 @@
 ---
 title: "Votre Service à Dieu"
 menu_title: ""
-description: "Votre Service à Dieu"
+description: "Paul, reçu par Elizabeth Mack : « J’ai écrit les épîtres et j’ai reçu l’Amour Divin de Dieu tandis que je marchais sur Terre. »"
 date: 2026-01-31 16:00:01+00:01
 draft: False
 hidden: True

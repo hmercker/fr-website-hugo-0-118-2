@@ -1,7 +1,7 @@
 ---
 title: "L’avènement de la paix et de l’harmonie"
 menu_title: ""
-description: "L’avènement de la paix et de l’harmonie"
+description: "Jésus, reçu par FAB : « J’ai dit par l’intermédiaire de M. Padgett, le 28 Février 1916 : « Il viendra un temps où cet amour naturel sera restauré à son … »"
 date: 2022-06-01 06:00:01+00:06
 draft: False
 hidden: True

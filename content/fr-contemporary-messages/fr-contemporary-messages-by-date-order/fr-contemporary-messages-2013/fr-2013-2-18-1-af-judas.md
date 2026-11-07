@@ -1,7 +1,7 @@
 ---
 title: "C'est un fondement solide"
 menu_title: ""
-description: "C'est un fondement solide"
+description: "Judas, reçu par Albert Fike : « Et ma prière pour vous est que vos âmes s’ouvrent à un grand afflux de cette Essence divine, cette magnifique bénédiction … »"
 date: 2026-10-16 06:00:01+00:09
 draft: False
 hidden: True

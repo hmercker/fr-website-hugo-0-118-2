@@ -1,7 +1,7 @@
 ---
 title: "Hélène, épouse de James Padgett, confirme que Jésus s’est bien exprimé"
 menu_title: ""
-description: "Hélène, épouse de James Padgett, confirme que Jésus s’est bien exprimé"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, tu as reçu ce soir un merveilleux message du Maître, et tu peux l’étudier et le comprendre à … »"
 date: 2022-06-01 06:00:01+00:281
 draft: False
 hidden: True

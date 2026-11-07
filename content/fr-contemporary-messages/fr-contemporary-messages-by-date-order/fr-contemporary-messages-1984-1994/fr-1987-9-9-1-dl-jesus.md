@@ -1,7 +1,7 @@
 ---
 title: "Qui est l'auteur de « Nouveaux enseignements pour une humanité en éveil ? »"
 menu_title: ""
-description: "Qui est l'auteur de « Nouveaux enseignements pour une humanité en éveil ? »"
+description: "Jésus, reçu par Révérend Dave Lampron : « Alors, cher Maître, si vous aviez l'amabilité de le faire, pourriez-vous répondre à la question bien posée du … »"
 date: 2022-06-01 06:00:01+00:28
 draft: False
 hidden: True

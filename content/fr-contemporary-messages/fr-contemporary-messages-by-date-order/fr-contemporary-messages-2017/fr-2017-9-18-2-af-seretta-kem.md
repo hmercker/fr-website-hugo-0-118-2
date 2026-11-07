@@ -1,7 +1,7 @@
 ---
 title: "La guérison et la loi de l'harmonie Partie 1"
 menu_title: ""
-description: "La guérison et la loi de l'harmonie Partie 1"
+description: "Seretta Kem, reçu par Al Fike : « C'est un sujet complexe, car il y a des moments où les âmes sont guéries de leurs maladies physiques et pourtant il … »"
 date: 2022-06-01 06:00:01+00:107
 draft: False
 hidden: True

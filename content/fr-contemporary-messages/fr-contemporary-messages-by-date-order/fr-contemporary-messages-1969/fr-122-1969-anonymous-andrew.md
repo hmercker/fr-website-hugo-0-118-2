@@ -1,7 +1,7 @@
 ---
 title: "Apporter sa lumière"
 menu_title: ""
-description: "Apporter sa lumière"
+description: "André : « Il apporte la lumière au monde, il n'apporte pas seulement la lumière à votre monde mais à de nombreux mondes dans ce grand univers. »"
 date: 2022-06-01 06:00:01+00:87
 draft: False
 hidden: True

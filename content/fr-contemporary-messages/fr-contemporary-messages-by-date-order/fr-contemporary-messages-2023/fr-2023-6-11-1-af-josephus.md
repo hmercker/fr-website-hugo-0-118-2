@@ -1,7 +1,7 @@
 ---
 title: "L'intention est la clé de la prière"
 menu_title: ""
-description: "L'intention est la clé de la prière"
+description: "Flavius Josèphe, reçu par Al Fike : « Car Dieu a imprégné chaque âme, chaque individu, la capacité de choisir et d'être dans le monde, donnant à cet … »"
 date: 2023-09-01 06:00:01+00:37
 draft: False
 hidden: True

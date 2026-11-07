@@ -1,7 +1,7 @@
 ---
 title: "Les sanctuaires prospéreront si leurs fondations sont bâties sur l'Amour de Dieu"
 menu_title: ""
-description: "Les sanctuaires prospéreront si leurs fondations sont bâties sur l'Amour de Dieu"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « J'ai suivi mon bien-aimé dans ses voyages, si heureux qu'il soit auprès de sa famille et de ses amis de … »"
 date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True

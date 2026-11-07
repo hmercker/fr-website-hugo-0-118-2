@@ -1,7 +1,7 @@
 ---
 title: "C'est toujours l'Amour"
 menu_title: ""
-description: "C'est toujours l'Amour"
+description: "Jean le Bien Aimé, reçu par Elizabeth Mack : « Nous venons parce que vous nous appelez, parce que vous nous aimez, parce que vous suivez la Volonté de … »"
 date: 2026-01-30 16:00:01+00:01
 draft: False
 hidden: True

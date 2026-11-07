@@ -1,7 +1,7 @@
 ---
 title: "Vous trouverez votre refuge en Dieu"
 menu_title: ""
-description: "Vous trouverez votre refuge en Dieu"
+description: "St Étienne, reçu par Al Fike : « Âmes bien-aimées, vous trouverez votre refuge en Dieu. Peu importe les conditions qui peuvent vous entourer, vous … »"
 date: 2022-06-01 06:00:01+00:1693
 draft: False
 hidden: True

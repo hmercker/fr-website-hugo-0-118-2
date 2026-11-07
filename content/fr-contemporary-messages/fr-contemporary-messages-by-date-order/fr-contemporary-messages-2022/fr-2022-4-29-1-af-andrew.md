@@ -1,7 +1,7 @@
 ---
 title: "Choix"
 menu_title: ""
-description: "Choix"
+description: "André, reçu par Al Fike : « Dieu continuera à ouvrir de nombreuses portes pour vous. Comme vous désirez servir Dieu, ainsi ces choses seront rendues … »"
 date: 2022-06-01 06:00:01+00:74
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Trouver l'humour dans nos conversations sur la Vérité"
 menu_title: ""
-description: "Trouver l'humour dans nos conversations sur la Vérité"
+description: "Confucius, reçu par Albert Fike : « Vous avez vos propres mots et vos propres pensées. Chacun de vous a quelque chose à partager et à ajouter à la quête … »"
 date: 2026-03-15 06:00:00+00:00
 draft: False
 hidden: True

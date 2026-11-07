@@ -1,7 +1,7 @@
 ---
 title: "Jésus apporte guérison et bénédiction personnelles"
 menu_title: ""
-description: "Jésus apporte guérison et bénédiction personnelles"
+description: "Jésus, reçu par Maureen Cardoso : « Chers et précieux enfants de Dieu, âmes bien-aimées, mes sœurs sur ce chemin vers l’unité avec Dieu, je vous guide … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

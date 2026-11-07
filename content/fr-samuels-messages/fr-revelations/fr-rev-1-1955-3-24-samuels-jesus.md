@@ -1,7 +1,7 @@
 ---
 title: "1ère Révélation : Relation entre Jésus et son cousin Jean le Baptiste"
 menu_title: ""
-description: "1ère Révélation : Relation entre Jésus et son cousin Jean le Baptiste"
+description: "Jésus, reçu par Dr Samuels : « Avant de commencer ma mission, j’avais discuté de ses grandes lignes ainsi que des détails de nos missions respectives avec … »"
 date: 2022-06-01 06:00:01+00:01
 draft: False
 hidden: True

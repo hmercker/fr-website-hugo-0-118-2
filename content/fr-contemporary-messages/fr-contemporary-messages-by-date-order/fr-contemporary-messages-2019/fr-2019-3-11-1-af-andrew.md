@@ -1,7 +1,7 @@
 ---
 title: "Tendre la main aux autres, même s'ils n'épousent pas la même philosophie que vous"
 menu_title: ""
-description: "Tendre la main aux autres, même s'ils n'épousent pas la même philosophie que vous"
+description: "André, reçu par Al Fike : « Nous vous remercions de vous être réunis, d’avoir créé ce Cercle de Lumière qui a apporté des bénédictions, de l’amour, des … »"
 date: 2022-06-01 06:00:01+00:675
 draft: False
 hidden: True

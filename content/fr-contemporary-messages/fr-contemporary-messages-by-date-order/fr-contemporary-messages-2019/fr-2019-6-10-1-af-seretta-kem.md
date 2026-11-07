@@ -1,7 +1,7 @@
 ---
 title: "Vous devez utiliser la foi dans vos vies"
 menu_title: ""
-description: "Vous devez utiliser la foi dans vos vies"
+description: "Seretta Kem, reçu par Al Fike : « Il est encourageant pour nous de vous entendre tous détenir l'intention de prendre la responsabilité de votre propre … »"
 date: 2022-06-01 06:00:01+00:743
 draft: False
 hidden: True

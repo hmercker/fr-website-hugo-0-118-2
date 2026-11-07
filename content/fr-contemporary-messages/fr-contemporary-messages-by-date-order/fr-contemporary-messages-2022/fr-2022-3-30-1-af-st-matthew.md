@@ -1,7 +1,7 @@
 ---
 title: "Encouragé à collaborer à la formation du noyau de lumière"
 menu_title: ""
-description: "Encouragé à collaborer à la formation du noyau de lumière"
+description: "St Matthieu, reçu par Al Fike : « Je me réjouis de voir les enfants de Dieu se réunir dans la confiance et dans des discussions qui font avancer leurs … »"
 date: 2022-06-01 06:00:01+00:57
 draft: False
 hidden: True

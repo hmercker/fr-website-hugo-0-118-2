@@ -1,7 +1,7 @@
 ---
 title: "Le libre arbitre - la Volonté de Dieu"
 menu_title: ""
-description: "Le libre arbitre - la Volonté de Dieu"
+description: "St Pierre, reçu par Elizabeth Mack : « Je vous apporte un message de votre Père Céleste de qui l’amour est grand pour tous ses enfants. »"
 date: 2022-06-01 06:00:01+00:188
 draft: False
 hidden: True

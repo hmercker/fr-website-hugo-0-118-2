@@ -1,7 +1,7 @@
 ---
 title: "Persévérez pour atteindre ceux qui sont perdus dans les distractions"
 menu_title: ""
-description: "Persévérez pour atteindre ceux qui sont perdus dans les distractions"
+description: "Orion, reçu par Al Fike : « Le monde attend votre engagement. Chaque pas vous rapproche de ce dessein qui réside au sein de votre âme, de ce cheminement … »"
 date: 2026-10-28 06:00:01+00:01
 draft: False
 hidden: True

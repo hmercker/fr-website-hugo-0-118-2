@@ -1,7 +1,7 @@
 ---
 title: "Pas toutes les puissances de l’enfer"
 menu_title: ""
-description: "Pas toutes les puissances de l’enfer"
+description: "Jésus, reçu par FAB : « Toutes les puissances de l’enfer ne peuvent pas résister au Royaume Céleste. Les esprits des ténèbres, qui sont le véritable … »"
 date: 2022-06-01 06:00:01+00:294
 draft: False
 hidden: True

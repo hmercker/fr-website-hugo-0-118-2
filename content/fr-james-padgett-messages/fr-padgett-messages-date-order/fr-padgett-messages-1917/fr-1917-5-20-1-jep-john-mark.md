@@ -1,7 +1,7 @@
 ---
 title: "L’enseignant spiritualiste manque de connaissance au sujet de la Vérité. L’importance de la Vérité révélée à toutes les âmes"
 menu_title: ""
-description: "L’enseignant spiritualiste manque de connaissance au sujet de la Vérité. L’importance de la Vérité révélée à toutes les âmes"
+description: "Jean Marc, reçu par James Padgett : « Je vais écrire quelques lignes et vous faire savoir que j’ai écouté ce soir vos commentaires sur le livre de … »"
 date: 2022-06-01 06:00:01+00:133
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Vous serez réunis à nouveau"
 menu_title: ""
-description: "Vous serez réunis à nouveau"
+description: "Augustin, reçu par Al Fike : « Nous avons beaucoup accompli au cours de ces quelques semaines. Nous avons apporté des enseignements et la guérison. »"
 date: 2026-10-24 06:00:01+00:01
 draft: False
 hidden: True

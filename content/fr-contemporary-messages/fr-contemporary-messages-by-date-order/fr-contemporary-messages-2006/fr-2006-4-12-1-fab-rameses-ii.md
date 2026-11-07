@@ -1,7 +1,7 @@
 ---
 title: "Pharaon a trouvé la Nouvelle Naissance"
 menu_title: ""
-description: "Pharaon a trouvé la Nouvelle Naissance"
+description: "Ramsès II, reçu par FAB : « Cette expérience m’a complètement déconcerté – moi, l’homme le plus puissant du monde, vaincu par un Dieu que je ne pouvais … »"
 date: 2022-06-01 06:00:01+00:10
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Mary est heureuse lorsqu’il lui est permis d’écrire à Leslie"
 menu_title: ""
-description: "Mary est heureuse lorsqu’il lui est permis d’écrire à Leslie"
+description: "Mary Kennedy, reçu par James Padgett : « Ils peuvent aussi écrire, mais ils doivent attendre que j’aie fini, et ensuite ils pourront lui dire ce qu’ils … »"
 date: 2022-06-01 06:00:01+00:68
 draft: False
 hidden: True

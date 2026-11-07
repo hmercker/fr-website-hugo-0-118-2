@@ -1,7 +1,7 @@
 ---
 title: "La Transformation de l'Âme et de l'Esprit de l'Âme dans l'Amour Divin"
 menu_title: ""
-description: "La Transformation de l'Âme et de l'Esprit de l'Âme dans l'Amour Divin"
+description: "Alec Gaunt, reçu par Maureen Cardoso : « En recevant la bénédiction de l’Amour de Dieu en votre âme, vous êtes bien conscients que, comme nous vous … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

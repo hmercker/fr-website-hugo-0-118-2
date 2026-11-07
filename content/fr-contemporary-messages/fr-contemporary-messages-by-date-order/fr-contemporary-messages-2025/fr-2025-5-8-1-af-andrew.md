@@ -1,7 +1,7 @@
 ---
 title: "Laissez les vagues vous ramener à la maison"
 menu_title: ""
-description: "Laissez les vagues vous ramener à la maison"
+description: "André, reçu par Albert Fike : « Tandis que les vagues vous ramènent à la maison, puissiez-vous méditer sur les bénédictions qui vous ont été accordées. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Érasme et la Réforme"
 menu_title: ""
-description: "Érasme et la Réforme"
+description: "Erasmus, reçu par FAB : « Vous voyez ce qui s'est passé alors avec des yeux nouveaux. C'est parce que votre âme a grandi, et donc vos idées sont plus claires. »"
 date: 2022-06-01 06:00:01+00:22
 draft: False
 hidden: True

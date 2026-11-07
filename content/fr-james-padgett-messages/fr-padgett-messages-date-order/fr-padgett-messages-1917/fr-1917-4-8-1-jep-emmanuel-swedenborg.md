@@ -1,7 +1,7 @@
 ---
 title: "Ne connaissait pas l’Amour Divin comme opposé de l’amour naturel"
 menu_title: ""
-description: "Ne connaissait pas l’Amour Divin comme opposé de l’amour naturel"
+description: "Emmanuel Swedenborg, reçu par James Padgett : « Je veux simplement dire que j’ai lu mes écrits comme vous l’avez fait, et que je réalise maintenant les … »"
 date: 2022-06-01 06:00:01+00:98
 draft: False
 hidden: True

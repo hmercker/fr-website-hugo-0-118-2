@@ -1,7 +1,7 @@
 ---
 title: "Deux élans pour sauver le monde"
 menu_title: ""
-description: "Deux élans pour sauver le monde"
+description: "St Luc, reçu par Al Fike : « L’élan qui amènera des changements dans le monde est grand et il est double. L’homme a créé un grand élan par ses efforts et … »"
 date: 2023-09-01 06:00:01+00:114
 draft: False
 hidden: True

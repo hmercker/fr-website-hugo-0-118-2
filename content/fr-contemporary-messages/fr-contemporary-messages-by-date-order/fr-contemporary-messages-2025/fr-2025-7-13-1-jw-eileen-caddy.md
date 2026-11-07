@@ -1,7 +1,7 @@
 ---
 title: "Tendre la main à tous"
 menu_title: ""
-description: "Tendre la main à tous"
+description: "Eileen Caddy, reçu par reçu par Jimbeau Walsh : « Mes chers, je comprends vos intentions. Je comprends vos besoins, surtout dans le contexte des … »"
 date: 2025-07-15 06:00:01+00:01
 draft: False
 hidden: True

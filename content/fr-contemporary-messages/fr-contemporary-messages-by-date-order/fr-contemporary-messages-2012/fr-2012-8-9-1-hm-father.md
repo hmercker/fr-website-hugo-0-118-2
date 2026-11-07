@@ -1,7 +1,7 @@
 ---
 title: "Prends une profonde respiration de Mon Amour"
 menu_title: ""
-description: "Prends une profonde respiration de Mon Amour"
+description: "Le Père Céleste, reçu par Helge Mercker : « En effet, respire profondément Mon Amour et profite de la gloire et des bénédictions que tu en reçois. »"
 date: 2022-06-01 06:00:01+00:282
 draft: False
 hidden: True

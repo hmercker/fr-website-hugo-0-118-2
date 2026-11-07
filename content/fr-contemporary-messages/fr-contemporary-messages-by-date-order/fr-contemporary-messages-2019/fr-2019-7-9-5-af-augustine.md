@@ -1,7 +1,7 @@
 ---
 title: "Q&A : Des hauteurs de lumière rares parmi les mortels"
 menu_title: ""
-description: "Q&A : Des hauteurs de lumière rares parmi les mortels"
+description: "Augustin, reçu par Al Fike : « Car chacun d’entre vous fait partie d’un plan que Dieu a élaboré et souhaite mettre en œuvre dans ce monde. »"
 date: 2022-06-01 06:00:01+00:772
 draft: False
 hidden: True

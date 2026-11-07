@@ -1,7 +1,7 @@
 ---
 title: "Nous invite à l'unité avec Dieu"
 menu_title: ""
-description: "Nous invite à l'unité avec Dieu"
+description: "Kea atta-Kem, reçu par Maureen Cardoso : « Je vous invite à vous détendre, à être en paix et à être conscient de votre monde intérieur. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

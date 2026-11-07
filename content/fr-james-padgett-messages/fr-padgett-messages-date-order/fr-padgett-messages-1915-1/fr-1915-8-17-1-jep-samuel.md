@@ -1,7 +1,7 @@
 ---
 title: "Samuel – Décrit les Cieux Célestes"
 menu_title: ""
-description: "Samuel – Décrit les Cieux Célestes"
+description: "Samuel, reçu par James Padgett : « Cette nuit, je veux vous parler des merveilleuses choses que Dieu a préparées pour ses enfants rachetés dans les … »"
 date: 2022-06-01 06:00:01+00:201
 draft: False
 hidden: True

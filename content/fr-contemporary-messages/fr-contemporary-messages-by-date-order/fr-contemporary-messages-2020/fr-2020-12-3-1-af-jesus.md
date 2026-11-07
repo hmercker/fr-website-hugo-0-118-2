@@ -1,7 +1,7 @@
 ---
 title: "Leçon 10 : Un monde en mutation et un appel à l’unité"
 menu_title: ""
-description: "Leçon 10 : Un monde en mutation et un appel à l’unité"
+description: "Jésus, reçu par Al Fike : « Le monde continue à être dans une grande obscurité. Tant de choses sont le reflet de la condition humaine. »"
 date: 2022-06-01 06:00:01+00:1332
 draft: False
 hidden: True

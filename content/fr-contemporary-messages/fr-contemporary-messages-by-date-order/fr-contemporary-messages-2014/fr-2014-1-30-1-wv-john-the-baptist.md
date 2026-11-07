@@ -1,7 +1,7 @@
 ---
 title: "Les Cieux Célestes ont des âmes de toutes les croyances"
 menu_title: ""
-description: "Les Cieux Célestes ont des âmes de toutes les croyances"
+description: "Jean-Baptiste, reçu par WV : « Pour que vous sachiez que les Cieux sont ouverts à tous. Il y a beaucoup plus de nationalités dans les Cieux que vous ne … »"
 date: 2022-06-01 06:00:01+00:75
 draft: False
 hidden: True

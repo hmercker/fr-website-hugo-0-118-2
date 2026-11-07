@@ -1,7 +1,7 @@
 ---
 title: "L'appel à la vengeance d'un dirigeant Chilien"
 menu_title: ""
-description: "L'appel à la vengeance d'un dirigeant Chilien"
+description: "Salvador Allende, reçu par FAB : « Mon pays, et le monde entier, a été sous la tyrannie des multinationales pendant très longtemps, trop longtemps. »"
 date: 2022-06-01 06:00:01+00:285
 draft: False
 hidden: True

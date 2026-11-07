@@ -1,7 +1,7 @@
 ---
 title: "Salaalida, un musulman, qui a aidé à défendre Jérusalem des Chrétiens, est un esprit très heureux et un amoureux de Dieu"
 menu_title: ""
-description: "Salaalida, un musulman, qui a aidé à défendre Jérusalem des Chrétiens, est un esprit très heureux et un amoureux de Dieu"
+description: "Salaalida, reçu par James Padgett : « J’étais un officier de haut rang et un général connu parmi mes compatriotes pour mes prouesses au combat. »"
 date: 2022-06-01 06:00:01+00:192
 draft: False
 hidden: True

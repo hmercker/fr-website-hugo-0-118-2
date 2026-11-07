@@ -1,7 +1,7 @@
 ---
 title: "La prière sincère est un désir de l'âme"
 menu_title: ""
-description: "La prière sincère est un désir de l'âme"
+description: "André, reçu par Al Fike : « Passez du temps chaque jour en prière, pour être avec votre Père Céleste, pour être en vous-mêmes, votre âme, pour rechercher … »"
 date: 2022-06-01 06:00:01+00:72
 draft: False
 hidden: True

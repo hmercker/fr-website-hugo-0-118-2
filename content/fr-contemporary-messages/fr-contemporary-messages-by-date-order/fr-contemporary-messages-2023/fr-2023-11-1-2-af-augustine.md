@@ -1,7 +1,7 @@
 ---
 title: "Chacun de vous choisit le cheminement de son âme"
 menu_title: ""
-description: "Chacun de vous choisit le cheminement de son âme"
+description: "Augustine, reçu par Albert Fike : « Puisse votre âme s’ouvrir largement à l’afflux de l’Amour de Dieu, afin que vous puissiez vous éveiller plus … »"
 date: 2026-09-15 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le livre de l’Apocalypse est seulement une simple allégorie d’un ou plus d’auteurs et ne correspond pas aux écrits de St Jean"
 menu_title: ""
-description: "Le livre de l’Apocalypse est seulement une simple allégorie d’un ou plus d’auteurs et ne correspond pas aux écrits de St Jean"
+description: "St Jean, reçu par James Padgett : « J’étais avec vous ce soir et j’ai entendu le sermon du prédicateur sur le ciel et ce qu’il est, et, comme son texte a … »"
 date: 2022-06-01 06:00:01+00:172
 draft: False
 hidden: True

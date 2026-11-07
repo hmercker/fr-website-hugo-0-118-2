@@ -1,7 +1,7 @@
 ---
 title: "Chaque tradition religieuse peut recevoir cet Amour Divin"
 menu_title: ""
-description: "Chaque tradition religieuse peut recevoir cet Amour Divin"
+description: "Baal Shem Tov, reçu par Jimbeau Walsh : « Je fus connu sous le nom de Baal Shem Tov et je fus un réformateur dans ma communauté parmi les Hassidistes … »"
 date: 2022-06-01 06:00:01+00:992
 draft: False
 hidden: True

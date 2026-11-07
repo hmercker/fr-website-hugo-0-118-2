@@ -1,7 +1,7 @@
 ---
 title: "Hélène Padgett confirme qu’Hérode a écrit sur les enfers"
 menu_title: ""
-description: "Hélène Padgett confirme qu’Hérode a écrit sur les enfers"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien chéri, tu as reçu ce soir une lettre d’un esprit qui devait savoir de quoi il parlait, car il fut un … »"
 date: 2022-06-01 06:00:01+00:93
 draft: False
 hidden: True

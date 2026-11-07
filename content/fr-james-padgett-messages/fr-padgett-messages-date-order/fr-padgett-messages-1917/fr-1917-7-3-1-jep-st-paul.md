@@ -1,7 +1,7 @@
 ---
 title: "Paul parle à M. Padgett des croyances et de l’esprit d’un prédicateur méthodiste de Washington et lui conseille de parler à ce prédicateur au sujet du Plan de Salut tel que révélé dans les messages"
 menu_title: ""
-description: "Paul parle à M. Padgett des croyances et de l’esprit d’un prédicateur méthodiste de Washington et lui conseille de parler à ce prédicateur au sujet du Plan de Salut tel que révélé dans les messages"
+description: "St Paul, reçu par James Padgett : « Permettez-moi d’écrire quelques lignes, car je souhaite dire un mot sur la condition de l’homme à qui vous parliez il … »"
 date: 2022-06-01 06:00:01+00:160
 draft: False
 hidden: True

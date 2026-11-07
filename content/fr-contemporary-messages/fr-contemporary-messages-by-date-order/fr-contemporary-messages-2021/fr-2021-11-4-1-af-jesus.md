@@ -1,7 +1,7 @@
 ---
 title: "Leçon 20 : L’Amour de Dieu est le seul moyen de sauver l’humanité"
 menu_title: ""
-description: "Leçon 20 : L’Amour de Dieu est le seul moyen de sauver l’humanité"
+description: "Jésus, reçu par Al Fike : « Nous sommes arrivés à la fin de nos dissertations sur la vérité spirituelle. Cet instrument a passé de nombreuses heures avec … »"
 date: 2022-06-01 06:00:01+00:1703
 draft: False
 hidden: True

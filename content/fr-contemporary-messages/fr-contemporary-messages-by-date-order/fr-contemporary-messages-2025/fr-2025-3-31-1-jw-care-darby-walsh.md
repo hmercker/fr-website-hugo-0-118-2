@@ -1,7 +1,7 @@
 ---
 title: "Avec Dieu, il n'y a pas de distance"
 menu_title: ""
-description: "Avec Dieu, il n'y a pas de distance"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Que l’Amour de Dieu soit sur vous et en vous. Lors de mon cheminement terrestre, je me délectais de la … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

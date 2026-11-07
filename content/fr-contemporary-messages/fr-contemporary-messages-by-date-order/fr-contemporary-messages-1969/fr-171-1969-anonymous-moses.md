@@ -1,7 +1,7 @@
 ---
 title: "Vivre selon des vérités simples"
 menu_title: ""
-description: "Vivre selon des vérités simples"
+description: "Moïse : « Je vous salue aussi, mes amis. Cela fait longtemps que je ne vous ai pas parlé mais je veux venir vous parler ce soir de l'émerveillement de ce … »"
 date: 2022-06-01 06:00:01+00:108
 draft: False
 hidden: True

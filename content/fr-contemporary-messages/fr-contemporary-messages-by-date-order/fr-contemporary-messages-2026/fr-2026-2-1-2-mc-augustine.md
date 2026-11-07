@@ -1,7 +1,7 @@
 ---
 title: "Hommage à Karen Swanson"
 menu_title: ""
-description: "Hommage à Karen Swanson"
+description: "Augustin, reçu par Maureen Cardoso : « C’est votre enseignant, Augustin. J’aimerais dire quelques mots au sujet de la chère sœur (Karen) assise à ma … »"
 date: 2026-09-22 06:00:00+00:00
 draft: False
 hidden: True

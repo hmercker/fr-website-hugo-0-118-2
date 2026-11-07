@@ -1,7 +1,7 @@
 ---
 title: "49ème Révélation : Plus sur le père et la mère de Jésus"
 menu_title: ""
-description: "49ème Révélation : Plus sur le père et la mère de Jésus"
+description: "Jésus, reçu par Dr Samuels : « Cependant, et certainement dans son cœur, il ne croit pas en un Dieu trinitaire, ni dans la naissance virginale. »"
 date: 2022-06-01 06:00:01+00:49
 draft: False
 hidden: True

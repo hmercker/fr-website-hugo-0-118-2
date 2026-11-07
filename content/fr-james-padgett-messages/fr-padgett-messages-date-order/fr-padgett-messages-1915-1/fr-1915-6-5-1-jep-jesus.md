@@ -1,7 +1,7 @@
 ---
 title: "Jésus reconnaît la capacité de la grand-mère de M. Padgett en écrivant les Vérités du Père"
 menu_title: ""
-description: "Jésus reconnaît la capacité de la grand-mère de M. Padgett en écrivant les Vérités du Père"
+description: "Jésus, reçu par James Padgett : « Je veux simplement vous dire ce soir que vous êtes dans une bien meilleure condition pour écrire mes messages et … »"
 date: 2022-06-01 06:00:01+00:97
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Prier pour les vivants et les défunts"
 menu_title: ""
-description: "Prier pour les vivants et les défunts"
+description: "André, reçu par Al Fike : « Vos prières pour ceux qui ont fait la transition de ce monde sont importantes, car vous ajoutez de la lumière à leur … »"
 date: 2022-06-01 06:00:01+00:555
 draft: False
 hidden: True

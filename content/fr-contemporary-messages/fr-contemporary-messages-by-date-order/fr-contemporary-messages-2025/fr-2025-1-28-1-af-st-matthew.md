@@ -1,7 +1,7 @@
 ---
 title: "Il est temps pour vous de trouver votre but et de rencontrer votre destinée"
 menu_title: ""
-description: "Il est temps pour vous de trouver votre but et de rencontrer votre destinée"
+description: "St Matthieu, reçu par Albert Fike : « Il est très important en ce moment que vous trouviez votre chemin vers votre but. En effet, Dieu a imprégné dans … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

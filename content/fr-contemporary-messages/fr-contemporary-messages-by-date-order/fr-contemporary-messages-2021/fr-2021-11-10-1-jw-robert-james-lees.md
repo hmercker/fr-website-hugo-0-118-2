@@ -1,7 +1,7 @@
 ---
 title: "Une chose à la fois"
 menu_title: ""
-description: "Une chose à la fois"
+description: "Robert James Lees, reçu par Jimbeau Walsh : « Si vous vous attelez à la tâche qui vous attend, comme je l’ai entendu, « une chose » à la fois, cela vous … »"
 date: 2022-06-01 06:00:01+00:1711
 draft: False
 hidden: True

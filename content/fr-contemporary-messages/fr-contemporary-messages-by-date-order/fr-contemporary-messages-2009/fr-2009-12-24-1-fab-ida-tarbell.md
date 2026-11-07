@@ -1,7 +1,7 @@
 ---
 title: "Quelque chose de merveilleux à attendre avec impatience"
 menu_title: ""
-description: "Quelque chose de merveilleux à attendre avec impatience"
+description: "Ida Tarbell, reçu par FAB : « Tant de temps s'est écoulé depuis que j'ai vécu les choses que vous êtes en train de lire [sa biographie, \"Ida Tarbell … »"
 date: 2022-06-01 06:00:01+00:100
 draft: False
 hidden: True

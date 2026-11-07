@@ -1,7 +1,7 @@
 ---
 title: "Gardez votre foi en moi"
 menu_title: ""
-description: "Gardez votre foi en moi"
+description: "Le Père Céleste, reçu par Michael : « Père : La vérité de Ma parole semble parfois si simple qu’elle est souvent ignorée, mais la vérité est toujours … »"
 date: 2022-06-01 06:00:01+00:27
 draft: False
 hidden: True

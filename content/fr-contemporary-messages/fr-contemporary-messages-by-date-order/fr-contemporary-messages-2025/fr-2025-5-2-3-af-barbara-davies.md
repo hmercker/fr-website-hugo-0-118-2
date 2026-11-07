@@ -1,7 +1,7 @@
 ---
 title: "Plongez dans le monde avec l'Amour de Dieu"
 menu_title: ""
-description: "Plongez dans le monde avec l'Amour de Dieu"
+description: "Barbara Davies, reçu par Albert Fike : « Vous parlez des plans et de la Volonté de Dieu dans vos vies. En effet, Dieu a de nombreux plans. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

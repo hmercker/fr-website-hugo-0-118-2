@@ -1,7 +1,7 @@
 ---
 title: "1er Sermon – la voie vers l’immortalité"
 menu_title: ""
-description: "1er Sermon – la voie vers l’immortalité"
+description: "Jésus, reçu par Dr Samuels : « Cet Évangile fut conçu pour montrer à l’homme la voie vers l’immortalité à travers la possession de l’Amour du Père à … »"
 date: 2022-06-01 06:00:01+00:54
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Longiticus raconte sa progression spirituelle, mais ne sait rien de l’Amour Divin"
 menu_title: ""
-description: "Longiticus raconte sa progression spirituelle, mais ne sait rien de l’Amour Divin"
+description: "Longiticus, reçu par James Padgett : « Lorsque je vivais sur terre, l’homme quant à son développement moral était dans un état quelque peu limité et … »"
 date: 2022-06-01 06:00:01+00:68
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La vie spirituelle requiert du courage"
 menu_title: ""
-description: "La vie spirituelle requiert du courage"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « Vous avez découvert beaucoup de choses sur ma vie sur terre et sur les luttes auxquelles j’ai été confronté et … »"
 date: 2022-06-01 06:00:01+00:1403
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Leçon 10 : Voyage vers une âme éveillée"
 menu_title: ""
-description: "Leçon 10 : Voyage vers une âme éveillée"
+description: "Jésus, reçu par Al Fike : « Alors que vous recevez le don de l’Amour Divin, Son Essence, ainsi l’âme s’éveille et devient un véritable partenaire dans … »"
 date: 2022-06-01 06:00:01+00:1520
 draft: False
 hidden: True

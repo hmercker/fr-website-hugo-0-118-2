@@ -1,7 +1,7 @@
 ---
 title: "Caligula (empereur romain) a entendu une conversation entre M. Padgett et le Dr Stone sur les opérations du développement de l’âme sur le mental physique après la mort"
 menu_title: ""
-description: "Caligula (empereur romain) a entendu une conversation entre M. Padgett et le Dr Stone sur les opérations du développement de l’âme sur le mental physique après la mort"
+description: "Caligula, reçu par James Padgett : « Vous avez raison lorsque vous dites que la condition du mental physique après la mort est affectée par le … »"
 date: 2022-06-01 06:00:01+00:18
 draft: False
 hidden: True

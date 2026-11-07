@@ -1,7 +1,7 @@
 ---
 title: "Jésus fera ressentir à M. Padgett le Grand Amour du Père pour lui"
 menu_title: ""
-description: "Jésus fera ressentir à M. Padgett le Grand Amour du Père pour lui"
+description: "Jésus, reçu par James Padgett : « Vous devez donc laisser vos pensées aller vers le Père et il viendra à vous avec une abondance d’Amour qui vous fera … »"
 date: 2022-06-01 06:00:01+00:69
 draft: False
 hidden: True

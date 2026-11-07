@@ -1,7 +1,7 @@
 ---
 title: "Témoignage de Saul – De nombreuses lois de l’A.T. lui sont venues par tradition"
 menu_title: ""
-description: "Témoignage de Saul – De nombreuses lois de l’A.T. lui sont venues par tradition"
+description: "Saul, reçu par James Padgett : « J’aimerais beaucoup écrire un court message ce soir, comme je vous l’ai promis il y a peu de temps. »"
 date: 2022-06-01 06:00:01+00:197
 draft: False
 hidden: True

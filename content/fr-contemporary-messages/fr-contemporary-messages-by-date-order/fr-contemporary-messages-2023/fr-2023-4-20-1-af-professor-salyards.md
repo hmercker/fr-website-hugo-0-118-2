@@ -1,7 +1,7 @@
 ---
 title: "Opportunité de croissance"
 menu_title: ""
-description: "Opportunité de croissance"
+description: "Professeur Salyards, reçu par Al Fike : « C’est absolument nécessaire pour poursuivre votre travail et pour avoir confiance dans vos capacités à savoir, à … »"
 date: 2023-09-01 06:00:01+00:04
 draft: False
 hidden: True

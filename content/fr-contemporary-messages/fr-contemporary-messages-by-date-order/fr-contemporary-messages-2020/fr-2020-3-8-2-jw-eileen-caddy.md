@@ -1,7 +1,7 @@
 ---
 title: "Le courage d’aller de l’avant"
 menu_title: ""
-description: "Le courage d’aller de l’avant"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « Alors que j’écoute vos préoccupations, un sourire se dessine sur mon visage, me rappelant mes propres … »"
 date: 2022-06-01 06:00:01+00:1020
 draft: False
 hidden: True

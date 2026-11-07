@@ -1,7 +1,7 @@
 ---
 title: "Soyez un maillon dans la chaîne des bénédictions de Dieu envers autrui"
 menu_title: ""
-description: "Soyez un maillon dans la chaîne des bénédictions de Dieu envers autrui"
+description: "Confucius, reçu par Al Fike : « C’est la clé de votre cheminement pour apprendre à vous connaître véritablement et à connaître votre Père céleste ; alors … »"
 date: 2026-10-24 06:00:01+00:01
 draft: False
 hidden: True

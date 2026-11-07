@@ -1,7 +1,7 @@
 ---
 title: "William Stone, le père du Dr Stone confirme la condition de l’esprit qui vient d’écrire"
 menu_title: ""
-description: "William Stone, le père du Dr Stone confirme la condition de l’esprit qui vient d’écrire"
+description: "William Stone, reçu par James Padgett : « Permettez-moi de dire un seul mot. J’ai entendu ce que les esprits vous ont écrit ce soir et je les ai vus tels … »"
 date: 2022-06-01 06:00:01+00:149
 draft: False
 hidden: True

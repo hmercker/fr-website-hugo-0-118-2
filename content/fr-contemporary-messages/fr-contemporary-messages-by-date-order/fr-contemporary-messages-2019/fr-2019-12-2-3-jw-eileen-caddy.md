@@ -1,7 +1,7 @@
 ---
 title: "Cultiver le jardin de son âme et s'épanouir"
 menu_title: ""
-description: "Cultiver le jardin de son âme et s'épanouir"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « Vous m’attirez dans cette lumière avec votre amour. Vous voyez comme c’est simple, tout comme dans mes … »"
 date: 2022-06-01 06:00:01+00:935
 draft: False
 hidden: True

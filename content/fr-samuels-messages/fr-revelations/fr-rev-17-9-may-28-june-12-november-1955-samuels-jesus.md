@@ -1,7 +1,7 @@
 ---
 title: "17ème Révélation. Le Spiritualisme provoque la stagnation de l’âme"
 menu_title: ""
-description: "17ème Révélation. Le Spiritualisme provoque la stagnation de l’âme"
+description: "Jésus, reçu par Dr Samuels : « Le spiritualisme, dans son insistance sur les phénomènes qui démontrent l’existence de l’âme dans le monde des esprits, est … »"
 date: 2022-06-01 06:00:01+00:17
 draft: False
 hidden: True

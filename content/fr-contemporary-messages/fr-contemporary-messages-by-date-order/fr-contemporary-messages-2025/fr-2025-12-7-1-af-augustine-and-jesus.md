@@ -1,7 +1,7 @@
 ---
 title: "Se soumettre à la Volonté de Dieu : Le Chemin du Véritable Instrument d'Amour"
 menu_title: ""
-description: "Se soumettre à la Volonté de Dieu : Le Chemin du Véritable Instrument d'Amour"
+description: "Augustin et Jésus, reçu par Albert Fike : « Quelle est la volonté suprême dans l’univers ? Lorsque vous substituez votre volonté à celle de Dieu, quels en … »"
 date: 2026-02-21 16:00:01+00:01
 draft: False
 hidden: True

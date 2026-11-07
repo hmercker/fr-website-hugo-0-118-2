@@ -1,7 +1,7 @@
 ---
 title: "N’oublie pas que nous sommes UN"
 menu_title: ""
-description: "N’oublie pas que nous sommes UN"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Ceci est un message personnel pour toi. Je veux que tu répandes les mots. »"
 date: 2022-06-01 06:00:01+00:288
 draft: False
 hidden: True

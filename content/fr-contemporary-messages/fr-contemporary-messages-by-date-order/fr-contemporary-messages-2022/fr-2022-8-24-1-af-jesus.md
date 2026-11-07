@@ -1,7 +1,7 @@
 ---
 title: "Leçon 23 : La route vers la Vérité"
 menu_title: ""
-description: "Leçon 23 : La route vers la Vérité"
+description: "Jésus, reçu par Al Fike : « Grâce à nos collaborations, les âmes ont été remuées et la controverse s’est formée jusqu’à un certain point parmi ceux qui … »"
 date: 2022-06-01 06:00:01+00:165
 draft: False
 hidden: True

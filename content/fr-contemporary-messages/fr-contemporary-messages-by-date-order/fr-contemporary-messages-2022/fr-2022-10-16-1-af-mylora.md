@@ -1,7 +1,7 @@
 ---
 title: "Lorsque vous placez Dieu en premier, il y a du temps pour tout"
 menu_title: ""
-description: "Lorsque vous placez Dieu en premier, il y a du temps pour tout"
+description: "Mylora, reçu par Al Fike : « Il y a du temps, fille bien-aimée, du temps pour faire tout ce que tu désires faire, pour faire de cet endroit un sanctuaire … »"
 date: 2022-06-01 06:00:01+00:200
 draft: False
 hidden: True

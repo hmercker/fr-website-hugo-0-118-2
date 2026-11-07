@@ -1,7 +1,7 @@
 ---
 title: "Chevauchez le pendule des bénédictions de Dieu vers la lumière"
 menu_title: ""
-description: "Chevauchez le pendule des bénédictions de Dieu vers la lumière"
+description: "Michael Collier, reçu par Albert Fike : « Que les bénédictions de l’Amour du Père se déversent dans votre âme en grande abondance, afin que vous puissiez … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

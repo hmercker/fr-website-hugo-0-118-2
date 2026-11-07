@@ -1,7 +1,7 @@
 ---
 title: "Service et leadership"
 menu_title: ""
-description: "Service et leadership"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Il est dit que nous ne pouvons pas être à deux endroits à la fois et le Maître nous a dit que nous ne … »"
 date: 2022-06-01 06:00:01+00:08
 draft: False
 hidden: True

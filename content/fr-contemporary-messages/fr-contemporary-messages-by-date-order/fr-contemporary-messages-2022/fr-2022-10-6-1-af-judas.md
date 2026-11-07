@@ -1,7 +1,7 @@
 ---
 title: "Discute des exigences de la médiumnité Céleste"
 menu_title: ""
-description: "Discute des exigences de la médiumnité Céleste"
+description: "Judas, reçu par Al Fike : « J’ai été présent pendant votre conversation concernant la médiumnité, l’instrumentalité, et tous ces aspects de l’esprit qui … »"
 date: 2022-06-01 06:00:01+00:189
 draft: False
 hidden: True

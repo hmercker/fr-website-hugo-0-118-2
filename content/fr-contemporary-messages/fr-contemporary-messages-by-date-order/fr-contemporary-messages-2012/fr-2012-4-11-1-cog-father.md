@@ -1,7 +1,7 @@
 ---
 title: "L’extraordinaire se cache dans l’ordinaire"
 menu_title: ""
-description: "L’extraordinaire se cache dans l’ordinaire"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Enfant de Dieu, tu ne peux pas croire ce que tu entends même si tu sens que c’est vrai. Tu dois cesser de … »"
 date: 2022-06-01 06:00:01+00:234
 draft: False
 hidden: True

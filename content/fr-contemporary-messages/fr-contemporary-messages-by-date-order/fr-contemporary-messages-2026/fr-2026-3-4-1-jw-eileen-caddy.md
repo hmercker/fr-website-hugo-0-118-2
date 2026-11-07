@@ -1,7 +1,7 @@
 ---
 title: "Le grand bateau et le petit bateau"
 menu_title: ""
-description: "Le grand bateau et le petit bateau"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « Face aux événements qui se déroulent actuellement dans le monde, nous œuvrons sans relâche pour assurer la … »"
 date: 2026-04-03 16:00:01+00:01
 draft: False
 hidden: True

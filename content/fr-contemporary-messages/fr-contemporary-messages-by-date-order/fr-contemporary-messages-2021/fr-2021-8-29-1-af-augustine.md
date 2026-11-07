@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes nécessaires pour répandre la lumière dans le monde"
 menu_title: ""
-description: "Nous sommes nécessaires pour répandre la lumière dans le monde"
+description: "Augustin, reçu par Al Fike : « Que l’Amour du Père continue de couler dans vos âmes, bien-aimées et précieuses âmes de lumière dans le monde. »"
 date: 2022-06-01 06:00:01+00:1616
 draft: False
 hidden: True

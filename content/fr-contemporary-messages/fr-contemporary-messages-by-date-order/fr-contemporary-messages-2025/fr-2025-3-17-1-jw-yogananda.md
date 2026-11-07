@@ -1,7 +1,7 @@
 ---
 title: "Dieu sert ceux qui Le servent"
 menu_title: ""
-description: "Dieu sert ceux qui Le servent"
+description: "Yogananda, reçu par Jimbeau Walsh : « Au cours de mon séjour sur terre, j’ai rencontré de nombreux dévots de Dieu, dont Gandhi, dont les sages paroles … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

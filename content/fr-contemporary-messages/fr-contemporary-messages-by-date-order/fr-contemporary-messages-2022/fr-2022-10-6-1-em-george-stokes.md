@@ -1,7 +1,7 @@
 ---
 title: "La prière est essentielle"
 menu_title: ""
-description: "La prière est essentielle"
+description: "George Stokes, reçu par Elizabeth Mack : « Je ne fais qu’un avec le Père et je vis dans les Cieux Célestes. Vous me connaissez sous le nom de George … »"
 date: 2022-06-01 06:00:01+00:189
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Instruction pour la Voix Directe"
 menu_title: ""
-description: "Instruction pour la Voix Directe"
+description: "Seretta Kem & Jésus, reçu par Al Fike : « Nous entamons une nouvelle phase de votre préparation à la voix directe. Ces prochaines semaines, nous serons … »"
 date: 2022-06-01 06:00:01+00:133
 draft: False
 hidden: True

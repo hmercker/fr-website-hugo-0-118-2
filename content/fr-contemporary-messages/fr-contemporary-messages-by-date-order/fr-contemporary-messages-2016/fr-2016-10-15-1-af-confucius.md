@@ -1,7 +1,7 @@
 ---
 title: "Vous avez un but"
 menu_title: ""
-description: "Vous avez un but"
+description: "Confucius, reçu par Al Fike : « Je vois que mes petits oiseaux sont revenus se percher. (Retour d’Angleterre, d’Allemagne et de Serbie) Comme nous sommes … »"
 date: 2022-06-01 06:00:01+00:253
 draft: False
 hidden: True

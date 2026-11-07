@@ -1,7 +1,7 @@
 ---
 title: "Recherchez les vérités que Dieu a déjà placées en vous"
 menu_title: ""
-description: "Recherchez les vérités que Dieu a déjà placées en vous"
+description: "Marie, reçu par Elizabeth Mack : « Je vous apporte des bénédictions : des bénédictions de paix, de contentement, d’élévation et de vérité pour vos âmes. »"
 date: 2026-01-30 16:00:01+00:01
 draft: False
 hidden: True

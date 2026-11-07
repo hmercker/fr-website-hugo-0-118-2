@@ -1,7 +1,7 @@
 ---
 title: "Amour et Vérité"
 menu_title: ""
-description: "Amour et Vérité"
+description: "Le Père Céleste, reçu par Helge Mercker : « C’est ton père, Je veux écrire. Pour aimer, il faut être dans la vérité. »"
 date: 2022-06-01 06:00:01+00:18
 draft: False
 hidden: True

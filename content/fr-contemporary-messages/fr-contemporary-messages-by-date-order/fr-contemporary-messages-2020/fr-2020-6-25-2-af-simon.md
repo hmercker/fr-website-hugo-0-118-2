@@ -1,7 +1,7 @@
 ---
 title: "L'esprit est limité mais l'âme est illimitée"
 menu_title: ""
-description: "L'esprit est limité mais l'âme est illimitée"
+description: "Simon, reçu par Al Fike : « Vous avez en vous l’intention et le besoin d’explorer les vérités spirituelles de la création, de votre monde. »"
 date: 2022-06-01 06:00:01+00:1156
 draft: False
 hidden: True

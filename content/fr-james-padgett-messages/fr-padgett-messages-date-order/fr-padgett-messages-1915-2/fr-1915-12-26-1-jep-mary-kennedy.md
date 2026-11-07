@@ -1,7 +1,7 @@
 ---
 title: "Mary continue d’expliquer son amour pour son âme sœur, mais ne veut pas l’effrayer avec la poursuite de cet amour"
 menu_title: ""
-description: "Mary continue d’expliquer son amour pour son âme sœur, mais ne veut pas l’effrayer avec la poursuite de cet amour"
+description: "Mary Kennedy, reçu par James Padgett : « Eh bien, vous avez laissé écrire un esprit qui souhaitait la lumière, et votre groupe a jugé bon de le laisser … »"
 date: 2022-06-01 06:00:01+00:102
 draft: False
 hidden: True

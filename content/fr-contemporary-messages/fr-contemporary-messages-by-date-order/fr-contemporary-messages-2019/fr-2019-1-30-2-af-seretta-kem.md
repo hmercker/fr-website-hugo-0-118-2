@@ -1,7 +1,7 @@
 ---
 title: "Jésus assigne des guides spirituels"
 menu_title: ""
-description: "Jésus assigne des guides spirituels"
+description: "Seretta Kem, reçu par Al Fike : « Il y a ceux dans le monde qui croient que Jésus viendra et parlera à travers eux à leur convenance et ils insistent à … »"
 date: 2022-06-01 06:00:01+00:629
 draft: False
 hidden: True

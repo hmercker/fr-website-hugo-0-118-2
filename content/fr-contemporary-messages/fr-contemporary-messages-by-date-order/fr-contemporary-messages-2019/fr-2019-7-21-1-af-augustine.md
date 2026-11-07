@@ -1,7 +1,7 @@
 ---
 title: "Commencer votre voyage maintenant est un grand avantage"
 menu_title: ""
-description: "Commencer votre voyage maintenant est un grand avantage"
+description: "Augustin, reçu par Al Fike : « Sachez que Dieu aspire à ce que vous vous concentriez et priiez vers Sa Grande Âme afin qu’une connexion puisse être … »"
 date: 2022-06-01 06:00:01+00:793
 draft: False
 hidden: True

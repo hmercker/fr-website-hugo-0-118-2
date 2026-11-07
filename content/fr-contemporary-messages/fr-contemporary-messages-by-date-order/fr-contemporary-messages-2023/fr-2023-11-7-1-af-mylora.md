@@ -1,7 +1,7 @@
 ---
 title: "Commentaires sur les niveaux de guérison"
 menu_title: ""
-description: "Commentaires sur les niveaux de guérison"
+description: "Mylora, reçu par Albert Fike : « Le meilleur, c’est quand Dieu vous apporte Son amour, l’Amour Divin qui coule dans vos âmes. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

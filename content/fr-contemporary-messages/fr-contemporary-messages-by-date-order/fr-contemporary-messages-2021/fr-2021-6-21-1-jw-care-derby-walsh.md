@@ -1,7 +1,7 @@
 ---
 title: "Ne vous faites pas d’idoles et soyez libres"
 menu_title: ""
-description: "Ne vous faites pas d’idoles et soyez libres"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Il est écrit que le Maître a dit : « Aimez-les tous comme je vous ai aimés ». Vous savez que cela signifie … »"
 date: 2022-06-01 06:00:01+00:1550
 draft: False
 hidden: True

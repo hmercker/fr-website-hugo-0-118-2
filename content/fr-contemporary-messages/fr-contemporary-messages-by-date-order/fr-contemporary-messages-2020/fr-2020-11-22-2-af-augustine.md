@@ -1,7 +1,7 @@
 ---
 title: "Faites de la prière à Dieu une priorité afin de surmonter vos obstacles"
 menu_title: ""
-description: "Faites de la prière à Dieu une priorité afin de surmonter vos obstacles"
+description: "Augustin, reçu par Al Fike : « Bien que ces cercles auxquels vous participez ensemble soient importants, nous avons exprimé notre profond désir que vous … »"
 date: 2022-06-01 06:00:01+00:1324
 draft: False
 hidden: True

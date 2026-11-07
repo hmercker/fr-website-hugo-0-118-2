@@ -1,7 +1,7 @@
 ---
 title: "Le plus grand cadeau de tous est l'Amour Divin de Dieu"
 menu_title: ""
-description: "Le plus grand cadeau de tous est l'Amour Divin de Dieu"
+description: "Augustin : « Il y a tant de choses à faire pour vous tous et tant de choses à faire pour nous, en esprit, avec vous, et plus que jamais aujourd'hui, la … »"
 date: 2022-06-01 06:00:01+00:140
 draft: False
 hidden: True

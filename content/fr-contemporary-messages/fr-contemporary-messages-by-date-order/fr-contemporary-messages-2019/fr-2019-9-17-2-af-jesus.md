@@ -1,7 +1,7 @@
 ---
 title: "Au sein de vos âmes se trouve un Autre Mental"
 menu_title: ""
-description: "Au sein de vos âmes se trouve un Autre Mental"
+description: "Jésus, reçu par Al Fike : « Toutes les machinations de votre mental ne peuvent pas vraiment parvenir à la compréhension et à la Vérité qui se trouvent … »"
 date: 2022-06-01 06:00:01+00:857
 draft: False
 hidden: True

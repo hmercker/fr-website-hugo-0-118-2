@@ -1,7 +1,7 @@
 ---
 title: "Guerre et paix et le plan de Dieu Partie 6"
 menu_title: ""
-description: "Guerre et paix et le plan de Dieu Partie 6"
+description: "Jésus, reçu par FAB : « J’ai dit, dans mon message du 26 Décembre 2006, intitulé Guerre et paix et le plan de Dieu-2, « Un autre exemple est la décision … »"
 date: 2022-06-01 06:00:01+00:138
 draft: False
 hidden: True

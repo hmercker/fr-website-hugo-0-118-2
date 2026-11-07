@@ -1,7 +1,7 @@
 ---
 title: "Désir et perception de l'âme"
 menu_title: ""
-description: "Désir et perception de l'âme"
+description: "Yogananda et François d'Assise, reçu par reçu par Jimbeau Walsh : « Dans le message lu, le bien-aimé Thomas a parlé de son désir de preuve, et je souhaite … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

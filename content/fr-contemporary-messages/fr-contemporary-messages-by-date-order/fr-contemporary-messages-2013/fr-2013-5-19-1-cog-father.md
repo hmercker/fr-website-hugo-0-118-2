@@ -1,7 +1,7 @@
 ---
 title: "Ta joie est ma récompense"
 menu_title: ""
-description: "Ta joie est ma récompense"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Je t’appelle à travers le désir de ton âme. Écoute Mon Amour et il ouvrira ton cœur. »"
 date: 2022-06-01 06:00:01+00:57
 draft: False
 hidden: True

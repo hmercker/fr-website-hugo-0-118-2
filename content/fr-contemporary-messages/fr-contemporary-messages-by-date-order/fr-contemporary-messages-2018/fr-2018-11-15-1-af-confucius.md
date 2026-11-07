@@ -1,7 +1,7 @@
 ---
 title: "Ayez la foi que votre âme s'éveille"
 menu_title: ""
-description: "Ayez la foi que votre âme s'éveille"
+description: "Confucius, reçu par Al Fike : « Vous devez utiliser cette force dans tous les efforts que vous faites au nom de Dieu pour apporter cette Vérité à l’humanité. »"
 date: 2022-06-01 06:00:01+00:563
 draft: False
 hidden: True

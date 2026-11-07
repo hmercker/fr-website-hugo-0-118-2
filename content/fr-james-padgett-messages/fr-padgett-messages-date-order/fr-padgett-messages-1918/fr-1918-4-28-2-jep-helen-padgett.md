@@ -1,7 +1,7 @@
 ---
 title: "Écrit sur l’ignorance des prédicateurs d’expliquer la Vérité de l’Évangile"
 menu_title: ""
-description: "Écrit sur l’ignorance des prédicateurs d’expliquer la Vérité de l’Évangile"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, j’ai passé beaucoup de temps avec toi aujourd’hui et je sais à quel point tu as ressenti et … »"
 date: 2022-06-01 06:00:01+00:36
 draft: False
 hidden: True

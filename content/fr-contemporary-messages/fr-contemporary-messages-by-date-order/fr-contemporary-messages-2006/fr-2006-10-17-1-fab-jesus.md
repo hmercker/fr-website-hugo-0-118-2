@@ -1,7 +1,7 @@
 ---
 title: "Jésus et le Talmud - Les femmes, plus d'explications"
 menu_title: ""
-description: "Jésus et le Talmud - Les femmes, plus d'explications"
+description: "Jésus, reçu par FAB : « Vous venez de relire, dans la canalisation du Dr Samuels, Révélation 13 du Nouveau Testament, que « les conditions affectant le … »"
 date: 2022-06-01 06:00:01+00:52
 draft: False
 hidden: True

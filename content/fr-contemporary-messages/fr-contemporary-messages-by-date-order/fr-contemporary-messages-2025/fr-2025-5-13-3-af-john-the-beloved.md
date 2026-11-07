@@ -1,7 +1,7 @@
 ---
 title: "L'importance d'avoir des canaux d'Amour Divin sur Terre"
 menu_title: ""
-description: "L'importance d'avoir des canaux d'Amour Divin sur Terre"
+description: "Jean le Bien Aimé, reçu par Albert Fike : « Pour chacun de ceux qui remettent en question le statu quo sur Terre et portent le manteau de l’Amour de Dieu … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "42ème Sermon – L’appel de Jérémie comme un prophète de Dieu"
 menu_title: ""
-description: "42ème Sermon – L’appel de Jérémie comme un prophète de Dieu"
+description: "Jésus, reçu par Dr Samuels : « Vers cette époque, les nomades du Nord, les Scythes, un peuple de la Russie du Sud-Ouest, a commencé à effectuer ses raids … »"
 date: 2022-06-01 06:00:01+00:95
 draft: False
 hidden: True

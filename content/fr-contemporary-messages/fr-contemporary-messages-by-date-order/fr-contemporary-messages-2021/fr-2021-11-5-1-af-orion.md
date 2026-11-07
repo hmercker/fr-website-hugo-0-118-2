@@ -1,7 +1,7 @@
 ---
 title: "Orion répond aux questions posées"
 menu_title: ""
-description: "Orion répond aux questions posées"
+description: "Orion, reçu par Al Fike : « Que les bénédictions de l’Amour du Créateur continuent de vous éveiller, mes amis. Je vous remercie de vous être rassemblés … »"
 date: 2022-06-01 06:00:01+00:1704
 draft: False
 hidden: True

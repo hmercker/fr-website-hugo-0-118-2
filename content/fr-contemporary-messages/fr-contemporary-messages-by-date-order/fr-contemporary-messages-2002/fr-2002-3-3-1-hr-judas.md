@@ -1,7 +1,7 @@
 ---
 title: "Les noces de Cana"
 menu_title: ""
-description: "Les noces de Cana"
+description: "Judas, reçu par H : « Je sais que cette semaine tu ne te sentais pas bien; Il est compréhensible que tu ne sois pas capable de « voler haut sur un nuage … »"
 date: 2022-06-01 06:00:01+00:31
 draft: False
 hidden: True

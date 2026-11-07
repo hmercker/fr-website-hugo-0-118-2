@@ -1,7 +1,7 @@
 ---
 title: "Bouddha n’enseigne plus la réincarnation"
 menu_title: ""
-description: "Bouddha n’enseigne plus la réincarnation"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon chéri, tu as été très intéressé par le livre (La naissance de Bouddha) que tu lisais, et il … »"
 date: 2022-06-01 06:00:01+00:260
 draft: False
 hidden: True

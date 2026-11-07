@@ -1,7 +1,7 @@
 ---
 title: "Celui qui vous a créé ne vous abandonnera pas"
 menu_title: ""
-description: "Celui qui vous a créé ne vous abandonnera pas"
+description: "Saint Luc, reçu par Jimbeau Walsh : « Mes frères et sœurs, on a beaucoup parlé des événements actuels sur terre et de ce qui est à venir. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

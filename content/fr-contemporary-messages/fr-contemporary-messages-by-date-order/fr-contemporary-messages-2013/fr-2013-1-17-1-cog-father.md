@@ -1,7 +1,7 @@
 ---
 title: "Je suis ta lumière directrice à tout moment"
 menu_title: ""
-description: "Je suis ta lumière directrice à tout moment"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « De nombreux sujets traversent ton esprit et souvent tu te sens un peu perdu sur quoi te concentrer. »"
 date: 2022-06-01 06:00:01+00:13
 draft: False
 hidden: True

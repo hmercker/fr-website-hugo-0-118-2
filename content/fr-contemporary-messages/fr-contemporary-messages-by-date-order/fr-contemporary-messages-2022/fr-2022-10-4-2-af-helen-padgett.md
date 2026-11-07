@@ -1,7 +1,7 @@
 ---
 title: "Buvez profondément ces eaux de l'amour de Dieu"
 menu_title: ""
-description: "Buvez profondément ces eaux de l'amour de Dieu"
+description: "Hélène Padgett, reçu par Al Fike : « Buvez profondément et sachez que vous êtes aimés. Sachez combien vous êtes choyés, combien vous êtes aimés, combien … »"
 date: 2022-06-01 06:00:01+00:185
 draft: False
 hidden: True

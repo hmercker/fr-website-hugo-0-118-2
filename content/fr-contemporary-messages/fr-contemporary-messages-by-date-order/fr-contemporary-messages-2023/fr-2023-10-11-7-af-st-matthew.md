@@ -1,7 +1,7 @@
 ---
 title: "Ce rassemblement changera vos perspectives et vos motivations pour vous faire avancer"
 menu_title: ""
-description: "Ce rassemblement changera vos perspectives et vos motivations pour vous faire avancer"
+description: "St Matthieu, reçu par Alnert Fike : « Ce moment de rassemblement changera beaucoup de choses, changera votre perspective, vos motivations, vos idées. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

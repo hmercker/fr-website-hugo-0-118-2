@@ -1,7 +1,7 @@
 ---
 title: "Une grande interprète partage son cœur - 2"
 menu_title: ""
-description: "Une grande interprète partage son cœur - 2"
+description: "Judy Garland, reçu par FAB : « Vous m’avez bien canalisée. J’ai dû faire face à mes addictions. »"
 date: 2022-06-01 06:00:01+00:116
 draft: False
 hidden: True

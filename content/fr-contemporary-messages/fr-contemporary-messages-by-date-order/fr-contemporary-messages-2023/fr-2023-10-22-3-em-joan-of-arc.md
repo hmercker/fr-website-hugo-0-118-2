@@ -1,7 +1,7 @@
 ---
 title: "Dieu désire guérir l’angoisse de Ses enfants"
 menu_title: ""
-description: "Dieu désire guérir l’angoisse de Ses enfants"
+description: "Jeanne d'Arc, reçu par Elizabeth Mack : « À mon époque, la guerre fut une réalité pendant de très longues années, des hommes et des femmes se déchaînaient … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

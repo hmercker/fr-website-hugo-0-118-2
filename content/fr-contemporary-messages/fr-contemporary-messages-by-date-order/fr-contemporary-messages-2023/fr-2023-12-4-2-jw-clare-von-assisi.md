@@ -1,7 +1,7 @@
 ---
 title: "Les richesses de l’Amour de Dieu"
 menu_title: ""
-description: "Les richesses de l’Amour de Dieu"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Mes sœurs et moi avons suivi ces traces et aujourd’hui encore, nous sommes connues sous le nom de « Pauvres … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Nous ne faisons qu'un avec Dieu, frères et sœurs"
 menu_title: ""
-description: "Nous ne faisons qu'un avec Dieu, frères et sœurs"
+description: "Jésus : « Je vois l'injustice perpétrée sur les enfants de la Terre par ceux qui vivent dans l'ignorance et l'obscurité. »"
 date: 2022-06-01 06:00:01+00:111
 draft: False
 hidden: True

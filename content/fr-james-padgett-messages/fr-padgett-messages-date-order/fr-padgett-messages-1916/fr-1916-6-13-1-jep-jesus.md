@@ -1,7 +1,7 @@
 ---
 title: "Jésus parle de possession et nie la réincarnation"
 menu_title: ""
-description: "Jésus parle de possession et nie la réincarnation"
+description: "Jésus, reçu par James Padgett : « J’avais l’intention de terminer mon discours ce soir, mais il est maintenant trop tard, et je vais devoir le reporter. »"
 date: 2022-06-01 06:00:01+00:245
 draft: False
 hidden: True

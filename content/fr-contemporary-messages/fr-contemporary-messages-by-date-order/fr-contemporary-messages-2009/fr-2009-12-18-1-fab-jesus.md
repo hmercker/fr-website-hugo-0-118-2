@@ -1,7 +1,7 @@
 ---
 title: "Un système économique déséquilibré"
 menu_title: ""
-description: "Un système économique déséquilibré"
+description: "Jésus, reçu par FAB : « Permettez-moi de vous aider à mieux comprendre. Nous avons canalisé des choses très négatives sur le système économique … »"
 date: 2022-06-01 06:00:01+00:98
 draft: False
 hidden: True

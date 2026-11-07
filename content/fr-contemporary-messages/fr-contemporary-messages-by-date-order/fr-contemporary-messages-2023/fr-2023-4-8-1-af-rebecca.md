@@ -1,7 +1,7 @@
 ---
 title: "Bénédiction pour Lani et le Cercle"
 menu_title: ""
-description: "Bénédiction pour Lani et le Cercle"
+description: "Rebecca, reçu par Albert Fike : « Mais comme la plupart des femmes de notre époque, il n’a pas été considéré comme important de mentionner mon nom, mais … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

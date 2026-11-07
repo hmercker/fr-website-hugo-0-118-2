@@ -1,7 +1,7 @@
 ---
 title: "Charles T. Russell parle des Témoins de Jéhovah"
 menu_title: ""
-description: "Charles T. Russell parle des Témoins de Jéhovah"
+description: "Charles T. Russell, reçu par FAB : « Mon organisation, les Témoins de Jéhovah, va s’effondrer et mourir. Ils ne pourront pas mettre en place la « … »"
 date: 2022-06-01 06:00:01+00:66
 draft: False
 hidden: True

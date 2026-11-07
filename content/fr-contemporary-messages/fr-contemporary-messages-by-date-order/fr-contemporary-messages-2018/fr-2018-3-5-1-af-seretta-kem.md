@@ -1,7 +1,7 @@
 ---
 title: "Un moment crucial pour un nouveau départ"
 menu_title: ""
-description: "Un moment crucial pour un nouveau départ"
+description: "Seretta Kem, reçu par Al Fike : « Il est temps de vous parler et de vous remercier de vos efforts pour vous réunir dans cette Lumière, car votre timing … »"
 date: 2022-06-01 06:00:01+00:340
 draft: False
 hidden: True

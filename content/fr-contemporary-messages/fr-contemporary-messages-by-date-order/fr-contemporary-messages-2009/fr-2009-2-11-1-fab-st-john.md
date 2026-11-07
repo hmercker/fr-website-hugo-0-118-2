@@ -1,7 +1,7 @@
 ---
 title: "La culture Juive du premier siècle"
 menu_title: ""
-description: "La culture Juive du premier siècle"
+description: "St Jean, reçu par FAB : « Dans votre exploration du Judaïsme du premier siècle, vous avez lu plus d'une fois qu'il y avait des traductions grecques de la … »"
 date: 2022-06-01 06:00:01+00:18
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Servir dans le réseau de l'Amour (Collection générale 2020)"
 menu_title: ""
-description: "Servir dans le réseau de l'Amour (Collection générale 2020)"
+description: "André, reçu par Helge Mercker : « Chère fille, je désire écrire et passer ce temps de prière avec toi et parler de l’établissement du portail à cet endroit. »"
 date: 2022-06-01 06:00:01+00:1074
 draft: False
 hidden: True

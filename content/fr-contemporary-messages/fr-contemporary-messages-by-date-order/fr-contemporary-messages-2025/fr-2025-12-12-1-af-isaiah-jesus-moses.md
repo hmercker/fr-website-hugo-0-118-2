@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes les canaux vivants des bénédictions divines sur Terre"
 menu_title: ""
-description: "Vous êtes les canaux vivants des bénédictions divines sur Terre"
+description: "Isaïe, Jésus, Moïse, reçu par Albert Fike : « Puissiez-vous continuer d’être ce canal, cette belle bénédiction pour les autres, car nous ne venons pas … »"
 date: 2026-01-21 16:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Soyez en sainte communion avec Dieu"
 menu_title: ""
-description: "Soyez en sainte communion avec Dieu"
+description: "Isaïe, reçu par Albert Fike : « Car vous avez besoin de Ses bénédictions. Vous avez besoin de tout ce que Dieu a à vous donner. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

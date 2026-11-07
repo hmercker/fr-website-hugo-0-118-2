@@ -1,7 +1,7 @@
 ---
 title: "Le monde du regret"
 menu_title: ""
-description: "Le monde du regret"
+description: "Care Darby Walsh, reçu par reçu par Jimbeau Walsh : « Je souhaite parler de ce à quoi tant de personnes s’accrochent et qui cause tant de souffrances, non … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

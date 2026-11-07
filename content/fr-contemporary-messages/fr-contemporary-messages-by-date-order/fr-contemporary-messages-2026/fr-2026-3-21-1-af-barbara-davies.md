@@ -1,7 +1,7 @@
 ---
 title: "Choisir l'Amour : Les efforts que vous déployez pour apporter lumière et changement sur Terre vous apporteront de grandes récompenses spirituelles"
 menu_title: ""
-description: "Choisir l'Amour : Les efforts que vous déployez pour apporter lumière et changement sur Terre vous apporteront de grandes récompenses spirituelles"
+description: "Barbara Davies, reçu par Al Fike : « Certains d’entre vous me connaissent. D’autres ne m’ont jamais rencontrée, mais je vous connais. »"
 date: 2026-05-24 16:00:01+00:01
 draft: False
 hidden: True

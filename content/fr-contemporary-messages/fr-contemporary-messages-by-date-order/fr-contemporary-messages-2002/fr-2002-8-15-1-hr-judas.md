@@ -1,7 +1,7 @@
 ---
 title: "Paul de Tarse et la Première Épître aux Corinthiens"
 menu_title: ""
-description: "Paul de Tarse et la Première Épître aux Corinthiens"
+description: "Judas, reçu par H : « Mon cher H , j’ai l’intention de continuer avec l’histoire de Jésus dans l’ordre chronologique. »"
 date: 2022-06-01 06:00:01+00:84
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Shakespeare - autres auteurs contemporains"
 menu_title: ""
-description: "Shakespeare - autres auteurs contemporains"
+description: "William Shakespeare, reçu par FAB : « Ackroyd fait un superbe travail, au chapitre 26, pour décrire l'état de l'art dramatique, et les influences de ces … »"
 date: 2022-06-01 06:00:01+00:148
 draft: False
 hidden: True

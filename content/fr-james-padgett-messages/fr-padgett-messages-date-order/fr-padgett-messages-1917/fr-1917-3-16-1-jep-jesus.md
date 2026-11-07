@@ -1,7 +1,7 @@
 ---
 title: "Jésus accepte la suggestion de M. Padgett d’écrire sur l’âme, lorsqu’il sera en meilleure disposition. Jésus informe également M. Padgett que le travail de M. Morgan n’est pas le même que le sien"
 menu_title: ""
-description: "Jésus accepte la suggestion de M. Padgett d’écrire sur l’âme, lorsqu’il sera en meilleure disposition. Jésus informe également M. Padgett que le travail de M. Morgan n’est pas le même que le sien"
+description: "Jésus, reçu par James Padgett : « Gardez votre courage et croyez, et toutes les choses que j’ai promises vous arriveront, et vous ne serez pas déçus. »"
 date: 2022-06-01 06:00:01+00:88
 draft: False
 hidden: True

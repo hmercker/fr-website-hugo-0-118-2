@@ -1,7 +1,7 @@
 ---
 title: "Je vais tenter de réitérer ce message"
 menu_title: ""
-description: "Je vais tenter de réitérer ce message"
+description: "Seretta Kem, reçu par Al Fike : « Je vais tenter de réitérer ce message qui vous a tant touchés, mais je devrai le faire à un moment donné dans le futur. »"
 date: 2026-10-24 06:00:01+00:01
 draft: False
 hidden: True

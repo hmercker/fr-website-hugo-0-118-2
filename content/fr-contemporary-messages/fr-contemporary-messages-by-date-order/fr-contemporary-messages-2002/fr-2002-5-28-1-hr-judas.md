@@ -1,7 +1,7 @@
 ---
 title: "Salomé"
 menu_title: ""
-description: "Salomé"
+description: "Judas, reçu par H : « Mon cher H , ce n’est pas le jour, aujourd’hui, pour délivrer un long message. Tu as attrapé un rhume, et ton mal de tête ne nous … »"
 date: 2022-06-01 06:00:01+00:73
 draft: False
 hidden: True

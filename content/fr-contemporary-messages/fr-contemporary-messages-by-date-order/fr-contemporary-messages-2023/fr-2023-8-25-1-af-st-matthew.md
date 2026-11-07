@@ -1,7 +1,7 @@
 ---
 title: "Le pouvoir des bénédictions de Dieu est plus fort que toute autre force dans l'univers"
 menu_title: ""
-description: "Le pouvoir des bénédictions de Dieu est plus fort que toute autre force dans l'univers"
+description: "St Matthieu, reçu par Albert Fike : « Un monde soumis aux caprices de l'homme, un monde soumis aux forces de la nature, un monde soumis aux bénédictions … »"
 date: 2023-09-01 06:00:01+00:66
 draft: False
 hidden: True

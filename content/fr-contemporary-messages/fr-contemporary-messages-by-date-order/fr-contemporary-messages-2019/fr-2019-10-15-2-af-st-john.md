@@ -1,7 +1,7 @@
 ---
 title: "L'innocence de l'âme prépare le terrain pour la guidance Divine"
 menu_title: ""
-description: "L'innocence de l'âme prépare le terrain pour la guidance Divine"
+description: "St Jean, reçu par Al Fike : « Notre chère fille se sent à bout de souffle comme vous diriez, et n’est pas sûre de la direction à prendre ou sûre de ce que … »"
 date: 2022-06-01 06:00:01+00:880
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "A. G. Riddle : Affirmation que Jésus a montré sa gloire"
 menu_title: ""
-description: "A. G. Riddle : Affirmation que Jésus a montré sa gloire"
+description: "Albert Riddle, reçu par James Padgett : « Je sais, il est tard, mais, pourtant, je dois dire que ce que ce qui a vous été dit est vrai, et, quand on parle … »"
 date: 2022-06-01 06:00:01+00:73
 draft: False
 hidden: True

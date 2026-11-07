@@ -1,7 +1,7 @@
 ---
 title: "Laissez émerger les tendres pousses de votre âme"
 menu_title: ""
-description: "Laissez émerger les tendres pousses de votre âme"
+description: "St Matthieu, reçu par Al Fike : « Cela témoigne de vos efforts, de vos désirs d'attirer le Maître près de vous, afin qu'il puisse vous bénir profondément … »"
 date: 2022-06-01 06:00:01+00:164
 draft: False
 hidden: True

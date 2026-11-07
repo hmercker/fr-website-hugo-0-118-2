@@ -1,7 +1,7 @@
 ---
 title: "Nous ne souhaitons pas que vous rattachiez vos prières à une religion quelconque"
 menu_title: ""
-description: "Nous ne souhaitons pas que vous rattachiez vos prières à une religion quelconque"
+description: "Yogananda, reçu par Albert Fike : « J’ai attendu avant de venir afin que vous puissiez simplement demeurer dans la grâce de Dieu ; je souhaite simplement … »"
 date: 2026-10-28 06:00:01+00:01
 draft: False
 hidden: True

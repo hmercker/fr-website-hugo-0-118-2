@@ -1,7 +1,7 @@
 ---
 title: "L'Amour de Dieu vous ouvre les portes de l'entendement"
 menu_title: ""
-description: "L'Amour de Dieu vous ouvre les portes de l'entendement"
+description: "Isaïe, reçu par Al Fike : « Sa main est sur chacun d’entre vous. Vous êtes dans cette grande vague de Lumière et d’Amour. »"
 date: 2022-06-01 06:00:01+00:324
 draft: False
 hidden: True

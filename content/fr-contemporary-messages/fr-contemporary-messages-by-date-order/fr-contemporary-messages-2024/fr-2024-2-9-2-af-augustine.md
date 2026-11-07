@@ -1,7 +1,7 @@
 ---
 title: "Faites toujours face à la lumière de l’Amour de Dieu"
 menu_title: ""
-description: "Faites toujours face à la lumière de l’Amour de Dieu"
+description: "Augustin, reçu par Albert Fike : « Alors que le soleil se lève toujours à l’Est, vous réchauffant, vous touchant de la chaleur de la création de Dieu, Son … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

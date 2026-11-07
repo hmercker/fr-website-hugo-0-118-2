@@ -1,7 +1,7 @@
 ---
 title: "La seconde sphère"
 menu_title: ""
-description: "La seconde spèere"
+description: "Judas, reçu par H : « Après m’être exprimé sur ces terribles attentats survenus aux États-Unis, et sur leurs causes et leurs conséquences, je voudrais … »"
 date: 2022-06-01 06:00:01+00:44
 draft: False
 hidden: True

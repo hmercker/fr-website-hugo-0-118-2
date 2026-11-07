@@ -1,7 +1,7 @@
 ---
 title: "Les tentatives de suicide de Judy Garland"
 menu_title: ""
-description: "Les tentatives de suicide de Judy Garland"
+description: "Judy Garland, reçu par FAB : « Laissez-moi vous parler de mes tentatives de suicide. Ce fut la lutte la plus difficile ici. »"
 date: 2022-06-01 06:00:01+00:120
 draft: False
 hidden: True

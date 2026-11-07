@@ -1,7 +1,7 @@
 ---
 title: "J’ai fait un long voyage"
 menu_title: ""
-description: "J’ai fait un long voyage"
+description: "Tristiana, reçu par NA : « L’Âme du père n’est pas une surface plane mais est arrondie comme une sphère allongée. J’ai été autorisé à parler à cette … »"
 date: 2022-06-01 06:00:01+00:14
 draft: False
 hidden: True

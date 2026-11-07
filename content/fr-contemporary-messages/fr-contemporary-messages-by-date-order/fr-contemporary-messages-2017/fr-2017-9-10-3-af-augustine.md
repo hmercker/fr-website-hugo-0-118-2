@@ -1,7 +1,7 @@
 ---
 title: "Invitation à prier quotidiennement avec Lorraine pour recevoir des enseignements"
 menu_title: ""
-description: "Invitation à prier quotidiennement avec Lorraine pour recevoir des enseignements"
+description: "Augustin, reçu par Al Fike : « Je vous invite à vous réunir chaque jour en prière. Ce faisant, nous ferons naître quelques enseignements, que vous pourrez … »"
 date: 2022-06-01 06:00:01+00:92
 draft: False
 hidden: True

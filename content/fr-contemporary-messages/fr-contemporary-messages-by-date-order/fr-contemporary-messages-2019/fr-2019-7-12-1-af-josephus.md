@@ -1,7 +1,7 @@
 ---
 title: "Se préparer spirituellement aux changements à venir dans le monde"
 menu_title: ""
-description: "Se préparer spirituellement aux changements à venir dans le monde"
+description: "Flavius Josèphe, reçu par Al Fike : « Je souhaite moi aussi vous remercier d’avoir écouté, d’avoir participé à ce Cercle de Lumière. »"
 date: 2022-06-01 06:00:01+00:780
 draft: False
 hidden: True

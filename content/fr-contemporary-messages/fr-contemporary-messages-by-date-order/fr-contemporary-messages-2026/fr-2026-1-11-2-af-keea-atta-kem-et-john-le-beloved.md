@@ -1,7 +1,7 @@
 ---
 title: "Une âme en relation avec Dieu ne connaît pas de limites"
 menu_title: ""
-description: "Une âme en relation avec Dieu ne connaît pas de limites"
+description: "Keea Atta Kem, reçu par Albert Fike : « Bienvenue dans ce Cercle de Lumière, ce lieu de lumière, vous, êtres de lumière, réunis aujourd’hui pour chercher … »"
 date: 2026-03-15 06:00:00+00:00
 draft: False
 hidden: True

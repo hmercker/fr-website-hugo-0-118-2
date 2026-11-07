@@ -1,7 +1,7 @@
 ---
 title: "Jean conseille à M. Padgett d’abandonner la lecture de documents non pertinents et de s’appliquer aux écrits qui lui ont été donnés par Jésus et les autres esprits Célestes"
 menu_title: ""
-description: "Jean conseille à M. Padgett d’abandonner la lecture de documents non pertinents et de s’appliquer aux écrits qui lui ont été donnés par Jésus et les autres esprits Célestes"
+description: "St Jean, reçu par James Padgett : « Je ne veux écrire, ce soir, que quelques lignes, pour vous dire que vous ne possédez pas la condition d’âme que vous … »"
 date: 2022-06-01 06:00:01+00:168
 draft: False
 hidden: True

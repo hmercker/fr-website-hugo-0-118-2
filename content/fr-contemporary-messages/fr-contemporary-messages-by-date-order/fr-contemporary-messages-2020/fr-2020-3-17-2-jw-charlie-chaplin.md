@@ -1,7 +1,7 @@
 ---
 title: "Partagez vos dons"
 menu_title: ""
-description: "Partagez vos dons"
+description: "Charlie Chaplin, reçu par Jimbeau Walsh : « Certains d’entre vous me connaissent sous le nom de Charlie. C’est donc le moment idéal pour partager des … »"
 date: 2022-06-01 06:00:01+00:1035
 draft: False
 hidden: True

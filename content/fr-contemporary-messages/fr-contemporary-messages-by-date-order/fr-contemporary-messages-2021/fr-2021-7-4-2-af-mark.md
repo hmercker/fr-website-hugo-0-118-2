@@ -1,7 +1,7 @@
 ---
 title: "Bénédictions pour la Première Eglise Spiritualiste"
 menu_title: ""
-description: "Bénédictions pour la Première Eglise Spiritualiste"
+description: "Marc, reçu par Al Fike : « L’exigence de Dieu pour Ses enfants est qu’ils s’aiment les uns les autres et qu’ils cherchent à être une lumière les uns pour … »"
 date: 2022-06-01 06:00:01+00:1564
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Libérer les ténèbres intérieures en recevant l'Amour du Père"
 menu_title: ""
-description: "Libérer les ténèbres intérieures en recevant l'Amour du Père"
+description: "Martin Luther, reçu par Al Fike : « Je vois que certains d'entre vous ont des réactions dramatiques aux conditions qui s'infusent dans vos corps et vos … »"
 date: 2022-06-01 06:00:01+00:165
 draft: False
 hidden: True

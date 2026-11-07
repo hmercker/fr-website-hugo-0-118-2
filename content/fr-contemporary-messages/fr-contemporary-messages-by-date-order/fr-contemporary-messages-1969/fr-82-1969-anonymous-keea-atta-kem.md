@@ -1,7 +1,7 @@
 ---
 title: "Leçon sur la Voix Directe"
 menu_title: ""
-description: "Leçon sur la Voix Directe"
+description: "Keea Atta Kem : « Ces occasions sont si importantes pour nous et je sens que nous devons accomplir beaucoup de choses ce soir. »"
 date: 2022-06-01 06:00:01+00:69
 draft: False
 hidden: True

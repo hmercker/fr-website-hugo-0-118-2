@@ -1,7 +1,7 @@
 ---
 title: "55ème Sermon – Jésus explique le vrai sens des prophéties de Habacuc"
 menu_title: ""
-description: "55ème Sermon – Jésus explique le vrai sens des prophéties de Habacuc"
+description: "Jésus, reçu par Dr Samuels : « Maintenant la deuxième partie de la réponse porte sur le sort des méchants. Cette réponse est assez longue et couvre les … »"
 date: 2022-06-01 06:00:01+00:108
 draft: False
 hidden: True

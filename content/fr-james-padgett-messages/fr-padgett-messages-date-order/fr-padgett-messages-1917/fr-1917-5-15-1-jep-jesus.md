@@ -1,7 +1,7 @@
 ---
 title: "Le seul chemin vers le royaume de Dieu dans les Cieux Célestes"
 menu_title: ""
-description: "Le seul chemin vers le royaume de Dieu dans les Cieux Célestes"
+description: "Jésus, reçu par James Padgett : « J’ai décrit le chemin vers le Royaume de Dieu sur terre et dans le monde des esprits, et, maintenant, je vais décrire le … »"
 date: 2022-06-01 06:00:01+00:130
 draft: False
 hidden: True

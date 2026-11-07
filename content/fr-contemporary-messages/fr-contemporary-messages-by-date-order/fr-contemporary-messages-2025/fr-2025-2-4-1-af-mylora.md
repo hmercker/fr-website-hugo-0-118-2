@@ -1,7 +1,7 @@
 ---
 title: "Message de clôture : Bénédiction de guérison"
 menu_title: ""
-description: "Message de clôture : Bénédiction de guérison"
+description: "Mylora, reçu par Albert Fike : « Vous avez accompli un excellent travail. Vous avez voyagé vers ces îles d’âmes en quête, des îles où beaucoup sont perdues. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Saint Jérôme – Les vérités de Dieu ne doivent pas être recherchées dans ses écrits ou dans ceux des disciples tels que contenus dans la Bible, à cause de nombreuses erreurs"
 menu_title: ""
-description: "Saint Jérôme – Les vérités de Dieu ne doivent pas être recherchées dans ses écrits ou dans ceux des disciples tels que contenus dans la Bible, à cause de nombreuses erreurs"
+description: "St Jérôme, reçu par James Padgett : « Vous ne savez peut-être rien de moi, mais j’ai été canonisé, il y a plusieurs siècles, par l’église, parce qu’elle … »"
 date: 2022-06-01 06:00:01+00:202
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Comment discerner la Vérité lorsque des messages provenant de différents médiums se contredisent ?"
 menu_title: ""
-description: "Comment discerner la Vérité lorsque des messages provenant de différents médiums se contredisent ?"
+description: "Jésus, reçu par Al Fike : « Comme vous pouvez l’imaginer, il y a de nombreux éléments et aspects impliqués dans ce don. »"
 date: 2022-06-01 06:00:01+00:628
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Passez du temps en prière plutôt que de vous inquiéter, Dieu veille sur vous"
 menu_title: ""
-description: "Passez du temps en prière plutôt que de vous inquiéter, Dieu veille sur vous"
+description: "André, reçu par Al Fike : « Comme vous êtes bien protégés dans vos vies ; en sécurité, au chaud, vous ne voulez rien, âmes aimées. »"
 date: 2022-06-01 06:00:01+00:986
 draft: False
 hidden: True

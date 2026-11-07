@@ -1,7 +1,7 @@
 ---
 title: "Mozart complète son message précédent"
 menu_title: ""
-description: "Mozart complète son message précédent"
+description: "Wolfgang Amadeus Mozart, reçu par FAB : « Permettez-moi de canaliser un complément à ce que j’ai dit dans mon message précédent. Dans ce message, j’ai dit … »"
 date: 2022-06-01 06:00:01+00:136
 draft: False
 hidden: True

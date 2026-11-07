@@ -1,7 +1,7 @@
 ---
 title: "Ne pas juger les autres mais les accepter et les embrasser"
 menu_title: ""
-description: "Ne pas juger les autres mais les accepter et les embrasser"
+description: "André, reçu par Al Fike : « Vous avez tous été richement bénis au cours de cette dernière période sur votre chemin, richement bénis en effet. »"
 date: 2022-06-01 06:00:01+00:834
 draft: False
 hidden: True

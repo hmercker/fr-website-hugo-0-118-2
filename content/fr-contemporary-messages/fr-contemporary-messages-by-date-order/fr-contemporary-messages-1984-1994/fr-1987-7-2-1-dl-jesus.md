@@ -1,7 +1,7 @@
 ---
 title: "Sur la guérison, la loi changement et la croissance"
 menu_title: ""
-description: "Sur la guérison, la loi changement et la croissance"
+description: "Jésus, reçu par Révérend Dave Lampron : « Aujourd’hui, je voudrais discuter du progrès du travail de l’église, mais je voudrais aussi répondre à votre … »"
 date: 2022-06-01 06:00:01+00:23
 draft: False
 hidden: True

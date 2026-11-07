@@ -1,7 +1,7 @@
 ---
 title: "Notre amour touche vos âmes"
 menu_title: ""
-description: "Notre amour touche vos âmes"
+description: "Marie Madeleine, reçu par Elizabeth Mack : « Au plus profond de vos âmes, nous sommes tous connectés à notre Père. Vous pouvez faire confiance à cette … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

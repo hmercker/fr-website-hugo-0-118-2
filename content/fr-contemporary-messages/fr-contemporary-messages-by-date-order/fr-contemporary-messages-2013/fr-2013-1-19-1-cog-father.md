@@ -1,7 +1,7 @@
 ---
 title: "Te connaître pour me connaître"
 menu_title: ""
-description: "Te connaître pour me connaître"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Te connaitre pour Me connaitre. Tu es une portion de Mon âme. »"
 date: 2022-06-01 06:00:01+00:15
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Bienvenue au Grand Hall de la Paix"
 menu_title: ""
-description: "Bienvenue au Grand Hall de la Paix"
+description: "Jésus, reçu par Albert Fike : « En effet, je vous souhaite la bienvenue au Hall de la Paix. La puissance du désir de vos âmes apporte le grand don de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

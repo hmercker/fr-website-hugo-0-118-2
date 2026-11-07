@@ -1,7 +1,7 @@
 ---
 title: "La pression de la résistance au changement s'accentue"
 menu_title: ""
-description: "La pression de la résistance au changement s'accentue"
+description: "Augustin, reçu par Al Fike : « C’est votre enseignant, Augustin. La pression monte, âmes bien-aimées, la pression qui monte du flux de bénédictions et … »"
 date: 2022-06-01 06:00:01+00:158
 draft: False
 hidden: True

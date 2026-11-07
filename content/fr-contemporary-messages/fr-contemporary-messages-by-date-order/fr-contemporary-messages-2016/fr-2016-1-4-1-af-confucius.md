@@ -1,7 +1,7 @@
 ---
 title: "Accepter les nouvelles prises de conscience d'une âme qui se libère"
 menu_title: ""
-description: "Accepter les nouvelles prises de conscience d'une âme qui se libère"
+description: "Confucius, reçu par Al Fike : « Et votre responsabilité est de présenter à Dieu ces noms, ces âmes, ces lieux et ces conditions qui ont besoin de Ses … »"
 date: 2022-06-01 06:00:01+00:148
 draft: False
 hidden: True

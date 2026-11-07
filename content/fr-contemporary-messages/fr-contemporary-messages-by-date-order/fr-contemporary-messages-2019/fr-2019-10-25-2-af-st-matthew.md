@@ -1,7 +1,7 @@
 ---
 title: "Importance du désir et de l'intention pour recevoir l'Amour et la Vérité de Dieu"
 menu_title: ""
-description: "Importance du désir et de l'intention pour recevoir l'Amour et la Vérité de Dieu"
+description: "St Matthieu, reçu par Al Fike : « En chacun de vous, il y a un désir profond de l’Amour de Dieu. Cela continue de vous amener à prier votre Père Céleste … »"
 date: 2022-06-01 06:00:01+00:886
 draft: False
 hidden: True

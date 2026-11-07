@@ -1,7 +1,7 @@
 ---
 title: "L'éveil et la libération de l'âme par l'Amour Divin"
 menu_title: ""
-description: "L'éveil et la libération de l'âme par l'Amour Divin"
+description: "St Matthieu, reçu par Al Fike : « Nous voyons l’engourdissement et le malaise qui ensevelissent l’âme sous tant de couches de non-sentiment, de … »"
 date: 2022-06-01 06:00:01+00:517
 draft: False
 hidden: True

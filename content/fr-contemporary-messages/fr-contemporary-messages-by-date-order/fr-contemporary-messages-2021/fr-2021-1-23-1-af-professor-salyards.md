@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes tous prêts pour la prochaine étape"
 menu_title: ""
-description: "Vous êtes tous prêts pour la prochaine étape"
+description: "Professeur Salyards, reçu par Al Fike : « Je comparerais cela à la plantation d’un jardin. Vous semez des graines dans ce jardin et au fur et à mesure que … »"
 date: 2022-06-01 06:00:01+00:1394
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L’importance de nos cercles"
 menu_title: ""
-description: "L’importance de nos cercles"
+description: "St François d'Assise, reçu par Al Fike : « Car il y en a beaucoup d'autres qui remplissent cette tâche. Cependant, nous sommes tous réunis dans ce Cercle … »"
 date: 2022-06-01 06:00:01+00:23
 draft: False
 hidden: True

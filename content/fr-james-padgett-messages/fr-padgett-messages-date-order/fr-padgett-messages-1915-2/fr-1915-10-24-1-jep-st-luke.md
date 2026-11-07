@@ -1,7 +1,7 @@
 ---
 title: "Explique la dématérialisation du corps terrestre de Jésus"
 menu_title: ""
-description: "Explique la dématérialisation du corps terrestre de Jésus"
+description: "St Luc, reçu par James Padgett : « Luc, qui fut l’auteur du troisième Évangile. J’étais avec vous ce soir lors de la réunion des Spiritualistes et j’ai … »"
 date: 2022-06-01 06:00:01+00:15
 draft: False
 hidden: True

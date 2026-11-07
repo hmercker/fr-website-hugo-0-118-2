@@ -1,7 +1,7 @@
 ---
 title: "La loi de compensation"
 menu_title: ""
-description: "La loi de compensation"
+description: "Marie, reçu par Amada Reza : « Je dois dire que souvent, lorsque nous répondons à des questions de manière précise et claire, ces réponses sont mal … »"
 date: 2022-06-01 06:00:01+00:01
 draft: False
 hidden: True

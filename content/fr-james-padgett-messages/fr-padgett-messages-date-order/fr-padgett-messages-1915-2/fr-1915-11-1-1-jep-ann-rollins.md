@@ -1,7 +1,7 @@
 ---
 title: "La croyance dans le péché impardonnable est diffamatoire"
 menu_title: ""
-description: "La croyance dans le péché impardonnable est diffamatoire"
+description: "Anne Rollins, reçu par James Padgett : « La question du péché impardonnable est de la plus grande importance pour le monde, surtout si l’on tient compte … »"
 date: 2022-06-01 06:00:01+00:34
 draft: False
 hidden: True

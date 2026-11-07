@@ -1,7 +1,7 @@
 ---
 title: "Votre service envers Dieu grandira avec votre âme"
 menu_title: ""
-description: "Votre service envers Dieu grandira avec votre âme"
+description: "André, reçu par Albert Fike : « L’Amour du Père soit avec vous, chaque belle âme présente, tous ceux qui sont connectés à ce groupe et tous ceux qui … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

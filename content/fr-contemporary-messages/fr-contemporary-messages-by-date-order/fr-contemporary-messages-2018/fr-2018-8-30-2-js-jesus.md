@@ -1,7 +1,7 @@
 ---
 title: "L'amour est le grand libérateur"
 menu_title: ""
-description: "L'amour est le grand libérateur"
+description: "Jésus, reçu par Jesper Sorensen : « L’amour est le grand libérateur. L’amour est la chose qui va libérer votre âme des incrustations et de l’obscurité qui … »"
 date: 2022-06-01 06:00:01+00:463
 draft: False
 hidden: True

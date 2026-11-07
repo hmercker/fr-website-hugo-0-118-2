@@ -1,7 +1,7 @@
 ---
 title: "Le président Roosevelt complète son message précédent"
 menu_title: ""
-description: "Le président Roosevelt complète son message précédent"
+description: "Franklin D Roosevelt, reçu par FAB : « Je veux discuter d'une déclaration que j'ai faite dans mon dernier message que j'ai canalisé à travers vous. »"
 date: 2022-06-01 06:00:01+00:77
 draft: False
 hidden: True

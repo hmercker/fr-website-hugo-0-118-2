@@ -1,7 +1,7 @@
 ---
 title: "Libérer l'obstruction de nos esprits"
 menu_title: ""
-description: "Libérer l'obstruction de nos esprits"
+description: "Augustin, reçu par Al Fike : « Je vous demande de faire taire vos esprits afin que vos âmes puissent s’élever et que la conscience de vos âmes puisse … »"
 date: 2022-06-01 06:00:01+00:1328
 draft: False
 hidden: True

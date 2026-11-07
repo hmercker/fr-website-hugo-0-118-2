@@ -1,7 +1,7 @@
 ---
 title: "Le Septième Sens"
 menu_title: ""
-description: "Le Septième Sens"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Comment donner un sens à un monde qui semble en proie au chaos, à la guerre, à la pauvreté, à tant de … »"
 date: 2022-06-01 06:00:01+00:105
 draft: False
 hidden: True

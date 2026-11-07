@@ -1,7 +1,7 @@
 ---
 title: "Nourrir son âme"
 menu_title: ""
-description: "Nourrir son âme"
+description: "St François d'Assise, reçu par Al Fike : « Tu dois prier avec ferveur Dieu et lui demander de te guider et d’ouvrir tes sens afin que tu puisses être dans … »"
 date: 2022-06-01 06:00:01+00:243
 draft: False
 hidden: True

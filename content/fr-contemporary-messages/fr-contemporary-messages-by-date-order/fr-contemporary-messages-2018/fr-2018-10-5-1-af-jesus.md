@@ -1,7 +1,7 @@
 ---
 title: "Jésus répond à nos prières de gratitude"
 menu_title: ""
-description: "Jésus répond à nos prières de gratitude"
+description: "Jésus, reçu par Al Fike : « Les désirs de vos âmes sont tout à fait évidents à mes yeux. C’est dans ce désir que vous exprimez à Dieu, dans votre amour de … »"
 date: 2022-06-01 06:00:01+00:500
 draft: False
 hidden: True

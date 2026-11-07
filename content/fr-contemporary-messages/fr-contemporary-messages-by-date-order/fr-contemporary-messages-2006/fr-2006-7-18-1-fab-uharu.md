@@ -1,7 +1,7 @@
 ---
 title: "Valeurs Amérindiennes"
 menu_title: ""
-description: "Valeurs Amérindiennes"
+description: "Uharu, reçu par FAB : « Je sais que vous avez canalisé que j’ai dit que mon ancienne tribu ne connaissait pas les maux de la civilisation . »"
 date: 2022-06-01 06:00:01+00:30
 draft: False
 hidden: True

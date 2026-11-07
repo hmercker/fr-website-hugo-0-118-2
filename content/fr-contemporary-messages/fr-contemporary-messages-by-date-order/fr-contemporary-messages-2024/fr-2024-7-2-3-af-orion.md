@@ -1,7 +1,7 @@
 ---
 title: "Pratiquez la conscience de l'âme"
 menu_title: ""
-description: "Pratiquez la conscience de l'âme"
+description: "Orion, reçu par Albert Fike : « Bénédictions à vous, mes amis. L’éveil se fait par à-coups, par étapes. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

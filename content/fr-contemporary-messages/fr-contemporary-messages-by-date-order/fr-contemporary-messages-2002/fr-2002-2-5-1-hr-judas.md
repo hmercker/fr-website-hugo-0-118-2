@@ -1,7 +1,7 @@
 ---
 title: "Le retour à Capharnaüm"
 menu_title: ""
-description: "Le retour à Capharnaüm"
+description: "Judas, reçu par H : « Mon cher frère H , hier nous avons terminé notre histoire avec le retour de Jésus sur le lac après son baptême. »"
 date: 2022-06-01 06:00:01+00:21
 draft: False
 hidden: True

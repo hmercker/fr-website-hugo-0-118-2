@@ -1,7 +1,7 @@
 ---
 title: "Le système et la générosité - 2"
 menu_title: ""
-description: "Le système et la générosité - 2"
+description: "Jésus, reçu par FAB : « Maintenant, vous avez appris que de nombreuses banques communautaires dans tout le pays ne sont pas avides et sont tout à fait … »"
 date: 2022-06-01 06:00:01+00:41
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Recommencer à zéro"
 menu_title: ""
-description: "Recommencer à zéro"
+description: "Judas, reçu par Jimbeau Walsh : « C’est un bon moment pour recommencer, pour changer de cap, pour marcher dans la foi. La Volonté de Dieu permet que tout … »"
 date: 2022-06-01 06:00:01+00:1632
 draft: False
 hidden: True

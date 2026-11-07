@@ -1,7 +1,7 @@
 ---
 title: "Le maître de maison vous approuve"
 menu_title: ""
-description: "Le maître de maison vous approuve"
+description: "Faith Nyquist, reçu par Al Fike : « Vous ne devez pas vous inquiéter, mais poursuivre vos recherches et vos efforts simples mais inébranlables pour … »"
 date: 2026-10-12 06:00:01+00:84
 draft: False
 hidden: True

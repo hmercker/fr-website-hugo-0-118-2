@@ -1,7 +1,7 @@
 ---
 title: "Les vents du changement soufflent"
 menu_title: ""
-description: "Les vents du changement soufflent"
+description: "André, reçu par Albert Fike : « … Mes amis, des changements sont à venir. Ils soufflent sur le monde entier, non seulement le Souffle de Dieu, mais aussi … »"
 date: 2026-02-03 16:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le message de Mathieu au réseau de lumière"
 menu_title: ""
-description: "Le message de Mathieu au réseau de lumière"
+description: "St Matthieu, reçu par Al Fike : « Il est bon de voir que vous êtes en train de vous rapprocher les uns aux autres, de chercher la relation et de venir … »"
 date: 2022-06-01 06:00:01+00:600
 draft: False
 hidden: True

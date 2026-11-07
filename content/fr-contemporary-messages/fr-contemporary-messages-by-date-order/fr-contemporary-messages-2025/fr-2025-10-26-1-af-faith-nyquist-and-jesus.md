@@ -1,7 +1,7 @@
 ---
 title: "Devenir des instruments de l’Amour de Dieu : Un appel à servir et à faire rayonner sa lumière"
 menu_title: ""
-description: "Devenir des instruments de l’Amour de Dieu : Un appel à servir et à faire rayonner sa lumière"
+description: "Faith Nyquist et Jésus, reçu par Albert Fike : « Je vous demande, mes frères et sœurs, de chercher comment soutenir vos frères et sœurs, comment faire … »"
 date: 2025-12-12 16:00:01+00:01
 draft: False
 hidden: True

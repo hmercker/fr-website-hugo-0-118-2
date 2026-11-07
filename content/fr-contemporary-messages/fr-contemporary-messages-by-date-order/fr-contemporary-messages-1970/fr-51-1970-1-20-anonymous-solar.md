@@ -1,7 +1,7 @@
 ---
 title: "Préparez-vous"
 menu_title: ""
-description: "Préparez-vous"
+description: "Solar : « Nous ne donnons pas notre temps à la légère et à moins que les membres du groupe ne soient intéressés à servir Dieu et à se rendre dignes d'être … »"
 date: 2022-06-01 06:00:01+00:119
 draft: False
 hidden: True

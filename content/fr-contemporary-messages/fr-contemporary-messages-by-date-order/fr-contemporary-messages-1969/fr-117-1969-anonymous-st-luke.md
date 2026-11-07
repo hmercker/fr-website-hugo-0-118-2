@@ -1,7 +1,7 @@
 ---
 title: "Parle de la Bible, de la guérison et de l'Orientation Correcte."
 menu_title: ""
-description: "Parle de la Bible, de la guérison et de l'Orientation Correcte."
+description: "St Luc : « Beaucoup d'entre vous ont lu et étudié les enseignements de la Bible qui se réfèrent à moi et, pour un court moment, je voudrais en parler. »"
 date: 2022-06-01 06:00:01+00:83
 draft: False
 hidden: True

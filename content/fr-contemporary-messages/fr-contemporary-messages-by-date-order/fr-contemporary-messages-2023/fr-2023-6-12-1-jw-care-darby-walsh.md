@@ -1,7 +1,7 @@
 ---
 title: "Le vrai bonheur"
 menu_title: ""
-description: "Le vrai bonheur"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Ahh, le bonheur insaisissable que tous les humains recherchent. Pour certains, c’est aussi simple qu’un repas. »"
 date: 2023-09-01 06:00:01+00:38
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Commentaire sur les changements terrestres"
 menu_title: ""
-description: "Commentaire sur les changements terrestres"
+description: "Augustin, reçu par Al Fike : « Vous pouvez observer, effectivement, les manifestations extérieures de la condition de l’homme, résultat du manque d’amour … »"
 date: 2022-06-01 06:00:01+00:446
 draft: False
 hidden: True

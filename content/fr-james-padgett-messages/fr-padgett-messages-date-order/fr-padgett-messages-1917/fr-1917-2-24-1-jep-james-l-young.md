@@ -1,7 +1,7 @@
 ---
 title: "S’efforcer de sortir des ténèbres"
 menu_title: ""
-description: "S’efforcer de sortir des ténèbres"
+description: "James L Young, reçu par James Padgett : « Laissez-moi vous dire un mot. Je ne suis pas un esprit très brillant, mais je m’efforce de sortir de mes … »"
 date: 2022-06-01 06:00:01+00:63
 draft: False
 hidden: True

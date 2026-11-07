@@ -1,7 +1,7 @@
 ---
 title: "Notre développement"
 menu_title: ""
-description: "Notre développement"
+description: "Ourson Véloce, reçu par Alfredo : « Toute chose a besoin de temps pour se développer, et vous montrez ainsi votre volonté de l’accomplir. »"
 date: 2022-06-01 06:00:01+00:34
 draft: False
 hidden: True

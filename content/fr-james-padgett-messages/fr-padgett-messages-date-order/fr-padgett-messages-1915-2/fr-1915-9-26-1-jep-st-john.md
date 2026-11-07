@@ -1,7 +1,7 @@
 ---
 title: "Jean – Efficacité de la Foi en Dieu"
 menu_title: ""
-description: "Jean – Efficacité de la Foi en Dieu"
+description: "St Jean, reçu par James Padgett : « Je veux seulement dire que la foi dont le prédicateur a parlé ce soir et qui était détenue par Élie est la foi que … »"
 date: 2022-06-01 06:00:01+00:272
 draft: False
 hidden: True

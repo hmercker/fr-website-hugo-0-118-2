@@ -1,7 +1,7 @@
 ---
 title: "Laissez derrière vous ce qui n'est pas digne de votre marche future !"
 menu_title: ""
-description: "Laissez derrière vous ce qui n'est pas digne de votre marche future !"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Je ne souhaite pas perturber la belle paix et la grâce qui abondent dans ce cercle de prière, mais je … »"
 date: 2022-06-01 06:00:01+00:53
 draft: False
 hidden: True

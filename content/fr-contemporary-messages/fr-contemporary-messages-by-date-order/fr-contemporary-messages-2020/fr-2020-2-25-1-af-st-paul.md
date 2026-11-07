@@ -1,7 +1,7 @@
 ---
 title: "Quand vous priez, vous invitez Dieu à guérir"
 menu_title: ""
-description: "Quand vous priez, vous invitez Dieu à guérir"
+description: "St Paul, reçu par Al Fike : « Lorsque vous priez pour que l’Amour de Dieu entre dans ce monde, qu’il entre dans votre âme, vous invitez les bénédictions … »"
 date: 2022-06-01 06:00:01+00:1005
 draft: False
 hidden: True

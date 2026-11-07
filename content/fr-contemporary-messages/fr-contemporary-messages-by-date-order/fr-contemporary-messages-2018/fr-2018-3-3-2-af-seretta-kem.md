@@ -1,7 +1,7 @@
 ---
 title: "Allez-vous répondre à l'appel de Dieu ?"
 menu_title: ""
-description: "Allez-vous répondre à l'appel de Dieu ?"
+description: "Seretta Kem, reçu par Al Fike : « Je fus autrefois un habitant de l’Égypte plusieurs milliers d’années auparavant et maintenant je réside dans le Royaume … »"
 date: 2022-06-01 06:00:01+00:339
 draft: False
 hidden: True

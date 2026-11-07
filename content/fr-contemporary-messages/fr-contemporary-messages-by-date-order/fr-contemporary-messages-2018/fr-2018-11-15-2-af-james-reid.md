@@ -1,7 +1,7 @@
 ---
 title: "Nous travaillons ensemble au service de Dieu"
 menu_title: ""
-description: "Nous travaillons ensemble au service de Dieu"
+description: "James Reid, reçu par Al Fike : « Si j’étais encore sur la terre, j’aurais aimé me joindre à vous dans ce cercle d’hommes spirituels. »"
 date: 2022-06-01 06:00:01+00:564
 draft: False
 hidden: True

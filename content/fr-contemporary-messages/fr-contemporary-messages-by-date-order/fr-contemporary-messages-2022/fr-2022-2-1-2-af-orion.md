@@ -1,7 +1,7 @@
 ---
 title: "Décrit les efforts pour nous aider à nous préparer aux manifestations physiques"
 menu_title: ""
-description: "Décrit les efforts pour nous aider à nous préparer aux manifestations physiques"
+description: "Orion, reçu par Al Fike : « Alors que vous vous asseyez et priez ensemble pour recevoir le don de Dieu qui est Son amour, Son essence, transformant vos … »"
 date: 2023-09-01 06:00:01+00:13
 draft: False
 hidden: True

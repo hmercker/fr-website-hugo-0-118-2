@@ -1,7 +1,7 @@
 ---
 title: "Confirmation par un pape (Jean XXIII)"
 menu_title: ""
-description: "Confirmation par un pape (Jean XXIII)"
+description: "Pape Jean XXIII, reçu par FAB : « La piété était le fondement de mon âme. Avec humilité, j'ai pu préserver et protéger cette piété. »"
 date: 2022-06-01 06:00:01+00:65
 draft: False
 hidden: True

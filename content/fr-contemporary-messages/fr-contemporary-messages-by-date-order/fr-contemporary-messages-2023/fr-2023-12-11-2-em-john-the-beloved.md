@@ -1,7 +1,7 @@
 ---
 title: "Le Plan de Dieu en Action"
 menu_title: ""
-description: "Le Plan de Dieu en Action"
+description: "Jean le Bien Aimé, reçu par Elizabeth Mack : « Vous connaissez la vérité et vous la mettez en pratique chaque fois que vous priez, chaque fois que vous … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

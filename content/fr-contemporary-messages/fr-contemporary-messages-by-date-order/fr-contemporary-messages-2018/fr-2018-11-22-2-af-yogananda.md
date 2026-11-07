@@ -1,7 +1,7 @@
 ---
 title: "Les chemins de la conscience"
 menu_title: ""
-description: "Les chemins de la conscience"
+description: "Yogananda, reçu par Al Fike : « Et dans la prière et la médiation, les avenues de la pensée sont ouvertes, apportant des expériences qui ne sont pas tant … »"
 date: 2022-06-01 06:00:01+00:575
 draft: False
 hidden: True

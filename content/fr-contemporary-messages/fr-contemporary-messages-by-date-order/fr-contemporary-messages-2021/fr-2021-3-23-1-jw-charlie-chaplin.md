@@ -1,7 +1,7 @@
 ---
 title: "Découvrez vos dons"
 menu_title: ""
-description: "Découvrez vos dons"
+description: "Charlie Chaplin, reçu par Jimbeau Walsh : « C’est tellement merveilleux de voir l’humour retrouvé, de voir la joie qui vous envahit dans votre beau … »"
 date: 2022-06-01 06:00:01+00:1449
 draft: False
 hidden: True

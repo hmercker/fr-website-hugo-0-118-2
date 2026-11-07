@@ -1,7 +1,7 @@
 ---
 title: "Voyage spirituel dans l'Amour Divin"
 menu_title: ""
-description: "Voyage spirituel dans l'Amour Divin"
+description: "Keea Atta Kem, reçu par Maureen Cardoso : « Quel plaisir de me joindre à vous dans votre cercle si particulier où vous développez votre capacité à vous … »"
 date: 2025-11-21 06:00:01+00:01
 draft: False
 hidden: True

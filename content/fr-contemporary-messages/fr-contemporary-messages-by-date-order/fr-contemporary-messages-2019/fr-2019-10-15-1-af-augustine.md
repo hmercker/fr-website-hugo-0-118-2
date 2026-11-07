@@ -1,7 +1,7 @@
 ---
 title: "Le monde en a grand besoin"
 menu_title: ""
-description: "Le monde en a grand besoin"
+description: "Augustin, reçu par Al Fike : « Beaucoup sont dans un grand besoin. Ce monde qui est le vôtre continue à présenter de nombreux défis à chaque âme qui y vit. »"
 date: 2022-06-01 06:00:01+00:879
 draft: False
 hidden: True

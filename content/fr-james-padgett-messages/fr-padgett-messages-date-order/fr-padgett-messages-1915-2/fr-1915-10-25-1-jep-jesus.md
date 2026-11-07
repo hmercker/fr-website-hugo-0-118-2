@@ -1,7 +1,7 @@
 ---
 title: "L’importance pour l’homme de cultiver la perception de l’âme. Les faits spirituels ne peuvent pas être perçus par l’esprit matériel"
 menu_title: ""
-description: "L’importance pour l’homme de cultiver la perception de l’âme. Les faits spirituels ne peuvent pas être perçus par l’esprit matériel"
+description: "Jésus, reçu par James Padgett : « Très bientôt vous serez tous les deux surpris de l’étendue de la connaissance des choses spirituelles et des vérités qui … »"
 date: 2022-06-01 06:00:01+00:17
 draft: False
 hidden: True

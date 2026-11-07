@@ -1,7 +1,7 @@
 ---
 title: "Soyez dans la joie"
 menu_title: ""
-description: "Soyez dans la joie"
+description: "Goldie, reçu par Maureen Cardoso : « Oh, mes amis très aimés, cela fait un moment que je n'ai pas parlé. Je souhaite vous faire savoir que j'ai été avec … »"
 date: 2022-06-01 06:00:01+00:760
 draft: False
 hidden: True

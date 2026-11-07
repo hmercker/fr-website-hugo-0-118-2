@@ -1,7 +1,7 @@
 ---
 title: Priez pour ceux qui sont encore fermés"
 menu_title: ""
-description: "Priez pour ceux qui sont encore fermés"
+description: "Jésus, reçu par Elizabeth Mack : « Je souhaite demeurer avec vous tout au long de cette prière pour vous réconforter et vous transmettre le message de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L'humilité d'un pape bien-aimé"
 menu_title: ""
-description: "L'humilité d'un pape bien-aimé"
+description: "Pape Jean XXIII, reçu par FAB : « La nomination à la papauté m'a surpris, et j'ai décidé d'utiliser ma haute position pour faire le bien, comme je l'ai … »"
 date: 2022-06-01 06:00:01+00:60
 draft: False
 hidden: True

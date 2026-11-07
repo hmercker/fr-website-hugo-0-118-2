@@ -1,7 +1,7 @@
 ---
 title: "L’intensité de la prière nous rapproche de Dieu"
 menu_title: ""
-description: "L’intensité de la prière nous rapproche de Dieu"
+description: "Michaël Collier, reçu par Albert Fike : « Je m’appelle Michael Collier. Désirez-vous être éveillé, éveillé par l’Amour de Dieu, éveillé en votre … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

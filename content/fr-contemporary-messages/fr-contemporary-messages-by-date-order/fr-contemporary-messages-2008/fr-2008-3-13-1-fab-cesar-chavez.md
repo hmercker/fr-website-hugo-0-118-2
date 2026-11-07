@@ -1,7 +1,7 @@
 ---
 title: "Activité spirituelle"
 menu_title: ""
-description: "Activité spirituelle"
+description: "Cesar Chavez, reçu par FAB : « Nous sommes tous conscients du dilemme, et bientôt vous verrez les résultats de nos efforts. »"
 date: 2022-06-01 06:00:01+00:39
 draft: False
 hidden: True

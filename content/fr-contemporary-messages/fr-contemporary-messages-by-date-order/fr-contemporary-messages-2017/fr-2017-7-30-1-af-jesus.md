@@ -1,7 +1,7 @@
 ---
 title: "Que vos âmes brillent de l'amour du Père"
 menu_title: ""
-description: "Que vos âmes brillent de l'amour du Père"
+description: "Jésus, reçu par Al Fike : « Où que vous marchiez, que Sa Lumière brille sur votre chemin. Lorsque vous parlez, que la Lumière de la Vérité passe par vos … »"
 date: 2022-06-01 06:00:01+00:69
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Hélène affirme que Flavius Joseph a écrit et commente les propos sur l’égalité des sexes"
 menu_title: ""
-description: "Hélène affirme que Flavius Joseph a écrit et commente les propos sur l’égalité des sexes"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, tu as reçu un message de Flavius Josèphe, qui peut être considéré comme un argument en … »"
 date: 2022-06-01 06:00:01+00:238
 draft: False
 hidden: True

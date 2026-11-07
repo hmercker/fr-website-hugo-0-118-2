@@ -1,7 +1,7 @@
 ---
 title: "Optimisme en matière d'environnement"
 menu_title: ""
-description: "Optimisme en matière d'environnement"
+description: "Jésus, reçu par FAB : « Vous avez lu des choses inquiétantes sur la crise environnementale. Vous craignez qu'elle soit irréversible. »"
 date: 2022-06-01 06:00:01+00:154
 draft: False
 hidden: True

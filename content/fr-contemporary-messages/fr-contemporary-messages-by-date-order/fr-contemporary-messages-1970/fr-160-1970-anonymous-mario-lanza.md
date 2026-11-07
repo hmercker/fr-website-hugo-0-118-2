@@ -1,7 +1,7 @@
 ---
 title: "La meilleure façon d'enseigner, c'est d'être un exemple"
 menu_title: ""
-description: "La meilleure façon d'enseigner, c'est d'être un exemple"
+description: "Mario Lanza : « Je me sens très honoré et privilégié de venir parmi vous ce soir, avec un groupe qui a un grand désir de faire le travail de Dieu et … »"
 date: 2022-06-01 06:00:01+00:162
 draft: False
 hidden: True

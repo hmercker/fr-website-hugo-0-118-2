@@ -1,7 +1,7 @@
 ---
 title: "La justification de la violence et les âmes-sœurs"
 menu_title: ""
-description: "La justification de la violence et les âmes-sœurs"
+description: "Judas, reçu par H : « Mon cher frère, tu es très insistant. Alors, je vais répondre à tes questions, bien que plusieurs réponses aient déjà été apportées. »"
 date: 2022-06-01 06:00:01+00:61
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L'émerveillement de l'Amour Divin de Dieu"
 menu_title: ""
-description: "L'émerveillement de l'Amour Divin de Dieu"
+description: "Faith, reçu par Al Fike : « Les eaux vives de l'Amour de Dieu se déversent sur vous en ce moment. La puissance de cet Amour sera avec vous pour toujours. »"
 date: 2022-06-01 06:00:01+00:135
 draft: False
 hidden: True

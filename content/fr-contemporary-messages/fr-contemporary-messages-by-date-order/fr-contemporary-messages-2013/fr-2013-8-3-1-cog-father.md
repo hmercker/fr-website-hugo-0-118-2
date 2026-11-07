@@ -1,7 +1,7 @@
 ---
 title: "Laissez tes larmes couler comme des diamants"
 menu_title: ""
-description: "Laissez tes larmes couler comme des diamants"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Je veille sur toi et ne te quitte jamais des yeux. Tu travailles si dur, toujours à la recherche de la Vérité. »"
 date: 2022-06-01 06:00:01+00:67
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Encourage l’engagement envers la pratique claire de l’Amour Divin"
 menu_title: ""
-description: "Encourage l’engagement envers la pratique claire de l’Amour Divin"
+description: "Augustin, reçu par Albert Fike : « Votre engagement et vos désirs détermineront les résultats de votre instrumentation. C’est une corrélation directe … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Accueillez les changements terrestres à venir comme étant nécessaires et bénis par Dieu"
 menu_title: ""
-description: "Accueillez les changements terrestres à venir comme étant nécessaires et bénis par Dieu"
+description: "Orion, reçu par Albert Fike : « Un grand changement s'annonce pour votre monde, et chacun d'entre vous en est conscient. L'ampleur et la portée de ce … »"
 date: 2026-10-04 06:00:01+00:01
 draft: False
 hidden: True

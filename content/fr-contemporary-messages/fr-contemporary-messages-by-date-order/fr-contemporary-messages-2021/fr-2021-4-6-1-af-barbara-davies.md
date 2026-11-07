@@ -1,7 +1,7 @@
 ---
 title: "Désir de servir et d’être dans l’Amour de Dieu"
 menu_title: ""
-description: "Désir de servir et d’être dans l’Amour de Dieu"
+description: "Barbara Davies, reçu par Al Fike : « Vous le constaterez dans votre vie quotidienne en continuant à prier et à demander d’être utilisé comme un instrument … »"
 date: 2022-06-01 06:00:01+00:1459
 draft: False
 hidden: True

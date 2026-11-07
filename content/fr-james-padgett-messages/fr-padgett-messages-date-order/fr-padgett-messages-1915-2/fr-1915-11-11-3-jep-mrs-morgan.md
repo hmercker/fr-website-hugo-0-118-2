@@ -1,7 +1,7 @@
 ---
 title: "La mère de Eugène Morgan souhaite expliquer le passage de Jennie Lawson dans le monde spirituel et l’aide qu’elle lui a fournie alors qu’elle vivait sur terre"
 menu_title: ""
-description: "La mère de Eugène Morgan souhaite expliquer le passage de Jennie Lawson dans le monde spirituel et l’aide qu’elle lui a fournie alors qu’elle vivait sur terre"
+description: "Mme Morgan, reçu par James Padgett : « J’ai été avec lui aujourd’hui et j’ai vu sa conditions mentale en référence à son amie qui vient d’entrer dans le … »"
 date: 2022-06-01 06:00:01+00:54
 draft: False
 hidden: True

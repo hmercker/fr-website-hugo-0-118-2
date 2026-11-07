@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes devenus des pêcheurs d'hommes"
 menu_title: ""
-description: "Nous sommes devenus des pêcheurs d'hommes"
+description: "St Pierre, reçu par Al Fike : « Je ne viens pas souvent, mais le Maître nous a demandé d’être proches. Il a été dit que j’étais le rocher sur lequel ce … »"
 date: 2022-06-01 06:00:01+00:818
 draft: False
 hidden: True

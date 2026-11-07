@@ -1,7 +1,7 @@
 ---
 title: "Prières de l'Âme"
 menu_title: ""
-description: "Prières de l'Âme"
+description: "Jean le Bien Aimé, reçu par Al Fike : « Chacun de vous a un ange avec lui, âmes bien-aimées. C’est ainsi que vous nous attirez à vous, ceux du Royaume … »"
 date: 2023-09-01 06:00:01+00:05
 draft: False
 hidden: True

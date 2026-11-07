@@ -1,7 +1,7 @@
 ---
 title: "Grâce à vos efforts et à votre engagement, Dieu amènera vers vous les âmes assoiffées"
 menu_title: ""
-description: "Grâce à vos efforts et à votre engagement, Dieu amènera vers vous les âmes assoiffées"
+description: "Jésus, reçu par Albert Fike : « Je vous ouvre la voie vers la Salle de la Paix, afin que vous puissiez apprécier et être bénis par cet état qui est … »"
 date: 2026-09-30 06:00:01+00:01
 draft: False
 hidden: True

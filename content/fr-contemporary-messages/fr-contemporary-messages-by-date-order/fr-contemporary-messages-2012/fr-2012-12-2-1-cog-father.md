@@ -1,7 +1,7 @@
 ---
 title: "Le Monde de l’Illusion"
 menu_title: ""
-description: "Le Monde de l’Illusion"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Mon désir le plus profond est pour toi. Je désire ardemment que tous Mes enfants reviennent à la maison. »"
 date: 2022-06-01 06:00:01+00:301
 draft: False
 hidden: True

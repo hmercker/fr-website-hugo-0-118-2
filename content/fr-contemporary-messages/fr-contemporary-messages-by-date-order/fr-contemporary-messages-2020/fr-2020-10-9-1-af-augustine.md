@@ -1,7 +1,7 @@
 ---
 title: "Allumer le feu de l'amour dans le monde"
 menu_title: ""
-description: "Allumer le feu de l'amour dans le monde"
+description: "Augustin, reçu par Al Fike : « L’abondance de l’Amour de Dieu qui vient dans ces Cercles de Lumière est en corrélation directe avec vos prières et les … »"
 date: 2022-06-01 06:00:01+00:1275
 draft: False
 hidden: True

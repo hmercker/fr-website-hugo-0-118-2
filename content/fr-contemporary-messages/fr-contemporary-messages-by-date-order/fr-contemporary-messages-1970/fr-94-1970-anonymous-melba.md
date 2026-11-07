@@ -1,7 +1,7 @@
 ---
 title: "Plomb, Lumière Bienveillante"
 menu_title: ""
-description: "Plomb, Lumière Bienveillante"
+description: "Melba : « Vous êtes-vous jamais arrêtés pour réaliser les mots merveilleux, la signification de ces mots, dans ce bel hymne ? »"
 date: 2022-06-01 06:00:01+00:124
 draft: False
 hidden: True

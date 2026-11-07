@@ -1,7 +1,7 @@
 ---
 title: "Jésus veut que le monde suive ses enseignements"
 menu_title: ""
-description: "Jésus veut que le monde suive ses enseignements"
+description: "Jésus, reçu par James Padgett : « Dieu est Amour et ceux qui L’adorent en esprit et en amour ne seront pas abandonnés. Vous aviez un cœur dur et pécheur … »"
 date: 2022-06-01 06:00:01+00:03
 draft: False
 hidden: True

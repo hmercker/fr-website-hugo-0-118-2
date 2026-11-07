@@ -1,7 +1,7 @@
 ---
 title: "L'or et l'argent vous entourent"
 menu_title: ""
-description: "L'or et l'argent vous entourent"
+description: "André, reçu par Kathryn Stokes : « Il y a toujours des sujets que nous pourrions développer et « peaufiner », pour ainsi dire, car au fur et à mesure que … »"
 date: 2022-06-01 06:00:01+00:44
 draft: False
 hidden: True

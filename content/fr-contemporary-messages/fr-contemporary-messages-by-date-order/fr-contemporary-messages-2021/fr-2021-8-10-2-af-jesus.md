@@ -1,7 +1,7 @@
 ---
 title: "Leçon 16 : Appel à tous les porteurs de lumière pour aider à construire un nouveau monde"
 menu_title: ""
-description: "Leçon 16 : Appel à tous les porteurs de lumière pour aider à construire un nouveau monde"
+description: "Jésus, reçu par Al Fike : « Les alarmes se font entendre dans le monde entier en ce moment, alors que chaque âme individuelle commence à réaliser que tout … »"
 date: 2022-06-01 06:00:01+00:1597
 draft: False
 hidden: True

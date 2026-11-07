@@ -1,7 +1,7 @@
 ---
 title: "Déposer votre amour"
 menu_title: ""
-description: "Déposer votre amour"
+description: "Jésus, reçu par Jimbeau Walsh : « On l’attribue souvent à ma mort et aux sacrifices de mes disciples, et dans ce contexte, c’est vrai. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

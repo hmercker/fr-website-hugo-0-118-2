@@ -1,7 +1,7 @@
 ---
 title: "L’âme et le mental"
 menu_title: ""
-description: "L’âme et le mental"
+description: "St Jean, reçu par CC : « Je veux parler du mental et de sa relation avec l’âme. Ce ne sera pas une transmission exhaustive et complète de tout ce qu’il y … »"
 date: 2022-06-01 06:00:01+00:75
 draft: False
 hidden: True

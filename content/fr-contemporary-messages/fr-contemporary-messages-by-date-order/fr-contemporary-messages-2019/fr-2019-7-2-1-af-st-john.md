@@ -1,7 +1,7 @@
 ---
 title: "Il est maintenant temps de préparer vos âmes"
 menu_title: ""
-description: "Il est maintenant temps de préparer vos âmes"
+description: "St Jean, reçu par Al Fike : « Car cela n’améliore pas seulement votre condition quotidienne dans la Lumière, mais contribuera à la Lumière que vous … »"
 date: 2022-06-01 06:00:01+00:763
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Les épreuves et les tribulations de l'homme n'ont aucune cause en Dieu"
 menu_title: ""
-description: "Les épreuves et les tribulations de l'homme n'ont aucune cause en Dieu"
+description: "Keea atta Kem, reçu par Albert Fike : « Je me joins à vous pour apporter soutien, amour, guérison et prise de conscience. Ce que je souhaite avant tout … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

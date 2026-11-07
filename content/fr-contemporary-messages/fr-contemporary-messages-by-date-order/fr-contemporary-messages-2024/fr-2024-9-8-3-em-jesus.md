@@ -1,7 +1,7 @@
 ---
 title: "Reconnaissez la joie que le Père vous offre"
 menu_title: ""
-description: "Reconnaissez la joie que le Père vous offre"
+description: "Jésus, reçu par Elizabeth Mack : « L’Amour que le Père a offert à chacun de vous et à bien d’autres. Car c’est ce que le Père désire : que vous receviez … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

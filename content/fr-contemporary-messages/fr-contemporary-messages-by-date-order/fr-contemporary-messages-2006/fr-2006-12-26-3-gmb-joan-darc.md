@@ -1,7 +1,7 @@
 ---
 title: "Et si je [Jeanne d’Arc] n’avait pas été exécutée ?"
 menu_title: ""
-description: "Et si je [Jeanne d’Arc] n’avait pas été exécutée ?"
+description: "Jeanne d'Arc, reçu par George Barnard : « Bzutu: « Je vous salue frère. C’est le chef Midwayer Bzutu. »"
 date: 2022-06-01 06:00:01+00:81
 draft: False
 hidden: True

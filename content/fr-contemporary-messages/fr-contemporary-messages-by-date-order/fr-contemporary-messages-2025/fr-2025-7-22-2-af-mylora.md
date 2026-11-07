@@ -1,7 +1,7 @@
 ---
 title: "Il existe de nombreuses façons de servir comme Lumière"
 menu_title: ""
-description: "Il existe de nombreuses façons de servir comme Lumière"
+description: "Mylora, reçu par reçu par Al Fike : « Merci pour votre prière, chère sœur. Je le suis depuis plus longtemps que je ne m’en souviens. »"
 date: 2025-07-15 06:00:01+00:01
 draft: False
 hidden: True

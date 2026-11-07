@@ -1,7 +1,7 @@
 ---
 title: "Les vérités peuvent être comprises par les simples – ne nécessitent pas un esprit très développé"
 menu_title: ""
-description: "Les vérités peuvent être comprises par les simples – ne nécessitent pas un esprit très développé"
+description: "Jésus, reçu par James Padgett : « Mes vérités sont claires et mes enseignements peuvent être compris par les simples. Toute religion qui exige l’exercice … »"
 date: 2022-06-01 06:00:01+00:168
 draft: False
 hidden: True

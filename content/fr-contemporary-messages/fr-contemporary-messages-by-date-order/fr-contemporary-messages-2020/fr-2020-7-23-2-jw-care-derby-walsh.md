@@ -1,7 +1,7 @@
 ---
 title: "Les enfants de Dieu"
 menu_title: ""
-description: "Les enfants de Dieu"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Je vous demande d’atteindre l’Amour, cet Amour Divin du Père Céleste qui apporte une réponse à chaque … »"
 date: 2022-06-01 06:00:01+00:1196
 draft: False
 hidden: True

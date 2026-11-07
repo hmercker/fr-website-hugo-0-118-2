@@ -1,7 +1,7 @@
 ---
 title: "Leçon 6 : L’âme"
 menu_title: ""
-description: "Leçon 6 : L’âme"
+description: "Jésus, reçu par Al Fike : « Avant de commencer, je tiens à assurer mon cher frère et ma chère sœur que leur amie bien-aimée (B) a bien été transportée … »"
 date: 2022-06-01 06:00:01+00:1303
 draft: False
 hidden: True

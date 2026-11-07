@@ -1,7 +1,7 @@
 ---
 title: "Progression spirituelle"
 menu_title: ""
-description: "Progression spirituelle"
+description: "Yogananda, reçu par Jimbeau Walsh : « Mes chers frères et sœurs dans l’Amour de Dieu, dans la conscience du Christ, qui vous éveillez à la progression de … »"
 date: 2022-06-01 06:00:01+00:44
 draft: False
 hidden: True

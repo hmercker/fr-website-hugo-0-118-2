@@ -1,7 +1,7 @@
 ---
 title: "Envisagez d'être occupé dans la prière"
 menu_title: ""
-description: "Envisagez d'être occupé dans la prière"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Vous êtes nombreux ici, dans votre lignée et au-delà. Je souhaite vous donner un petit conseil, une suggestion. »"
 date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True

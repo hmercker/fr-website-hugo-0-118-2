@@ -1,7 +1,7 @@
 ---
 title: "Contrastes entre les chemins de l’amour naturel et de l’Amour Divin"
 menu_title: ""
-description: "Contrastes entre les chemins de l’amour naturel et de l’Amour Divin"
+description: "Orion, reçu par Albert Fike : « Cet instrument a réfléchi à certains aspects de beaucoup de ceux qui sont sur ce que vous appelez le chemin naturel, à … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

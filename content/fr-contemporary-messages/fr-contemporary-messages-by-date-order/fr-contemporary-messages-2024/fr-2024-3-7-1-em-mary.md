@@ -1,7 +1,7 @@
 ---
 title: "Un don de guérison"
 menu_title: ""
-description: "Un don de guérison"
+description: "Marie, reçu par Elizabeth Mack : « Du plus profond de votre âme, demandez et vous recevrez. Rapportez les problèmes que vous avez à notre Père Céleste et … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

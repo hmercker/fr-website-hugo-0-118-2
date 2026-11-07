@@ -1,7 +1,7 @@
 ---
 title: "Une bénédiction de guérison et de paix (Cercle de prière en ligne 2020)"
 menu_title: ""
-description: "Une bénédiction de guérison et de paix (Cercle de prière en ligne 2020)"
+description: "Confucius, reçu par Al Fike : « Car, vous êtes aimés et Dieu vous a réclamés. Dieu continuera à vous soutenir et à vous conduire vers une plus grande … »"
 date: 2022-06-01 06:00:01+00:1057
 draft: False
 hidden: True

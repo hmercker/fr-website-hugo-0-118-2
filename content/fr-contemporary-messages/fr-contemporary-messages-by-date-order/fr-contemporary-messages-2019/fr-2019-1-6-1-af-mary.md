@@ -1,7 +1,7 @@
 ---
 title: "Apportez la lumière de la Vérité"
 menu_title: ""
-description: "Apportez la lumière de la Vérité"
+description: "Marie, reçu par Al Fike : « Puisisez-vous porter l’eau à leurs lèvres et les inciter à boire afin que la soif de leur âme soit étanchée, que les désirs de … »"
 date: 2022-06-01 06:00:01+00:598
 draft: False
 hidden: True

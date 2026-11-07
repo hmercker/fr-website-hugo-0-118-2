@@ -1,7 +1,7 @@
 ---
 title: "Vous devez vraiment connaître votre propre âme"
 menu_title: ""
-description: "Vous devez vraiment connaître votre propre âme"
+description: "Elie, reçu par Al Fike : « Que chacun d’entre vous soit fort, solide et droit alors que les vents du changement englobent votre monde, que vous puissiez … »"
 date: 2022-06-01 06:00:01+00:1593
 draft: False
 hidden: True

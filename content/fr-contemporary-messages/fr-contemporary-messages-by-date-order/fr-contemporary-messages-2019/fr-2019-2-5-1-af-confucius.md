@@ -1,7 +1,7 @@
 ---
 title: "Supprimer les aspects de soi qui ne sont pas de l'amour"
 menu_title: ""
-description: "Supprimer les aspects de soi qui ne sont pas de l'amour"
+description: "Confucius, reçu par Al Fike : « Âmes bien-aimées, c’est Confucius. Je vous implore, âmes bien-aimées, de procéder à des changements dans vos pensées et … »"
 date: 2022-06-01 06:00:01+00:636
 draft: False
 hidden: True

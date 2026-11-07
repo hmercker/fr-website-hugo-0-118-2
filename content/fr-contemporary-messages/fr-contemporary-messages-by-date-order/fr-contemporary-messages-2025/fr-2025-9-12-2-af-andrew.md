@@ -1,7 +1,7 @@
 ---
 title: "Le pouvoir de l'unité peut changer le monde"
 menu_title: ""
-description: "Le pouvoir de l'unité peut changer le monde"
+description: "André, reçu par Al Fike : « L’unité possède un grand pouvoir, âmes bien-aimées. Le pouvoir de l’amour pour unifier est capable de changer le monde. »"
 date: 2025-11-10 06:00:01+00:01
 draft: False
 hidden: True

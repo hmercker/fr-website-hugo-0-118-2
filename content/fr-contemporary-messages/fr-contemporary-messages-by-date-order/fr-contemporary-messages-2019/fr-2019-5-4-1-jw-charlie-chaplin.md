@@ -1,7 +1,7 @@
 ---
 title: "L'Amour de Dieu est la plus grande chose de l'univers"
 menu_title: ""
-description: "L'Amour de Dieu est la plus grande chose de l'univers"
+description: "Charlie Chaplin, reçu par Jimbeau Walsh : « Comme j'ai aimé dire la vérité et exposer la contre-vérité avec humour lorsque j'étais sur terre. »"
 date: 2022-06-01 06:00:01+00:723
 draft: False
 hidden: True

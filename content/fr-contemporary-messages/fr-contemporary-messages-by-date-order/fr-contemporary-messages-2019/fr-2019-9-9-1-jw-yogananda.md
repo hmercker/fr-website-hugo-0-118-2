@@ -1,7 +1,7 @@
 ---
 title: "Créer un nouveau rituel : la pratique consistant à être attentif à Dieu à chaque instant"
 menu_title: ""
-description: "Créer un nouveau rituel : la pratique consistant à être attentif à Dieu à chaque instant"
+description: "Yogananda, reçu par Jimbeau Walsh : « Imaginez, si vous le voulez bien, que vous voyagez à la vitesse de la lumière, ou que vous êtes (simplement) capable … »"
 date: 2022-06-01 06:00:01+00:845
 draft: False
 hidden: True

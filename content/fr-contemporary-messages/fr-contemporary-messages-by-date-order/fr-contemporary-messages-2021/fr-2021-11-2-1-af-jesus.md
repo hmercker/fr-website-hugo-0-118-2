@@ -1,7 +1,7 @@
 ---
 title: "Leçon 19 : Appelle tous les éclaireurs à servir"
 menu_title: ""
-description: "Leçon 19 : Appelle tous les éclaireurs à servir"
+description: "Jésus, reçu par Al Fike : « Il est bon que vous cherchiez des voies et des moyens de partager le message qui a été donné par cet instrument dans mes … »"
 date: 2022-06-01 06:00:01+00:1701
 draft: False
 hidden: True

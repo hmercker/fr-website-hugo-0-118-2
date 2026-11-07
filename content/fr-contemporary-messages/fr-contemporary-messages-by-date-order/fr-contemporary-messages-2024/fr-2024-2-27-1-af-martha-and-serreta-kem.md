@@ -1,7 +1,7 @@
 ---
 title: "Prière d’ouverture de la grande île d’Hawaï"
 menu_title: ""
-description: "Prière d’ouverture de la grande île d’Hawaï"
+description: "Marthe et Seretta Kem, reçu par Albert Fike : « Que les bénédictions du Père Céleste pleuvent sur vous, âmes bien-aimées. Car nous avons travaillé avec … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

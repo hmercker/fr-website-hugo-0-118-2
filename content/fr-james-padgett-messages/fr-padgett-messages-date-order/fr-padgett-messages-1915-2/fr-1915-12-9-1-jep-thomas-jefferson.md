@@ -1,7 +1,7 @@
 ---
 title: "Thomas Jefferson, ancien Président des États-Unis : M. Padgett accomplit un travail extraordinaire et d’importance essentielle pour à l’humanité et le destin des mortels"
 menu_title: ""
-description: "Thomas Jefferson, ancien Président des États-Unis : M. Padgett accomplit un travail extraordinaire et d’importance essentielle pour à l’humanité et le destin des mortels"
+description: "Thomas Jefferson, reçu par James Padgett : « Vous êtes certainement un homme favorisé pour après avoir été sélectionné pour faire ce travail. »"
 date: 2022-06-01 06:00:01+00:81
 draft: False
 hidden: True

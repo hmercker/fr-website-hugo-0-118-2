@@ -1,7 +1,7 @@
 ---
 title: "L’adoration de Jésus en le considérant comme Dieu est fausse et est coupable – Jésus déplore énormément cette fausse croyance de l’humanité"
 menu_title: ""
-description: "L’adoration de Jésus en le considérant comme Dieu est fausse et est coupable – Jésus déplore énormément cette fausse croyance de l’humanité"
+description: "Jésus, reçu par James Padgett : « Je n’ai pas l’intention de terminer mon message ce soir car il est assez tard et vous n’êtes pas exactement dans la … »"
 date: 2022-06-01 06:00:01+00:213
 draft: False
 hidden: True

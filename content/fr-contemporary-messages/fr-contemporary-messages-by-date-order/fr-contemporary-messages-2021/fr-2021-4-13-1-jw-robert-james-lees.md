@@ -1,7 +1,7 @@
 ---
 title: "L’auteur de « A travers les brumes » est très reconnaissant"
 menu_title: ""
-description: "L’auteur de « A travers les brumes » est très reconnaissant"
+description: "Robert James Lees, reçu par Jimbeau Walsh : « Ce que Claire a dit la semaine dernière n’exprimait pas toute la gratitude que j’éprouve. Car voyez-vous … »"
 date: 2022-06-01 06:00:01+00:1467
 draft: False
 hidden: True

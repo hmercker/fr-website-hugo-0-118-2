@@ -1,7 +1,7 @@
 ---
 title: "Chacun a une histoire, chacun est une âme unique"
 menu_title: ""
-description: "Chacun a une histoire, chacun est une âme unique"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Lorsque vous partagez les histoires de révélation sur la manière dont Dieu agit de façons apparemment … »"
 date: 2025-12-12 16:00:01+00:01
 draft: False
 hidden: True

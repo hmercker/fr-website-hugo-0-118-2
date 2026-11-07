@@ -1,7 +1,7 @@
 ---
 title: "Vous avez bien fait"
 menu_title: ""
-description: "Vous avez bien fait"
+description: "Thomas d'Aquin, reçu par Al Fike : « Vous avez suivi nos instructions et vous avez pris au sérieux votre quête d’éveiller vos âmes en recevant l’Amour du … »"
 date: 2022-06-01 06:00:01+00:544
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Avoir du respect pour le don du corps de Dieu"
 menu_title: ""
-description: "Avoir du respect pour le don du corps de Dieu"
+description: "Orion, reçu par Maureen Cardoso : « Je vous salue avec une bénédiction d'amour, avec une étreinte chaleureuse, avec une acceptation affectueuse et une … »"
 date: 2025-09-15 06:00:01+00:01
 draft: False
 hidden: True

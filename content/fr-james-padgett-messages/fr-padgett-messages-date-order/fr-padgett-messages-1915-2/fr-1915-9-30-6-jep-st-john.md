@@ -1,7 +1,7 @@
 ---
 title: "Jean – M. Padgett est l’objet d’une attention particulière de la part du Maître"
 menu_title: ""
-description: "Jean – M. Padgett est l’objet d’une attention particulière de la part du Maître"
+description: "St Jean, reçu par James Padgett : « Comme le Maître qui vient de vous écrire le dit, essayez de croire en ce que nous vous disons, car nous sommes avec … »"
 date: 2022-06-01 06:00:01+00:285
 draft: False
 hidden: True

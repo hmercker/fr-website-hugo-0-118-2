@@ -1,7 +1,7 @@
 ---
 title: "Continuer à renforcer vos liens pour accomplir vos missions"
 menu_title: ""
-description: "Continuer à renforcer vos liens pour accomplir vos missions"
+description: "Fleur de Lotus, reçu par Maureen Cardoso : « Nous rassemblons toutes les belles âmes qui prient en ce moment. Celles qui se sont rassemblées en retraite … »"
 date: 2022-06-01 06:00:01+00:674
 draft: False
 hidden: True

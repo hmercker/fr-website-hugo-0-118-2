@@ -1,7 +1,7 @@
 ---
 title: "La magie des Lois"
 menu_title: ""
-description: "La magie des Lois"
+description: "Jésus, reçu par Kathryn Stokes : « Comme vous le savez si bien, les êtres humains choisissent de croire ce qu'ils veulent, peu importe ce que nous avons … »"
 date: 2022-06-01 06:00:01+00:53
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L'éveil de l'âme, une Nouvelle Naissance"
 menu_title: ""
-description: "L'éveil de l'âme, une Nouvelle Naissance"
+description: "Keea Atta Kem, reçu par Al Fike : « Cet instrument n’a pas besoin de prendre la responsabilité de l’absence de ma présence plus tôt, car je n’étais pas … »"
 date: 2022-06-01 06:00:01+00:491
 draft: False
 hidden: True

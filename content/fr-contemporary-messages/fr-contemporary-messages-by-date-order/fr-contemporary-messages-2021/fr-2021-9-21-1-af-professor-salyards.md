@@ -1,7 +1,7 @@
 ---
 title: "Atteindre l’alignement pour être dans la plus haute condition (Retraite Voix Directe 2021)"
 menu_title: ""
-description: "Atteindre l’alignement pour être dans la plus haute condition (Retraite Voix Directe 2021)"
+description: "Professeur Salyards, reçu par Al Fike : « Merci pour votre belle prière. Le mot alignement a été utilisé par beaucoup d’entre vous et c’est un mot très … »"
 date: 2022-06-01 06:00:01+00:1654
 draft: False
 hidden: True

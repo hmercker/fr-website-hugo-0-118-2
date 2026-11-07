@@ -1,7 +1,7 @@
 ---
 title: "Les épîtres de la Bible ne sont pas identiques à celles écrites par les Apôtres. Il y a très peu de choses dans la Bible au sujet de la Nouvelle Naissance"
 menu_title: ""
-description: "Les épîtres de la Bible ne sont pas identiques à celles écrites par les Apôtres. Il y a très peu de choses dans la Bible au sujet de la Nouvelle Naissance"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, je vois que tu as lu des parties de la Bible ce soir et que tu n’y as pas trouvé la mention … »"
 date: 2022-06-01 06:00:01+00:61
 draft: False
 hidden: True

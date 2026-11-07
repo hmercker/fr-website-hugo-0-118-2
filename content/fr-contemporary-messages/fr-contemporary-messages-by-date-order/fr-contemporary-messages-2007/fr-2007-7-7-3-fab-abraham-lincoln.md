@@ -1,7 +1,7 @@
 ---
 title: "Abraham Lincoln complète son message précédent"
 menu_title: ""
-description: "Abraham Lincoln complète son message précédent"
+description: "Abraham Lincoln, reçu par FAB : « Vous m'avez bien canalisé ; je voulais effectivement dire des expressions « ploucs ». Bien sûr, je parlais aussi avec … »"
 date: 2022-06-01 06:00:01+00:132
 draft: False
 hidden: True

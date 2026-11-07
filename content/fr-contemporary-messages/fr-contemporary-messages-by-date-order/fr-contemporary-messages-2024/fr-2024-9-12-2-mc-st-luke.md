@@ -1,7 +1,7 @@
 ---
 title: "Force de la substance du Créateur"
 menu_title: ""
-description: "Force de la substance du Créateur"
+description: "Luc, reçu par Maureen Cardoso : « Chacun d’entre vous a un bel ange Céleste debout et priant avec vous qui apporte son amour et sa présence dans votre … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Première salutation"
 menu_title: ""
-description: "Première salutation"
+description: "Silver Birch : « J'ai été avec vous pendant de très nombreuses lunes et j'ai apprécié les merveilleuses conditions que j'ai vu se construire autour de … »"
 date: 2022-06-01 06:00:01+00:71
 draft: False
 hidden: True

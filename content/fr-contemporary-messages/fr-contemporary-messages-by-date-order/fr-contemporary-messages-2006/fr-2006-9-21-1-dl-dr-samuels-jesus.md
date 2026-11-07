@@ -1,7 +1,7 @@
 ---
 title: "Prendre le Cap"
 menu_title: ""
-description: "Prendre le Cap"
+description: "Dr Samuels & Jésus, reçu par Révérend Dave Lampron : « Mon cher, je doute de que je puisse vous exprimer ma gratitude pour me permettre de m’exprimer, par … »"
 date: 2022-06-01 06:00:01+00:43
 draft: False
 hidden: True

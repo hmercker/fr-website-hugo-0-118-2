@@ -1,7 +1,7 @@
 ---
 title: "Vos âmes vous ont conduits à l’Amour Divin de Dieu"
 menu_title: ""
-description: "Vos âmes vous ont conduits à l’Amour Divin de Dieu"
+description: "St Pierre, reçu par Elizabeth Mack : « L’Amour du Père n’est pas évident pour tous, mais vous, ainsi que plusieurs autres personnes sur cette Terre, avez … »"
 date: 2026-01-30 16:00:01+00:01
 draft: False
 hidden: True

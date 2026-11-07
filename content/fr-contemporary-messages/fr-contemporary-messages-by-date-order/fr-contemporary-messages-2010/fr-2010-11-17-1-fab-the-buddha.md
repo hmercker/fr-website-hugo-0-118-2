@@ -1,7 +1,7 @@
 ---
 title: "Le Bouddha"
 menu_title: ""
-description: "Le Bouddha"
+description: "Bouddha, reçu par FAB : « Je crois toujours en ce que j'ai enseigné, et cela m'a apporté le bonheur et la paix. Ce message va essentiellement dans le sens … »"
 date: 2022-06-01 06:00:01+00:173
 draft: False
 hidden: True

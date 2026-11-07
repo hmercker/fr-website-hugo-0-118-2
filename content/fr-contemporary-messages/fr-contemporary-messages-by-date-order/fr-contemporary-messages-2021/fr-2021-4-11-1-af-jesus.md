@@ -1,7 +1,7 @@
 ---
 title: "Déposez votre manteau de protection et venez nu à Dieu"
 menu_title: ""
-description: "Déposez votre manteau de protection et venez nu à Dieu"
+description: "Jésus, reçu par Al Fike : « Dans le monde entier, vous êtes venus à la vérité dans sa pureté et sa lumière. Combien, dans votre monde, se sont permis … »"
 date: 2022-06-01 06:00:01+00:1464
 draft: False
 hidden: True

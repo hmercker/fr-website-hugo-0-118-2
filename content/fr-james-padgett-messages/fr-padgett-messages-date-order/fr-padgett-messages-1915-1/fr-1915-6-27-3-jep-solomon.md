@@ -1,7 +1,7 @@
 ---
 title: "La position de Salomon dans les Sphères Célestes"
 menu_title: ""
-description: "La position de Salomon dans les Sphères Célestes"
+description: "Salomon, reçu par James Padgett : « Eh bien, alors que je visitais le plan terrestre, j’ai remarqué les deux derniers esprits qui vous ont rendu visite. »"
 date: 2022-06-01 06:00:01+00:114
 draft: False
 hidden: True

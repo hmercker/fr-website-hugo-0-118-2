@@ -1,7 +1,7 @@
 ---
 title: "Ayez la foi que vos prières seront exaucées"
 menu_title: ""
-description: "Ayez la foi que vos prières seront exaucées"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « La vie est un cadeau précieux, tout comme le cadeau du libre arbitre. Il s’agit de choix, et si vous suiviez … »"
 date: 2022-06-01 06:00:01+00:1598
 draft: False
 hidden: True

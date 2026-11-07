@@ -1,7 +1,7 @@
 ---
 title: "Leçon 22 : La foi peut lever les obstacles à la connaissance de Dieu"
 menu_title: ""
-description: "Leçon 22 : La foi peut lever les obstacles à la connaissance de Dieu"
+description: "Jésus, reçu par Al Fike : « Puisse l’Amour du Père continuer à couler dans vos âmes, vous apportant une grande sagesse et une grande connaissance, la … »"
 date: 2022-06-01 06:00:01+00:161
 draft: False
 hidden: True

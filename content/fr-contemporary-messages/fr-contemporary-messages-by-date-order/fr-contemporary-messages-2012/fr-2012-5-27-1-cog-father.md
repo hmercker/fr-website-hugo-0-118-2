@@ -1,7 +1,7 @@
 ---
 title: "Je ne choisirai jamais pour toi"
 menu_title: ""
-description: "Je ne choisirai jamais pour toi"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Enfant bien-aimé, cela fait un moment et tu t’es demandé où j’étais passé (sourire). Parfois le silence est … »"
 date: 2022-06-01 06:00:01+00:259
 draft: False
 hidden: True

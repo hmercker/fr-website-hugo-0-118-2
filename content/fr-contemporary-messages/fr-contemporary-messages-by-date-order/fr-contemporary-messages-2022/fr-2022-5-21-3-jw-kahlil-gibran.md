@@ -1,7 +1,7 @@
 ---
 title: "Le désir de l'âme"
 menu_title: ""
-description: "Le désir de l'âme"
+description: "Kahlil Gibran, reçu par Jimbeau Walsh : « Qu’est-ce que la danse si ce n’est le désir de l’âme d’élever le corps de l’esclavage de la terre, de la gravité … »"
 date: 2022-06-01 06:00:01+00:98
 draft: False
 hidden: True

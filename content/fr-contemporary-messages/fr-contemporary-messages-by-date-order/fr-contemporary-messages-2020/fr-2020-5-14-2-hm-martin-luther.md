@@ -1,7 +1,7 @@
 ---
 title: "Encouragements pour le Cercle des Sept"
 menu_title: ""
-description: "Encouragements pour le Cercle des Sept"
+description: "Martin Luther, reçu par Helge Mercker : « Dans le flux de l’Amour du Père, beaucoup de choses sont révélées et tant de choses peuvent être accomplies en … »"
 date: 2022-06-01 06:00:01+00:1104
 draft: False
 hidden: True

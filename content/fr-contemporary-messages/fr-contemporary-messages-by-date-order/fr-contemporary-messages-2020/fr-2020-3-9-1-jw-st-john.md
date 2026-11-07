@@ -1,7 +1,7 @@
 ---
 title: "Royaumes de lumière"
 menu_title: ""
-description: "Royaumes de lumière"
+description: "St Jean, reçu par Jimbeau Walsh : « Je me tiens au-dessus de celui-ci. J’ai été attiré vers ce cercle, comme beaucoup d’autres, par la prière et votre … »"
 date: 2022-06-01 06:00:01+00:1022
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le pouvoir de la prière et du libre arbitre"
 menu_title: ""
-description: "Le pouvoir de la prière et du libre arbitre"
+description: "St Matthieu, reçu par Al Fike : « Je souhaite commenter le pouvoir de la prière étant donné que plusieurs parmi vous avez échangé sur ce sujet et que de … »"
 date: 2022-06-01 06:00:01+00:982
 draft: False
 hidden: True

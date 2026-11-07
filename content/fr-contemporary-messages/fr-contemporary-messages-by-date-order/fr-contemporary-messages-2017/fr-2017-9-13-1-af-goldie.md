@@ -1,7 +1,7 @@
 ---
 title: "Ensemble dans la joie de l'amour"
 menu_title: ""
-description: "Ensemble dans la joie de l'amour"
+description: "Goldie, reçu par Al Fike : « Tu veux savoir où j'ai vécu ? »"
 date: 2022-06-01 06:00:01+00:99
 draft: False
 hidden: True

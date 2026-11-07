@@ -1,7 +1,7 @@
 ---
 title: "La médiumnité et la loi du rapport"
 menu_title: ""
-description: "La médiumnité et la loi du rapport"
+description: "Seretta Kem, reçu par Al Fike : « Son affirmation selon laquelle il serait possible pour cet instrument de transmettre des messages provenant de ce qu’il … »"
 date: 2022-06-01 06:00:01+00:1219
 draft: False
 hidden: True

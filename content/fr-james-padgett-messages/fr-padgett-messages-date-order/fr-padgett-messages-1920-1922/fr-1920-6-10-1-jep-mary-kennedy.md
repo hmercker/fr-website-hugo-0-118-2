@@ -1,7 +1,7 @@
 ---
 title: "Écrit que les deux parents du Dr Stone vivent maintenant dans les Cieux Célestes"
 menu_title: ""
-description: "Écrit que les deux parents du Dr Stone vivent maintenant dans les Cieux Célestes"
+description: "Mary Kennedy, reçu par James Padgett : « Laissez-moi écrire quelques lignes à mon cher, alors que vous m’avez déçu la dernière fois qu’il est venu ici. »"
 date: 2022-06-01 06:00:01+00:66
 draft: False
 hidden: True

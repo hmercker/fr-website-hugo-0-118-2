@@ -1,7 +1,7 @@
 ---
 title: "Priez pour la Conscience de l'Âme"
 menu_title: ""
-description: "Priez pour la Conscience de l'Âme"
+description: "Orion, reçu par Albert Fike : « Votre conscience continue de changer. Votre perspective du monde change. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

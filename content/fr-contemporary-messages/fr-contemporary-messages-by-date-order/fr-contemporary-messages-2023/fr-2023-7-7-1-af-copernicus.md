@@ -1,7 +1,7 @@
 ---
 title: "L'humanité a été un virus sur la Terre Mère"
 menu_title: ""
-description: "L'humanité a été un virus sur la Terre Mère"
+description: "Copernic, reçu par Albert Fike : « Votre Terre Mère a certainement besoin de prières. Mais effectivement, la Terre a de la fièvre. »"
 date: 2023-09-01 06:00:01+00:49
 draft: False
 hidden: True

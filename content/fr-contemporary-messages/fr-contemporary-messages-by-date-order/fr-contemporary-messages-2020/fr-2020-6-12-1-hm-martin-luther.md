@@ -1,7 +1,7 @@
 ---
 title: "Une salutation matinale"
 menu_title: ""
-description: "Une salutation matinale"
+description: "Martin Luther, reçu par Helge Mercker : « C’est avec plaisir que j’aimerais écrire, c’est Martin Luther. Il y a encore beaucoup à faire, ma fille, et ce … »"
 date: 2022-06-01 06:00:01+00:1134
 draft: False
 hidden: True

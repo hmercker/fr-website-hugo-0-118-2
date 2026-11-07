@@ -1,7 +1,7 @@
 ---
 title: "Agissez selon les conseils que Dieu donne à chacun"
 menu_title: ""
-description: "Agissez selon les conseils que Dieu donne à chacun"
+description: "Confucius, reçu par Al Fike : « Vos esprits, vos regards et vos âmes sont ouverts à quelque chose de nouveau et de magnifique. »"
 date: 2026-10-24 06:00:01+00:01
 draft: False
 hidden: True

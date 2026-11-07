@@ -1,7 +1,7 @@
 ---
 title: "L'Amour va changer le monde"
 menu_title: ""
-description: "L'Amour va changer le monde"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Lorsque j’ai su que je devais changer et que le changement ne pouvait venir que de Dieu, je me suis rendu. »"
 date: 2022-06-01 06:00:01+00:1533
 draft: False
 hidden: True

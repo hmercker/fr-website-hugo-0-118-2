@@ -1,7 +1,7 @@
 ---
 title: "L’éveil de l’Âme"
 menu_title: ""
-description: "L’éveil de l’Âme"
+description: "Augustin, reçu par Al Fike : « L’humanité est dans un profond sommeil, mes enfants. Chaque âme est enterrée sous des couches de la condition humaine … »"
 date: 2022-06-01 06:00:01+00:179
 draft: False
 hidden: True

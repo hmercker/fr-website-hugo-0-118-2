@@ -1,7 +1,7 @@
 ---
 title: "L'univers a besoin de variété"
 menu_title: ""
-description: "L'univers a besoin de variété"
+description: "André, reçu par Al Fike : « N’est-ce pas tout simplement merveilleux, toutes les variétés d’individus dans ce monde. Tant de différences et pourtant vous … »"
 date: 2022-06-01 06:00:01+00:566
 draft: False
 hidden: True

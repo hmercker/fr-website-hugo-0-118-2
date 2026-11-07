@@ -1,7 +1,7 @@
 ---
 title: "Samuel – Incarnation de l’âme"
 menu_title: ""
-description: "Samuel – Incarnation de l’âme"
+description: "Samuel, reçu par James Padgett : « Eh bien, je n’écrirai pas longtemps ce soir. Je veux simplement dire que votre condition spirituelle est bien … »"
 date: 2022-06-01 06:00:01+00:130
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La mort à l’américaine-2"
 menu_title: ""
-description: "La mort à l’américaine-2"
+description: "Allen Dulles, reçu par FAB : « Je sais que vous avez eu la pensée aujourd’hui que les esprits ne voient pas toujours leur mal clairement, et peuvent … »"
 date: 2022-06-01 06:00:01+00:30
 draft: False
 hidden: True

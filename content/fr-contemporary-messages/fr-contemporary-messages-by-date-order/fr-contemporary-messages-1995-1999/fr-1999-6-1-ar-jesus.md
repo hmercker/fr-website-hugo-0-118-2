@@ -1,7 +1,7 @@
 ---
 title: "Message annuel en transe"
 menu_title: ""
-description: "Message annuel en transe"
+description: "Jésus, reçu par Amada Reza : « C’est une occasion si joyeuse pour ceux d’entre nous qui sont présents en esprit, car c’est une occasion que nous avons de … »"
 date: 2022-06-01 06:00:01+00:13
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Cherchez l'Amour de Dieu pour réveiller vos âmes"
 menu_title: ""
-description: "Cherchez l'Amour de Dieu pour réveiller vos âmes"
+description: "Augustin, reçu par Al Fike : « Cherchez à connaître vos âmes, car dans votre âme se trouvent les clés de toutes les réponses que vous cherchez. »"
 date: 2022-06-01 06:00:01+00:322
 draft: False
 hidden: True

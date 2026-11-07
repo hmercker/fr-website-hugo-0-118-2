@@ -1,7 +1,7 @@
 ---
 title: "Soyez réceptifs à Dieu et aux anges Célestes (Tour 2019 d'éveil de l'âme - Côte Est des USA)"
 menu_title: ""
-description: "Soyez réceptifs à Dieu et aux anges Célestes (Tour 2019 d'éveil de l'âme - Côte Est des USA)"
+description: "Augustin, reçu par Al Fike : « Partout où il y a ceux qui ont un intérêt et un désir de poursuivre ce don d’Amour divin, nous serons avec vous, âmes … »"
 date: 2022-06-01 06:00:01+00:649
 draft: False
 hidden: True

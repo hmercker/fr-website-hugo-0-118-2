@@ -1,7 +1,7 @@
 ---
 title: "Bénédictions individuelles"
 menu_title: ""
-description: "Bénédictions individuelles"
+description: "Jésus, reçu par Al Fike : « Ainsi, avec cette ouverture et ce désir de prière, Dieu vous a touché profondément, âmes bien-aimées. »"
 date: 2022-06-01 06:00:01+00:256
 draft: False
 hidden: True

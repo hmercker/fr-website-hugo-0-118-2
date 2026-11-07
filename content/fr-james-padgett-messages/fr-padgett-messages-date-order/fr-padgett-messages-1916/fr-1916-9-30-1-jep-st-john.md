@@ -1,7 +1,7 @@
 ---
 title: "Jean – Suite du message précédent"
 menu_title: ""
-description: "Jean – Suite du message précédent"
+description: "St Jean, reçu par James Padgett : « Je désire terminer mon message et j’espère que vous êtes en mesure de le recevoir. Eh bien, alors que j’écrivais sur … »"
 date: 2022-06-01 06:00:01+00:283
 draft: False
 hidden: True

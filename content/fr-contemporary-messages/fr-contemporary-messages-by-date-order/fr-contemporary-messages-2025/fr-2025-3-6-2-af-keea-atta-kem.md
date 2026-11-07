@@ -1,7 +1,7 @@
 ---
 title: "Affirme la progression de votre âme"
 menu_title: ""
-description: "Affirme la progression de votre âme"
+description: "Keea Atta Kem, reçu par Albert Fike : « Je souhaite simplement affirmer avec vous la progression de votre âme. Même si notre cher ami stellaire Orion a … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Vivre en paix"
 menu_title: ""
-description: "Vivre en paix"
+description: "Gandhi, reçu par Jimbeau Walsh : « Je tiens à dire ceci : durant mon passage sur terre, à travers mes luttes politiques, mes aspirations spirituelles, mes … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

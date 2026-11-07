@@ -1,7 +1,7 @@
 ---
 title: "Une discussion sur l'environnement"
 menu_title: ""
-description: "Une discussion sur l'environnement"
+description: "Uharu, reçu par FAB : « En lisant le livre [1491], que vous avez été guidé à acheter aujourd'hui, vous vous rendez compte que les approches autochtones … »"
 date: 2022-06-01 06:00:01+00:85
 draft: False
 hidden: True

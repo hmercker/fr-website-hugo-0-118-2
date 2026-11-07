@@ -1,7 +1,7 @@
 ---
 title: "Réflexions d'un autre homme d'État américain du XIXe siècle"
 menu_title: ""
-description: "Réflexions d'un autre homme d'État américain du XIXe siècle"
+description: "Thaddeus Stevens, reçu par FAB : « La vie dans le monde des esprits a refroidi certaines de mes passions terrestres, mais mon ardeur contre l'esclavage ne … »"
 date: 2022-06-01 06:00:01+00:121
 draft: False
 hidden: True

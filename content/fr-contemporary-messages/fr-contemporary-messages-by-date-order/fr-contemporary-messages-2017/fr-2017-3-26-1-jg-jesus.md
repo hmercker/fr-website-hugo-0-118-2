@@ -1,7 +1,7 @@
 ---
 title: "La dévotion (2ème partie)"
 menu_title: ""
-description: "La dévotion (2ème partie)"
+description: "Jésus, reçu par Jane Gartshore : « Le but de La dévotion est de montrer à Dieu votre amour pour lui. Lorsque vous aimez Dieu, c'est sans aucune condition. »"
 date: 2022-06-01 06:00:01+00:22
 draft: False
 hidden: True

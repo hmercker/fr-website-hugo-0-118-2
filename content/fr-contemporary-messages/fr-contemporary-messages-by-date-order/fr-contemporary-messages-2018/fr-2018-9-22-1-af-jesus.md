@@ -1,7 +1,7 @@
 ---
 title: "Je suis avec vous alors que vous accomplissez l'œuvre du Père"
 menu_title: ""
-description: "Je suis avec vous alors que vous accomplissez l'œuvre du Père"
+description: "Jésus, reçu par Al Fike : « Je chuchote à ton oreille. Je bénis ceux qui sont avec toi. »"
 date: 2022-06-01 06:00:01+00:482
 draft: False
 hidden: True

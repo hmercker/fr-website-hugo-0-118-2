@@ -1,7 +1,7 @@
 ---
 title: "Continuez à apporter cette lumière dans le monde"
 menu_title: ""
-description: "Continuez à apporter cette lumière dans le monde"
+description: "George Gurdjieff, reçu par Jimbeau Walsh : « J’ai été élevé dans la tradition Chrétienne Grecque-Arménienne, mais en tant que jeune homme, j’avais faim de … »"
 date: 2022-06-01 06:00:01+00:1541
 draft: False
 hidden: True

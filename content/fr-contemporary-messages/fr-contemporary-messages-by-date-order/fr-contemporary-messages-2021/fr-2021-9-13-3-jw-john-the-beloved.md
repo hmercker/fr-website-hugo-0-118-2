@@ -1,7 +1,7 @@
 ---
 title: "Alignez vos cœurs dans la foi"
 menu_title: ""
-description: "Alignez vos cœurs dans la foi"
+description: "Jean le Bien Aimé, reçu par Jimbeau Walsh : « Mes chers frères et sœurs, dans la Grâce de Dieu, je vous salue. Vous avez peut-être l’impression d’être sur … »"
 date: 2022-06-01 06:00:01+00:1640
 draft: False
 hidden: True

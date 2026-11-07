@@ -1,7 +1,7 @@
 ---
 title: "Confirmation par Pierre"
 menu_title: ""
-description: "Confirmation par Pierre"
+description: "St Pierre, reçu par James Padgett : « Il est très souvent avec vous, vous écrivant et vous accordant son amour et ses bénédictions. »"
 date: 2022-06-01 06:00:01+00:129
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Nous implore de rechercher la lumière pour nos âmes et nos familles"
 menu_title: ""
-description: "Nous implore de rechercher la lumière pour nos âmes et nos familles"
+description: "Jésus, reçu par Albert Fike : « Le monde est en difficulté, bouleversé et plongé dans l’obscurité. Alors, lorsque vous pensez à vous-mêmes et à vos … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

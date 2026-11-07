@@ -1,7 +1,7 @@
 ---
 title: "Le temps est venu d'écouter la sagesse de vos âmes"
 menu_title: ""
-description: "Le temps est venu d'écouter la sagesse de vos âmes"
+description: "Augustin, reçu par Al Fike : « Il a fait l'expérience d'un épisode ce matin qui était assez dramatique. Il continuera à vivre ces épisodes s'il ne fait … »"
 date: 2022-06-01 06:00:01+00:80
 draft: False
 hidden: True

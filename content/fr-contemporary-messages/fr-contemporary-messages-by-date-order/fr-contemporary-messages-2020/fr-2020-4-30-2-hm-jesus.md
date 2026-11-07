@@ -1,7 +1,7 @@
 ---
 title: "Goutte par Goutte"
 menu_title: ""
-description: "Goutte par Goutte"
+description: "Jésus, reçu par Helge Mercker : « Je tiens à saluer ce bel instrument pour ses efforts visant à faire avancer la Vérité de l’âme. »"
 date: 2022-06-01 06:00:01+00:1081
 draft: False
 hidden: True

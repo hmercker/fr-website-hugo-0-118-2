@@ -1,7 +1,7 @@
 ---
 title: "Réseau de l’Amour"
 menu_title: ""
-description: "Réseau de l’Amour"
+description: "Anne Rollins, reçu par Helge Mercker : « Dans les années à venir, beaucoup de choses vont s’ouvrir grâce aux efforts que vous faites maintenant. »"
 date: 2022-06-01 06:00:01+00:1140
 draft: False
 hidden: True

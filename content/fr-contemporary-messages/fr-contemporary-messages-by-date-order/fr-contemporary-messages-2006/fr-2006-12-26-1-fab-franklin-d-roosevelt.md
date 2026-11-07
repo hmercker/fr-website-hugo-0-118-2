@@ -1,7 +1,7 @@
 ---
 title: "La moralité du président Roosevelt"
 menu_title: ""
-description: "La moralité du président Roosevelt"
+description: "Franklin D Roosevelt, reçu par FAB : « Vous ne devez pas craindre d'avoir mal interprété mes deux précédents messages. La biographie de moi que vous avez … »"
 date: 2022-06-01 06:00:01+00:79
 draft: False
 hidden: True

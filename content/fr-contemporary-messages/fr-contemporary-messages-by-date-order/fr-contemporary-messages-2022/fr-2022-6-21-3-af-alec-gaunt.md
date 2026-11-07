@@ -1,7 +1,7 @@
 ---
 title: "L'esprit construit un pont entre les plans de l'esprit et de la terre"
 menu_title: ""
-description: "L'esprit construit un pont entre les plans de l'esprit et de la terre"
+description: "Alec Gaunt, reçu par Al Fike : « Nous sommes tous occupés à construire un grand pont entre le monde des esprits et le monde des hommes. »"
 date: 2023-09-01 06:00:01+00:33
 draft: False
 hidden: True

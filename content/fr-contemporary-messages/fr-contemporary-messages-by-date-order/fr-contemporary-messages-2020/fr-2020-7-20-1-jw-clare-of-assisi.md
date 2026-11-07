@@ -1,7 +1,7 @@
 ---
 title: "La Foi en Dieu"
 menu_title: ""
-description: "La Foi en Dieu"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Je souhaite vous dire que pour vous connecter au Père Céleste, il suffit d’un simple acte, d’une simple … »"
 date: 2022-06-01 06:00:01+00:1192
 draft: False
 hidden: True

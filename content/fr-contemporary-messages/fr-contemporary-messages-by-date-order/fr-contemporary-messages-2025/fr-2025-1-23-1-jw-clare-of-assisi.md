@@ -1,7 +1,7 @@
 ---
 title: "Prière et sanctuaire"
 menu_title: ""
-description: "Prière et sanctuaire"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Mes nombreuses et chères souris. Je m’excuse de mon absence, mais je vais vous dire que vous avez toutes fait … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

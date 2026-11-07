@@ -1,7 +1,7 @@
 ---
 title: "En quête d’amour et de lumière"
 menu_title: ""
-description: "En quête d’amour et de lumière"
+description: "André, reçu par Al Fike : « Bénédictions à vous qui venez pour être ensemble en cherchant l’Amour et la Lumière. Par vos prières, vous avez ouvert un … »"
 date: 2022-06-01 06:00:01+00:15
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L'âme dans l'Amour de Dieu"
 menu_title: ""
-description: "L'âme dans l'Amour de Dieu"
+description: "Yogananda, reçu par Jimbeau Walsh : « Savez-vous que l’âme est un aimant et aussi une loupe ? Elle absorbe et elle émet. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

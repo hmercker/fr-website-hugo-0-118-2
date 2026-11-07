@@ -1,7 +1,7 @@
 ---
 title: "Un message convaincant pour marcher avec Lui vers les Cieux Célestes"
 menu_title: ""
-description: "Un message convaincant pour marcher avec Lui vers les Cieux Célestes"
+description: "Jésus, reçu par Al Fike : « Car la chose la plus puissante que vous puissiez faire pour votre propre progression spirituelle est d’envoyer vos cœurs à … »"
 date: 2022-06-01 06:00:01+00:147
 draft: False
 hidden: True

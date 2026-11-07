@@ -1,7 +1,7 @@
 ---
 title: "Priez pour la conscience de l'âme"
 menu_title: ""
-description: "Priez pour la conscience de l'âme"
+description: "Orion, reçu par Albert Fike : « On pense souvent au développement au sens matériel, que le développement apporte des manifestations, sous une forme … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

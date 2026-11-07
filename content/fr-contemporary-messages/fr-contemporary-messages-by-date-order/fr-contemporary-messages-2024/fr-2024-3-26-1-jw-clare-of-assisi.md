@@ -1,7 +1,7 @@
 ---
 title: "C'est le bonheur"
 menu_title: ""
-description: "C'est le bonheur"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Le bonheur peut être si insaisissable et, dans la condition humaine, déroutant. Vous pourriez demander « … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

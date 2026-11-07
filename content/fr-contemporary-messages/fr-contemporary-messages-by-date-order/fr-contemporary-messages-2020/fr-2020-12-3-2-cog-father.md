@@ -1,7 +1,7 @@
 ---
 title: "Échange de l'âme avec 'L'Unique'"
 menu_title: ""
-description: "Échange de l'âme avec 'L'Unique'"
+description: "Père, reçu par Child of God : « L’Unique qui déverse Ma Substance même dans ton âme, te touchant profondément avec Mon Essence. »"
 date: 2022-06-01 06:00:01+00:1333
 draft: False
 hidden: True

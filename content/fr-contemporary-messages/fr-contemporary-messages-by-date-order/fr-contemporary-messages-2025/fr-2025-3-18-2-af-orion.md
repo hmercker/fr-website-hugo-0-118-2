@@ -1,7 +1,7 @@
 ---
 title: "Le monde a besoin de vous !"
 menu_title: ""
-description: "Le monde a besoin de vous !"
+description: "Orion, reçu par Albert Fike : « Dieu vous soutient de multiples façons. Le Créateur de l’univers vous connaît intimement. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

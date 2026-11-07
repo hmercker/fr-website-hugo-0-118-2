@@ -1,7 +1,7 @@
 ---
 title: "Aigle Blanc et Arrondah assistent le Dr Stone dans son travail de guérison"
 menu_title: ""
-description: "Aigle Blanc et Arrondah assistent le Dr Stone dans son travail de guérison"
+description: "Aigle Blanc, reçu par James Padgett : « Je veux lui dire que j’étais avec lui lorsqu’il a soigné la femme malade. Elle s’appelait (Mlle Fallin, une … »"
 date: 2022-06-01 06:00:01+00:208
 draft: False
 hidden: True

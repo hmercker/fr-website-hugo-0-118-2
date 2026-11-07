@@ -1,7 +1,7 @@
 ---
 title: "L'Amour de Dieu est la réponse"
 menu_title: ""
-description: "L'Amour de Dieu est la réponse"
+description: "Jean le Bien Aimé, reçu par Jimbeau Walsh : « Il ne faut pas se préoccuper de ceux qui semblent enseigner ce qui n’est pas vrai, professer ce qui n’est … »"
 date: 2022-06-01 06:00:01+00:1700
 draft: False
 hidden: True

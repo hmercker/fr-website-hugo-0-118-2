@@ -1,7 +1,7 @@
 ---
 title: "Seul l’amour peut dissoudre l’illusion"
 menu_title: ""
-description: "Seul l’amour peut dissoudre l’illusion"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Mon amour déborde pour vous Mes chers enfants qui allez bientôt vous rassembler en Mon Nom et Mon Amour. »"
 date: 2022-06-01 06:00:01+00:12
 draft: False
 hidden: True

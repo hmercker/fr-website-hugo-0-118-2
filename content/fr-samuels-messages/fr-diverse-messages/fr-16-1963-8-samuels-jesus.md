@@ -1,7 +1,7 @@
 ---
 title: "Hanukka, Noël, Épiphanie, la deuxième célébration, 17 et 18 Décembre ; 24 et 25 Décembre ; 6 Janvier"
 menu_title: ""
-description: "Hanukka, Noël, Épiphanie, la deuxième célébration, 17 et 18 Décembre ; 24 et 25 Décembre ; 6 Janvier"
+description: "Jésus, reçu par Dr Samuels Août : « La Fête de la Dédicace du Temple, du 12 au 19 Décembre, est très proche de Noël, célébré chaque année le 25 Décembre … »"
 date: 2022-06-01 06:00:01+00:16
 draft: False
 hidden: True

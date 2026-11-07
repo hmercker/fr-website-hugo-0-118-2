@@ -1,7 +1,7 @@
 ---
 title: "L’illumination par l’Amour de Dieu"
 menu_title: ""
-description: "L’illumination par l’Amour de Dieu"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Permettez à vos cœurs, à vos esprits et à vos corps d’être en paix. Permettez à l’amour de Dieu … »"
 date: 2022-06-01 06:00:01+00:1379
 draft: False
 hidden: True

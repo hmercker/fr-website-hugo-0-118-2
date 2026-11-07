@@ -1,7 +1,7 @@
 ---
 title: "Intention et volonté"
 menu_title: ""
-description: "Intention et volonté"
+description: "Judas, reçu par Jimbeau Walsh : « J’ai sollicité le cœur de mon frère ces dernières heures et lui ai fait savoir dans son âme ce que je souhaitais lui … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

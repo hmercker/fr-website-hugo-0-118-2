@@ -1,7 +1,7 @@
 ---
 title: "L'Amour Divin de Dieu est donné gratuitement à toutes les âmes"
 menu_title: ""
-description: "L'Amour Divin de Dieu est donné gratuitement à toutes les âmes"
+description: "Augustin, reçu par Al Fike : « Pendant de nombreuses années, j’ai enseigné les vérités de l’Amour Divin du Père et encouragé ces individus sur leur chemin. »"
 date: 2022-06-01 06:00:01+00:663
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Votre connexion est d'âme à âme en esprit"
 menu_title: ""
-description: "Votre connexion est d'âme à âme en esprit"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Je ressens vos préoccupations, vos espoirs et vos aspirations. Bien sûr, vous savez que beaucoup seront avec … »"
 date: 2022-06-01 06:00:01+00:890
 draft: False
 hidden: True

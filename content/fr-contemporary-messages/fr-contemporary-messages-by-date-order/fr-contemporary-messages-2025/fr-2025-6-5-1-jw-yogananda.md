@@ -1,7 +1,7 @@
 ---
 title: "Les conseils sont donnés par la foi"
 menu_title: ""
-description: "La guidance sont donnés par la foi"
+description: "Yogananda, reçu par reçu par Jimbeau Walsh : « Retraite d’Amour Divin en Floride Je vous souhaite la bienvenue dans ce cercle, cette prière d’Amour Divin … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

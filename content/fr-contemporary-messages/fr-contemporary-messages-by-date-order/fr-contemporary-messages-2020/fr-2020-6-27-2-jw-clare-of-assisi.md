@@ -1,7 +1,7 @@
 ---
 title: "Clarté et cadeaux"
 menu_title: ""
-description: "Clarté et cadeaux"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Parfois dans la vie, vous avez une épiphanie où ce qui n’était pas clair auparavant devient parfaitement … »"
 date: 2022-06-01 06:00:01+00:1160
 draft: False
 hidden: True

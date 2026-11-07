@@ -1,7 +1,7 @@
 ---
 title: "Jacques dit que M. Padgett sera bientôt soulagé de l’inquiétude"
 menu_title: ""
-description: "Jacques dit que M. Padgett sera bientôt soulagé de l’inquiétude"
+description: "St Jacques, reçu par James Padgett : « Quand vous êtes le plus faible, alors vous êtes le plus fort, parce qu’alors vous comptez davantage sur la … »"
 date: 2022-06-01 06:00:01+00:311
 draft: False
 hidden: True

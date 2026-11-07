@@ -1,7 +1,7 @@
 ---
 title: "La différence entre le mental matériel et le mental de l’âme"
 menu_title: ""
-description: "La différence entre le mental matériel et le mental de l’âme"
+description: "Augustin, reçu par Al Fike : « Et, en effet, ce sont deux entités distinctes au sein d’un seul être, au sein de chacun d’entre vous. »"
 date: 2022-06-01 06:00:01+00:142
 draft: False
 hidden: True

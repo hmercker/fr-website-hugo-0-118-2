@@ -1,7 +1,7 @@
 ---
 title: "Dieu répond à toutes les prières"
 menu_title: ""
-description: "Dieu répond à toutes les prières"
+description: "Jésus : « Dieu répond à toutes les prières « Je Te demande, Père, de bénir chacun de Tes enfants et de leur donner la possibilité d'aller de l'avant. »"
 date: 2022-06-01 06:00:01+00:171
 draft: False
 hidden: True

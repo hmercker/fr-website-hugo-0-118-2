@@ -1,7 +1,7 @@
 ---
 title: "Faire confiance aux autres"
 menu_title: ""
-description: "Faire confiance aux autres"
+description: "Jésus, reçu par Kathryn Stokes : « Faire confiance aux autres est similaire à d’autres aspects du développement spirituel et de l’application de la foi … »"
 date: 2022-06-01 06:00:01+00:07
 draft: False
 hidden: True

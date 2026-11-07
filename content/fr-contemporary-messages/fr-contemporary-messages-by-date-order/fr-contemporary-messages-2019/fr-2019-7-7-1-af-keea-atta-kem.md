@@ -1,7 +1,7 @@
 ---
 title: "Choisir de tout aimer"
 menu_title: ""
-description: "Choisir de tout aimer"
+description: "Keea Atta Kem, reçu par Al Fike : « Je souhaite parler de l’importance de l’harmonie dans vos Cercles de Lumière. Dieu rassemble de nombreux individus … »"
 date: 2022-06-01 06:00:01+00:765
 draft: False
 hidden: True

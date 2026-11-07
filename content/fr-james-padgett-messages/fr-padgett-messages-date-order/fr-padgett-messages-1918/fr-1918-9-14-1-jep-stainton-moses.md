@@ -1,7 +1,7 @@
 ---
 title: "Stainton Moïse, le médium dont M. Padgett a lu le livre, explique que son livre « Enseignements Spirituels » ne contient pas toute la vérité sur la « Nouvelle Naissance » comme enseignée par Jésus"
 menu_title: ""
-description: "Stainton Moïse, le médium dont M. Padgett a lu le livre, explique que son livre « Enseignements Spirituels » ne contient pas toute la vérité sur la « Nouvelle Naissance » comme enseignée par Jésus"
+description: "Stainton Moïse, reçu par James Padgett : « Laissez-moi vous dire un mot. J’étais présent lorsque vous avez lu le livre intitulé « Enseignements Spirituels … »"
 date: 2022-06-01 06:00:01+00:54
 draft: False
 hidden: True

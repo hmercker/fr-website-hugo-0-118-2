@@ -1,7 +1,7 @@
 ---
 title: "Mise à l'honneur du livre 'Pour l'Amour de Sa Création'"
 menu_title: ""
-description: "Mise à l'honneur du livre 'Pour l'Amour de Sa Création'"
+description: "Kahlil Gibran, reçu par Jimbeau Walsh : « Et je parle par expérience car, bien que j’aie été un homme du monde, lorsque je me suis ouvert aux anges, ils … »"
 date: 2022-06-01 06:00:01+00:1236
 draft: False
 hidden: True

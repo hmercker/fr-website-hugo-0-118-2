@@ -1,7 +1,7 @@
 ---
 title: "À quel point êtes-vous proche de la volonté de Dieu ?"
 menu_title: ""
-description: "À quel point êtes-vous proche de la volonté de Dieu ?"
+description: "Orion, reçu par Albert Fike : « Imaginez-vous à l’avant-garde de l’éveil spirituel de votre monde. C’est le plan que nous portons, mais auquel souscrivent … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Donnez votre Amour, pas vos conseils"
 menu_title: ""
-description: "Donnez votre Amour, pas vos conseils"
+description: "Jacques, reçu par Kathryn Stokes : « Nous sommes venus à toi ce matin pour te livrer nos pensées d’amour et de vérité. Nous avons discuté entre nous pour … »"
 date: 2022-06-01 06:00:01+00:74
 draft: False
 hidden: True

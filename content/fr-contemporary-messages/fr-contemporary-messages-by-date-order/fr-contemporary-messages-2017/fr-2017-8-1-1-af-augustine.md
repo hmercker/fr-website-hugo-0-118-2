@@ -1,7 +1,7 @@
 ---
 title: "Accepter l'appel de Dieu"
 menu_title: ""
-description: "Accepter l'appel de Dieu"
+description: "Augustin, reçu par Al Fike : « Chacun d'entre vous a ressenti un changement au sein de son âme, une accélération, une ouverture et une compréhension … »"
 date: 2022-06-01 06:00:01+00:73
 draft: False
 hidden: True

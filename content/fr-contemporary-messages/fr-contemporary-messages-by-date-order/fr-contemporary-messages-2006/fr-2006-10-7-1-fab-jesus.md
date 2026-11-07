@@ -1,7 +1,7 @@
 ---
 title: "Jésus et le Talmud - L'âme et l'au-delà"
 menu_title: ""
-description: "Jésus et le Talmud - L'âme et l'au-delà"
+description: "Jésus, reçu par FAB : « L'atmosphère dans laquelle je vivais était saturée par le concept de l'âme, et comment elle est cette partie de l'humanité qui … »"
 date: 2022-06-01 06:00:01+00:51
 draft: False
 hidden: True

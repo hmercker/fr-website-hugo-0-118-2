@@ -1,7 +1,7 @@
 ---
 title: "Bienvenue aux Gardiens"
 menu_title: ""
-description: "Bienvenue aux Gardiens"
+description: "Claire d'Assise, reçu par reçu par Jimbeau Walsh : « Retraite de l’Amour Divin en Floride Je souhaite simplement vous rappeler que nous sommes là pour … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

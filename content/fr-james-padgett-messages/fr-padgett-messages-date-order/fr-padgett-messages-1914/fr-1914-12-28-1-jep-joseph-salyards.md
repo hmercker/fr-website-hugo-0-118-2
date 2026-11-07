@@ -1,7 +1,7 @@
 ---
 title: "Le professeur Salyards a progressé vers la troisième sphère et a localisé son âme-sœur avec l’aide de Mme Padgett et sait qu’elle est la sienne pour toujours"
 menu_title: ""
-description: "Le professeur Salyards a progressé vers la troisième sphère et a localisé son âme-sœur avec l’aide de Mme Padgett et sait qu’elle est la sienne pour toujours"
+description: "Professeur Salyards, reçu par James Padgett : « Votre femme vous a dit aujourd’hui que j’écrirais ce soir et que je vais essayer de faire de mon mieux. »"
 date: 2022-06-01 06:00:01+00:53
 draft: False
 hidden: True

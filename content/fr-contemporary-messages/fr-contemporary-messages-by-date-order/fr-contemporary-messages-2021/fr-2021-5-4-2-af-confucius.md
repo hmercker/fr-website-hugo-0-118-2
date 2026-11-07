@@ -1,7 +1,7 @@
 ---
 title: "Bénédiction"
 menu_title: ""
-description: "Bénédiction"
+description: "Confucius, reçu par Al Fike : « Chacun de vous est précieux et bien-aimé, chacun de vous est une âme précieuse, une partie du grand collier de perles … »"
 date: 2022-06-01 06:00:01+00:1491
 draft: False
 hidden: True

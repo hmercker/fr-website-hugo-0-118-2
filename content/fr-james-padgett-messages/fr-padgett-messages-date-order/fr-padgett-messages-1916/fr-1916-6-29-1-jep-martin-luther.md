@@ -1,7 +1,7 @@
 ---
 title: "Martin Luther sur les cérémonies religieuses"
 menu_title: ""
-description: "Martin Luther sur les cérémonies religieuses"
+description: "Martin Luther, reçu par James Padgett : « Je désire écrire un court message ce soir sur le sujet de : « Les cérémonies observées par mon église … »"
 date: 2022-06-01 06:00:01+00:253
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Restez en grâce"
 menu_title: ""
-description: "Restez en grâce"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Que la douce pluie de l’Amour de Dieu tombe sur vous alors que vous ouvrez votre âme au remplissage de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

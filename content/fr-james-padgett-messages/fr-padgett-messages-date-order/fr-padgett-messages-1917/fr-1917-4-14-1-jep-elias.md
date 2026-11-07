@@ -1,7 +1,7 @@
 ---
 title: "Élie parle de l’importance d’être en bonne condition pour permettre aux esprits d’écrire"
 menu_title: ""
-description: "Élie parle de l’importance d’être en bonne condition pour permettre aux esprits d’écrire"
+description: "Élie, reçu par James Padgett : « Je n’écrirai, ce soir, que quelques lignes, car vous n’êtes pas en état de recevoir le long discours que je vous ai promis. »"
 date: 2022-06-01 06:00:01+00:104
 draft: False
 hidden: True

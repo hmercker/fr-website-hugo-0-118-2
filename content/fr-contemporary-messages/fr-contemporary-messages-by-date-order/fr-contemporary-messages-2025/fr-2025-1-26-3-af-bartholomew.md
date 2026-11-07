@@ -1,7 +1,7 @@
 ---
 title: "Confirme que les messages transmis sont des vérités divines"
 menu_title: ""
-description: "Confirme que les messages transmis sont des vérités divines"
+description: "Barthélémy, reçu par Albert Fike : « Que la gloire de l’Amour du Père pénètre vos âmes en abondance. Puissiez-vous connaître ce don de Dieu comme votre … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

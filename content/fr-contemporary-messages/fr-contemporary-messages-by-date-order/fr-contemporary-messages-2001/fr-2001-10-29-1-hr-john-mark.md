@@ -1,7 +1,7 @@
 ---
 title: "Jean Marc sur la foi et la recherche intérieure"
 menu_title: ""
-description: "Jean Marc sur la foi et la recherche intérieure"
+description: "Jean Marc, reçu par H : « S’il te plaît, calme-toi, H , tout va bien. Nous avons essayé de projeter ces images dans ton esprit, et il est ici maintenant. »"
 date: 2022-06-01 06:00:01+00:72
 draft: False
 hidden: True

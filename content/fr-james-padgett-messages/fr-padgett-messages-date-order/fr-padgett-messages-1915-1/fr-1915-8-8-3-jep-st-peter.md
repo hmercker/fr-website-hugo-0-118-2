@@ -1,7 +1,7 @@
 ---
 title: "St Pierre donne des conseils pour la prière"
 menu_title: ""
-description: "St Pierre donne des conseils pour la prière"
+description: "St Pierre, reçu par James Padgett : « Je veux vous dire que vous êtes très près du Père ce soir et que Son Amour remplit votre âme à un grand degré. »"
 date: 2022-06-01 06:00:01+00:180
 draft: False
 hidden: True

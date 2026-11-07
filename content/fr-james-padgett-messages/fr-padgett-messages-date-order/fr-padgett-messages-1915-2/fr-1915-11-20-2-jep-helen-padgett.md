@@ -1,7 +1,7 @@
 ---
 title: "Hélène explique à M. Padgett pourquoi elle l’a appelé pour lui écrire"
 menu_title: ""
-description: "Hélène explique à M. Padgett pourquoi elle l’a appelé pour lui écrire"
+description: "Hélène Padgett, reçu par James Padgett : « Je t’ai appelé parce que lorsque l’esprit qui a écrit est venu, il était dans un état très misérable et très … »"
 date: 2022-06-01 06:00:01+00:59
 draft: False
 hidden: True

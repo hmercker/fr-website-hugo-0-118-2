@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes tous des points de lumière"
 menu_title: ""
-description: "Nous sommes tous des points de lumière"
+description: "Jésus, reçu par Al Fike : « Parfois, ce canal est brillant et puissant. Chacun de vous est un point de passage de la lumière dans le monde. »"
 date: 2022-06-01 06:00:01+00:1576
 draft: False
 hidden: True

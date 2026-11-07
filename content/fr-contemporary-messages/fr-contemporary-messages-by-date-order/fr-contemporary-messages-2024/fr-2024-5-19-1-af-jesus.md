@@ -1,7 +1,7 @@
 ---
 title: "Prière et bénédiction de la Pentecôte"
 menu_title: ""
-description: "Prière et bénédiction de la Pentecôte"
+description: "Jésus, reçu par Albert Fike : « Créateur de toutes choses, je vous implore de toucher profondément chaque âme présente ici, toutes les âmes du monde qui … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

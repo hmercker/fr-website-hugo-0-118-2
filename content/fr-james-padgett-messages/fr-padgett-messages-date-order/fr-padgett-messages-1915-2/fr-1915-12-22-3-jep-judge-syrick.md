@@ -1,7 +1,7 @@
 ---
 title: "Le juge Syrick confirme la beauté d’Hélène"
 menu_title: ""
-description: "Le juge Syrick confirme la beauté d’Hélène"
+description: "Juge Syrick, reçu par James Padgett : « Eh bien Padgett, j’ai entendu ce que ta femme a dit, et j’aimerais te décrire son apparence, mais je n’ai pas de … »"
 date: 2022-06-01 06:00:01+00:98
 draft: False
 hidden: True

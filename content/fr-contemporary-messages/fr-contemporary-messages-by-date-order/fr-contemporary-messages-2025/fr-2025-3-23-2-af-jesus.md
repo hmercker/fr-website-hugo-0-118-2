@@ -1,7 +1,7 @@
 ---
 title: "Que Dieu nous bénisse tous, reliés par le réseau mondial croissant de Lumière"
 menu_title: ""
-description: "Que Dieu nous bénisse tous, reliés par le réseau mondial croissant de Lumière"
+description: "Jésus, reçu par Albert Fike : « Par vos prières, viennent les bénédictions du Créateur, pour vous, vos proches, vos familles et pour ce monde. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "S'ouvrir à la lumière de l'Amour de Dieu"
 menu_title: ""
-description: "S'ouvrir à la lumière de l'Amour de Dieu"
+description: "André, reçu par Al Fike : « On peut même être reconnaissant d’être reconnaissant, de ressentir ce sentiment de gratitude et de joie face aux fortunes qui … »"
 date: 2022-06-01 06:00:01+00:364
 draft: False
 hidden: True

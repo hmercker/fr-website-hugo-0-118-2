@@ -1,7 +1,7 @@
 ---
 title: "Hélène sur le message d’Anne Rollins"
 menu_title: ""
-description: "Hélène sur le message d’Anne Rollins"
+description: "Hélène Padgett, reçu par James Padgett : « Je n’écrirai pas plus ce soir, car je vois que tu es fatigué. Ta vraie et tendre Hélène. »"
 date: 2022-06-01 06:00:01+00:236
 draft: False
 hidden: True

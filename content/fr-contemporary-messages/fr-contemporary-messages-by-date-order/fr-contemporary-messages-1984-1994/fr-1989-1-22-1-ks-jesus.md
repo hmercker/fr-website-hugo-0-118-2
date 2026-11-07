@@ -1,7 +1,7 @@
 ---
 title: "Un espoir pour l'âme perdue"
 menu_title: ""
-description: "Un espoir pour l'âme perdue"
+description: "Jésus, reçu par Kathryn Stokes : « Comme vous le savez, il existe de nombreuses façons de dire la même chose et, pour compliquer les choses, les gens ont … »"
 date: 2022-06-01 06:00:01+00:39
 draft: False
 hidden: True

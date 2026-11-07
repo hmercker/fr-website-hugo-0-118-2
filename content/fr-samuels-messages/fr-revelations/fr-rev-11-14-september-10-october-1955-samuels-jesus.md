@@ -1,7 +1,7 @@
 ---
 title: "11ème Révélation : Jésus élabore plus sur sa crucifixion, sur la résurrection et sur ce qui a suivi"
 menu_title: ""
-description: "11ème Révélation : Jésus élabore plus sur sa crucifixion, sur la résurrection et sur ce qui a suivi"
+description: "Jésus, reçu par Dr Samuels : « Les soins, pour mon corps, tels que décrits par Jean dans le chapitre 19, versets 38-42 sont exacts. »"
 date: 2022-06-01 06:00:01+00:11
 draft: False
 hidden: True

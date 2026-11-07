@@ -1,7 +1,7 @@
 ---
 title: "Parties innocentes au terrorisme ?"
 menu_title: ""
-description: "Parties innocentes au terrorisme ?"
+description: "Judas, reçu par H : « Mon cher H , la nuit dernière tu t’es endormi et tu m’as laissé au milieu d’un message, mais ce n’est pas grave. »"
 date: 2022-06-01 06:00:01+00:55
 draft: False
 hidden: True

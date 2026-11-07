@@ -1,7 +1,7 @@
 ---
 title: "Pierre, l’Apôtre: Affirme ce que Paul a écrit au sujet de l’expiation par procuration"
 menu_title: ""
-description: "Pierre, l’Apôtre: Affirme ce que Paul a écrit au sujet de l’expiation par procuration"
+description: "St Pierre, reçu par James Padgett : « Je vous écris pour corroborer ce que Paul a dit, tant en ce qui concerne les erreurs de l’auteur du livre que vous … »"
 date: 2022-06-01 06:00:01+00:20
 draft: False
 hidden: True

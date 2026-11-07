@@ -1,7 +1,7 @@
 ---
 title: "13ème Révélation : Matthieu a écrit sur le divorce"
 menu_title: ""
-description: "13ème Révélation : Matthieu a écrit sur le divorce"
+description: "Jésus, reçu par Dr Samuels : « Je vais écrire ce message en relation avec l’un des parties les plus énigmatiques de l’Évangile de Matthieu, que Matthieu … »"
 date: 2022-06-01 06:00:01+00:13
 draft: False
 hidden: True

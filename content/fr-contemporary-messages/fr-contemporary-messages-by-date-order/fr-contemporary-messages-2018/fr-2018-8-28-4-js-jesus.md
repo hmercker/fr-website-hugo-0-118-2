@@ -1,7 +1,7 @@
 ---
 title: "L'amour est la grande Vérité"
 menu_title: ""
-description: "L'amour est la grande Vérité"
+description: "Jésus, reçu par Jesper Sorensen : « Dieu est avec vous, âmes bien-aimées. Suivez-moi jusqu’à l’union avec Dieu et je vous montrerai le chemin. »"
 date: 2022-06-01 06:00:01+00:457
 draft: False
 hidden: True

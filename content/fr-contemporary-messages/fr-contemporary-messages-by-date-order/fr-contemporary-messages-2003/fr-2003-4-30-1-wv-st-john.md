@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes tous des médiums"
 menu_title: ""
-description: "Nous sommes tous des médiums"
+description: "St Jean, reçu par WV : « Je veux que vous sachiez tous que je vous aime de tout mon cœur. Beaucoup d’entre vous essayent si fort d’être parfaits, mais … »"
 date: 2022-06-01 06:00:01+00:42
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Continuez à prier pour que la Volonté de Dieu prévale à WHC – Ne perdez pas espoir"
 menu_title: ""
-description: "Continuez à prier pour que la Volonté de Dieu prévale à WHC – Ne perdez pas espoir"
+description: "Frère Mandus, reçu par Al Fike : « Que Dieu soit avec vous, mes amis. J’ai de la gratitude pour vous, mes amis, qui me connaissiez et connaissiez ma … »"
 date: 2022-06-01 06:00:01+00:82
 draft: False
 hidden: True

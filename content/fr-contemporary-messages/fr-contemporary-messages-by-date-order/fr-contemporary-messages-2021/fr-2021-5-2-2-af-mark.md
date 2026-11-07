@@ -1,7 +1,7 @@
 ---
 title: "La vérité de l’Amour Divin"
 menu_title: ""
-description: "La vérité de l’Amour Divin"
+description: "Marc, reçu par Al Fike : « Il vous mettra sur un chemin qui vous mènera à l’inclusion éventuelle dans le Royaume Céleste. »"
 date: 2022-06-01 06:00:01+00:1488
 draft: False
 hidden: True

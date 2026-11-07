@@ -1,7 +1,7 @@
 ---
 title: "Vérité et fausses croyances – troisième partie"
 menu_title: ""
-description: "Vérité et fausses croyances – troisième partie"
+description: "Judas, reçu par H : « Maintenant, chers frères, je veux délivrer un dernier message pour conclure cette petite série sur la diffusion de la Vérité, et sur … »"
 date: 2022-06-01 06:00:01+00:71
 draft: False
 hidden: True

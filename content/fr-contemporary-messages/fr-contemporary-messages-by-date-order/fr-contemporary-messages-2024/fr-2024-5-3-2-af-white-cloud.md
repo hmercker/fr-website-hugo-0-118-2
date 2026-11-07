@@ -1,7 +1,7 @@
 ---
 title: "Guérison de la Terre Mère"
 menu_title: ""
-description: "Guérison de la Terre Mère"
+description: "Nuage Blanc, reçu par Albert Fike : « Votre monde continue de souffrir, âmes bien-aimées. Vous le voyez tout autour de vous. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

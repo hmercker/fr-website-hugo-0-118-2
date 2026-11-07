@@ -1,7 +1,7 @@
 ---
 title: "Expériences d'un théologien Américain colonial"
 menu_title: ""
-description: "Expériences d'un théologien Américain colonial"
+description: "Jonathan Edwards, reçu par FAB : « Je vois que vous êtes curieux de connaître mon histoire, alors je vais satisfaire votre attente. »"
 date: 2022-06-01 06:00:01+00:02
 draft: False
 hidden: True

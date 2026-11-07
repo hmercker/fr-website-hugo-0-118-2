@@ -1,7 +1,7 @@
 ---
 title: "Une prière pour nous aider à atteindre la conscience de l’âme"
 menu_title: ""
-description: "Une prière pour nous aider à atteindre la conscience de l’âme"
+description: "Jésus, reçu par Albert Fike : « Que la paix qui dépasse toute compréhension soit vôtre, âmes bien-aimées. Puissiez-vous connaître l’Amour du Père comme le … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le danseur de Dieu"
 menu_title: ""
-description: "Le danseur de Dieu"
+description: "Hafiz, reçu par Jimbeau Walsh : « Dieu dans son infinie patience attend votre arrivée Dans Sa grande salle de bal avec toute Sa magnificence Et pourtant … »"
 date: 2022-06-01 06:00:01+00:1340
 draft: False
 hidden: True

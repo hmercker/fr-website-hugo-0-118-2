@@ -1,7 +1,7 @@
 ---
 title: "Apportez la paix, le confort, l'amour et la guérison en tant que canaux de Dieu"
 menu_title: ""
-description: "Apportez la paix, le confort, l'amour et la guérison en tant que canaux de Dieu"
+description: "Augustin, reçu par Al Fike : « Là où il y a des conflits, puissiez-vous semer la paix. Là où il y a de la souffrance et de la solitude, puissiez-vous … »"
 date: 2022-06-01 06:00:01+00:1097
 draft: False
 hidden: True

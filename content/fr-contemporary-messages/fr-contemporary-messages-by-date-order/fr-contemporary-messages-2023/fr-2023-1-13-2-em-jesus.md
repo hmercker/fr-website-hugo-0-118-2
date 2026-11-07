@@ -1,7 +1,7 @@
 ---
 title: "Vous avez un but"
 menu_title: ""
-description: "Vous avez un but"
+description: "Jésus, reçu par Elizabeth Mack : « Nous vous rapprochons afin que vous puissiez faire l’expérience de l’amour et des conditions que vous manifesterez à … »"
 date: 2023-09-01 06:00:01+00:65
 draft: False
 hidden: True

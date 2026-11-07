@@ -1,7 +1,7 @@
 ---
 title: "Bienvenue de Jésus à la retraite de médiumnité de l'Amour Divin"
 menu_title: ""
-description: "Bienvenue de Jésus à la retraite de médiumnité de l'Amour Divin"
+description: "Jésus, reçu par Al Fike : « Quelle joie cela nous donne à nous, en esprit, de vous voir vous réunir de cette façon, d’explorer les possibilités de votre … »"
 date: 2022-06-01 06:00:01+00:447
 draft: False
 hidden: True

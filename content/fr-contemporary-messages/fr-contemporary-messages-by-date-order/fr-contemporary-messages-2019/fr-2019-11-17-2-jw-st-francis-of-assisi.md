@@ -1,7 +1,7 @@
 ---
 title: "Devenez les jardiniers de vos âmes"
 menu_title: ""
-description: "Devenez les jardiniers de vos âmes"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Je n’ai pas pu m’empêcher de venir me promener dans les jardins hier avec les frères et la merveilleuse sœur. »"
 date: 2022-06-01 06:00:01+00:914
 draft: False
 hidden: True

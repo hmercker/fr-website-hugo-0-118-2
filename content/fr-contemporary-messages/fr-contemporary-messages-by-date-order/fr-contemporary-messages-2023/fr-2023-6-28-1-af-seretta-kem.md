@@ -1,7 +1,7 @@
 ---
 title: "Point de contrôle à mi-chemin"
 menu_title: ""
-description: "Point de contrôle à mi-chemin"
+description: "Seretta Kem, reçu par Albert Fike : « Nous sommes arrivés à mi-chemin de notre voyage ensemble dans ce Cercle de Lumière. Nous avons bien progressé. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

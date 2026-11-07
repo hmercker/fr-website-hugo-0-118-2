@@ -1,7 +1,7 @@
 ---
 title: "Le silence est d’or"
 menu_title: ""
-description: "Le silence est d’or"
+description: "Claire d'Assise, reçu par Albert Fike : « Il vous est peut-être difficile d’imaginer — tout comme cela l’était pour nous à l’époque — un groupe de femmes … »"
 date: 2026-10-28 06:00:01+00:01
 draft: False
 hidden: True

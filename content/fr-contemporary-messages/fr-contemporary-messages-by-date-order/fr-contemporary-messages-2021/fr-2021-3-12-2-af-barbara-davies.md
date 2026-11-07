@@ -1,7 +1,7 @@
 ---
 title: "Exprimez vos émotions"
 menu_title: ""
-description: "Exprimez vos émotions"
+description: "Barbara Davies, reçu par Al Fike : « L’émotion est une partie importante de chaque individu. C’est quelque chose qui est souvent réprimé, craint ou mal … »"
 date: 2022-06-01 06:00:01+00:1439
 draft: False
 hidden: True

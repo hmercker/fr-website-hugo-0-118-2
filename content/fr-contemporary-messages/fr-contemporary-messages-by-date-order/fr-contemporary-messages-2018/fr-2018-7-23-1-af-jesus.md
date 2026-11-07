@@ -1,7 +1,7 @@
 ---
 title: "Bénédiction d'anniversaire pour Al"
 menu_title: ""
-description: "Bénédiction d'anniversaire pour Al"
+description: "Jésus, reçu par Al Fike : « Je marche avec lui et je déclare qu’il est vraiment mon frère dans ce grand voyage d’éveil de l’âme par le Toucher de l’Amour … »"
 date: 2022-06-01 06:00:01+00:433
 draft: False
 hidden: True

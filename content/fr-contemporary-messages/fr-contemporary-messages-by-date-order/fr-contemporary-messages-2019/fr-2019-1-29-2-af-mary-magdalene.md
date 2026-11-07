@@ -1,7 +1,7 @@
 ---
 title: "Marie-Madeleine n’est pas l’âme-soeur de Jésus"
 menu_title: ""
-description: "Marie-Madeleine n’est pas l’âme-soeur de Jésus"
+description: "Marie-Madeleine, reçu par Al Fike : « Mon amour pour lui est grand. Mon respect et ma reconnaissance pour sa belle âme, cet homme magnifique qui a apporté … »"
 date: 2022-06-01 06:00:01+00:627
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Éviter l'apathie spirituelle - Plongez au cœur de vos défis"
 menu_title: ""
-description: "Éviter l'apathie spirituelle - Plongez au cœur de vos défis"
+description: "Orion, reçu par Albert Fike : « Que les bénédictions de l’Amour du Père vous accompagnent. Il est bon de questionner, d’examiner, de considérer et de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Les anges seront avec nous pendant les changements terrestres"
 menu_title: ""
-description: "Les anges seront avec nous pendant les changements terrestres"
+description: "Augustin, reçu par Al Fike : « Que l’Amour de Dieu entre dans vos âmes, afin que vous puissiez recevoir ce cadeau en grande abondance. »"
 date: 2022-06-01 06:00:01+00:1436
 draft: False
 hidden: True

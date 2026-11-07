@@ -1,7 +1,7 @@
 ---
 title: "N'ayez pas peur"
 menu_title: ""
-description: "N'ayez pas peur"
+description: "Seretta Kem, reçu par Al Fike : « Vous vivez à la limite de ce que vous pourriez appeler la normalité dans ce monde. Le tout début d’un effondrement … »"
 date: 2022-06-01 06:00:01+00:1614
 draft: False
 hidden: True

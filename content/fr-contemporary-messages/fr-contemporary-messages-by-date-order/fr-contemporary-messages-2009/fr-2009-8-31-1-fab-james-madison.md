@@ -1,7 +1,7 @@
 ---
 title: "Une pensée d'un père fondateur"
 menu_title: ""
-description: "Une pensée d'un père fondateur"
+description: "James Madison, reçu par FAB : « J'ai travaillé très dur pour créer et promouvoir la Constitution, et cela m'a apporté beaucoup de bonheur ici. »"
 date: 2022-06-01 06:00:01+00:79
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Les anges apportent des bénédictions de guérison"
 menu_title: ""
-description: "Les anges apportent des bénédictions de guérison"
+description: "Confucius, reçu par Albert Fike : « Pour ressourcer votre corps et votre esprit, pour aider à calmer votre esprit et à apporter la paix. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

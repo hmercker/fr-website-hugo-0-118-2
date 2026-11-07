@@ -1,7 +1,7 @@
 ---
 title: "Je vous implore d'ouvrir et de recevoir directement de notre Père"
 menu_title: ""
-description: "Je vous implore d'ouvrir et de recevoir directement de notre Père"
+description: "Jésus, reçu par Elizabeth Mack : « C’est un honneur pour moi d’être ici aujourd’hui pour vous bénir des bénédictions du Père en ce jour si important. »"
 date: 2026-01-30 16:00:01+00:01
 draft: False
 hidden: True

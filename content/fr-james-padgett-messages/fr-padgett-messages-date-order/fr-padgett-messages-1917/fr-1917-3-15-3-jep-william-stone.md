@@ -1,7 +1,7 @@
 ---
 title: "Raconte les progrès de Plummer, l’ami de Leslie, pour sortir de l’obscurité"
 menu_title: ""
-description: "Raconte les progrès de Plummer, l’ami de Leslie, pour sortir de l’obscurité"
+description: "William Stone, reçu par James Padgett : « Que pensez-vous de Plummer ? Il est tel qu’il vous a écrit et nous sommes quelque peu surpris de ses progrès. »"
 date: 2022-06-01 06:00:01+00:86
 draft: False
 hidden: True

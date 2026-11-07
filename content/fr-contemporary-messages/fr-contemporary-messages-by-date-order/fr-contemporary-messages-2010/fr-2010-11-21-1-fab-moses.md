@@ -1,7 +1,7 @@
 ---
 title: "Les conseils de Moïse"
 menu_title: ""
-description: "Les conseils de Moïse"
+description: "Moïse, reçu par FAB : « Permettez-moi de décrire l’expérience que j’ai vécue sur le mont Sinaï, où j’ai reçu la Torah. »"
 date: 2022-06-01 06:00:01+00:175
 draft: False
 hidden: True

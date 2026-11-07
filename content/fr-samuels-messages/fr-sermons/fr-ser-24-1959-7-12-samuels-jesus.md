@@ -1,7 +1,7 @@
 ---
 title: "24ème Sermon – Les sacrifices de l’église expliqués au temps du roi David"
 menu_title: ""
-description: "24ème Sermon – Les sacrifices de l’église expliqués au temps du roi David"
+description: "Jésus, reçu par Dr Samuels : « Dans ce sermon, je tiens à vous parler de l’attitude de David à l’égard des sacrifices du Temple. »"
 date: 2022-06-01 06:00:01+00:77
 draft: False
 hidden: True

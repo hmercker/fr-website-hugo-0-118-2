@@ -1,7 +1,7 @@
 ---
 title: "Faites de votre journée une expression de votre âme"
 menu_title: ""
-description: "Faites de votre journée une expression de votre âme"
+description: "St Matthieu, reçu par Al Fike : « Là où il y a le moindre doute, les forces qui souhaitent discréditer ce que vous avez à dire, travailleront dur et avec … »"
 date: 2022-06-01 06:00:01+00:930
 draft: False
 hidden: True

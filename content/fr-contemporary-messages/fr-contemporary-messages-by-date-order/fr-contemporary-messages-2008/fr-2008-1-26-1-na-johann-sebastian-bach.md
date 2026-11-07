@@ -1,7 +1,7 @@
 ---
 title: "Artisans Célestes"
 menu_title: ""
-description: "Artisans Célestes"
+description: "Jean Sebastian Bach, reçu par Nicholas Arnold : « Merci pour l’opportunité de transmettre une mélodie d’amour en ce moment. Dans mon âme, en tant qu’homme … »"
 date: 2022-06-01 06:00:01+00:16
 draft: False
 hidden: True

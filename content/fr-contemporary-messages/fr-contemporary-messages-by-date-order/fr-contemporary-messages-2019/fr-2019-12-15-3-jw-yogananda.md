@@ -1,7 +1,7 @@
 ---
 title: "Noël est un moment privilégié pour partager le cadeau de l'Amour Divin"
 menu_title: ""
-description: "Noël est un moment privilégié pour partager le cadeau de l'Amour Divin"
+description: "Yogananda, reçu par Jimbeau Walsh : « Lorsque vous priez et que vous ressentez l’afflux de l’Amour du Créateur, toute séparation que vous ressentez est … »"
 date: 2022-06-01 06:00:01+00:961
 draft: False
 hidden: True

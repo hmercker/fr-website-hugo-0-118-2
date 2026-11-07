@@ -1,7 +1,7 @@
 ---
 title: "Les anges ne peuvent pas faire leur travail sans l'aide d'instruments sur terre qui peuvent être vus et entendus"
 menu_title: ""
-description: Les anges ne peuvent pas faire leur travail sans l'aide d'instruments sur terre qui peuvent être vus et entendus "
+description: "Aaron, reçu par Albert Fike : « Nous ouvrirons la voie, nous dégagerons le passage afin que vous puissiez être une lumière et accomplir l’œuvre de Dieu. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

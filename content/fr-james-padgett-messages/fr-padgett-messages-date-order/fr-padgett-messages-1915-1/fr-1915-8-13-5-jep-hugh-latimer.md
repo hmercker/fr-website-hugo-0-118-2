@@ -1,7 +1,7 @@
 ---
 title: "Hugh Latimer dans les Cieux Célestes. Ses croyances sur terre. Jésus vint et lui dit qu’il n’était pas Dieu"
 menu_title: ""
-description: "Hugh Latimer dans les Cieux Célestes. Ses croyances sur terre. Jésus vint et lui dit qu’il n’était pas Dieu"
+description: "Hugh Latimer, reçu par James Padgett : « Je fus un martyr brûlé sur le bûcher à cause de ma foi en Dieu et en raison de mes croyances en le salut par la … »"
 date: 2022-06-01 06:00:01+00:195
 draft: False
 hidden: True

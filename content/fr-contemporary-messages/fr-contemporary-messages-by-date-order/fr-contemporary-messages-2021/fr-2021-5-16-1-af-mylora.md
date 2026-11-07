@@ -1,7 +1,7 @@
 ---
 title: "Prier avec une intention et une motivation aimantes"
 menu_title: ""
-description: "Prier avec une intention et une motivation aimantes"
+description: "Mylora, reçu par Al Fike : « J’ai le don de la guérison. Au fond de mon cœur, Dieu a créé un grand sens de la compassion et de l’amour pour l’humanité et … »"
 date: 2022-06-01 06:00:01+00:1506
 draft: False
 hidden: True

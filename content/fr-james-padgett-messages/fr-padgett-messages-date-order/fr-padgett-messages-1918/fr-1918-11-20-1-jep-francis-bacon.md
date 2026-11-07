@@ -1,7 +1,7 @@
 ---
 title: "Commentaires au sujet d’un article écrit par James Hyslop sur le Christianisme et le Spiritualisme à propos des lois utilisées lois lors des miracles effectués par Jésus"
 menu_title: ""
-description: "Commentaires au sujet d’un article écrit par James Hyslop sur le Christianisme et le Spiritualisme à propos des lois utilisées lois lors des miracles effectués par Jésus"
+description: "Francis Bacon, reçu par James Padgett : « J’ai été avec vous ce soir, lors de votre lecture, et j’ai été quelque peu intéressé par ce que James Hyslop a … »"
 date: 2022-06-01 06:00:01+00:67
 draft: False
 hidden: True

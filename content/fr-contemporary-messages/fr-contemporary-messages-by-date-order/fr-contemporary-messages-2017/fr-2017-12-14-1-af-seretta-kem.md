@@ -1,7 +1,7 @@
 ---
 title: "Une veillée de prière jusqu'au succès"
 menu_title: ""
-description: "Une veillée de prière jusqu'au succès"
+description: "Seretta Kem, reçu par Al Fike : « Vous êtes près de la fin de votre voyage ensemble pour cette fois, cet effort. Et c'est certainement votre habitude de … »"
 date: 2022-06-01 06:00:01+00:273
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Les richesses de l'âme"
 menu_title: ""
-description: "Les richesses de l'âme"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « J’ai été attirée dans votre cercle, à cause de vos échanges et parce que j’ai senti le désir ardent de vos … »"
 date: 2022-06-01 06:00:01+00:1039
 draft: False
 hidden: True

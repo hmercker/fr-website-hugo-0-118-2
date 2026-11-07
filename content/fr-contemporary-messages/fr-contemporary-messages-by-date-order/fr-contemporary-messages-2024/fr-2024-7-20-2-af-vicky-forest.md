@@ -1,7 +1,7 @@
 ---
 title: "Ayant progressé jusqu'à la 5ème sphère, professe son amour pour son mari Allan"
 menu_title: ""
-description: "Ayant progressé jusqu'à la 5ème sphère, professe son amour pour son mari Allan"
+description: "Vicky Forest, reçu par Albert Fike : « Nous avons toujours été proches et nous le serons toujours car nous avons des liens d’âme qui survivront à la vie … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

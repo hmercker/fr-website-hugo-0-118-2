@@ -1,7 +1,7 @@
 ---
 title: "Attentes de l’esprit – Libérer le contrôle"
 menu_title: ""
-description: "Attentes de l’esprit – Libérer le contrôle"
+description: "Augustin, reçu par Al Fike : « Car le monde ne peut pas se dérouler selon vos attentes et vos idées. Vous êtes impuissants de bien des façons à contrôler … »"
 date: 2022-06-01 06:00:01+00:192
 draft: False
 hidden: True

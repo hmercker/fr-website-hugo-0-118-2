@@ -1,7 +1,7 @@
 ---
 title: "Allez vers Dieu dans la méditation silencieuse et désirez un afflux de son Amour Divin"
 menu_title: ""
-description: "Allez vers Dieu dans la méditation silencieuse et désirez un afflux de son Amour Divin"
+description: "Ishmirama & Keea Atta Kem : « La sagesse est quelque chose que l'homme doit désirer, la sagesse ne nous vient pas facilement. »"
 date: 2022-06-01 06:00:01+00:155
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le point de vue de George III sur la Révolution Américaine"
 menu_title: ""
-description: "Le point de vue de George III sur la Révolution Américaine"
+description: "Roi George III, reçu par FAB : « Je voulais vous écrire depuis un certain temps, mais vos guides m'ont dit que ce n'était pas le bon moment. »"
 date: 2022-06-01 06:00:01+00:113
 draft: False
 hidden: True

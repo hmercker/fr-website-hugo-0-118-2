@@ -1,7 +1,7 @@
 ---
 title: "Les instruments de la Vérité"
 menu_title: ""
-description: "Les instruments de la Vérité"
+description: "Fleur de Lotus, reçu par Al Fike : « Il y a une grande quantité de connaissances dans cette salle. Beaucoup d’entre vous sont bien conscients des … »"
 date: 2022-06-01 06:00:01+00:348
 draft: False
 hidden: True

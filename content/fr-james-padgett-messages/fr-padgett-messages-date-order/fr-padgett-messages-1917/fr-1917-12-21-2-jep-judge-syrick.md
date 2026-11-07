@@ -1,7 +1,7 @@
 ---
 title: "Le Juge Syrick décrit les lois spirituelles de faire aux autres et aussi sa progression vers la Septième Sphère"
 menu_title: ""
-description: "Le Juge Syrick décrit les lois spirituelles de faire aux autres et aussi sa progression vers la Septième Sphère"
+description: "Juge Syrick, reçu par James Padgett : « Eh bien, mon vieux, comment vas-tu ce soir ? Maintenant, bien sûr, je connais un grand nombre de choses qui … »"
 date: 2022-06-01 06:00:01+00:197
 draft: False
 hidden: True

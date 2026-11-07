@@ -1,7 +1,7 @@
 ---
 title: "Les défis qui accompagnent la croissance de l’âme"
 menu_title: ""
-description: "Les défis qui accompagnent la croissance de l’âme"
+description: "Augustin, reçu par Al Fike : « Je doute que vous ayez des difficultés à entendre ma voix aujourd’hui. Il est bon que vous priiez les uns pour les autres … »"
 date: 2022-06-01 06:00:01+00:287
 draft: False
 hidden: True

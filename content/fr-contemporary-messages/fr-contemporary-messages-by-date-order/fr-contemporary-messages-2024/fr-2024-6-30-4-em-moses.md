@@ -1,7 +1,7 @@
 ---
 title: "Un chercheur reçoit une invitation"
 menu_title: ""
-description: "Un chercheur reçoit une invitation"
+description: "Moïse, reçu par Elizabeth Mack : « Cet Amour Divin, je le cherche partout et pourtant, je le trouve ici, dans cet humble cercle. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

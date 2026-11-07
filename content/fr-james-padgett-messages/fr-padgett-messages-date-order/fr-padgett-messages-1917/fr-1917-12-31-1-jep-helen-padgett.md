@@ -1,7 +1,7 @@
 ---
 title: "Un message d’Hélène pour la nouvelle année. Un temps de reconnaissance envers le Père pour Son grand Amour et Pitié"
 menu_title: ""
-description: "Un message d’Hélène pour la nouvelle année. Un temps de reconnaissance envers le Père pour Son grand Amour et Pitié"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, je vois que tu ne te sens pas tellement bien ce soir, j’écrirai seulement un court message. »"
 date: 2022-06-01 06:00:01+00:204
 draft: False
 hidden: True

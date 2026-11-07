@@ -1,7 +1,7 @@
 ---
 title: "17ème Sermon – Le roi David, un homme de Dieu"
 menu_title: ""
-description: "17ème Sermon – Le roi David, un homme de Dieu"
+description: "Jésus, reçu par Dr Samuels : « Un autre exemple de la patience de David s’exprime dans l’obstruction d’Abischaï, le frère de Joab, de tuer Shimei, un … »"
 date: 2022-06-01 06:00:01+00:70
 draft: False
 hidden: True

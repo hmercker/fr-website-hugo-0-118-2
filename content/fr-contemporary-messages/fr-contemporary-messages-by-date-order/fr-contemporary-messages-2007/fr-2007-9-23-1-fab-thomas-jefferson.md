@@ -1,7 +1,7 @@
 ---
 title: "Les valeurs du Père Fondateur"
 menu_title: ""
-description: "Les valeurs du Père Fondateur"
+description: "Thomas Jefferson, reçu par FAB : « Nous étions également réalistes quant aux défauts de l'humanité. Bien sûr, notre principale préoccupation était de … »"
 date: 2022-06-01 06:00:01+00:163
 draft: False
 hidden: True

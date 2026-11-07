@@ -1,7 +1,7 @@
 ---
 title: "Calme dans la tempête"
 menu_title: ""
-description: "Calme dans la tempête"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « C’est un honneur pour moi de vous servir, ce cercle de belles âmes. Et bien que je puisse vous dire que … »"
 date: 2023-09-01 06:00:01+00:54
 draft: False
 hidden: True

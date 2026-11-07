@@ -1,7 +1,7 @@
 ---
 title: "Soyez cohérent dans vos prières pour être une lumière pour le monde"
 menu_title: ""
-description: "Soyez cohérent dans vos prières pour être une lumière pour le monde"
+description: "André, reçu par Al Fike : « Il y a tant de privation et de manque dans votre monde, bien qu’une grande partie de votre monde ait un toit sur la tête, de … »"
 date: 2022-06-01 06:00:01+00:1269
 draft: False
 hidden: True

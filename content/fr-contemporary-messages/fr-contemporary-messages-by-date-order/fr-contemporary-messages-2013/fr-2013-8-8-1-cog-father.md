@@ -1,7 +1,7 @@
 ---
 title: "Je t'ai entendu et j'ai répondu à ton appel"
 menu_title: ""
-description: "Je t'ai entendu et j'ai répondu à ton appel"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Tu peux me faire confiance. Je t’ai entendu et j’ai répondu à ton appel. »"
 date: 2022-06-01 06:00:01+00:69
 draft: False
 hidden: True

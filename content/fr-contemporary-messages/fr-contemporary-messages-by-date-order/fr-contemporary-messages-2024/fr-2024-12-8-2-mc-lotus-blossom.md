@@ -1,7 +1,7 @@
 ---
 title: "L'espoir dans chaque âme"
 menu_title: ""
-description: "L'espoir dans chaque âme"
+description: "Fleur de Lotus, reçu par Maureen Cardoso : « Alors que vous priez pour le grand afflux de l’Amour de Dieu, vous m’attirez près de vous. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

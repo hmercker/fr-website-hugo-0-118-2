@@ -1,7 +1,7 @@
 ---
 title: "Hélène est avec moi chez Harry et chez les Colburns"
 menu_title: ""
-description: "Hélène est avec moi chez Harry et chez les Colburns"
+description: "Hélène Padgett, reçu par James Padgett : « Mon cher, il y avait beaucoup d’esprits sombres présents ce soir, tous désireux d’écrire et lorsque tu les as … »"
 date: 2022-06-01 06:00:01+00:42
 draft: False
 hidden: True

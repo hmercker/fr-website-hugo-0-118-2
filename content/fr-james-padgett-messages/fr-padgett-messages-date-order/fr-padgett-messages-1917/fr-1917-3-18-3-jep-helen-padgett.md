@@ -1,7 +1,7 @@
 ---
 title: "Hélène décrit les divers écrivains qui ont écrit cette nuit et sur l’aide que chacun donne et sur son travail pour localiser les âme sœurs"
 menu_title: ""
-description: "Hélène décrit les divers écrivains qui ont écrit cette nuit et sur l’aide que chacun donne et sur son travail pour localiser les âme sœurs"
+description: "Hélène Padgett, reçu par James Padgett : « Chéri, j’attendais que tu m’appelles. Les autres esprits qui ont essayé d’écrire n’étaient pas des esprits … »"
 date: 2022-06-01 06:00:01+00:92
 draft: False
 hidden: True

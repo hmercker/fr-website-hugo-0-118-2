@@ -1,7 +1,7 @@
 ---
 title: "Élaboration sur le développement et présentation d'ouverture d'Al Fike"
 menu_title: ""
-description: "Élaboration sur le développement et présentation d'ouverture d'Al Fike"
+description: "Seretta Kem, reçu par Albert Fike : « J’aimerais approfondir ce que ce cher instrument vous a dit sur le développement. Il a mentionné les facultés du … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

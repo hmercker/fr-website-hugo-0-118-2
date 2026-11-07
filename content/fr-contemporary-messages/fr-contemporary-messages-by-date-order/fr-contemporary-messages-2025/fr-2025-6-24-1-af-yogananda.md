@@ -1,7 +1,7 @@
 ---
 title: "Se présente à un disciple de longue date et aux changements spirituels qu'il a opérés"
 menu_title: ""
-description: "Se présente à un disciple de longue date et aux changements spirituels qu'il a opérés"
+description: "Yogananda, reçu par Albert Fike : « C’est merveilleux de vous voir tous plongés dans la douceur de vivre. Je vous connais bien, ma chère fille. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

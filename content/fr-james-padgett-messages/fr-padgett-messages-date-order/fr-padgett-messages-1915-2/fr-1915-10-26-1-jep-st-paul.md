@@ -1,7 +1,7 @@
 ---
 title: "Paul de Tarse nie l’expiation par procuration, cette croyance fait beaucoup de mal. La Bible contient beaucoup de fausses déclarations"
 menu_title: ""
-description: "Paul de Tarse nie l’expiation par procuration, cette croyance fait beaucoup de mal. La Bible contient beaucoup de fausses déclarations"
+description: "St Paul, reçu par James Padgett : « Le livre sur « l’expiation déléguée » que vous avez lu – sur le prix de la rançon, le sang de Jésus et le sacrifice … »"
 date: 2022-06-01 06:00:01+00:19
 draft: False
 hidden: True

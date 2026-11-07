@@ -1,7 +1,7 @@
 ---
 title: "Jésus rencontre la famille Zébédée"
 menu_title: ""
-description: "Jésus rencontre la famille Zébédée"
+description: "Judas, reçu par H : « Dans le dernier épisode de mon histoire, je t’ai expliqué comment Jésus a guéri la belle-mère de Pierre, et comment les frères … »"
 date: 2022-06-01 06:00:01+00:24
 draft: False
 hidden: True

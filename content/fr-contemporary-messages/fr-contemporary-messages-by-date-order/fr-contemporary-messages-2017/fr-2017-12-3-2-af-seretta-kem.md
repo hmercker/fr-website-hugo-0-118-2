@@ -1,7 +1,7 @@
 ---
 title: "La consécration de vos âmes"
 menu_title: ""
-description: "La consécration de vos âmes"
+description: "Seretta Kem, reçu par Al Fike : « En ce moment, vous vous baignez dans les eaux vives de Dieu. Ces eaux inondent cette pièce, votre cercle, vous … »"
 date: 2022-06-01 06:00:01+00:252
 draft: False
 hidden: True

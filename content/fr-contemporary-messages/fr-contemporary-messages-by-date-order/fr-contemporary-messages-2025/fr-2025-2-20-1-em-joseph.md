@@ -1,7 +1,7 @@
 ---
 title: "La puissance de l’Amour de Dieu pour dissiper les montagnes de négativité"
 menu_title: ""
-description: "La puissance de l’Amour de Dieu pour dissiper les montagnes de négativité"
+description: "Joseph, reçu par Elizabeth Mack : « Mes chers enfants, la vérité se répand sur vous, sur nous tous, à chaque instant où nous nous ouvrons à l’amour de Dieu. »"
 date: 2026-01-30 16:00:01+00:01
 draft: False
 hidden: True

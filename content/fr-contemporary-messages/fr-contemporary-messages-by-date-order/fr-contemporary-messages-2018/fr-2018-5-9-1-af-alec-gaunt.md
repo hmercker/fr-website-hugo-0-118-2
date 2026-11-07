@@ -1,7 +1,7 @@
 ---
 title: "Connaître la Volonté de Dieu pour vous"
 menu_title: ""
-description: "Connaître la Volonté de Dieu pour vous"
+description: "Alec Gaunt, reçu par Al Fike : « Il est agréable de vous voir tous réunis en prière, vos âmes sincères allant vers Dieu en quête de sagesse et de … »"
 date: 2022-06-01 06:00:01+00:386
 draft: False
 hidden: True

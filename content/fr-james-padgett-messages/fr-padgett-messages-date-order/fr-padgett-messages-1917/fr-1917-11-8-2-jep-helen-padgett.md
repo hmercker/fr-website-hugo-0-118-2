@@ -1,7 +1,7 @@
 ---
 title: "Hélène écrit au sujet de l’immense travail qu’Eugène Morgan effectue auprès des Catholiques"
 menu_title: ""
-description: "Hélène écrit au sujet de l’immense travail qu’Eugène Morgan effectue auprès des Catholiques"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, tu as eu eu un visiteur inhabituel ce soir et j’ai été très intéressée par son entretien et … »"
 date: 2022-06-01 06:00:01+00:186
 draft: False
 hidden: True

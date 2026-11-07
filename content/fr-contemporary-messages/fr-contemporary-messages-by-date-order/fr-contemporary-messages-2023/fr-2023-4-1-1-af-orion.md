@@ -1,7 +1,7 @@
 ---
 title: "Il faut une armée d’anges pour nous faire avancer"
 menu_title: ""
-description: "Il faut une armée d’anges pour nous faire avancer"
+description: "Orion, reçu par Al Fike : « C’est une telle bénédiction qu’il y ait des personnes qui se réunissent dans ce Cercle de Lumière de façon si constante et … »"
 date: 2023-09-01 06:00:01+00:110
 draft: False
 hidden: True

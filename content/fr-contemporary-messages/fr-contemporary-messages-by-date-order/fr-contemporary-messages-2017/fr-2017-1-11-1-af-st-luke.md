@@ -1,7 +1,7 @@
 ---
 title: "Débarrassez-vous de ces choses qui ne sont pas d’Amour"
 menu_title: ""
-description: "Débarrassez-vous de ces choses qui ne sont pas d’Amour"
+description: "St Luc, reçu par Al Fike : « Je vous apporte mes bénédictions d’amour. Âmes précieuses et bien-aimées, chaque jour vous êtes confrontées à de nombreux choix. »"
 date: 2022-06-01 06:00:01+00:04
 draft: False
 hidden: True

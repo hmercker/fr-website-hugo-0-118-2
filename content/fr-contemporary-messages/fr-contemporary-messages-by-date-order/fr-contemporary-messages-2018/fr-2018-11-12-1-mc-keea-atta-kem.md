@@ -1,7 +1,7 @@
 ---
 title: "Prier pour obtenir l’Amour Divin est simple, profond et source d’une transformation"
 menu_title: ""
-description: "Prier pour obtenir l’Amour Divin est simple, profond et source d’une transformation"
+description: "Keea Atta Kem, reçu par Maureen Cardoso : « L’atmosphère qui règne en ce lieu est empreinte de lumière et d’amour. Chacun d’entre vous ressent, à des … »"
 date: 2026-10-28 06:00:01+00:435
 draft: False
 hidden: True

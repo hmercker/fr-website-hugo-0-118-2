@@ -1,7 +1,7 @@
 ---
 title: "La foi, l'élan et l'expansion de l'influence spirituelle"
 menu_title: ""
-description: "La foi, l'élan et l'expansion de l'influence spirituelle"
+description: "Michael Collier, reçu par Al Fike : « Vous, dans le monde matériel, aux prises avec les obligations et les contraintes matérielles, cherchant à accomplir … »"
 date: 2026-05-24 16:00:01+00:01
 draft: False
 hidden: True

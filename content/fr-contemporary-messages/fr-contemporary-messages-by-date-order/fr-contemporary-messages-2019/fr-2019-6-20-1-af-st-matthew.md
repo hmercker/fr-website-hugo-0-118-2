@@ -1,7 +1,7 @@
 ---
 title: "Votre éveil ne fait que commencer"
 menu_title: ""
-description: "Votre éveil ne fait que commencer"
+description: "St Matthieu, reçu par Al Fike : « Car la loi d'attraction et de communication joue son rôle et nous permet, depuis ces hautes sphères, d'être avec vous et … »"
 date: 2022-06-01 06:00:01+00:750
 draft: False
 hidden: True

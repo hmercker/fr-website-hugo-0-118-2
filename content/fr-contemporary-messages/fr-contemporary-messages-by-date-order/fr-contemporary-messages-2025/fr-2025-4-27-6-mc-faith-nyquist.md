@@ -1,7 +1,7 @@
 ---
 title: "La Bénédiction de l'Expiation"
 menu_title: ""
-description: "La Bénédiction de l'Expiation"
+description: "Faith Nyquist, reçu par Maureen Cardoso : « Oh, le don et la bénédiction de l'expiation, ces incrustations sur l'âme ! Je parle de « bénédiction » car … »"
 date: 2025-11-21 06:00:01+00:01
 draft: False
 hidden: True

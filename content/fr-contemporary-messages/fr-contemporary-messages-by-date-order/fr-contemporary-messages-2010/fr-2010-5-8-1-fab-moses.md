@@ -1,7 +1,7 @@
 ---
 title: "La mort de Moïse"
 menu_title: ""
-description: "La mort de Moïse"
+description: "Moïse, reçu par FAB : « Je sais que la Torah dit que le fait de ne pas entrer dans la Terre Promise fut une punition, mais le fait est que je savais que … »"
 date: 2022-06-01 06:00:01+00:125
 draft: False
 hidden: True

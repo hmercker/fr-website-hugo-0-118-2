@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes connectés à travers votre âme"
 menu_title: ""
-description: "Nous sommes connectés à travers votre âme"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Mon enfant bien aimé, aujourd’hui, tu te demandes à nouveau si ces messages viennent bien de Moi, ton Père. »"
 date: 2022-06-01 06:00:01+00:256
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Vous devez parvenir à une prise de conscience de la réalité de votre propre condition"
 menu_title: ""
-description: "Vous devez parvenir à une prise de conscience de la réalité de votre propre condition"
+description: "Augustin, reçu par Al Fike : « Je ne peux pas résister à cette opportunité de vous parler de vos choix et du pouvoir de votre propre libre arbitre … »"
 date: 2022-06-01 06:00:01+00:653
 draft: False
 hidden: True

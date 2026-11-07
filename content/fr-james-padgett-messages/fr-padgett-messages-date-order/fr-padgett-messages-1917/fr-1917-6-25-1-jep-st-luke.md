@@ -1,7 +1,7 @@
 ---
 title: "Luc écrit que très peu de mortels ont cette qualité de médiumnité comme celle de M. Padgett"
 menu_title: ""
-description: "Luc écrit que très peu de mortels ont cette qualité de médiumnité comme celle de M. Padgett"
+description: "St Luc, reçu par James Padgett : « J’ai écouté votre conversation et j’ai apprécié la connaissance que vous possédez tous les deux de ces vérités qui vous … »"
 date: 2022-06-01 06:00:01+00:157
 draft: False
 hidden: True

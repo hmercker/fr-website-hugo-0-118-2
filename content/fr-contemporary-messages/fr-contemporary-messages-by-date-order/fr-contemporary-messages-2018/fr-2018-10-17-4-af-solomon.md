@@ -1,7 +1,7 @@
 ---
 title: "La sagesse de l'âme"
 menu_title: ""
-description: "La sagesse de l'âme"
+description: "Salomon, reçu par Al Fike : « J’ai prié pour vous mes amis, l’un des nombreux, nombreux qui vous ont gardé dans notre conscience et vous embrassent avec … »"
 date: 2022-06-01 06:00:01+00:522
 draft: False
 hidden: True

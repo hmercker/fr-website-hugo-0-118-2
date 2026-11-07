@@ -1,7 +1,7 @@
 ---
 title: "Jésus explique que ses disciples n’ont jamais écrit les nombreuses fausses doctrines qui lui sont attribuées"
 menu_title: ""
-description: "Jésus explique que ses disciples n’ont jamais écrit les nombreuses fausses doctrines qui lui sont attribuées"
+description: "Jésus, reçu par James Padgett : « Je veux que vous essayiez, demain soir, de recevoir un message de ma part, car je pense que vous serez en état de le faire. »"
 date: 2022-06-01 06:00:01+00:234
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le destin de l’homme qui n’a pas l’Amour Divin dans son âme et ne meurt qu’en possession de l’amour naturel et en une croyance dans le credo"
 menu_title: ""
-description: "Le destin de l’homme qui n’a pas l’Amour Divin dans son âme et ne meurt qu’en possession de l’amour naturel et en une croyance dans le credo"
+description: "Jésus, reçu par James Padgett : « Eh bien, je vais écrire sur le sujet : Le destin de l’homme qui n’a pas l’Amour Divin dans son âme et ne meurt qu’avec … »"
 date: 2022-06-01 06:00:01+00:282
 draft: False
 hidden: True

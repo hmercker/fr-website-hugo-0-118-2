@@ -1,7 +1,7 @@
 ---
 title: "Votre force croissante vous prépare à servir dans les temps à venir"
 menu_title: ""
-description: "Votre force croissante vous prépare à servir dans les temps à venir"
+description: "Martin Luther, reçu par Al Fike : « Le sort de l’humanité repose sur ceux qui sont prêts à apporter des changements dans ce monde. »"
 date: 2022-06-01 06:00:01+00:524
 draft: False
 hidden: True

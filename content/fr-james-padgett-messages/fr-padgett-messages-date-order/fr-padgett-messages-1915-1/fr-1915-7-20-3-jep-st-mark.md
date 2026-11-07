@@ -1,7 +1,7 @@
 ---
 title: "Confirmation par St Marc que le Maître effectue le grand travail à travers M. Padgett"
 menu_title: ""
-description: "Confirmation par St Marc que le Maître effectue le grand travail à travers M. Padgett"
+description: "St Marc, reçu par James Padgett : « Je dois ajouter mon témoignage aux autres qui m’ont précédé, afin de témoigner que le Maître accomplit, maintenant … »"
 date: 2022-06-01 06:00:01+00:145
 draft: False
 hidden: True

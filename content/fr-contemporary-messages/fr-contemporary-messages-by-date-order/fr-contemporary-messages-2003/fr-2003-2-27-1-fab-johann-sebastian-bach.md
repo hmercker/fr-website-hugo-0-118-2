@@ -1,7 +1,7 @@
 ---
 title: "La foi inébranlable de Bach en Dieu"
 menu_title: ""
-description: "La foi inébranlable de Bach en Dieu"
+description: "Johann Sébastian Bach, reçu par FAB : « Ma vie a été difficile, mais Dieu m’a donné les qualités de persévérance et de ténacité. Je devais être fort pour … »"
 date: 2022-06-01 06:00:01+00:28
 draft: False
 hidden: True

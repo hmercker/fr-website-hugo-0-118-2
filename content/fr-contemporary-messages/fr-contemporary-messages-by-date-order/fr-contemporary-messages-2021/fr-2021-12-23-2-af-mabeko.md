@@ -1,7 +1,7 @@
 ---
 title: "Personnel pour Lorika en Afrique"
 menu_title: ""
-description: "Personnel pour Lorika en Afrique"
+description: "Mabeko, reçu par Al Fike : « Bien que la couleur de la peau ne soit pas si prédominante, car nous nous fondons tous dans un beau ton de chair qui continue … »"
 date: 2022-06-01 06:00:01+00:1739
 draft: False
 hidden: True

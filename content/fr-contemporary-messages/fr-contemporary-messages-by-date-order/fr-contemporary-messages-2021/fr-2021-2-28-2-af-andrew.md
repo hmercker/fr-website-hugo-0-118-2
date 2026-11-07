@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes tous nécessaires dans le cadre du plan de Dieu"
 menu_title: ""
-description: "Nous sommes tous nécessaires dans le cadre du plan de Dieu"
+description: "André, reçu par Al Fike : « Aujourd’hui, nous faisons quelque chose de différent de nos rassemblements habituels, en vous unissant dans une condition de … »"
 date: 2022-06-01 06:00:01+00:1425
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La dynamique de la vie 2 : L’Amour"
 menu_title: ""
-description: "La dynamique de la vie 2 : L’Amour"
+description: "Judas, reçu par H : « Je voudrais continuer mon message d’hier. Je fais appel à ton imagination. »"
 date: 2022-06-01 06:00:01+00:32
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Ouvrez-vous au plus haut niveau"
 menu_title: ""
-description: "Ouvrez-vous au plus haut niveau"
+description: "Seretta Kem, reçu par Al Fike : « Je vous souhaite la bienvenue, chère fille (H), de retour dans le giron de tes frères et sœurs aimants. »"
 date: 2022-06-01 06:00:01+00:487
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Marcher dans la foi et partager la vérité de l'Amour Divin"
 menu_title: ""
-description: "Marcher dans la foi et partager la vérité de l'Amour Divin"
+description: "Faith, reçu par Albert Fike : « Que la paix soit avec vous, âmes bien-aimées. Si Jésus était vivant aujourd’hui, ne pensez-vous pas qu’il ferait la même … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

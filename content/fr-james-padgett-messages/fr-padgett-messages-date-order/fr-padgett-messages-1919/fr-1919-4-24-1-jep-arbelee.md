@@ -1,7 +1,7 @@
 ---
 title: "Un père dans le monde des esprits écrit à son fils malade, Dr Arbelee, au sujet de sa vie dans le monde des esprits"
 menu_title: ""
-description: "Un père dans le monde des esprits écrit à son fils malade, Dr Arbelee, au sujet de sa vie dans le monde des esprits"
+description: "Arbelee, reçu par James Padgett : « Je n’ai jamais cessé d’éprouver l’amour et les sentiments que j’ai connus en tant que mortel, mon amour et mon … »"
 date: 2022-06-01 06:00:01+00:28
 draft: False
 hidden: True

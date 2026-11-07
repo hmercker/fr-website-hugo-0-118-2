@@ -1,7 +1,7 @@
 ---
 title: "Apporte une plus grande comprehension de qui nous sommes"
 menu_title: ""
-description: "Apporte une plus grande comprehension de qui nous sommes"
+description: "Flavius Josèphe, reçu par Al Fike : « Cela peut être quelque peu contradictoire en termes et en définition, mais je souhaite utiliser l’analogie de la … »"
 date: 2022-06-01 06:00:01+00:03
 draft: False
 hidden: True

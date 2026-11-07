@@ -1,7 +1,7 @@
 ---
 title: "Je suis le protecteur des îles des Caraïbes"
 menu_title: ""
-description: "Je suis le protecteur des îles des Caraïbes"
+description: "Saint Barthélémy, reçu par Albert Fike : « Je vous dis que vous avez accompli beaucoup de choses aujourd’hui, même si beaucoup d’entre vous ne le savent pas. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

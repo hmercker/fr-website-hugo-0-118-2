@@ -1,7 +1,7 @@
 ---
 title: "Indignation et ressentiment"
 menu_title: ""
-description: "Indignation et ressentiment"
+description: "Jésus, reçu par FAB : « Je veux me concentrer sur deux émotions que toute personne a ressenties : l'indignation et le ressentiment. »"
 date: 2022-06-01 06:00:01+00:136
 draft: False
 hidden: True

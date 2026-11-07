@@ -1,7 +1,7 @@
 ---
 title: "La vie est simple - le Baal Shem Tov"
 menu_title: ""
-description: "La vie est simple - le Baal Shem Tov"
+description: "Baal Shem Tov, reçu par FAB : « Ce sont les distractions de la vie terrestre qui détournent les gens de cette simplicité et de leur véritable moi, qui est … »"
 date: 2022-06-01 06:00:01+00:166
 draft: False
 hidden: True

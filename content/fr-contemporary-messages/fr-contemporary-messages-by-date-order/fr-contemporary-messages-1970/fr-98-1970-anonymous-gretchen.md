@@ -1,7 +1,7 @@
 ---
 title: "Le plus grand chemin de la vie, la route vers Dieu "
 menu_title: ""
-description: "Le plus grand chemin de la vie, la route vers Dieu "
+description: "Gretchen : « Je n'ai jamais été avec vous auparavant et j'ai essayé de parler votre langue car lorsque j'étais sur Terre, je ne parlais que ma langue … »"
 date: 2022-06-01 06:00:01+00:128
 draft: False
 hidden: True

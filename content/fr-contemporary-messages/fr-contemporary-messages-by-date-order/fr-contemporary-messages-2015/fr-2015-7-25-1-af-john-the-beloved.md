@@ -1,7 +1,7 @@
 ---
 title: "Les vents du changement soufflent sur ce monde"
 menu_title: ""
-description: "Les vents du changement soufflent sur ce monde"
+description: "Jean le Bien Aimé, reçu par Al Fike : « C’est Jean qui vous parle. Son contact touche tout et Son Souffle se répand sur les sommets des montagnes et dans … »"
 date: 2022-06-01 06:00:01+00:133
 draft: False
 hidden: True

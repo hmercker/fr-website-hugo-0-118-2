@@ -1,7 +1,7 @@
 ---
 title: "Ne perdez pas votre détermination à développer le don de la Voix Directe"
 menu_title: ""
-description: "Ne perdez pas votre détermination à développer le don de la Voix Directe"
+description: "Seretta Kem, reçu par Al Fike : « Il est important que vous continuiez à garder cette pensée, ce désir et cette intention vivants dans vos esprits et vos … »"
 date: 2022-06-01 06:00:01+00:1008
 draft: False
 hidden: True

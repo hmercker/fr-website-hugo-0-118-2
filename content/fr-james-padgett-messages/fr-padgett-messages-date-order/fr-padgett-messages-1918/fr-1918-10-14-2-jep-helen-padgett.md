@@ -1,7 +1,7 @@
 ---
 title: "Hélène explique que le pouvoir de communication peut être coupé par l’instrument comme M. Padgett l’a fait pendant un certain temps en empêchant même son plus proche lien d’amour d’écrire. explique les progrès réalisés par leur fille, Nita, maintenant dans le monde des esprit"
 menu_title: ""
-description: "Hélène explique que le pouvoir de communication peut être coupé par l’instrument comme M. Padgett l’a fait pendant un certain temps en empêchant même son plus proche lien d’amour d’écrire. explique les progrès réalisés par leur fille, Nita, maintenant dans le monde des esprit"
+description: "Hélène Padget, reçu par James Padgett : « Eh bien, mon cher, tu as eu des nouvelles de Bébé , et elle était si heureuse de pouvoir t’écrire, et elle est … »"
 date: 2022-06-01 06:00:01+00:58
 draft: False
 hidden: True

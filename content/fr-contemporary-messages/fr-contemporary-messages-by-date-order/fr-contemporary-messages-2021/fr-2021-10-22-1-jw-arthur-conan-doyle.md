@@ -1,7 +1,7 @@
 ---
 title: "Il y a beaucoup de travail à faire"
 menu_title: ""
-description: "Il y a beaucoup de travail à faire"
+description: "Arthur Conan Doyle, reçu par Jimbeau Walsh : « Il existe de nombreuses façons d’atteindre et de toucher le monde avec la vérité de l’Amour de Dieu. »"
 date: 2022-06-01 06:00:01+00:1685
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Votre âme a le potentiel de s'épanouir comme une brindille nue"
 menu_title: ""
-description: "Votre âme a le potentiel de s'épanouir comme une brindille nue"
+description: "Jésus, reçu par Al Fike : « Chacun d’entre vous est béni par de nombreux dons et chacun d’entre vous est impatient d’expérimenter les bénédictions de la … »"
 date: 2022-06-01 06:00:01+00:1082
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La religion par opposition à la spiritualité"
 menu_title: ""
-description: "La religion par opposition à la spiritualité"
+description: "Jésus, reçu par FAB : « Permettez-moi de transmettre un message concernant la demande de J . Il y a beaucoup de gens qui pensent que la Volonté de Dieu … »"
 date: 2022-06-01 06:00:01+00:158
 draft: False
 hidden: True

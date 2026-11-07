@@ -1,7 +1,7 @@
 ---
 title: "Accumulation de richesse"
 menu_title: ""
-description: "Accumulation de richesse"
+description: "Jésus, reçu par FAB : « Laisse-moi clarifier ce que j'ai canalisé auprès de vous dans le passé. Je disais que lorsque la richesse matérielle est accumulée … »"
 date: 2022-06-01 06:00:01+00:51
 draft: False
 hidden: True

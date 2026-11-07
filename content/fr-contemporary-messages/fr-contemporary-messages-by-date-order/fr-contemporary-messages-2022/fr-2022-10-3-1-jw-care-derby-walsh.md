@@ -1,7 +1,7 @@
 ---
 title: "Progression au-delà des flux et reflux de la vie terrestre"
 menu_title: ""
-description: "Progression au-delà des flux et reflux de la vie terrestre"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Une bonne partie de mes jours sur Terre, je les ai passés en prière et plus je priais, moins les flux et … »"
 date: 2022-06-01 06:00:01+00:183
 draft: False
 hidden: True

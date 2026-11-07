@@ -1,7 +1,7 @@
 ---
 title: "Les souffrances d'un esprit - 2"
 menu_title: ""
-description: "Les souffrances d'un esprit - 2"
+description: "Milton Friedman, reçu par FAB : « Non, la brève canalisation que vous avez faite de moi précédemment ne reflétait pas un parti pris de gauche : vous avez … »"
 date: 2022-06-01 06:00:01+00:75
 draft: False
 hidden: True

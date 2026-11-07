@@ -1,7 +1,7 @@
 ---
 title: "Les bénédictions qui vous sont accordées sont pour tous"
 menu_title: ""
-description: "Les bénédictions qui vous sont accordées sont pour tous"
+description: "George Stokes, reçu par Elizabeth Mack : « Je vous apporte à chacun, connectés, un immense amour et des bénédictions. Nous recherchons l’Amour du Père. »"
 date: 2026-01-30 16:00:01+00:01
 draft: False
 hidden: True

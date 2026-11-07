@@ -1,7 +1,7 @@
 ---
 title: "Choisissez le mental ou l'âme pour votre voyage spirituel"
 menu_title: ""
-description: "Choisissez le mental ou l'âme pour votre voyage spirituel"
+description: "Augustin, reçu par Al Fike : « Votre enseignant Augustin est avec vous. Un esprit curieux n’est qu’un symptôme de l’âme nostalgique, car l’esprit doit se … »"
 date: 2022-06-01 06:00:01+00:221
 draft: False
 hidden: True

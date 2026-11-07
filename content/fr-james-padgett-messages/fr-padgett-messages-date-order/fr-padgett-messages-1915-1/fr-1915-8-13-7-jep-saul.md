@@ -1,7 +1,7 @@
 ---
 title: "Saul: Un roi biblique qui est maintenant un Ange Céleste encourage M. Padgett dans son travail d’aide aux esprits des ténèbres"
 menu_title: ""
-description: "Saul: Un roi biblique qui est maintenant un Ange Céleste encourage M. Padgett dans son travail d’aide aux esprits des ténèbres"
+description: "Saul, reçu par James Padgett : « Je veux simplement dire que vous faites un bon travail en aidant les esprits malheureux, et je vous dis que votre … »"
 date: 2022-06-01 06:00:01+00:197
 draft: False
 hidden: True

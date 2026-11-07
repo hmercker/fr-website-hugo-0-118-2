@@ -1,7 +1,7 @@
 ---
 title: "Vous connaissez cet amour"
 menu_title: ""
-description: "Vous connaissez cet amour"
+description: "La princesse Diana Windsor, reçu par Al Fike : « Lorsque vous donnez de l'Amour, lorsque vous parlez avec le cœur, vous recevez une réponse. »"
 date: 2022-06-01 06:00:01+00:207
 draft: False
 hidden: True

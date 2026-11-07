@@ -1,7 +1,7 @@
 ---
 title: "Les changements terrestres arrivent"
 menu_title: ""
-description: "Les changements terrestres arrivent"
+description: "St Pierre, reçu par Al Fike : « Des changements arrivent dans votre monde, des changements profonds. Des changements qui vont toucher chacun d’entre vous. »"
 date: 2022-06-01 06:00:01+00:06
 draft: False
 hidden: True

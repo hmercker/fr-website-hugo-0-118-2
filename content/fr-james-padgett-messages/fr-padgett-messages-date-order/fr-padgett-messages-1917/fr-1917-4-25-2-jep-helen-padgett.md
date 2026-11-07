@@ -1,7 +1,7 @@
 ---
 title: "Hélène affirme que Jean a écrit et commente la prière pour les choses matérielles"
 menu_title: ""
-description: "Hélène affirme que Jean a écrit et commente la prière pour les choses matérielles"
+description: "Hélène Padgett, reçu par James Padgett : « Il est, peut-être, un peu décevant d’apprendre que les esprits n’ont pas le pouvoir de tout faire, comme les … »"
 date: 2022-06-01 06:00:01+00:112
 draft: False
 hidden: True

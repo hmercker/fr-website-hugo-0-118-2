@@ -1,7 +1,7 @@
 ---
 title: "Loi sur la communication"
 menu_title: ""
-description: "Loi sur la communication"
+description: "Keea Atta Kem : « La chère personne qui est venue à l'ouverture de ce groupe était Melba et elle était si excitée et si heureuse de pouvoir venir qu'elle … »"
 date: 2022-06-01 06:00:01+00:125
 draft: False
 hidden: True

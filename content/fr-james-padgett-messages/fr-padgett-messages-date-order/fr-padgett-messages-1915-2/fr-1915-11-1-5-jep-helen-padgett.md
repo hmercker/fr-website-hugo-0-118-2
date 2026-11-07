@@ -1,7 +1,7 @@
 ---
 title: "Hélène confirme que Napoléon et Von Moltke étaient tous les deux présents et ont écrit leurs messages"
 menu_title: ""
-description: "Hélène confirme que Napoléon et Von Moltke étaient tous les deux présents et ont écrit leurs messages"
+description: "Hélène Padgett, reçu par James Padgett : « Tu dois aller te coucher et te lever plus tôt le matin, car tu risques de perdre des affaires en ne le faisant pas. »"
 date: 2022-06-01 06:00:01+00:39
 draft: False
 hidden: True

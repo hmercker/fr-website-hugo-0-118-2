@@ -1,7 +1,7 @@
 ---
 title: "Diverses questions concernant le passage vers l’au-delà"
 menu_title: ""
-description: "Diverses questions concernant le passage vers l’au-delà"
+description: "Judas, reçu par H : « Mon cher frère H , ayant maintenant achevé la description des plans terrestres, laquelle n’est pas du tout exhaustive comme tu … »"
 date: 2022-06-01 06:00:01+00:41
 draft: False
 hidden: True

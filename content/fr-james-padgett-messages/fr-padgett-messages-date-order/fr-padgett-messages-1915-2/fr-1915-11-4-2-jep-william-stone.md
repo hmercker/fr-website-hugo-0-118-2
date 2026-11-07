@@ -1,7 +1,7 @@
 ---
 title: "William Stone est heureux de voir le merveilleux développement de l’âme de son fils"
 menu_title: ""
-description: "William Stone est heureux de voir le merveilleux développement de l’âme de son fils"
+description: "William Stone, reçu par James Padgett : « Je vais aussi écrire quelques mots, car je sais que mon fils appréciera, ce soir, un court écrit de ma part. »"
 date: 2022-06-01 06:00:01+00:45
 draft: False
 hidden: True

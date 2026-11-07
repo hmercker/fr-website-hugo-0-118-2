@@ -1,7 +1,7 @@
 ---
 title: "Guérison profonde"
 menu_title: ""
-description: Guérison profonde"
+description: "Jésus, reçu par Albert Fike : « Chacun de vous portera ce don, et chaque vie que vous toucherez ressentira la puissance de cette guérison et de cette … »"
 date: 2026-10-16 06:00:01+00:09
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L'Amour Divin est la plus grande de toutes les lois"
 menu_title: ""
-description: "L'Amour Divin est la plus grande de toutes les lois"
+description: "Moïse, reçu par Elizabeth Mack : « Mon frère et moi (Israël ben Eliezer/Baal Shem Tov) partageons la même tradition et, à présent, le même amour que notre … »"
 date: 2022-06-01 06:00:01+00:181
 draft: False
 hidden: True

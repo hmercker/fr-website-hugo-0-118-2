@@ -1,7 +1,7 @@
 ---
 title: "Ma nouvelle maison et la vie dans l’esprit"
 menu_title: ""
-description: "Ma nouvelle maison et la vie dans l’esprit"
+description: "Barbara Davies, reçu par Al Fike : « Que le Père vous bénisse de Son Amour. Et je tiens à dire que toutes les descriptions et anecdotes qui sont données … »"
 date: 2022-06-01 06:00:01+00:1388
 draft: False
 hidden: True

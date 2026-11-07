@@ -1,7 +1,7 @@
 ---
 title: "Les péchés des parents sont transmis aux enfants jusqu’à la troisième et la quatrième génération"
 menu_title: ""
-description: "Les péchés des parents sont transmis aux enfants jusqu’à la troisième et la quatrième génération"
+description: "St Luc, reçu par James Padgett : « Je désire ce soir vous entretenir un court instant sur le texte: Les péchés des parents sont transmis aux enfants … »"
 date: 2022-06-01 06:00:01+00:198
 draft: False
 hidden: True

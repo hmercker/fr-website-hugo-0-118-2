@@ -1,7 +1,7 @@
 ---
 title: "Un ancien partenaire juridique de M. Padgett essaie d’aider un esprit moins développé de comprendre le progrès spirituel"
 menu_title: ""
-description: "Un ancien partenaire juridique de M. Padgett essaie d’aider un esprit moins développé de comprendre le progrès spirituel"
+description: "Albert Riddle, reçu par James Padgett : « Eh bien, je veux te parler de cet homme au mental merveilleux, qui surpasse tous les autres esprits dans sa … »"
 date: 2022-06-01 06:00:01+00:66
 draft: False
 hidden: True

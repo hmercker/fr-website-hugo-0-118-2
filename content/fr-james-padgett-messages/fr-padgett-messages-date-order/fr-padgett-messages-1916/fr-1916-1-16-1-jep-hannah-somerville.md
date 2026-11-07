@@ -1,7 +1,7 @@
 ---
 title: "Un esprit qui croyait au châtiment éternel de ceux qui nient l’expiation par procuration de Jésus"
 menu_title: ""
-description: "Un esprit qui croyait au châtiment éternel de ceux qui nient l’expiation par procuration de Jésus"
+description: "Hannah Somerville, reçu par James Padgett : « Je sais que d’autres esprits vous ont écrit ce même déni d’une fausse croyance, mais je voulais le faire … »"
 date: 2022-06-01 06:00:01+00:127
 draft: False
 hidden: True

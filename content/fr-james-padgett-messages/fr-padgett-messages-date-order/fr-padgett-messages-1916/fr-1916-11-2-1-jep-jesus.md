@@ -1,7 +1,7 @@
 ---
 title: "Pourquoi Jésus ne fréquente pas les champs de bataille où se produisent les scènes de carnage"
 menu_title: ""
-description: "Pourquoi Jésus ne fréquente pas les champs de bataille où se produisent les scènes de carnage"
+description: "Jésus, reçu par James Padgett : « Bien entendu, les scènes dans lesquelles j’ai été représenté (dans le film « Civilisation ») sont des créatures de … »"
 date: 2022-06-01 06:00:01+00:313
 draft: False
 hidden: True

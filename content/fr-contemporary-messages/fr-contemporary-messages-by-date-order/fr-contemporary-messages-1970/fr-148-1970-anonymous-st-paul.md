@@ -1,7 +1,7 @@
 ---
 title: "Montrer aux autres et enseigner aux autres"
 menu_title: ""
-description: "Montrer aux autres et enseigner aux autres"
+description: "St Paul : « Ne pensez pas, mes amis, que nous n'avons pas été avec vous toute la soirée. Comme il sera merveilleux pour tous les peuples de la Terre … »"
 date: 2022-06-01 06:00:01+00:149
 draft: False
 hidden: True

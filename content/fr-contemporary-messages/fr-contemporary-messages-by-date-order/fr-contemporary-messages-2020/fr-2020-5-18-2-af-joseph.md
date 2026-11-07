@@ -1,7 +1,7 @@
 ---
 title: "Ce que vous désirez dans la vie change à mesure que vous êtes transformé par l'Amour Divin"
 menu_title: ""
-description: "Ce que vous désirez dans la vie change à mesure que vous êtes transformé par l'Amour Divin"
+description: "Joseph, reçu par Al Fike : « Que l’Amour de Dieu continue à vous réveiller, mes amis. Puisse l’Amour de Dieu vous donner la perspicacité et la perception … »"
 date: 2022-06-01 06:00:01+00:1109
 draft: False
 hidden: True

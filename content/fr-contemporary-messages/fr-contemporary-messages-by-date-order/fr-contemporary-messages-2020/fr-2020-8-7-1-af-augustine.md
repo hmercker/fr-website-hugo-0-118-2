@@ -1,7 +1,7 @@
 ---
 title: "Connaissez vos propres âmes"
 menu_title: ""
-description: "Connaissez vos propres âmes"
+description: "Augustin, reçu par Al Fike : « Dans le monde qui est tellement centré sur l’esprit, connaître votre propre âme est un grand défi. »"
 date: 2022-06-01 06:00:01+00:1211
 draft: False
 hidden: True

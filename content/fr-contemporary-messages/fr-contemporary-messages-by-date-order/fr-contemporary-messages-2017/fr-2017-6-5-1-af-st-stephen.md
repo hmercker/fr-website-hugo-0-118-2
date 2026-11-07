@@ -1,7 +1,7 @@
 ---
 title: "Prier pour l’amour, s’épanouir dans l’amour"
 menu_title: ""
-description: "Prier pour l’amour, s’épanouir dans l’amour"
+description: "St Étienne, reçu par Al Fike : « Je n’ai pas parlé à travers cet instrument auparavant. Vous constaterez qu’en vous réunissant dans ces Cercles d’Amour … »"
 date: 2022-06-01 06:00:01+00:42
 draft: False
 hidden: True

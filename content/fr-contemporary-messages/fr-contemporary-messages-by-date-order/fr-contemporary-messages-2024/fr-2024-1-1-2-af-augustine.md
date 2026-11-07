@@ -1,7 +1,7 @@
 ---
 title: "Conseils pour le travail de Jeanne et Al en République dominicaine"
 menu_title: ""
-description: "Conseils pour le travail de Jeanne et Al en République dominicaine"
+description: "Augustin, reçu par Albert Fike : « Je sais que vous avez du mal à aligner vos perspectives et vos attentes culturelles sur celles des autres. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

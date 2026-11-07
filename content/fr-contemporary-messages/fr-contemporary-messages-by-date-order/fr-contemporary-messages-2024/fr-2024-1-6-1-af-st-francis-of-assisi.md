@@ -1,7 +1,7 @@
 ---
 title: "Puissions-nous être transformés par le don de l’Amour de Dieu"
 menu_title: ""
-description: "Puissions-nous être transformés par le don de l’Amour de Dieu"
+description: "St François d'Assise, reçu par Albert Fike : « Que l’Amour du Père soit avec vous, âmes bien-aimées, enfants de Dieu. Vous me connaissez sous le nom de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

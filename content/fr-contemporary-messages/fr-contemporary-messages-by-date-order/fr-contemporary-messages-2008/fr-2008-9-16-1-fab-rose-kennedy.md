@@ -1,7 +1,7 @@
 ---
 title: "La famille Kennedy - 2"
 menu_title: ""
-description: "La famille Kennedy - 2"
+description: "Rose Kennedy, reçu par FAB : « Ce que j'ai voulu dire dans ma canalisation du 9 Septembre est que leur rôle va augmenter en importance et en portée, et … »"
 date: 2022-06-01 06:00:01+00:108
 draft: False
 hidden: True

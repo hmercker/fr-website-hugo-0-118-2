@@ -1,7 +1,7 @@
 ---
 title: "La femme d’Endor n’était pas une femme faible comme beaucoup le croient"
 menu_title: ""
-description: "La femme d’Endor n’était pas une femme faible comme beaucoup le croient"
+description: "Saul, reçu par James Padgett : « Saul de l’Ancien Testament. J’étais un homme faible en ce temps-là et je ne connaissais pas l’amour de Dieu comme très … »"
 date: 2022-06-01 06:00:01+00:176
 draft: False
 hidden: True

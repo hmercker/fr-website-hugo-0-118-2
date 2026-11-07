@@ -1,7 +1,7 @@
 ---
 title: "Chaque goutte de l’Amour de Dieu est transformatrice"
 menu_title: ""
-description: "Chaque goutte de l’Amour de Dieu est transformatrice"
+description: "Keea Atta Kem, reçu par Albert Fike : « Nous remercions cette chère fille pour sa prière, car elle aide vos âmes et vos esprits à se tourner vers Dieu, à … »"
 date: 2026-09-22 06:00:00+00:00
 draft: False
 hidden: True

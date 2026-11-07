@@ -1,7 +1,7 @@
 ---
 title: "Hélène écrit sur l’importance de recevoir les vérités du Maître"
 menu_title: ""
-description: "Hélène écrit sur l’importance de recevoir les vérités du Maître"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher Ned, tu as reçu ce soir d’autres écrits des esprits supérieurs, et très prochainement, il … »"
 date: 2022-06-01 06:00:01+00:147
 draft: False
 hidden: True

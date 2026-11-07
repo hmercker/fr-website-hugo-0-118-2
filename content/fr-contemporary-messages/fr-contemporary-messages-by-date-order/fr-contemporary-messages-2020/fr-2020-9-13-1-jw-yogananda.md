@@ -1,7 +1,7 @@
 ---
 title: "Yogananda explique le Kriya Yoga et l'Amour de Dieu"
 menu_title: ""
-description: "Yogananda explique le Kriya Yoga et l'Amour de Dieu"
+description: "Yogananda, reçu par Jimbeau Walsh : « Mes chers frères, mon jeune ami m’interrogeait sur le yoga Kundalini et les énergies associées à cette pratique. »"
 date: 2022-06-01 06:00:01+00:1249
 draft: False
 hidden: True

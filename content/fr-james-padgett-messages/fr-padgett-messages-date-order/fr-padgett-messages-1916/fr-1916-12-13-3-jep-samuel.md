@@ -1,7 +1,7 @@
 ---
 title: "Samuel – Qu’est-ce qui cause aux âmes des hommes les troubles qui existent maintenant dans le monde ?"
 menu_title: ""
-description: "Samuel – Qu’est-ce qui cause aux âmes des hommes les troubles qui existent maintenant dans le monde ?"
+description: "Samuel, reçu par James Padgett : « Non, je n’ai pas écrit depuis longtemps, bien que j’aie été avec vous assez souvent, que j’aie vu les autres esprits … »"
 date: 2022-06-01 06:00:01+00:14
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La force de vos prières détermine la puissance du résultat"
 menu_title: ""
-description: "La force de vos prières détermine la puissance du résultat"
+description: "Orion, reçu par Albert Fike : « Plus votre prière est intense, plus le résultat est puissant. Plus vos pensées et vos désirs sont sincères, plus le chemin … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

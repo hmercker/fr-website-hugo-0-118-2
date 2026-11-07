@@ -1,7 +1,7 @@
 ---
 title: "Restez dans la grâce"
 menu_title: ""
-description: "Restez dans la grâce"
+description: "Yogananda, reçu par Jimbeau Walsh : « Vous avez tous reçu le grand cadeau de l’Amour de Dieu et vous connaissez la grande vérité de Sa disponibilité. »"
 date: 2022-06-01 06:00:01+00:1034
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Ayez foi en Dieu, les anges et le voyage"
 menu_title: ""
-description: "Ayez foi en Dieu, les anges et le voyage"
+description: "Jésus, reçu par Al Fike : « Ayez foi en Dieu, ayez foi dans les anges qui vous entourent chacun. Ayez foi dans le voyage que Dieu souhaite que vous … »"
 date: 2022-06-01 06:00:01+00:1040
 draft: False
 hidden: True

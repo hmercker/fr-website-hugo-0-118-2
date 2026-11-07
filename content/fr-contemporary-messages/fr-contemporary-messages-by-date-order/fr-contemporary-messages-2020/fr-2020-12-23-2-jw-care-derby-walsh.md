@@ -1,7 +1,7 @@
 ---
 title: "Perceptions de l'âme vs. Intuition"
 menu_title: ""
-description: "Perceptions de l'âme vs. Intuition"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Il est assez facile de se sentir concerné et d’avoir de l’empathie pour ceux qui vivent dans l’obscurité et … »"
 date: 2022-06-01 06:00:01+00:1355
 draft: False
 hidden: True

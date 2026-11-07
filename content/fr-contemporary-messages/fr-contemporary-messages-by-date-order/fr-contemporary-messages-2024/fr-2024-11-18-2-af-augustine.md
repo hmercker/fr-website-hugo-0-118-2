@@ -1,7 +1,7 @@
 ---
 title: "Leçon sur le suivi des directives"
 menu_title: ""
-description: "Leçon sur le suivi des directives"
+description: "Augustin, reçu par Albert Fike : « Il y a des moments où nous vous demandons de plier, mais pas de rompre. Nous ne vous emmènerons pas à ce point, mais en … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

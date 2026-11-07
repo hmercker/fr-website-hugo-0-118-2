@@ -1,7 +1,7 @@
 ---
 title: "Le don de l'Amour Divin est la plus grande vérité que vous puissiez connaître"
 menu_title: ""
-description: "Le don de l'Amour Divin est la plus grande vérité que vous puissiez connaître"
+description: "Joseph, reçu par Al Fike : « Je n'ai pas compris la mission de mon fils lorsqu'il était sur Terre. Je n'ai pas reconnu le pouvoir de l'amour, le pouvoir … »"
 date: 2022-06-01 06:00:01+00:692
 draft: False
 hidden: True

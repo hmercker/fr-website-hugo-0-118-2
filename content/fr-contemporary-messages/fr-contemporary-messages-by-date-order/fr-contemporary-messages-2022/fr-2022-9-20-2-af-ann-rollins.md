@@ -1,7 +1,7 @@
 ---
 title: "Le voyage unique de notre âme vers Dieu"
 menu_title: ""
-description: "Le voyage unique de notre âme vers Dieu"
+description: "Anne Rollins, reçu par Al Fike : « Je veux vous rappeler que lorsque vous vous embarquez dans ce voyage d’éveil de votre âme dans l’Amour de Dieu, souvent … »"
 date: 2022-06-01 06:00:01+00:179
 draft: False
 hidden: True

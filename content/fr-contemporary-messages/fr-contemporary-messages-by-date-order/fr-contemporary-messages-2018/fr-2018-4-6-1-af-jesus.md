@@ -1,7 +1,7 @@
 ---
 title: "Dieu crée des sanctuaires de lumière dans votre monde"
 menu_title: ""
-description: "Dieu crée des sanctuaires de lumière dans votre monde"
+description: "Jésus, reçu par Al Fike : « Dieu crée des sanctuaires de Lumière dans votre monde. Car ce sont des temps de changement et de bouleversement qui vont … »"
 date: 2022-06-01 06:00:01+00:378
 draft: False
 hidden: True

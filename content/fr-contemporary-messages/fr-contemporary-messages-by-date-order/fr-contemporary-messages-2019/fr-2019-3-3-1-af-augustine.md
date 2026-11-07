@@ -1,7 +1,7 @@
 ---
 title: "Vous avez ouvert un portail de lumière"
 menu_title: ""
-description: "Vous avez ouvert un portail de lumière"
+description: "Augustin, reçu par Al Fike : « Chères et douces âmes qui venez chercher la vérité, le réconfort et l’amour. En vous réunissant, vous avez ouvert un … »"
 date: 2022-06-01 06:00:01+00:665
 draft: False
 hidden: True

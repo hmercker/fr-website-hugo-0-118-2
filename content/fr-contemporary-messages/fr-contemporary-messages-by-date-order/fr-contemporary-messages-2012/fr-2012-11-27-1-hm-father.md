@@ -1,7 +1,7 @@
 ---
 title: "Aimer la création de Dieu"
 menu_title: ""
-description: "Aimer la création de Dieu"
+description: "Le Père Céleste, reçu par Helge Mercker : « Je veux parler, c’est ton Père. Cher enfant, pourquoi hésites-tu à tendre la main à ceux que tu aimes … »"
 date: 2022-06-01 06:00:01+00:300
 draft: False
 hidden: True

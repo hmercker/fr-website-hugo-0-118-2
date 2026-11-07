@@ -1,7 +1,7 @@
 ---
 title: "Des changements terrestres stimulants apportent plus de lumière et d’harmonie à l’humanité"
 menu_title: ""
-description: "Des changements terrestres stimulants apportent plus de lumière et d’harmonie à l’humanité"
+description: "Augustin, reçu par Al Fike : « Votre vie est bien isolée de la véritable adversité. Vous avez tout ce qu’il vous faut pour être dans la grâce de Dieu. »"
 date: 2022-06-01 06:00:01+00:582
 draft: False
 hidden: True

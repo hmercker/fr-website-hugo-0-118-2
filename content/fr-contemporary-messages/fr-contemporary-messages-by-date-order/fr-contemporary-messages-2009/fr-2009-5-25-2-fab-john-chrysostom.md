@@ -1,7 +1,7 @@
 ---
 title: "Le bonheur d'un père de l'Église"
 menu_title: ""
-description: "Le bonheur d'un père de l'Église"
+description: "Saint Jean Chrysostome, reçu par FAB : « Je ne pouvais pas tolérer l'injustice ou l'hypocrisie, quel que soit le niveau hiérarchique. »"
 date: 2022-06-01 06:00:01+00:47
 draft: False
 hidden: True

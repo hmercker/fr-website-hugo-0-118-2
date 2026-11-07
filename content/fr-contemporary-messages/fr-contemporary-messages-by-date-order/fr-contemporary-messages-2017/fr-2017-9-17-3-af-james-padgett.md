@@ -1,7 +1,7 @@
 ---
 title: "Écoutez vos âmes et tout vous sera donné"
 menu_title: ""
-description: "Écoutez vos âmes et tout vous sera donné"
+description: "James Padgett, reçu par Al Fike : « Elle a raison, lorsque j'ai marché sur la terre, que j'ai accompli la mission que Dieu m'a donnée, que Jésus a … »"
 date: 2022-06-01 06:00:01+00:105
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Soyez des scientifiques de l’âme"
 menu_title: ""
-description: "Soyez des scientifiques de l’âme"
+description: "Keea Atta Kem, reçu par Al Fike : « Continuez à labourer le sol dans de nombreux endroits de ce monde. Beaucoup d’entre vous voyageront dans de nombreux … »"
 date: 2022-06-01 06:00:01+00:288
 draft: False
 hidden: True

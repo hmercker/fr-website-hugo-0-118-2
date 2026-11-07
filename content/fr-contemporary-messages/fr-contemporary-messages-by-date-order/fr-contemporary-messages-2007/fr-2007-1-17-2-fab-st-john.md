@@ -1,7 +1,7 @@
 ---
 title: "Jean commente son Évangile et son enfance"
 menu_title: ""
-description: "Jean commente son Évangile et son enfance"
+description: "St Jean, reçu par FAB : « Vous avez dit que si je n’étais qu’un simple pêcheur, comment aurais-je pu écrire un Évangile ? »"
 date: 2022-06-01 06:00:01+00:90
 draft: False
 hidden: True

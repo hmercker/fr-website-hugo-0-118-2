@@ -1,7 +1,7 @@
 ---
 title: "Guerre et paix et le plan de Dieu Partie 7"
 menu_title: ""
-description: "Guerre et paix et le plan de Dieu Partie 7"
+description: "Jésus, reçu par FAB : « Vous avez entendu, à plusieurs reprises, de notre part que nous, les Anges Célestes, ne jugeons pas les différentes guerres qui … »"
 date: 2022-06-01 06:00:01+00:139
 draft: False
 hidden: True

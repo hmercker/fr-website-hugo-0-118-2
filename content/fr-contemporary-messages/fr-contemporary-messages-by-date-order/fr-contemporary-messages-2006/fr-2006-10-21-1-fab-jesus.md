@@ -1,7 +1,7 @@
 ---
 title: "Clarifications des messages de James Padgett/Dr Samuels"
 menu_title: ""
-description: "Clarifications des messages de James Padgett/Dr Samuels"
+description: "Jésus, reçu par FAB : « Comme vous pouvez le voir, nous vous guidons pour relire les canalisations de Padgett/Samuels dans le but d'expliquer les … »"
 date: 2022-06-01 06:00:01+00:55
 draft: False
 hidden: True

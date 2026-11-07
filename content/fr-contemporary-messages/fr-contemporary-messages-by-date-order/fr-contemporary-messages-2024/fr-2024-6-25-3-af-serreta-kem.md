@@ -1,7 +1,7 @@
 ---
 title: "La transformation est la clé de votre rassemblement"
 menu_title: ""
-description: "La transformation est la clé de votre rassemblement"
+description: "Serreta Kem, reçu par Albert Fike : « La transformation est la clé de ce rassemblement, âmes bien-aimées. Chacun de vous a été choisi pour venir dans ce … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

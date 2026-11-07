@@ -1,7 +1,7 @@
 ---
 title: "Soyez fidèle à votre âme"
 menu_title: ""
-description: "Soyez fidèle à votre âme"
+description: "Seretta Kem, reçu par Al Fike : « Nous continuons à aider à préparer les changements à venir qui apporteront sûrement de nombreuses occasions de servir … »"
 date: 2023-09-01 06:00:01+00:15
 draft: False
 hidden: True

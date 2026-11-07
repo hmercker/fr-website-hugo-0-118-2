@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes ensemble dans cette lumière"
 menu_title: ""
-description: "Nous sommes ensemble dans cette lumière"
+description: "Jésus, reçu par Al Fike : « Nous vous invitons, âmes bien-aimées, à entreprendre le voyage de transformation afin que vous puissiez vous aussi connaître … »"
 date: 2022-06-01 06:00:01+00:1601
 draft: False
 hidden: True

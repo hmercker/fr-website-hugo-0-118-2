@@ -1,7 +1,7 @@
 ---
 title: "Questions et réponses"
 menu_title: ""
-description: "Questions et réponses"
+description: "Orion, reçu par Al Fike : « Mon rapport avec cet instrument est fort. Nous pourrions donc prendre le temps de répondre à certaines questions que vous … »"
 date: 2022-06-01 06:00:01+00:86
 draft: False
 hidden: True

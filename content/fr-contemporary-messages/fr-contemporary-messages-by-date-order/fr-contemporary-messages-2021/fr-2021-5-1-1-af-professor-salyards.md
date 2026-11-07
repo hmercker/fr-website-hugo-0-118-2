@@ -1,7 +1,7 @@
 ---
 title: "Reconnaître que la main de Dieu est vraiment dans ce travail"
 menu_title: ""
-description: "Reconnaître que la main de Dieu est vraiment dans ce travail"
+description: "Professeur Salyards, reçu par Al Fike : « Nous avons suivi votre conversation aujourd’hui, car nous continuons à être proches de chacun d’entre vous et à … »"
 date: 2022-06-01 06:00:01+00:1486
 draft: False
 hidden: True

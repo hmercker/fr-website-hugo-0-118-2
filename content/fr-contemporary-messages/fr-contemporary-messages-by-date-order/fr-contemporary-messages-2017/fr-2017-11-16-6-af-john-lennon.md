@@ -1,7 +1,7 @@
 ---
 title: "Tout ce dont vous avez besoin est l'Amour Divin"
 menu_title: ""
-description: "Tout ce dont vous avez besoin est l'Amour Divin"
+description: "John Lennon, reçu par Al Fike : « J'ai beaucoup appris depuis mon arrivée dans le monde de l'esprit. Je vois que vous poursuivez le travail que j'ai … »"
 date: 2022-06-01 06:00:01+00:211
 draft: False
 hidden: True

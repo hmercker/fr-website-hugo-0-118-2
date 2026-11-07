@@ -1,7 +1,7 @@
 ---
 title: "Suite de l’orientation par la Voix Directe"
 menu_title: ""
-description: "Suite de l’orientation par la Voix Directe"
+description: "Seretta Kem, reçu par Al Fike : « Je souhaite poursuivre mon message d’hier concernant la voix directe. Et cette partie du message fera référence aux … »"
 date: 2022-06-01 06:00:01+00:40
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Esprit Divin (Suite)"
 menu_title: ""
-description: "Esprit Divin (Suite)"
+description: "St Jean, reçu par Amada Reza : « Merci d’avoir pris le temps de vous asseoir avec moi, car je sais que vous vous demandez pourquoi je choisis d’écrire … »"
 date: 2022-06-01 06:00:01+00:51
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "100ème anniversaire de l’arrivée de Yogananda en Occident"
 menu_title: ""
-description: "100ème anniversaire de l’arrivée de Yogananda en Occident"
+description: "Yogananda, reçu par Al Fike : « Je vous souhaite, mes amis, un véritable réveil de l’amour et de la lumière, et une prise de conscience de toutes les … »"
 date: 2022-06-01 06:00:01+00:1253
 draft: False
 hidden: True

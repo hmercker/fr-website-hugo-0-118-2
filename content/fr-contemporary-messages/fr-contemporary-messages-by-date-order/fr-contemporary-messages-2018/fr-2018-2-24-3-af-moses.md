@@ -1,7 +1,7 @@
 ---
 title: "Cherchez la source de tout amour, vérité et lumière"
 menu_title: ""
-description: "Cherchez la source de tout amour, vérité et lumière"
+description: "Moïse, reçu par Al Fike : « Tant de personnes dans votre monde dérivent sur une mer de désespoir. Perdus et confus, ils ne se connaissent pas eux-mêmes. »"
 date: 2022-06-01 06:00:01+00:330
 draft: False
 hidden: True

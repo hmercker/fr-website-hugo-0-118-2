@@ -1,7 +1,7 @@
 ---
 title: "Votre dévouement est ce qui est nécessaire pour établir ce cercle de lumière"
 menu_title: ""
-description: "Votre dévouement est ce qui est nécessaire pour établir ce cercle de lumière"
+description: "Augustin, reçu par Maureen Cardoso : « Vous êtes donc réunis dans cette merveilleuse partie de la planète Terre de Dieu, dans la plus belle partie du … »"
 date: 2022-06-01 06:00:01+00:751
 draft: False
 hidden: True

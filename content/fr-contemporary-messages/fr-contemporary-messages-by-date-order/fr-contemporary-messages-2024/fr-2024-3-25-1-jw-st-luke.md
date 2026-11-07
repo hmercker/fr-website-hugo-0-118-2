@@ -1,7 +1,7 @@
 ---
 title: "La liberté de changement"
 menu_title: ""
-description: "La liberté de changement"
+description: "St Luc, reçu par Jimbeau Walsh : « Tout dans l’univers de Dieu est en mouvement, car l’univers est cinétique et la loi est le changement et non la stase. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

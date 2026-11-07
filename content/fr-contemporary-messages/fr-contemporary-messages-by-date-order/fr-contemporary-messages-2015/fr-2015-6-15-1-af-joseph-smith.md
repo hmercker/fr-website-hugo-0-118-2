@@ -1,7 +1,7 @@
 ---
 title: "L’imagination et les idées des hommes créent des faussetés et des interprétations erronées"
 menu_title: ""
-description: "L’imagination et les idées des hommes créent des faussetés et des interprétations erronées"
+description: "Joseph Smith, reçu par Al Fike : « J’ai adopté la vérité de l’Amour Divin et bien que j’aie eu des aperçus de cette Vérité lorsque j’étais sur Terre, je … »"
 date: 2022-06-01 06:00:01+00:131
 draft: False
 hidden: True

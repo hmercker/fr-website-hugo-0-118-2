@@ -1,7 +1,7 @@
 ---
 title: "Recevez le don abondant de l’Amour du Père"
 menu_title: ""
-description: "Recevez le don abondant de l’Amour du Père"
+description: "Jésus, reçu par Albert Fike : « Toutes les bénédictions que Dieu a à offrir à la Terre, tout ce qui est à la portée de l’humanité... et pourtant, si peu … »"
 date: 2026-10-04 06:00:01+00:01
 draft: False
 hidden: True

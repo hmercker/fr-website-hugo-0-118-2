@@ -1,7 +1,7 @@
 ---
 title: "Pas de regrets et service"
 menu_title: ""
-description: "Pas de regrets et service"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Ceux d’entre nous en esprit qui ont progressé dans les royaumes Célestes ont laissé derrière eux tous les … »"
 date: 2022-06-01 06:00:01+00:41
 draft: False
 hidden: True

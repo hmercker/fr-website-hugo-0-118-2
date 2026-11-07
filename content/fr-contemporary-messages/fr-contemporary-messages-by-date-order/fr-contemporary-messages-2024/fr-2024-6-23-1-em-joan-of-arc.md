@@ -1,7 +1,7 @@
 ---
 title: "Permettez à Dieu d'être connecté à vous"
 menu_title: ""
-description: "vPermettez à Dieu d'être connecté à vous"
+description: "Jeanne d'Arc, reçu par Elizabeth Mack : « Vous êtes bénis d’être ici. De prendre ces mesures pour devenir des serviteurs de Dieu. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

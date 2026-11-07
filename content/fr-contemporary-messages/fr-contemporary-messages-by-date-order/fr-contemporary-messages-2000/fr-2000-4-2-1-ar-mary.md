@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes le cadeau de ce monde"
 menu_title: ""
-description: "Vous êtes le cadeau de ce monde"
+description: "Marie, reçu par Amada Réza : « Je veux assurer ta mère que nous sommes, en tant que porte-parole de Dieu, très heureux de ne pas nous attribuer le mérite … »"
 date: 2022-06-01 06:00:01+00:11
 draft: False
 hidden: True

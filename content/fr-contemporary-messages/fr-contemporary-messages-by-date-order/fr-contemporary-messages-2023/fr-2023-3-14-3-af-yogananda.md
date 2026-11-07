@@ -1,7 +1,7 @@
 ---
 title: "Enseignement sur la vérité"
 menu_title: ""
-description: "Enseignement sur la vérité"
+description: "Yogananda, reçu par Al Fike : « La vérité provient de nombreuses sources différentes, n’est-ce pas, sur votre plan terrestre. »"
 date: 2023-09-01 06:00:01+00:97
 draft: False
 hidden: True

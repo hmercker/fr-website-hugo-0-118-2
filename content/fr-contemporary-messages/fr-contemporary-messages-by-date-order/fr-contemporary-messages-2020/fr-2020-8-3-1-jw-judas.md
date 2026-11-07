@@ -1,7 +1,7 @@
 ---
 title: "Exploration des messages de Judas"
 menu_title: ""
-description: "Exploration des messages de Judas"
+description: "Judas, reçu par Jimbeau Walsh : « C’est un grand plaisir pour moi de vous rendre visite alors que vous explorez les messages qui ont été donnés à notre … »"
 date: 2022-06-01 06:00:01+00:1209
 draft: False
 hidden: True

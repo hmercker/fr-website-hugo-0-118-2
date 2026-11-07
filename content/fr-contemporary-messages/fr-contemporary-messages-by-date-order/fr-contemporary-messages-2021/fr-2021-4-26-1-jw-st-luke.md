@@ -1,7 +1,7 @@
 ---
 title: "L'amour de Dieu ouvre le cœur et transforme l'âme"
 menu_title: ""
-description: "L'amour de Dieu ouvre le cœur et transforme l'âme"
+description: "St Luc, reçu par Jimbeau Walsh : « Car n’est-ce pas l’amour qui vous amène ici ? N’est-ce pas l’amour qui guérit ? »"
 date: 2022-06-01 06:00:01+00:1482
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Vos choix et vos désirs déterminent votre chemin"
 menu_title: ""
-description: "Vos choix et vos désirs déterminent votre chemin"
+description: "Barthélémy, reçu par Albert Fike : « Le chemin de l'Amour Divin peut être sinueux ou direct. Chaque personne, par ses choix, détermine le chemin qu'elle … »"
 date: 2026-04-03 16:00:01+00:01
 draft: False
 hidden: True

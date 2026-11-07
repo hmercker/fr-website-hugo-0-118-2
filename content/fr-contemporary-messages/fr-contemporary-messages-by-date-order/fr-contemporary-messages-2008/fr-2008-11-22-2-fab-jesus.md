@@ -1,7 +1,7 @@
 ---
 title: "Système économique"
 menu_title: ""
-description: "Système économique"
+description: "Jésus, reçu par FAB : « Je vois que vous manquez de clarté sur les différents systèmes économiques que l'humanité a essayés. »"
 date: 2022-06-01 06:00:01+00:134
 draft: False
 hidden: True

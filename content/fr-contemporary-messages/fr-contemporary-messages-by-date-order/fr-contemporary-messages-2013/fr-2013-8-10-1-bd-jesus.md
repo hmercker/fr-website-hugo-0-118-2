@@ -1,7 +1,7 @@
 ---
 title: "Votre monde a cruellement besoin de vous"
 menu_title: ""
-description: "Votre monde a cruellement besoin de vous"
+description: "Jésus, reçu par Barbara Davies Fike : « Vous êtes d’une beauté et d’une merveille uniques, et votre monde a profondément et ardemment besoin de vous. »"
 date: 2026-10-21 06:00:01+00:09
 draft: False
 hidden: True

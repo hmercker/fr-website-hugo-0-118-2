@@ -1,7 +1,7 @@
 ---
 title: "Les temps de grands changements sont à nos portes"
 menu_title: ""
-description: "Les temps de grands changements sont à nos portes"
+description: "Jésus, reçu par Al Fike : « Ces temps dont nous avons parlé et qui apporteront de grands changements dans le monde sont sur nous, âmes bien-aimées. »"
 date: 2022-06-01 06:00:01+00:1009
 draft: False
 hidden: True

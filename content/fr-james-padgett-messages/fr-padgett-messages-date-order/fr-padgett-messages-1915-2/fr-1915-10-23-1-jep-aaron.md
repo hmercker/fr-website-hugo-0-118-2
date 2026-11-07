@@ -1,7 +1,7 @@
 ---
 title: "Aaron partage son expérience et ce qu’il sait maintenant de l’immortalité depuis que Jésus est venu et a enseigné comment l’obtenir"
 menu_title: ""
-description: "Aaron partage son expérience et ce qu’il sait maintenant de l’immortalité depuis que Jésus est venu et a enseigné comment l’obtenir"
+description: "Aaron, reçu par James Padgett : « Je veux simplement dire que j’ai lu avec vous le message de l’esprit d’Henry Ward Beecher. »"
 date: 2022-06-01 06:00:01+00:13
 draft: False
 hidden: True

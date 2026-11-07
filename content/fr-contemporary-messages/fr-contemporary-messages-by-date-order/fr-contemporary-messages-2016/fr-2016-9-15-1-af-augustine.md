@@ -1,7 +1,7 @@
 ---
 title: "La réaction à votre lumière"
 menu_title: ""
-description: "La réaction à votre lumière"
+description: "Augustin, reçu par Al Fike : « De la part de certains, il y a un merveilleux désir et un rapprochement de vous, une réponse d’amour, une reconnaissance de … »"
 date: 2022-06-01 06:00:01+00:250
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le père de M. Padgett partage sa progression vers la première Sphère Céleste et en tant que son ange gardien lui dit de ne pas s’inquiéter au sujet des choses matérielles"
 menu_title: ""
-description: "Le père de M. Padgett partage sa progression vers la première Sphère Céleste et en tant que son ange gardien lui dit de ne pas s’inquiéter au sujet des choses matérielles"
+description: "John Padgett, reçu par James Padgett : « Je souhaite écrire quelques lignes ce soir, car je n’ai pas écrit depuis un certain temps et je souhaite que tu … »"
 date: 2022-06-01 06:00:01+00:308
 draft: False
 hidden: True

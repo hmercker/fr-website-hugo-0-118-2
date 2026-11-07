@@ -1,7 +1,7 @@
 ---
 title: "Sur la prière"
 menu_title: ""
-description: "Sur la prière"
+description: "Judas, reçu par H : « Mon cher frère, dans mon dernier message, je t’ai expliqué comment nous avons quitté le village de Naïm, et comment Jésus nous a … »"
 date: 2022-06-01 06:00:01+00:33
 draft: False
 hidden: True

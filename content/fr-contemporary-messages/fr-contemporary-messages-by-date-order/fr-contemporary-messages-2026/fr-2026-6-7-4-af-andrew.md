@@ -1,7 +1,7 @@
 ---
 title: "Le pouvoir de l’amour vous unit en tant que frères et sœurs sur ce chemin : André clôture la retraite de Johnson City"
 menu_title: ""
-description: "Le pouvoir de l’amour vous unit en tant que frères et sœurs sur ce chemin : André clôture la retraite de Johnson City"
+description: "André, reçu par Al Fike : « À mesure que vos âmes cherchent à grandir et à s’épanouir grâce à ce grand don de l’Amour Divin, votre propension à aller vers … »"
 date: 2026-10-28 06:00:01+00:01
 draft: False
 hidden: True

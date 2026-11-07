@@ -1,7 +1,7 @@
 ---
 title: "Le père de l’éditeur déclare qu’il fait des efforts sérieux afin d’atteindre la maison de sa femme et être avec elle par la prière au Père pour Son Amour"
 menu_title: ""
-description: "Le père de l’éditeur déclare qu’il fait des efforts sérieux afin d’atteindre la maison de sa femme et être avec elle par la prière au Père pour Son Amour"
+description: "William Stone, reçu par James Padgett : « Je ne suis pas dans sa haute sphère, mais je m’efforce d’y aller et de profiter de sa maison. »"
 date: 2022-06-01 06:00:01+00:66
 draft: False
 hidden: True

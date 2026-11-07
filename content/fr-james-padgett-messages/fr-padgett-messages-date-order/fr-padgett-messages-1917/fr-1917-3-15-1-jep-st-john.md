@@ -1,7 +1,7 @@
 ---
 title: "Les esprits Célestes doivent travailler jusqu’à ce que le Royaume Céleste soit fermé"
 menu_title: ""
-description: "Les esprits Célestes doivent travailler jusqu’à ce que le Royaume Céleste soit fermé"
+description: "St Jean, reçu par James Padgett : « J’étais avec vous ce soir à la séance spirite et j’ai entendu ce que le médium a dit, et j’ai vu que, lorsqu’elle … »"
 date: 2022-06-01 06:00:01+00:84
 draft: False
 hidden: True

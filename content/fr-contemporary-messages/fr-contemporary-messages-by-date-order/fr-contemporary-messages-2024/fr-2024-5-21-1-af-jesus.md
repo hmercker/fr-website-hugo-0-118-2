@@ -1,7 +1,7 @@
 ---
 title: "Les anges parcourent un long chemin pour être avec vous"
 menu_title: ""
-description: "Les anges parcourent un long chemin pour être avec vous"
+description: "Jésus, reçu par Albert Fike : « Je vous demande de tendre la main à vos frères et sœurs qui sont perdus mais qui ont un grand besoin et qui désirent la … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Restez sur le droit chemin – la simple vérité de l’Amour Divin de Dieu"
 menu_title: ""
-description: "Restez sur le droit chemin – la simple vérité de l’Amour Divin de Dieu"
+description: "Augustin, reçu par Albert Fike : « Le magnifique Souffle de Dieu est sur vous, mes chers étudiants. C’est un chemin très simple. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

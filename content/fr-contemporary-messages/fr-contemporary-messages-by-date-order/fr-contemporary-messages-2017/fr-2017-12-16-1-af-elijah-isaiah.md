@@ -1,7 +1,7 @@
 ---
 title: "Les âmes que vous attirerez pour travailler ensemble"
 menu_title: ""
-description: "Les âmes que vous attirerez pour travailler ensemble"
+description: "Élie & Ésaïe, reçu par Al Fike : « Enfants de Dieu, écoutez-moi. Car Dieu vous a imprégné d'un don, un don pour aider l'humanité dans les temps à venir … »"
 date: 2022-06-01 06:00:01+00:285
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le point de vue des anges sur le temps (2022 Gardiens de la lumière)"
 menu_title: ""
-description: "Le point de vue des anges sur le temps (2022 Gardiens de la lumière)"
+description: "St Matthieu, reçu par Al Fike : « Vous ressentez tous le flux et le reflux du temps dans votre existence terrestre. Il régit tant de choses dans votre vie … »"
 date: 2022-06-01 06:00:01+00:08
 draft: False
 hidden: True

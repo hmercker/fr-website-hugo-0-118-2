@@ -1,7 +1,7 @@
 ---
 title: "Il n'y a pas de yoga plus élevé que le yoga de l'Amour de Dieu"
 menu_title: ""
-description: "Il n'y a pas de yoga plus élevé que le yoga de l'Amour de Dieu"
+description: "Yogananda, reçu par Jimbeau Walsh : « Nous, dans les royaumes Célestes, sommes attirés vers vous dans ce Cercle de Lumière. Je souhaite vous dire que ceci … »"
 date: 2022-06-01 06:00:01+00:814
 draft: False
 hidden: True

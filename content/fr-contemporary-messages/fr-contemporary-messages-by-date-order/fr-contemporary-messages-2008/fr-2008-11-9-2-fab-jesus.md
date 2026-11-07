@@ -1,7 +1,7 @@
 ---
 title: "Le programme économique de Jésus - 2"
 menu_title: ""
-description: "Le programme économique de Jésus - 2"
+description: "Jésus, reçu par FAB : « Lien vers les messages des années 2008 Lien vers la liste des messages contemporains classées par année »"
 date: 2022-06-01 06:00:01+00:128
 draft: False
 hidden: True

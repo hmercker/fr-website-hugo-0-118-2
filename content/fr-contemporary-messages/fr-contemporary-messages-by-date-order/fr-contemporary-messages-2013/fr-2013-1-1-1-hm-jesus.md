@@ -1,7 +1,7 @@
 ---
 title: "Salutations pour la Nouvelle Année"
 menu_title: ""
-description: "Salutations pour la Nouvelle Année"
+description: "Jésus, reçu par Helge Mercker : « Nous sommes heureux de cette nouvelle ère et de cette nouvelle année. Nous reconnaissons tous ceux qui ont fait le … »"
 date: 2022-06-01 06:00:01+00:01
 draft: False
 hidden: True

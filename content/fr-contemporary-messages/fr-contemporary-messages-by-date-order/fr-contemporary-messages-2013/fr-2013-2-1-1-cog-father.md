@@ -1,7 +1,7 @@
 ---
 title: "Tu es mon temple"
 menu_title: ""
-description: "Tu es mon temple"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Je n’ai pas besoin de place en dehors de ton cœur. Je ne demande rien d’autre que ton amour. »"
 date: 2022-06-01 06:00:01+00:23
 draft: False
 hidden: True

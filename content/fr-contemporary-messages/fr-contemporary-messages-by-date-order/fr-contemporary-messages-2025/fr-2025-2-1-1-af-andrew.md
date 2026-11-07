@@ -1,7 +1,7 @@
 ---
 title: "Recevoir l'Amour de Dieu commence comme un filet et peut se transformer en torrent"
 menu_title: ""
-description: "Recevoir l'Amour de Dieu commence comme un filet et peut se transformer en torrent"
+description: "André, reçu par Albert Fike : « Pour ceux qui s’engagent sur ce chemin vers la vérité, vers Dieu, la bénédiction de Son Amour commence souvent comme une … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L'Amour de Dieu est la plus grande force"
 menu_title: ""
-description: "L'Amour de Dieu est la plus grande force"
+description: "Albert Einstein : « Je ne pourrai pas rester avec vous trop longtemps, mes amis, mais j'ai attendu si longtemps pour me joindre à vous et parler avec vous … »"
 date: 2022-06-01 06:00:01+00:144
 draft: False
 hidden: True

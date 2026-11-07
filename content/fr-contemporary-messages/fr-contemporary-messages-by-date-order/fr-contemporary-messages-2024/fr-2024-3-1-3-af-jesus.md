@@ -1,7 +1,7 @@
 ---
 title: "Honorer la vieille tradition de prière"
 menu_title: ""
-description: "Honorer la vieille tradition de prière"
+description: "Jésus, reçu par Albert Fike : « C’était comme ça à mon époque, des groupes se rassemblaient dans la prière, recherchant les bénédictions du Père Céleste … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

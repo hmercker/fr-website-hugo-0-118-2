@@ -1,7 +1,7 @@
 ---
 title: "Apprenez à connaître votre propre âme"
 menu_title: ""
-description: "Apprenez à connaître votre propre âme"
+description: "Icarius, reçu par Al Fike : « Dieu désire que vous, mes âmes bien-aimées, appreniez à connaître votre propre âme. En plus de cela, Il demande que vous … »"
 date: 2022-06-01 06:00:01+00:37
 draft: False
 hidden: True

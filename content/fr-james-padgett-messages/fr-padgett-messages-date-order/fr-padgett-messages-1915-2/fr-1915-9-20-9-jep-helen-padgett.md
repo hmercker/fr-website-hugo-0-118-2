@@ -1,7 +1,7 @@
 ---
 title: "Hélène confirme les différents auteurs cette nuit et ils étaient tous ce qu’ils prétendaient être"
 menu_title: ""
-description: "Hélène confirme les différents auteurs cette nuit et ils étaient tous ce qu’ils prétendaient être"
+description: "Hélène Padgett, reçu par James Padgett : « Chéri, tu en as assez écrit pour ce soir et tu dois arrêter. Je veux vous dire que les esprits qui ont professé … »"
 date: 2022-06-01 06:00:01+00:263
 draft: False
 hidden: True

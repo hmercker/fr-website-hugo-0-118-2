@@ -1,7 +1,7 @@
 ---
 title: "Confirmation du message de Barbara_2"
 menu_title: ""
-description: "Confirmation du message de Barbara_2"
+description: "Grace Jordan, reçu par Al Fike : « Lien vers les messages des années 2023 Lien vers la liste des messages contemporains classées par année »"
 date: 2022-06-01 06:00:01+00:38
 draft: False
 hidden: True

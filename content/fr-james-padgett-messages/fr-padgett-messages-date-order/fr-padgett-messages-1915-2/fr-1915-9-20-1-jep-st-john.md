@@ -1,7 +1,7 @@
 ---
 title: "Ne laissez votre foi être ébranlée par ce que les autres disent"
 menu_title: ""
-description: "Ne laissez votre foi être ébranlée par ce que les autres disent"
+description: "St Jean, reçu par James Padgett : « L’autre homme a dit qu’il n’y a pas d’autre salut que par le sang de Jésus. Comme il est dans l’erreur et comme il … »"
 date: 2022-06-01 06:00:01+00:256
 draft: False
 hidden: True

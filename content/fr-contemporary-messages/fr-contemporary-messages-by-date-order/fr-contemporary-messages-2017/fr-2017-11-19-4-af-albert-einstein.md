@@ -1,7 +1,7 @@
 ---
 title: "L'humanité est au bord du précipice"
 menu_title: ""
-description: "L'humanité est au bord du précipice"
+description: "Albert Einstein, reçu par Al Fike : « Ce que vous faites est extrêmement intéressant, mes amis. La façon dont les lois de la physique sont utilisées pour … »"
 date: 2022-06-01 06:00:01+00:221
 draft: False
 hidden: True

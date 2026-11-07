@@ -1,7 +1,7 @@
 ---
 title: "Jésus parle de la Pentecôte"
 menu_title: ""
-description: "Jésus parle de la Pentecôte"
+description: "Jésus, reçu par Al Fike : « Cher Dieu miséricordieux, que toutes vous bonnes bénédictions viennent vers ces sincères âmes dans ce monde, que toute la … »"
 date: 2022-06-01 06:00:01+00:26
 draft: False
 hidden: True

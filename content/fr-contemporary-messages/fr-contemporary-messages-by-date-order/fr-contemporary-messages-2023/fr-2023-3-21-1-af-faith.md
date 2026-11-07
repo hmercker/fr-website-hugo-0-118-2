@@ -1,7 +1,7 @@
 ---
 title: "Les anges sont occupés à préparer les âmes du monde entier pour ce qui va arriver"
 menu_title: ""
-description: "Les anges sont occupés à préparer les âmes du monde entier pour ce qui va arriver"
+description: "Faith Nyquist, reçu par Albert Fike : « Les anges travaillent avec de nombreuses personnes dans le monde alors que ces énergies et bénédictions arrivent … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

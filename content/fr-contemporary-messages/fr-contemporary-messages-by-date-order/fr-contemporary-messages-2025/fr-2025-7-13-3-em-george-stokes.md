@@ -1,7 +1,7 @@
 ---
 title: "Sagesse de l'Âme"
 menu_title: ""
-description: "Sagesse de l'Âme"
+description: "George Stokes, reçu par Elizabeth Mack : « Je vous le dis, à mesure que vous grandissez dans cet Amour, vous grandissez en sagesse. C’est cette sagesse … »"
 date: 2026-01-31 16:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Rembrandt n’était pas spirituel sur terre"
 menu_title: ""
-description: "Rembrandt n’était pas spirituel sur terre"
+description: "Rembrandt Harmenszoon van Rijn, reçu par FAB : « Comme c’est la première fois que j’écris à travers un mortel, je trouve cela un peu difficile. »"
 date: 2022-06-01 06:00:01+00:29
 draft: False
 hidden: True

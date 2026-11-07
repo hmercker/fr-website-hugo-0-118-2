@@ -1,7 +1,7 @@
 ---
 title: "Demandez davantage de l'Amour Divin de Dieu pour que vos lumières deviennent de plus en plus fortes, jour après jour et heure après heure"
 menu_title: ""
-description: "Demandez davantage de l'Amour Divin de Dieu pour que vos lumières deviennent de plus en plus fortes, jour après jour et heure après heure"
+description: "Jacques : « Cela a apporté de la joie à ceux d'entre nous qui ont travaillé avec vous en tant que groupe. »"
 date: 2022-06-01 06:00:01+00:110
 draft: False
 hidden: True

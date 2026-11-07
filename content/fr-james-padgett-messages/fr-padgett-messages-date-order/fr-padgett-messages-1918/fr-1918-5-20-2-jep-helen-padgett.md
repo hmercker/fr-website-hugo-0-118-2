@@ -1,7 +1,7 @@
 ---
 title: "Hélène – Confirmation que Jésus a écrit"
 menu_title: ""
-description: "Hélène – Confirmation que Jésus a écrit"
+description: "Hélène Padgett, reçu par James Padgett : « Tu dois faire des efforts pour accomplir les objectifs, les grands objectifs de ta sélection, et ne pas laisser … »"
 date: 2022-06-01 06:00:01+00:40
 draft: False
 hidden: True

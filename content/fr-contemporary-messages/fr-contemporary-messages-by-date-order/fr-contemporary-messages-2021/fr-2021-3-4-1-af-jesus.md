@@ -1,7 +1,7 @@
 ---
 title: "Session de questions et réponses n°3 : Prière"
 menu_title: ""
-description: "Session de questions et réponses n°3 : Prière"
+description: "Jésus, reçu par Al Fike : « Que les vents du changement apportent une plus grande lumière à votre monde. Que l’humanité en vienne à comprendre sa nature … »"
 date: 2022-06-01 06:00:01+00:1429
 draft: False
 hidden: True

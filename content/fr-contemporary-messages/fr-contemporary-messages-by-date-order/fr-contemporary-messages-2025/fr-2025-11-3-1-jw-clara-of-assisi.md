@@ -1,7 +1,7 @@
 ---
 title: "Dans le silence"
 menu_title: ""
-description: "Dans le silence"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Nous sommes nombreux ici à être avec vous pendant ce moment partagé, vous donnant notre bénédiction, vous … »"
 date: 2025-12-12 16:00:01+00:01
 draft: False
 hidden: True

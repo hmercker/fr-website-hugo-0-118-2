@@ -1,7 +1,7 @@
 ---
 title: "La Volonté de Dieu"
 menu_title: ""
-description: "La Volonté de Dieu"
+description: "Augustin, reçu par Al Fike : « C’est Augustin votre enseignant et je souhaite aborder le sujet de la volonté de Dieu – comment elle se manifeste dans vos … »"
 date: 2022-06-01 06:00:01+00:299
 draft: False
 hidden: True

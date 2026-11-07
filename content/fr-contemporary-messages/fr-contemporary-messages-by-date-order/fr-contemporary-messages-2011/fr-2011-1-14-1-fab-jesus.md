@@ -1,7 +1,7 @@
 ---
 title: "Les faits, pas la naïveté"
 menu_title: ""
-description: "Les faits, pas la naïveté"
+description: "Jésus, reçu par FAB : « Je souhaite clarifier ceci. Évidemment, les personnes ont leur libre arbitre, et nous ne contrôlons pas les choix qu’elles font. »"
 date: 2022-06-01 06:00:01+00:182
 draft: False
 hidden: True

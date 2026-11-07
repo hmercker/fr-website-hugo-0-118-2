@@ -1,7 +1,7 @@
 ---
 title: "Ouverture de la retraite de Harrow : chantez votre chanson émouvante sur la vérité"
 menu_title: ""
-description: "Ouverture de la retraite de Harrow : chantez votre chanson émouvante sur la vérité"
+description: "Estelle Roberts, reçu par Albert Fike : « Une vie sans vérité est une vie sans sens. Une vie sans amour est une vie vide. »"
 date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True

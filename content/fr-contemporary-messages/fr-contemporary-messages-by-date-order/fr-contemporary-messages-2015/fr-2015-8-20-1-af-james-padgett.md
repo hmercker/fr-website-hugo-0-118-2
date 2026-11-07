@@ -1,7 +1,7 @@
 ---
 title: "Exprimer la vérité aux autres. Padgett explique pourquoi c’est si important"
 menu_title: ""
-description: "Exprimer la vérité aux autres. Padgett explique pourquoi c’est si important"
+description: "James Padgett, reçu par Al Fike : « Il m’a été demandé de vous parler et c’est mon honneur et mon privilège de le faire dans ce rassemblement de belles âmes. »"
 date: 2022-06-01 06:00:01+00:137
 draft: False
 hidden: True

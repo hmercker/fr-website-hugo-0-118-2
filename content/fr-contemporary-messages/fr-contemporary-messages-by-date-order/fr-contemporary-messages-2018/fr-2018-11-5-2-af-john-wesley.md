@@ -1,7 +1,7 @@
 ---
 title: "Exprimez-vous pour la Vérité et le changement"
 menu_title: ""
-description: "Exprimez-vous pour la Vérité et le changement"
+description: "John Wesley, reçu par Al Fike : « Cependant, pour y parvenir, j’ai dû changer beaucoup de mes attitudes et de mes idées et les reconstruire dans la Vérité … »"
 date: 2022-06-01 06:00:01+00:556
 draft: False
 hidden: True

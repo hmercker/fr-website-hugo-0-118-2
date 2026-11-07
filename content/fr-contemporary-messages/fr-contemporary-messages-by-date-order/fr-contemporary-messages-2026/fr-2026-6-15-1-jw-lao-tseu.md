@@ -1,7 +1,7 @@
 ---
 title: "La Voie qui peut être exprimée par des mots n'est pas la Voie éternelle"
 menu_title: ""
-description: "La Voie qui peut être exprimée par des mots n'est pas la Voie éternelle"
+description: "Lao Tseu, reçu par Jimbeau Walsh : « Mes frères et sœurs, lorsque j’écrivais, il y a si longtemps, que « la voie qui peut être exprimée par des mots n’est … »"
 date: 2026-06-24 16:00:01+00:01
 draft: False
 hidden: True

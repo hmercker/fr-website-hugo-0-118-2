@@ -1,7 +1,7 @@
 ---
 title: "La pauvreté de l'Occident"
 menu_title: ""
-description: "La pauvreté de l'Occident"
+description: "Yogananda, reçu par Jimbeau Walsh : « J’ai écouté les récits des voyages des chères sœurs . Je dois dire que l’on peut ressentir la richesse de l’âme dans … »"
 date: 2022-06-01 06:00:01+00:831
 draft: False
 hidden: True

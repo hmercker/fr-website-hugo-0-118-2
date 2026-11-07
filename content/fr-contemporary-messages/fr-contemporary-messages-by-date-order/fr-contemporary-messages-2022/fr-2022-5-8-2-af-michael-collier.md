@@ -1,7 +1,7 @@
 ---
 title: "Répondre à l’invitation à servir Dieu"
 menu_title: ""
-description: "Répondre à l’invitation à servir Dieu"
+description: "Michael Collier, reçu par Al Fike : « Il y a beaucoup d’âmes qui ont besoin de vos soins. Beaucoup d’âmes qui sont perdues, beaucoup d’âmes confuses. »"
 date: 2022-06-01 06:00:01+00:78
 draft: False
 hidden: True

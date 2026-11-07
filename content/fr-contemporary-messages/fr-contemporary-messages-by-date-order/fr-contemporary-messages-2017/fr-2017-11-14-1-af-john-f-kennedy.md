@@ -1,7 +1,7 @@
 ---
 title: "De grands projets sont en préparation"
 menu_title: ""
-description: "De grands projets sont en préparation"
+description: "John F Kennedy, reçu par Al Fike : « J'ai essayé à ma façon d'apporter un semblant d'ordre à votre monde et je n'étais pas parfait en tant qu'homme mais … »"
 date: 2022-06-01 06:00:01+00:198
 draft: False
 hidden: True

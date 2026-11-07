@@ -1,7 +1,7 @@
 ---
 title: "Attirer vers vous de nombreuses âmes sœurs"
 menu_title: ""
-description: "Attirer vers vous de nombreuses âmes sœurs"
+description: "Augustin, reçu par Al Fike : « C'est votre enseignant Augustin. Ceux dont les âmes sont ouvertes à l'amour, éveillées dans leurs actions, dans la lumière. »"
 date: 2022-06-01 06:00:01+00:267
 draft: False
 hidden: True

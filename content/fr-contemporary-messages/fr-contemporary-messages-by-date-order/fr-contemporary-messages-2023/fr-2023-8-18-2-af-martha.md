@@ -1,7 +1,7 @@
 ---
 title: "La différenciation entre les sexes n’est pas pertinente dans les Cieux Célestes"
 menu_title: ""
-description: "La différenciation entre les sexes n’est pas pertinente dans les Cieux Célestes"
+description: "Marthe, reçu par Albert Fike : « Que Dieu soit avec vous et vous bénisse, âmes bien-aimées. Vous avez demandé que l’un d’entre nous qui vivait sur le plan … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

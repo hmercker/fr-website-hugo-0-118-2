@@ -1,7 +1,7 @@
 ---
 title: "L'amour sera la monnaie de l'humanité"
 menu_title: ""
-description: "L'amour sera la monnaie de l'humanité"
+description: "Augustin, reçu par Albert Fike : « J'étais évêque d'Hippone lorsque je vivais sur Terre. Je tiens à ce que vous sachiez que vous créez une grande lumière … »"
 date: 2026-10-21 06:00:01+00:09
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le chemin vers le Royaume"
 menu_title: ""
-description: "Le chemin vers le Royaume"
+description: "James Reid, reçu par Albert Fike : « J’étais médecin en Australie. Je tiens à vous assurer que le chemin vers ce Royaume, le chemin vers l’ouverture de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

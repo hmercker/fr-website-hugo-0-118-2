@@ -1,7 +1,7 @@
 ---
 title: "Le voyage est court"
 menu_title: ""
-description: "Le voyage est court"
+description: "St Matthieu, reçu par Al Fike : « Le voyage peut sembler long, mes âmes bien-aimées, mais il est court. Pendant le temps que vous partagez ensemble sur le … »"
 date: 2022-06-01 06:00:01+00:208
 draft: False
 hidden: True

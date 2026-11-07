@@ -1,7 +1,7 @@
 ---
 title: "Bénédictions"
 menu_title: ""
-description: "Bénédictions"
+description: "Mylora, reçu par Al Fike : « Vous avez attiré de puissantes énergies de guérison dans votre groupe. Vos préoccupations pour vos frères et sœurs dans le … »"
 date: 2023-09-01 06:00:01+00:10
 draft: False
 hidden: True

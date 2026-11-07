@@ -1,7 +1,7 @@
 ---
 title: "Les dons de l'âme commencent sous forme de bourgeons petits et subtils avant de s'épanouir en de magnifiques fleurs, uniques à chaque individu"
 menu_title: ""
-description: "Les dons de l'âme commencent sous forme de bourgeons petits et subtils avant de s'épanouir en de magnifiques fleurs, uniques à chaque individu"
+description: "Orion, reçu par Albert Fike : « La progression de votre développement, de vos dons spirituels et de vos facultés psychiques — ces choses que vous pouvez … »"
 date: 2026-09-30 06:00:01+00:01
 draft: False
 hidden: True

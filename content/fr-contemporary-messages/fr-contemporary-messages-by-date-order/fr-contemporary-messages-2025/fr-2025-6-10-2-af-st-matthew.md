@@ -1,7 +1,7 @@
 ---
 title: "Une leçon de compassion"
 menu_title: ""
-description: "Une leçon de compassion"
+description: "St Matthieu, reçu par Albert Fike : « Avec l’amour vient la compassion. C’est l’effusion d’amour, cette effusion qui embrasse, accepte et nourrit l’autre … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

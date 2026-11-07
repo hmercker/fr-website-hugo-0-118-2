@@ -1,7 +1,7 @@
 ---
 title: "Soyez ouverts à la guérison"
 menu_title: ""
-description: "Soyez ouverts à la guérison"
+description: "Yogananda, reçu par Jimbeau Walsh : « J’étais présent hier lorsque frère Judas a transmis son message sur le pouvoir de guérison de la lumière et de l’amour. »"
 date: 2022-06-01 06:00:01+00:1225
 draft: False
 hidden: True

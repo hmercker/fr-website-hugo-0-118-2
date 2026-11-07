@@ -1,7 +1,7 @@
 ---
 title: "Les douleurs d'un président par Dwight Eisenhower"
 menu_title: ""
-description: "Les douleurs d'un président par Dwight Eisenhower"
+description: "Dwight Eisenhower, reçu par FAB : « J'ai vu ce qui se passait, et je l'ai dit au peuple américain dans mon discours d'adieu à la nation en 1961. »"
 date: 2022-06-01 06:00:01+00:163
 draft: False
 hidden: True

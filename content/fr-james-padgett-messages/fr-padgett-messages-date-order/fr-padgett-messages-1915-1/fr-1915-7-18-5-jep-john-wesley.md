@@ -1,7 +1,7 @@
 ---
 title: "Confirmation par John Wesley"
 menu_title: ""
-description: "Confirmation par John Wesley"
+description: "John Wesley, reçu par James Padgett : « J’hésite à écrire en même temps que ces grands esprits qui vous ont écrit, mais je veux aussi apporter mon … »"
 date: 2022-06-01 06:00:01+00:139
 draft: False
 hidden: True

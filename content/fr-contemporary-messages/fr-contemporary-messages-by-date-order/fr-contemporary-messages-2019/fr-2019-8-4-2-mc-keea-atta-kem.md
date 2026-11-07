@@ -1,7 +1,7 @@
 ---
 title: "Nourrir cette partie spirituelle de qui vous êtes "
 menu_title: ""
-description: "Nourrir cette partie spirituelle de qui vous êtes "
+description: "Keea Atta Kem, reçu par Maureen Cardoso : « Je me joins à vous depuis les Cieux Célestes. C’est un Amour, ce don d’Amour, qui est le plus haut cadeau … »"
 date: 2022-06-01 06:00:01+00:803
 draft: False
 hidden: True

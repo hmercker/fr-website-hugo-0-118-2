@@ -1,7 +1,7 @@
 ---
 title: "S’épanouir dans la générosité de l’Amour de Dieu"
 menu_title: ""
-description: "S’épanouir dans la générosité de l’Amour de Dieu"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Mes chers frères et sœurs dans l’Amour de Dieu. Je vous demande de considérer comme le maître a demandé à … »"
 date: 2022-06-01 06:00:01+00:55
 draft: False
 hidden: True

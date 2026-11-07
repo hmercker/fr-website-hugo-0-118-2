@@ -1,7 +1,7 @@
 ---
 title: "Tendre l'autre joue"
 menu_title: ""
-description: "Tendre l'autre joue"
+description: "Jésus, reçu par FAB : « Je souhaite faire un commentaire sur mon enseignement, « tendre l'autre joue ». Je l'ai enseigné, et je continue à le faire. »"
 date: 2022-06-01 06:00:01+00:130
 draft: False
 hidden: True

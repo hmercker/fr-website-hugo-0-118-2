@@ -1,7 +1,7 @@
 ---
 title: "Soyez une lumière et ne vous laissez pas emporter par les ténèbres et les troubles du monde"
 menu_title: ""
-description: "Soyez une lumière et ne vous laissez pas emporter par les ténèbres et les troubles du monde"
+description: "Augustin, reçu par Albert Fike : « Le monde a besoin de vous, âmes bien-aimées. Le monde continue de languir dans l’erreur et dans une obscurité pitoyable … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

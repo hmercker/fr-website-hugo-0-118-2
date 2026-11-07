@@ -1,7 +1,7 @@
 ---
 title: "Pour l'Amour de Dieu"
 menu_title: ""
-description: "Pour l'Amour de Dieu"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Souvenez-vous que tout ce que vous faites peut être pour l’Amour de Dieu et si cela est votre guide, vous ne … »"
 date: 2022-06-01 06:00:01+00:1183
 draft: False
 hidden: True

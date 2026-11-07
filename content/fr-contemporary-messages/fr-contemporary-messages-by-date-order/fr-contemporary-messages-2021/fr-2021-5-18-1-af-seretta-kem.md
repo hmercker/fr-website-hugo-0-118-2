@@ -1,7 +1,7 @@
 ---
 title: "Les dons spirituels s'ouvriront avec le développement de l'âme"
 menu_title: ""
-description: "Les dons spirituels s'ouvriront avec le développement de l'âme"
+description: "Seretta Kem, reçu par Al Fike : « Dieu souhaite manifester Ses bénédictions sur cette terre pour le bien de beaucoup de Ses enfants, et il attend avec … »"
 date: 2022-06-01 06:00:01+00:1508
 draft: False
 hidden: True

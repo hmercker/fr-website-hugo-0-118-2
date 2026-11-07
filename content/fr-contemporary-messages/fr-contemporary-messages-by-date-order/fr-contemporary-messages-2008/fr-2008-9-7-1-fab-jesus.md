@@ -1,7 +1,7 @@
 ---
 title: "Bon changement"
 menu_title: ""
-description: "Bon changement"
+description: "Jésus, reçu par FAB : « Le changement viendra lorsque le dysfonctionnement actuel évoluera vers une approche plus positive. »"
 date: 2022-06-01 06:00:01+00:104
 draft: False
 hidden: True

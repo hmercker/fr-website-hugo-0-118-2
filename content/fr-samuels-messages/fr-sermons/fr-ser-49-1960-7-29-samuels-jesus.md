@@ -1,7 +1,7 @@
 ---
 title: "49ème Sermon – Jérémie attaque les maux sociaux en Judée"
 menu_title: ""
-description: "49ème Sermon – Jérémie attaque les maux sociaux en Judée"
+description: "Jésus, reçu par Dr Samuels : « Mais comme je l’ai souligné, une telle défaite ne pouvait pas dissuader Jérémie de son but, puisqu’il savait que Dieu était … »"
 date: 2022-06-01 06:00:01+00:102
 draft: False
 hidden: True

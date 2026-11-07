@@ -1,7 +1,7 @@
 ---
 title: "George Bernard Shaw a trouvé l'Amour Divin"
 menu_title: ""
-description: "George Bernard Shaw a trouvé l'Amour Divin"
+description: "George Bernard Shaw, reçu par FAB : « Quelle est mon expérience ? Je passe un sacré bon moment à regarder ma pièce. »"
 date: 2022-06-01 06:00:01+00:37
 draft: False
 hidden: True

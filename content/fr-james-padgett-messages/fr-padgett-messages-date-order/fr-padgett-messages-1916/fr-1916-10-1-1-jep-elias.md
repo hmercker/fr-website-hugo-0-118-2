@@ -1,7 +1,7 @@
 ---
 title: "Élie sur les temps où il a vécu sur la terre. Il n’a jamais connu l’Amour Divin jusqu’à ce que Jésus vienne sur la terre et fasse connaître son ré-octroi"
 menu_title: ""
-description: "Élie sur les temps où il a vécu sur la terre. Il n’a jamais connu l’Amour Divin jusqu’à ce que Jésus vienne sur la terre et fasse connaître son ré-octroi"
+description: "Élie, reçu par James Padgett : « J’étais présent à plusieurs reprises lorsque les esprits vous ont écrit, et j’ai été très intéressé par le travail qu’ils … »"
 date: 2022-06-01 06:00:01+00:284
 draft: False
 hidden: True

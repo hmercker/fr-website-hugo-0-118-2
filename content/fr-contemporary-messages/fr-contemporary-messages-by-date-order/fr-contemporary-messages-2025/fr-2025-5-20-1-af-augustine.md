@@ -1,7 +1,7 @@
 ---
 title: "Le processus de réception de l'Amour Divin dans vos âmes"
 menu_title: ""
-description: "Le processus de réception de l'Amour Divin dans vos âmes"
+description: "Augustin, reçu par Albert Fike : « Je me demande si vous avez fermement à l’esprit le processus de réception de l’Amour du Père. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

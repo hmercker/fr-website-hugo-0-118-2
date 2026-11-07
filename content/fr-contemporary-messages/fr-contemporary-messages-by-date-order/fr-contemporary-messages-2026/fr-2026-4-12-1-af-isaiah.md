@@ -1,7 +1,7 @@
 ---
 title: "Chacun doit trouver son chemin vers une relation avec Dieu"
 menu_title: ""
-description: "Chacun doit trouver son chemin vers une relation avec Dieu"
+description: "Isaïe, reçu par Al Fike : « Que la grâce de Dieu soit sur vous, âmes bien-aimées. La quête de Dieu dure depuis des millénaires sur cette terre, car Dieu … »"
 date: 2026-05-28 16:00:01+00:01
 draft: False
 hidden: True

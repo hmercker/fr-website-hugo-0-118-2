@@ -1,7 +1,7 @@
 ---
 title: "Ne vous prenez pas trop au sérieux"
 menu_title: ""
-description: "Ne vous prenez pas trop au sérieux"
+description: "Goldie, reçu par Al Fike : « Je vais chuchoter à vos oreilles et vous chatouiller. [Câlins du ventre… pour Jeanne] Je vais chatouiller votre ventre. »"
 date: 2022-06-01 06:00:01+00:158
 draft: False
 hidden: True

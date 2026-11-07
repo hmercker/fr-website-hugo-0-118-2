@@ -1,7 +1,7 @@
 ---
 title: "L'Amour de Dieu apporte la paix"
 menu_title: ""
-description: "L'Amour de Dieu apporte la paix"
+description: "Mahatma Gandhi, reçu par Jimbeau Walsh : « J’ai été très impliqué dans le désir de justice sociale dans mon pays mais pas par la violence. »"
 date: 2022-06-01 06:00:01+00:1166
 draft: False
 hidden: True

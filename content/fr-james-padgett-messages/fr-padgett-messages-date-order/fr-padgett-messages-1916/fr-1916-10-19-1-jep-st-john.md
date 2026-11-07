@@ -1,7 +1,7 @@
 ---
 title: "Jean – Qu’est ce qu’un homme qui n’est satisfait avec aucune église doit faire"
 menu_title: ""
-description: "Jean – Qu’est ce qu’un homme qui n’est satisfait avec aucune église doit faire"
+description: "St Jean, reçu par James Padgett : « J’étais avec vous ce soir et j’ai entendu le prédicateur répondre aux questions, et certaines de ses réponses furent … »"
 date: 2022-06-01 06:00:01+00:300
 draft: False
 hidden: True

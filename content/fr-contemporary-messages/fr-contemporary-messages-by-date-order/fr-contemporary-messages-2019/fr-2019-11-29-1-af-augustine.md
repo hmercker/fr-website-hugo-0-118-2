@@ -1,7 +1,7 @@
 ---
 title: "Les anges du ciel sont à vos côtés"
 menu_title: ""
-description: "Les anges du ciel sont à vos côtés"
+description: "Augustin, reçu par Al Fike : « Dans ce temps passé ensemble, notre espoir est que beaucoup de vos dons puissent être encouragés à s’ouvrir, que vous … »"
 date: 2022-06-01 06:00:01+00:926
 draft: False
 hidden: True

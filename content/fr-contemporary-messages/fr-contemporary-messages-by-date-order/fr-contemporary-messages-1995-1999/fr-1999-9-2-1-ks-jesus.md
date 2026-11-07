@@ -1,7 +1,7 @@
 ---
 title: "Les esprits peuvent ajuster leur apparence pour répondre à l'attente des mortels à qui ils apparaissent"
 menu_title: ""
-description: "Les esprits peuvent ajuster leur apparence pour répondre à l'attente des mortels à qui ils apparaissent"
+description: "Jésus, reçu par Kathryn Stokes : « Cher Créateur, Source de tout amour, je prie pour pouvoir recevoir des paroles de sagesse d'un (ou plusieurs) de Tes … »"
 date: 2022-06-01 06:00:01+00:17
 draft: False
 hidden: True

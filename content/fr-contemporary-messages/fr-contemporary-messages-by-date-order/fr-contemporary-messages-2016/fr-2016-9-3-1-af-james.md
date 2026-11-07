@@ -1,7 +1,7 @@
 ---
 title: "Priez pour l’humanité"
 menu_title: ""
-description: "Priez pour l’humanité"
+description: "Jacques, reçu par Al Fike : « …Il y a mes âmes bien-aimées, une grande privation. Malgré tout le matériel que vous possédez, qui est possédé au sein de ce … »"
 date: 2022-06-01 06:00:01+00:233
 draft: False
 hidden: True

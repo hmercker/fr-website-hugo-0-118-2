@@ -1,7 +1,7 @@
 ---
 title: "Plongez votre âme dans l’Amour Divin"
 menu_title: ""
-description: "Plongez votre âme dans l’Amour Divin"
+description: "Jésus, reçu par Maureen Cardoso : « Mes frères et mes sœurs, je viens. Ouvrez vos âmes et laissez la main de Dieu y pénétrer. »"
 date: 2023-09-15 06:00:01+00:01
 draft: False
 hidden: True

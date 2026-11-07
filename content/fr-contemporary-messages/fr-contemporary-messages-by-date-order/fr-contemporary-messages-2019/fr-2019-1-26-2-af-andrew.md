@@ -1,7 +1,7 @@
 ---
 title: "Tous ont une certaine capacité à communiquer avec les anges"
 menu_title: ""
-description: "Tous ont une certaine capacité à communiquer avec les anges"
+description: "André, reçu par Al Fike : « C’est notre désir que nous puissions nous rapprocher de chacun d’entre vous, âmes bien-aimées, que l’avenue de communication … »"
 date: 2022-06-01 06:00:01+00:614
 draft: False
 hidden: True

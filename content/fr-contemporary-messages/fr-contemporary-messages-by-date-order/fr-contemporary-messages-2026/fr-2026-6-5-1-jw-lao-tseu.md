@@ -1,7 +1,7 @@
 ---
 title: "Les attentes sont spéculatives, la foi est certitude"
 menu_title: ""
-description: "Les attentes sont spéculatives, la foi est certitude "
+description: "Lao Tseu, reçu par Jimbeau Walsh : « J'ai frappé à la porte de ce frère toute la journée et lui ai transmis quelques bribes de ce que je souhaite lui … »"
 date: 2026-06-10 16:00:01+00:01
 draft: False
 hidden: True

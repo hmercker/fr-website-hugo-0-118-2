@@ -1,7 +1,7 @@
 ---
 title: "Jésus rencontre Simon Pierre"
 menu_title: ""
-description: "Jésus rencontre Simon Pierre"
+description: "Judas, reçu par H : « Je vois qu’hier et aujourd’hui tu as attendu un message de Pierre dans lequel il parlerait de sa première rencontre avec Jésus. »"
 date: 2022-06-01 06:00:01+00:22
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Une bataille entre les forces de la lumière et les forces de l’obscurité"
 menu_title: ""
-description: "Une bataille entre les forces de la lumière et les forces de l’obscurité"
+description: "Thomas Jefferson, reçu par FAB : « Je fus le 3ème président des États Unis. Je vois que avez lu le livre « A propos du Conservatisme », vous avez été … »"
 date: 2022-06-01 06:00:01+00:01
 draft: False
 hidden: True

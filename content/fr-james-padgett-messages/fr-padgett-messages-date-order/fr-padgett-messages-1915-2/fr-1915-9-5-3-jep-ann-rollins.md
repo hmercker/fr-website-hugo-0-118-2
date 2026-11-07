@@ -1,7 +1,7 @@
 ---
 title: "Anne Rollins – Le sang de Jésus ne sauve pas du péché"
 menu_title: ""
-description: "Anne Rollins – Le sang de Jésus ne sauve pas du péché"
+description: "Anne Rollins, reçu par James Padgett : « Tu te souviens comment, lorsque j’étais sur terre, j’ai cru à cette doctrine de l’erreur. Comment j’avais … »"
 date: 2022-06-01 06:00:01+00:233
 draft: False
 hidden: True

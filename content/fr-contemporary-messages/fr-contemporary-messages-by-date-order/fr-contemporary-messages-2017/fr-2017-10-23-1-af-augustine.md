@@ -1,7 +1,7 @@
 ---
 title: "Libérer le contrôle de l'esprit"
 menu_title: ""
-description: "Libérer le contrôle de l'esprit"
+description: "Augustin, reçu par Al Fike : « Je vois que notre amie Seretta Kem a été plutôt ferme avec vous, mes amis. C'est généralement ma responsabilité, de vous … »"
 date: 2022-06-01 06:00:01+00:160
 draft: False
 hidden: True

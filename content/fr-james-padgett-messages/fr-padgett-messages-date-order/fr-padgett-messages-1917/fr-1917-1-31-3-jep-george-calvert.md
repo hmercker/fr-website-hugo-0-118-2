@@ -1,7 +1,7 @@
 ---
 title: "Calvert, une connaissance de l’école d'avocats demande l’aide de M. Padgett"
 menu_title: ""
-description: "Calvert, une connaissance de l’école d'avocats demande l’aide de M. Padgett"
+description: "George Calvert, reçu par James Padgett : « J’étais une de vos connaissances alors que vous étiez étudiant à New Market, et vous vous souviendrez de moi … »"
 draft: False
 hidden: True
 weight:

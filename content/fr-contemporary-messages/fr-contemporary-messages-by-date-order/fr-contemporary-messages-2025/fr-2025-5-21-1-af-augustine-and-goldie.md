@@ -1,7 +1,7 @@
 ---
 title: "Conseils au conseil d'administration de la DLSF"
 menu_title: ""
-description: "Conseils au conseil d'administration de la DLSF"
+description: "Augustin et Goldie, reçu par Albert Fike : « Augustin : C’est votre enseignant, Augustin. Puissiez-vous poursuivre ce service, en sachant que chaque pas … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

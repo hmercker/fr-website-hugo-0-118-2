@@ -1,7 +1,7 @@
 ---
 title: "Jésus et le Talmud"
 menu_title: ""
-description: "Jésus et le Talmud"
+description: "Jésus, reçu par FAB : « Je vais maintenant transmettre une série de messages reflétant ma relation avec le Talmud Juif. »"
 date: 2022-06-01 06:00:01+00:46
 draft: False
 hidden: True

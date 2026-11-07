@@ -1,7 +1,7 @@
 ---
 title: "La voie vers le réveil"
 menu_title: ""
-description: "La voie vers le réveil"
+description: "Louis XIV, reçu par Albert Fike : « Vous m’avez vu et reconnu plus tôt dans la journée. Comme vous le savez, j'ai vécu une vie très décadente sur Terre … »"
 date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True

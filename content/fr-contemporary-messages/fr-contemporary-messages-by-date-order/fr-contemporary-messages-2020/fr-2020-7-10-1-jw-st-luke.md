@@ -1,7 +1,7 @@
 ---
 title: "Laissez l'Amour vous guider"
 menu_title: ""
-description: "Laissez l'Amour vous guider"
+description: "St Luc, reçu par Jimbeau Walsh : « Dieu vous a tous donné une âme, un cœur et un esprit. L’esprit est un merveilleux organe de discrimination. »"
 date: 2022-06-01 06:00:01+00:1182
 draft: False
 hidden: True

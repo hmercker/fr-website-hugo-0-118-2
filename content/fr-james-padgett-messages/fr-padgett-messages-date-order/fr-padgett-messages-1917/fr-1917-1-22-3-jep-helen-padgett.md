@@ -1,7 +1,7 @@
 ---
 title: "Hélène commente le message de l’ancien Grec"
 menu_title: ""
-description: "Hélène commente le message de l’ancien Grec"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, tu as reçu ce soir une lettre tout à fait remarquable de l’esprit Grec, et elle contient des … »"
 date: 2022-06-01 06:00:01+00:32
 draft: False
 hidden: True

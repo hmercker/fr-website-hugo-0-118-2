@@ -1,7 +1,7 @@
 ---
 title: "M. Colburn doit aussi le croire"
 menu_title: ""
-description: "M. Colburn doit aussi le croire"
+description: "Hélène Padgett, reçu par James Padgett : « Tu es mon seul amour et c’est mon cher privilège de t’avoir pour moi. Sois moi fidèle et tu seras heureux. »"
 date: 2022-06-01 06:00:01+00:07
 draft: False
 hidden: True

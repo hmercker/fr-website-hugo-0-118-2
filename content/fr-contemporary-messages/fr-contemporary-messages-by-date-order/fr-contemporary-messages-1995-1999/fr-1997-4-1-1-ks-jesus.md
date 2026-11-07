@@ -1,7 +1,7 @@
 ---
 title: "Quelques réponses à des questions personnelles, ainsi que quelques perles de sagesse..."
 menu_title: ""
-description: "Quelques réponses à des questions personnelles, ainsi que quelques perles de sagesse..."
+description: "Jésus, reçu par Kathryn Stokes : « aimerait savoir s'il y a quelque chose en particulier qu'elle devrait faire ? aimerait avoir des mots d'encouragement. … »"
 date: 2022-06-01 06:00:01+00:08
 draft: False
 hidden: True

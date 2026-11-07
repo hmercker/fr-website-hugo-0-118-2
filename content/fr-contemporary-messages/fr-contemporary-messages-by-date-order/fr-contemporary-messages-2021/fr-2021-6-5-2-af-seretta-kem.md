@@ -1,7 +1,7 @@
 ---
 title: "Démarrage et engagement des anges"
 menu_title: ""
-description: "Démarrage et engagement des anges"
+description: "Seretta Kem, reçu par Al Fike : « Et ainsi, nous commençons une nouvelle aventure, une extension d’anciennes aventures afin que nous puissions multiplier … »"
 date: 2022-06-01 06:00:01+00:1531
 draft: False
 hidden: True

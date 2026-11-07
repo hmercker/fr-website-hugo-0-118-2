@@ -1,7 +1,7 @@
 ---
 title: "L’écrivain exprime sa gratitude envers M. Padgett"
 menu_title: ""
-description: "L’écrivain exprime sa gratitude envers M. Padgett"
+description: "Grover Cleveland, reçu par James Padgett : « Laissez-moi exprimer également quelques propos. Par conséquent, vous devez savoir que je vous suis très … »"
 date: 2022-06-01 06:00:01+00:103
 draft: False
 hidden: True

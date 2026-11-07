@@ -1,7 +1,7 @@
 ---
 title: "Éléments utilisés dans la guérison"
 menu_title: ""
-description: "Éléments utilisés dans la guérison"
+description: "La Joya, reçu par Maureen Cardoso : « Que la bénédiction de la grande Essence de Dieu coule dans vos âmes et vous remplisse profondément en vous rendant … »"
 date: 2022-06-01 06:00:01+00:1273
 draft: False
 hidden: True

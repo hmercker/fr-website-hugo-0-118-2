@@ -1,7 +1,7 @@
 ---
 title: "Suivre ce chemin, c’est marcher dans la véritable Vie"
 menu_title: ""
-description: "Suivre ce chemin, c’est marcher dans la véritable Vie"
+description: "André, reçu par Albert Fike : « Le don de la vie vous est offert à tous, mes enfants, pour que vous viviez dans ce monde et honoriez ce don avec amour et … »"
 date: 2026-10-21 06:00:01+00:09
 draft: False
 hidden: True

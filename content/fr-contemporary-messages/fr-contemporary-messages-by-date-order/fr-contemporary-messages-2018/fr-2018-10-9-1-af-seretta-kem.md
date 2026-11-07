@@ -1,7 +1,7 @@
 ---
 title: "L'intégration du mental matériel au mental de l'âme"
 menu_title: ""
-description: "L'intégration du mental matériel au mental de l'âme"
+description: "Seretta Kem, reçu par Al Fike : « La transformation de l’âme ne se limite pas à des changements dans la structure de l’âme. Cette transformation commence … »"
 date: 2022-06-01 06:00:01+00:506
 draft: False
 hidden: True

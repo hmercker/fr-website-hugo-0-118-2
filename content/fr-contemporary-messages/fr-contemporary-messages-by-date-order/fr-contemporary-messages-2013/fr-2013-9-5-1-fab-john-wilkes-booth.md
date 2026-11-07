@@ -1,7 +1,7 @@
 ---
 title: "Comprendre un fanatique"
 menu_title: ""
-description: "Comprendre un fanatique"
+description: "John Wilkes Booth, reçu par FAB : « Dans ma canalisation du 31 Décembre 2005, j’ai dit que le fait d’avoir été chassé comme fugitif, cela m’a fait changer. »"
 date: 2022-06-01 06:00:01+00:71
 draft: False
 hidden: True

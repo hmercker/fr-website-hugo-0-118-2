@@ -1,7 +1,7 @@
 ---
 title: "Annonce de sa supervision des projets de Gestion des Messages pour la diffusion des Vérités de l'Amour Divin"
 menu_title: ""
-description: "Annonce de sa supervision des projets de Gestion des Messages pour la diffusion des Vérités de l'Amour Divin"
+description: "Jean Bpatiste, reçu par Elizabeth Mack : « Cette mission est essentielle. Vous avez transcendé vos pensées et laissé l’amour et la guidance vous traverser. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

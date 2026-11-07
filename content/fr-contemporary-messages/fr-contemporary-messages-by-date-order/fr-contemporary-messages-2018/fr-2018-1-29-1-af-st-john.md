@@ -1,7 +1,7 @@
 ---
 title: "L'Amour de Dieu réveille les dons de l'âme"
 menu_title: ""
-description: "L'Amour de Dieu réveille les dons de l'âme"
+description: "St Jean, reçu par Al Fike : « À l’intérieur, il y a de nombreux aspects de votre expression, des complexités de vos esprits à l’émerveillement de vos … »"
 date: 2022-06-01 06:00:01+00:311
 draft: False
 hidden: True

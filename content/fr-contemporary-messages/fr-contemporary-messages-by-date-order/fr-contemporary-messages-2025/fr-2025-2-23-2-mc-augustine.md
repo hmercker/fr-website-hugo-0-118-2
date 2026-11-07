@@ -1,7 +1,7 @@
 ---
 title: "Le Concept du Temps : Dans la Réalité de l'Âme, le Temps n'existe pas"
 menu_title: ""
-description: "Le Concept du Temps : Dans la Réalité de l'Âme, le Temps n'existe pas"
+description: "Augustin, reçu par Maureen Cardoso : « C'est votre maître, Augustin. Vous vous demandez peut-être si vous avez suffisamment de temps pour accomplir votre … »"
 date: 2026-05-21 06:00:01+00:01
 draft: False
 hidden: True

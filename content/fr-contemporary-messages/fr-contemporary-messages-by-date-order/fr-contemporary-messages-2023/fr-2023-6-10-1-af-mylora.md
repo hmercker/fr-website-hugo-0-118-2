@@ -1,7 +1,7 @@
 ---
 title: "La Terre vous remercie"
 menu_title: ""
-description: "La Terre vous remercie"
+description: "Mylora, reçu par Al Fike : « La Terre vous remercie pour vos intentions et vos prières. Comme vous cherchez la lumière et que vous cherchez à ce que Dieu … »"
 date: 2023-09-01 06:00:01+00:37
 draft: False
 hidden: True

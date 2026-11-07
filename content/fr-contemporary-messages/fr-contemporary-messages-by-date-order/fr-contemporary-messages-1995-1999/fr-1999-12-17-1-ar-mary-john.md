@@ -1,7 +1,7 @@
 ---
 title: "Message d’encouragement"
 menu_title: ""
-description: "Message d’encouragement"
+description: "Marie & Jean, reçu par Amada Reza : « Je prie pour être protégé de toute influence d’esprit inférieur qui pourrait vouloir faire du mal, et j’ai foi en la … »"
 date: 2022-06-01 06:00:01+00:38
 draft: False
 hidden: True

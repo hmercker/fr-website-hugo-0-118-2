@@ -1,7 +1,7 @@
 ---
 title: "Recherchez l'alignement avec l'âme divine pour trouver une plus grande harmonie et une plus grande joie"
 menu_title: ""
-description: "Recherchez l'alignement avec l'âme divine pour trouver une plus grande harmonie et une plus grande joie"
+description: "Orion, reçu par Albert Fike : « L'humanité est une force créatrice sur votre monde. En effet, la puissance de la créativité et de l'action humaines a … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

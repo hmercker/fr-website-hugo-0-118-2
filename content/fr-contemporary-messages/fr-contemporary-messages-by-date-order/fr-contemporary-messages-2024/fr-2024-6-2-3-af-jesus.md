@@ -1,7 +1,7 @@
 ---
 title: "Affirme et rend hommage au travail d'Orion sur Terre"
 menu_title: ""
-description: "Affirme et rend hommage au travail d'Orion sur Terre"
+description: "Jésus, reçu par Albert Fike : « Comme vous l’avez constaté, de grandes forces existent dans l’univers de lumière. De grands efforts sont déployés pour … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

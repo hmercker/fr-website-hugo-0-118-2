@@ -1,7 +1,7 @@
 ---
 title: "Découvrez toutes les magnifiques fleurs qui éclosent de votre âme"
 menu_title: ""
-description: "Découvrez toutes les magnifiques fleurs qui éclosent de votre âme"
+description: "Goldie, reçu par Al Fike : « Ne voyez-vous pas toute cette vie nouvelle qui jaillit du sol ? Ne pouvez-vous pas faire le lien avec votre propre âme, où … »"
 date: 2026-10-24 06:00:01+00:01
 draft: False
 hidden: True

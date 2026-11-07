@@ -1,7 +1,7 @@
 ---
 title: "Nuage blanc, eau de Crystal"
 menu_title: ""
-description: "Nuage blanc, eau de Crystal"
+description: "Nuage blanc et eau de Crystal : « J'éprouve quelques difficultés à utiliser cet instrument, alors je vais faire de mon mieux, mes amis. »"
 date: 2022-06-01 06:00:01+00:76
 draft: False
 hidden: True

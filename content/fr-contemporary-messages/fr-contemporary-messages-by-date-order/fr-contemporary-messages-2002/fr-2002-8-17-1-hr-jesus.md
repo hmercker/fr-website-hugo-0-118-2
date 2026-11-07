@@ -1,7 +1,7 @@
 ---
 title: "L’année en réflexion, et la valeur de la simplicité"
 menu_title: ""
-description: "L’année en réflexion, et la valeur de la simplicité"
+description: "Jésus, reçu par H : « Une année s’est écoulée depuis que je t’ai écrit pour la première fois. Un an – une période assez longue dans la vie physique de … »"
 date: 2022-06-01 06:00:01+00:85
 draft: False
 hidden: True

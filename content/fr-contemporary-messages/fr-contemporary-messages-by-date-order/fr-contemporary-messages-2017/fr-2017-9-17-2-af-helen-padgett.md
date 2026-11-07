@@ -1,7 +1,7 @@
 ---
 title: "Ceux qui servent dans l'amour feront des percées dans le monde"
 menu_title: ""
-description: "Ceux qui servent dans l'amour feront des percées dans le monde"
+description: "Helen Padgett, reçu par Al Fike : « Je continue à servir beaucoup de personnes dans ce monde qui poursuivent la Vérité de l'Amour de Dieu. »"
 date: 2022-06-01 06:00:01+00:104
 draft: False
 hidden: True

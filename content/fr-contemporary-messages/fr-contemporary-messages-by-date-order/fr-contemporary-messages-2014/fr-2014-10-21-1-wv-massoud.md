@@ -1,7 +1,7 @@
 ---
 title: "Ne prenez pas les choses personnellement"
 menu_title: ""
-description: "Ne prenez pas les choses personnellement"
+description: "Massoud, reçu par WV : « C’est la première fois que je m’adresse à vous. Je sais que ce monde n’est pas l’endroit le plus spirituel de l’univers. »"
 date: 2022-06-01 06:00:01+00:111
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Connaître la vérité par l’éveil des facultés de votre âme"
 menu_title: ""
-description: "Connaître la vérité par l’éveil des facultés de votre âme"
+description: "James, reçu par Al Fike : « Pour être avec les oiseaux, les arbres et l’herbe verte, surtout lorsque vous vous sentez bouleversés et contrariés, allez sur … »"
 date: 2026-10-24 06:00:01+00:01
 draft: False
 hidden: True

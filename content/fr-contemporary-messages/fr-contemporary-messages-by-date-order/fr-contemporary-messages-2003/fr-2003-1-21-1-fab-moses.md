@@ -1,7 +1,7 @@
 ---
 title: "Les premières années de Moîse"
 menu_title: ""
-description: "Les premières années de Moîse"
+description: "Moïse, reçu par FAB : « Pour commencer, l’histoire de la Torah concernant ma naissance et mon enfance est tout à fait vraie. »"
 date: 2022-06-01 06:00:01+00:12
 draft: False
 hidden: True

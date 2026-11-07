@@ -1,7 +1,7 @@
 ---
 title: "Hélène Padgett écrit que le Maître est souvent avec M. Padgett et prie même la nuit avec lui"
 menu_title: ""
-description: "Hélène Padgett écrit que le Maître est souvent avec M. Padgett et prie même la nuit avec lui"
+description: "Hélène Padgett, reçu par James Padgett : « Les esprits qui ont écrit étaient si impatients de le faire et surtout Marie, et j’ai pensé qu’il était … »"
 date: 2022-06-01 06:00:01+00:105
 draft: False
 hidden: True

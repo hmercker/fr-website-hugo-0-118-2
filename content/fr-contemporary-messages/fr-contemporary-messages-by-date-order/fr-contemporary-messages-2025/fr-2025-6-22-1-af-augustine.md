@@ -1,7 +1,7 @@
 ---
 title: "La vérité de l'Amour de Dieu transcende toutes les barrières de langue et de culture"
 menu_title: ""
-description: "La vérité de l'Amour de Dieu transcende toutes les barrières de langue et de culture"
+description: "Augustin, reçu par Albert Fike : « La vérité de l’amour de Dieu transcende toutes les barrières de culture, de langue et de situation dans votre monde. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

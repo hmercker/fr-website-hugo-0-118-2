@@ -1,7 +1,7 @@
 ---
 title: "Sois Mon Amour pour changer le monde"
 menu_title: ""
-description: "Sois Mon Amour pour changer le monde"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Cherche-moi dans ton cœur et tu Me trouveras. Laisse Mon Amour rayonner sur toi. »"
 date: 2022-06-01 06:00:01+00:53
 draft: False
 hidden: True

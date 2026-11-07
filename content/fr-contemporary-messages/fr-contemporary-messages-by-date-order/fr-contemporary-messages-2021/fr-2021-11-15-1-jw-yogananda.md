@@ -1,7 +1,7 @@
 ---
 title: "Le voyage du cœur est véritablement le voyage de l’âme"
 menu_title: ""
-description: "Le voyage du cœur est véritablement le voyage de l’âme"
+description: "Yogananda, reçu par Jimbeau Walsh : « Lorsque le cœur est affligé, la porte de l’âme est fermée. Ceux qui ont souffert d’abus ou qui ont été amenés à se … »"
 date: 2022-06-01 06:00:01+00:1716
 draft: False
 hidden: True

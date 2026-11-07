@@ -1,7 +1,7 @@
 ---
 title: "Vos efforts seront alignés sur la Volonté de Dieu"
 menu_title: ""
-description: "Vos efforts seront alignés sur la Volonté de Dieu"
+description: "Professeur Salyards, reçu par Al Fike : « Si c’est ce que vous souhaitez, alors bien sûr, nous, dans le royaume céleste, sommes heureux de vous … »"
 date: 2022-06-01 06:00:01+00:1322
 draft: False
 hidden: True

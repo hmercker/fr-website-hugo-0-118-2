@@ -1,7 +1,7 @@
 ---
 title: "Parle clairement de la progression du groupe"
 menu_title: ""
-description: "Parle clairement de la progression du groupe"
+description: "Alec Gaunt, reçu par Albert Fike : « Je souhaite parler de la progression de ce groupe, des défis et des conditions que vous apportez dans ce Cercle de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

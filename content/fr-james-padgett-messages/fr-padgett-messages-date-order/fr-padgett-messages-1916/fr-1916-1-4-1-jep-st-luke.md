@@ -1,7 +1,7 @@
 ---
 title: "Luc sur l’expiation, 2ème partie"
 menu_title: ""
-description: "Luc sur l’expiation, 2ème partie"
+description: "St Luc, reçu par James Padgett : « Je souhaite continuer mon discours sur l’expiation. Comme je disais, à moins qu’un homme soit en harmonie avec Dieu … »"
 date: 2022-06-01 06:00:01+00:114
 draft: False
 hidden: True

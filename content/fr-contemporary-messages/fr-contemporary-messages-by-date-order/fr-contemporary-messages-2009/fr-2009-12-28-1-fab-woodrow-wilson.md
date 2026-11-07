@@ -1,7 +1,7 @@
 ---
 title: "Le point de vue d'un président"
 menu_title: ""
-description: "Le point de vue d'un président"
+description: "Woodrow Wilson, reçu par FAB : « Vous êtes en train de lire que j'ai favorisé le contrôle par les banques, et que j'ai une approche moins qu'idéaliste de … »"
 date: 2022-06-01 06:00:01+00:103
 draft: False
 hidden: True

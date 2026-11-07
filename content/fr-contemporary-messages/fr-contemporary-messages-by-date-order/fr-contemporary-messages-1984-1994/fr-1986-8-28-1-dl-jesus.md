@@ -1,7 +1,7 @@
 ---
 title: "Né sans péché"
 menu_title: ""
-description: "Né sans péché"
+description: "Jésus, reçu par Révérend Dave Lampron : « En ce qui concerne le sujet de ma naissance sans péché, je sais que c’est un sujet qui a été confus pour beaucoup. »"
 date: 2022-06-01 06:00:01+00:10
 draft: False
 hidden: True

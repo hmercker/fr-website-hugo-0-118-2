@@ -1,7 +1,7 @@
 ---
 title: "Jésus et le baptême par l’eau"
 menu_title: ""
-description: "Jésus et le baptême par l’eau"
+description: "Judas, reçu par H : « Mon cher frère, j’ai dit que je parlerais de quelques événements importants en l’année 26, et j’ai mentionné les changements … »"
 date: 2022-06-01 06:00:01+00:40
 draft: False
 hidden: True

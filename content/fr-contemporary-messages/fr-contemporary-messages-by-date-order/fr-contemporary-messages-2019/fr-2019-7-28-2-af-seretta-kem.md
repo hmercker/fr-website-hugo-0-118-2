@@ -1,7 +1,7 @@
 ---
 title: "Chacun de vous a de nombreux dons"
 menu_title: ""
-description: "Chacun de vous a de nombreux dons"
+description: "Seretta Kem, reçu par Al Fike : « En effet, c’est une préoccupation des mortels de connaître ce qui peut se manifester à travers eux, quels dons ils … »"
 date: 2022-06-01 06:00:01+00:796
 draft: False
 hidden: True

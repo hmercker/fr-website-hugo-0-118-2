@@ -1,7 +1,7 @@
 ---
 title: "L’Etat de Grâce"
 menu_title: ""
-description: "L’Etat de Grâce"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Je m’avance car je souhaite vous féliciter, chers frères. Vous êtes dans mon groupe. »"
 date: 2022-06-01 06:00:01+00:1477
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le pouvoir de la foi pour guérir"
 menu_title: ""
-description: "Le pouvoir de la foi pour guérir"
+description: "Dr Gordon Leonard, reçu par Al Fike : « Je m’appelle Dr Gordon Leonard. Je continue à travailler avec de nombreuses personnes sur la Terre, car j’étais un … »"
 date: 2022-06-01 06:00:01+00:1739
 draft: False
 hidden: True

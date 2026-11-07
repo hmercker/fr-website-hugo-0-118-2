@@ -1,7 +1,7 @@
 ---
 title: "Les changements sont des bénédictions"
 menu_title: ""
-description: "Les changements sont des bénédictions"
+description: "St Pierre, reçu par CC : « Parfois, on a l’impression que Dieu ne joue aucun rôle dans votre vie, vos plans, vos objectifs et vos rêves, mais Il le fait. »"
 date: 2022-06-01 06:00:01+00:58
 draft: False
 hidden: True

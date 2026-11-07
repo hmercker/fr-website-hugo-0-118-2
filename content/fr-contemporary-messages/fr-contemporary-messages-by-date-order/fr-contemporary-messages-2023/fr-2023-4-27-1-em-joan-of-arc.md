@@ -1,7 +1,7 @@
 ---
 title: "L’Amour de Dieu est expansif"
 menu_title: ""
-description: "L’Amour de Dieu est expansif"
+description: "Jeanne d'Arc, reçu par Elizabeth Mack : « Je passe du temps avec vous, vous bénissant tout au long de vos journées. Vous devez savoir et avoir confiance … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

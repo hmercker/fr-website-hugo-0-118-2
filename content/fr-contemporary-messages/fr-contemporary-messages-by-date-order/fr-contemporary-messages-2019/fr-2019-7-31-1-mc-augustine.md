@@ -1,7 +1,7 @@
 ---
 title: "Partagez l'expérience de votre âme et de votre cœur lorsque vous enseignez l'Amour Divin"
 menu_title: ""
-description: "Partagez l'expérience de votre âme et de votre cœur lorsque vous enseignez l'Amour Divin"
+description: "Augustin, reçu par Maureen Cardoso : « Lorsque les âmes se rassemblent en Cercle, se réunissant pour faire l’expérience de ce que c’est que de recevoir … »"
 date: 2022-06-01 06:00:01+00:800
 draft: False
 hidden: True

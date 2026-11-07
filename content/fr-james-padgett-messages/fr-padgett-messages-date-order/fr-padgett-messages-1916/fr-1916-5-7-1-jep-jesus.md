@@ -1,7 +1,7 @@
 ---
 title: "Jésus conseille M. Padgett d’emmener sa fille à une séance (de spiritualisme) pour lui prouver qu’il y a une vérité dans le spiritualisme"
 menu_title: ""
-description: "Jésus conseille M. Padgett d’emmener sa fille à une séance (de spiritualisme) pour lui prouver qu’il y a une vérité dans le spiritualisme"
+description: "Jésus, reçu par James Padgett : « Ce soir, vous êtes en très bonne condition, je voulais écrire, mais il est un peu tard pour commencer, car cela prendra … »"
 date: 2022-06-01 06:00:01+00:221
 draft: False
 hidden: True

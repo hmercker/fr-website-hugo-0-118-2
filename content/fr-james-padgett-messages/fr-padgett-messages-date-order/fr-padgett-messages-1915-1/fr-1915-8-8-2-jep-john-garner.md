@@ -1,7 +1,7 @@
 ---
 title: "Tout trace de péché et d’erreur sera finalement supprimée des âmes des hommes"
 menu_title: ""
-description: "Tout trace de péché et d’erreur sera finalement supprimée des âmes des hommes"
+description: "John Garner, reçu par James Padgett : « Même le plus grand pécheur sera l’objet de Son attention et Amour. Dieu ne demande aucune expiation ou sacrifice … »"
 date: 2022-06-01 06:00:01+00:179
 draft: False
 hidden: True

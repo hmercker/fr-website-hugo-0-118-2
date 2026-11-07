@@ -1,7 +1,7 @@
 ---
 title: "Un aperçu de l'éternité"
 menu_title: ""
-description: "Un aperçu de l'éternité"
+description: "Yogananda, reçu par Jimbeau Walsh : « Dans cette période de temps, dans ce ralentissement, où tant de gens sont libérés des problèmes de la vie … »"
 date: 2022-06-01 06:00:01+00:1042
 draft: False
 hidden: True

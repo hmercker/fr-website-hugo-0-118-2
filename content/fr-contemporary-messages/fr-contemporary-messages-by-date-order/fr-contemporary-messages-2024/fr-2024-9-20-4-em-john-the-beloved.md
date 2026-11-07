@@ -1,7 +1,7 @@
 ---
 title: "La Source de Tout Amour et de Toute Lumière"
 menu_title: ""
-description: "La Source de Tout Amour et de Toute Lumière"
+description: "Jean le Bien Aimé, reçu par Elizabeth Mack : « Nous vous souhaitons la bienvenue dans ce Cercle d’Amour et de Lumière et nous vous encourageons à vous … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

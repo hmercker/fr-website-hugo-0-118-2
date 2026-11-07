@@ -1,7 +1,7 @@
 ---
 title: "L'importance de la beauté dans vos vies"
 menu_title: ""
-description: "L'importance de la beauté dans vos vies"
+description: "St François d'Assise, reçu par Al Fike : « Vous admirez le beau jardin de cet instrument, l’expression de son âme et de son esprit comme une consécration … »"
 date: 2022-06-01 06:00:01+00:785
 draft: False
 hidden: True

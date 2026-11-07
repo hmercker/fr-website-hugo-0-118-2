@@ -1,7 +1,7 @@
 ---
 title: "L'idéalisme d'un Président Américain"
 menu_title: ""
-description: "L'idéalisme d'un Président Américain"
+description: "Woodrow Wilson, reçu par FAB : « Eh bien, ces années ont apporté beaucoup de joie et de promesses, ainsi que de l'amertume et de la défaite. »"
 date: 2022-06-01 06:00:01+00:74
 draft: False
 hidden: True

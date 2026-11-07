@@ -1,7 +1,7 @@
 ---
 title: "Invitez-vous dans votre âme"
 menu_title: ""
-description: "Invitez-vous dans votre âme"
+description: "Marie & Jean, reçu par Amada Reza : « Cela fait un certain temps que nous n’avons pas saisi cette occasion, et je tiens à vous remercier d’avoir accepté … »"
 date: 2022-06-01 06:00:01+00:19
 draft: False
 hidden: True

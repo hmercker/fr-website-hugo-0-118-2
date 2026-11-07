@@ -1,7 +1,7 @@
 ---
 title: "Amour Magnifique"
 menu_title: ""
-description: "Amour Magnifique"
+description: "Orion, reçu par Al Fike : « … nos âmes, en effet, c’est ce qu’il faut. Pas une seule fois je ne vous ai pas rejoint et ait été avec vous comme le sont de … »"
 date: 2023-09-01 06:00:01+00:22
 draft: False
 hidden: True

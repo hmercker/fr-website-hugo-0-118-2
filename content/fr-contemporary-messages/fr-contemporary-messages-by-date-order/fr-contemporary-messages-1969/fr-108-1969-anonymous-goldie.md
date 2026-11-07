@@ -1,7 +1,7 @@
 ---
 title: "Une mission spéciale de Dieu"
 menu_title: ""
-description: "Une mission spéciale de Dieu"
+description: "Goldie : « Alec, j'ai travaillé avec toi pendant tant d'années pour réaliser ce projet et mon amour pour toi est très fort et je désire toujours voir ce … »"
 date: 2022-06-01 06:00:01+00:73
 draft: False
 hidden: True

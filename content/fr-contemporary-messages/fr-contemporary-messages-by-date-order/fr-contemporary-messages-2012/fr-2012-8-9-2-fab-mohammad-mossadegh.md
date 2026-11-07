@@ -1,7 +1,7 @@
 ---
 title: "Pensées d’un Leader Iranien"
 menu_title: ""
-description: "Pensées d’un Leader Iranien"
+description: "Mohammad Mossadegh, reçu par FAB : « Vous ne devez pas être étonné que je vienne vers vous, en ce bel après-midi, parce que vous m’avez attiré en prenant … »"
 date: 2022-06-01 06:00:01+00:283
 draft: False
 hidden: True

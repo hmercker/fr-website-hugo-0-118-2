@@ -1,7 +1,7 @@
 ---
 title: "Ouvrir les tombeaux de Dieu"
 menu_title: ""
-description: "Ouvrir les tombeaux de Dieu"
+description: "Simon Pierre, reçu par reçu par Jimbeau Walsh : « En observant le monde et en contemplant les édifices créés comme lieux de culte et leur beauté, on … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Magnétisme Spirituel"
 menu_title: ""
-description: "Magnétisme Spirituel"
+description: "Yogananda, reçu par Jimbeau Walsh : « J’ai dit, sur terre comme dans le monde spirituel, et je le répète : le but de la vie est de trouver Dieu, et … »"
 date: 2026-01-21 06:00:01+00:01
 draft: False
 hidden: True

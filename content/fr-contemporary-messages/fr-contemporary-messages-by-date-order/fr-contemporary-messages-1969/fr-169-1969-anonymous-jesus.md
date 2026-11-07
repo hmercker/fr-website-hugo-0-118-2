@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes tous unis dans cette œuvre merveilleuse"
 menu_title: ""
-description: "Nous sommes tous unis dans cette œuvre merveilleuse"
+description: "Jésus : « Père, protège ces enfants afin que dans les jours à venir, ils puissent aller de l'avant en sachant qu'ils sont protégés et forts dans leur but … »"
 date: 2022-06-01 06:00:01+00:106
 draft: False
 hidden: True

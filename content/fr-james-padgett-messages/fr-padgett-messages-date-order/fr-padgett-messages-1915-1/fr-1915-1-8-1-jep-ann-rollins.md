@@ -1,7 +1,7 @@
 ---
 title: "Anne Rollins parle des erreurs dans le livre qu’il lisait au sujet des enfers"
 menu_title: ""
-description: "Anne Rollins parle des erreurs dans le livre qu’il lisait au sujet des enfers"
+description: "Anne Rollins, reçu par James Padgett : « Le livre que tu as lu n’est pas correct, car il n’y a pas d’enfer tel que celui décrit, où les mortels, après … »"
 date: 2022-06-01 06:00:01+00:05
 draft: False
 hidden: True

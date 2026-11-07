@@ -1,7 +1,7 @@
 ---
 title: "Ouvrez-vous en permettant à la vérité de pénétrer en vous"
 menu_title: ""
-description: "Ouvrez-vous en permettant à la vérité de pénétrer en vous"
+description: "Yogananda, reçu par Al Fike : « Bénédictions à vous autres voyageurs sur ce Chemin Divin. Alors que les vagues de l’Amour de Dieu déferlent sur les … »"
 date: 2022-06-01 06:00:01+00:1071
 draft: False
 hidden: True

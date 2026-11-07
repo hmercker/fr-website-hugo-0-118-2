@@ -1,7 +1,7 @@
 ---
 title: "Est heureuse de l’aide apportée à son frère, Leslie R. Stone, par le Dr Campbell"
 menu_title: ""
-description: "Est heureuse de l’aide apportée à son frère, Leslie R. Stone, par le Dr Campbell"
+description: "Kate Stone, reçu par James Padgett : « Il sera peut-être quelque peu surpris d’apprendre que j’ai été présente avec le Dr Campbell alors qu’il observait … »"
 date: 2022-06-01 06:00:01+00:27
 draft: False
 hidden: True

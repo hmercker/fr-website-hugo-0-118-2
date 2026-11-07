@@ -1,7 +1,7 @@
 ---
 title: "Aller au-delà de la conscience mentale et spirituelle jusqu'à l'âme"
 menu_title: ""
-description: "Aller au-delà de la conscience mentale et spirituelle jusqu'à l'âme"
+description: "Flavius Josèphe, reçu par Albert Fike : « En effet, vous priez pour le grand don de l’Amour de Dieu. Cette prière est exaucée à chaque désir. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

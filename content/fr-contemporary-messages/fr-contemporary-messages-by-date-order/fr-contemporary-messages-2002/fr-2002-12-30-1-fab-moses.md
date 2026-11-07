@@ -1,7 +1,7 @@
 ---
 title: "Moïse partage ses expériences"
 menu_title: ""
-description: "Moïse partage ses expériences"
+description: "Moïse, reçu par FAB : « Lorsque j’étais sur terre, j’avais une passion ardente pour servir mon Dieu, qui était pour moi l’Être suprême, au-dessus de tous … »"
 date: 2022-06-01 06:00:01+00:101
 draft: False
 hidden: True

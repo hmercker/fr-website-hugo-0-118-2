@@ -1,7 +1,7 @@
 ---
 title: "Bismarck, un ancien homme d’État, blâme l’Angleterre pour les conditions économiques en Allemagne qui les ont contraints à déclencher la guerre"
 menu_title: ""
-description: "Bismarck, un ancien homme d’État, blâme l’Angleterre pour les conditions économiques en Allemagne qui les ont contraints à déclencher la guerre"
+description: "Otto von Bismarck, reçu par James Padgett : « Permettez-moi de dire un mot, car j’ai écouté ce qui vient d’être écrit et je m’intéresse à l’objet de cette … »"
 date: 2022-06-01 06:00:01+00:39
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Jésus inaugure une nouvelle ère (Retraite Voix Directe 2021"
 menu_title: ""
-description: "Jésus inaugure une nouvelle ère (Retraite Voix Directe 2021"
+description: "Jésus, reçu par Al Fike : « Ce qui vient avec cette bénédiction, ce sont les portes ouvertes de nombreuses opportunités et cadeaux, le déploiement des … »"
 date: 2022-06-01 06:00:01+00:1655
 draft: False
 hidden: True

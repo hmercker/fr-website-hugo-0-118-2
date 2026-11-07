@@ -1,7 +1,7 @@
 ---
 title: "Fonctionnement de la loi de Compensation"
 menu_title: ""
-description: "Fonctionnement de la loi de Compensation"
+description: "St Jean, reçu par WV : « Mon cher ami, il est si bon de te revoir, prêt et désireux de recevoir plus d’informations. »"
 date: 2022-06-01 06:00:01+00:121
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Première tentative pour délivrer un message formel. Mais M. Padgett n’était pas en état de le recevoir complètement"
 menu_title: ""
-description: "Première tentative pour délivrer un message formel. Mais M. Padgett n’était pas en état de le recevoir complètement"
+description: "Jésus, reçu par James Padgett : « Je reviendrai quand vous serez plus fort. Vous n’êtes pas en état de recevoir ce que je dois écrire parce que vous êtes … »"
 date: 2022-06-01 06:00:01+00:40
 draft: False
 hidden: True

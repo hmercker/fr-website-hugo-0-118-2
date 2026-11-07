@@ -1,7 +1,7 @@
 ---
 title: "Les races de l'humanité, et la diversité"
 menu_title: ""
-description: "Les races de l'humanité, et la diversité"
+description: "Jésus, reçu par FAB : « Comme vous n'êtes pas un biologiste ou un généticien, je ne peux pas décrire scientifiquement comment cela s'est produit, alors je … »"
 date: 2022-06-01 06:00:01+00:135
 draft: False
 hidden: True

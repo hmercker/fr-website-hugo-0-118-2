@@ -1,7 +1,7 @@
 ---
 title: "La prière avec les Liens de l'Âme"
 menu_title: ""
-description: "La prière avec les Liens de l'Âme"
+description: "Jeanne d'Arc, reçu par Al Fike : « Je serai avec vous dans la prière, ainsi que de nombreux anges des Cieux Célestes, car lorsque vous priez, vous n’êtes … »"
 date: 2023-09-01 06:00:01+00:108
 draft: False
 hidden: True

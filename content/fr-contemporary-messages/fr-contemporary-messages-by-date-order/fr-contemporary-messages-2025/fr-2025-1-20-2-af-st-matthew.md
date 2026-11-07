@@ -1,7 +1,7 @@
 ---
 title: "Nous faisons partie du Réseau de Lumière pour le Monde"
 menu_title: ""
-description: "Nous faisons partie du Réseau de Lumière pour le Monde"
+description: "Matthieu, reçu par Albert Fike : « Vous faites partie d’une société qui connaît la bénédiction de l’Amour du Père, en est consciente et s’exerce à la … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

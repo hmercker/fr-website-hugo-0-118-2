@@ -1,7 +1,7 @@
 ---
 title: "Merci pour votre considération"
 menu_title: ""
-description: "Merci pour votre considération"
+description: "Robert Hugh Benson, reçu par Jimbeau Walsh : « Nous venons vous remercier d'avoir exploré ce que j'ai communiqué à Anthony depuis mon entrée dans la vie … »"
 date: 2022-06-01 06:00:01+00:09
 draft: False
 hidden: True

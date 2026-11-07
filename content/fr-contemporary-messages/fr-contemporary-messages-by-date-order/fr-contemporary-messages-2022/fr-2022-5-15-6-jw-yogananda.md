@@ -1,7 +1,7 @@
 ---
 title: "Conscience de Dieu"
 menu_title: ""
-description: "Conscience de Dieu"
+description: "Yogananda, reçu par Jimbeau Walsh : « Alors que le monde s’éveille à la mortalité et à la préciosité de la vie, cela apporte l’humilité et la prière, un … »"
 date: 2022-06-01 06:00:01+00:94
 draft: False
 hidden: True

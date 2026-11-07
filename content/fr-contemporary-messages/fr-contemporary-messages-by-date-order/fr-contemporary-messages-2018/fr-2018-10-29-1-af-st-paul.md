@@ -1,7 +1,7 @@
 ---
 title: "Le chemin le moins fréquenté"
 menu_title: ""
-description: "Le chemin le moins fréquenté"
+description: "St Paul, reçu par Al Fike : « Lorsque vous priez ensemble dans un cercle comme celui-ci, vous faites entrer vos énergies et vos intentions spirituelles … »"
 date: 2022-06-01 06:00:01+00:549
 draft: False
 hidden: True

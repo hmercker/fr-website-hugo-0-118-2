@@ -1,7 +1,7 @@
 ---
 title: "Les Contradictions en Nous"
 menu_title: ""
-description: "Les Contradictions en Nous"
+description: "Orion, reçu par Albert Fike : « La prière du fils est vraiment pertinente. Nous continuons à vous accompagner dans vos préparatifs. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

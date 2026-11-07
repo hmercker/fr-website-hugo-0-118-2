@@ -1,7 +1,7 @@
 ---
 title: "Premier message préservé de l’épouse de M. Padgett, Hélène : Qui dit qu’elle regarde Jésus comme un homme de Dieu, mais pas comme Dieu lui-même. L’informe également sur ses parents et ses grands-parents"
 menu_title: ""
-description: "Premier message préservé de l’épouse de M. Padgett, Hélène : Qui dit qu’elle regarde Jésus comme un homme de Dieu, mais pas comme Dieu lui-même. L’informe également sur ses parents et ses grands-parents"
+description: "Hélène Padgett, reçu par James Padgett : « Viens te coucher et je te laisserai sentir mes bras autour de ton cou, te serrerai dans mes bras et … »"
 date: 2022-06-01 06:00:01+00:01
 draft: False
 hidden: True

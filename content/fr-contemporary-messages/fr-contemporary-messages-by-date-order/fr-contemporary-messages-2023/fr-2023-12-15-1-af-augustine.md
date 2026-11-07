@@ -1,7 +1,7 @@
 ---
 title: "L’Amour de Dieu est illimité"
 menu_title: ""
-description: "L’Amour de Dieu est illimité"
+description: "Augustin, reçu par Albert Fike : « L’univers est empli d’amour, mes amis. Ne limitez jamais la capacité d’aimer de Dieu, car vous n’avez aucune idée … »"
 date: 2026-09-15 06:00:01+00:01
 draft: False
 hidden: True

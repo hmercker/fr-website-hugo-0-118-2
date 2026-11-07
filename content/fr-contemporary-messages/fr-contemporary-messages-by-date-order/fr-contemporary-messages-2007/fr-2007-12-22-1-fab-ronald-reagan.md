@@ -1,7 +1,7 @@
 ---
 title: "Un président qui aimait son pays"
 menu_title: ""
-description: "Un président qui aimait son pays"
+description: "Ronald Reagan, reçu par FAB : « Contrairement à ce que vous pensiez, je fus une bonne personne, et j'avais un cœur. J'aimais vraiment mon pays, et … »"
 date: 2022-06-01 06:00:01+00:184
 draft: False
 hidden: True

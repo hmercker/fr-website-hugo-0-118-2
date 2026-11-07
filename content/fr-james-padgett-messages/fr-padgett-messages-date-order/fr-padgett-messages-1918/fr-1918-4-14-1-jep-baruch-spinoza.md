@@ -1,7 +1,7 @@
 ---
 title: "Le célèbre philosophe parle sur la raison et explique que la raison en elle-même n’est pas un guide fiable pour la recherche de la vérité"
 menu_title: ""
-description: "Le célèbre philosophe parle sur la raison et explique que la raison en elle-même n’est pas un guide fiable pour la recherche de la vérité"
+description: "Baruch Spinoza, reçu par James Padgett : « Je souhaite écrire quelques lignes, si vous me le permettez. Je n’ai pas besoin de dire que je ne vous ai … »"
 date: 2022-06-01 06:00:01+00:28
 draft: False
 hidden: True

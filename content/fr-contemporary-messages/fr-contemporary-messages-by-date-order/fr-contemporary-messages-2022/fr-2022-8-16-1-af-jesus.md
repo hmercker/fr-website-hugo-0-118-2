@@ -1,7 +1,7 @@
 ---
 title: "Leçon 21 : Les joies profondes de l’éveil de l’âme !"
 menu_title: ""
-description: "Leçon 21 : Les joies profondes de l’éveil de l’âme !"
+description: "Jésus, reçu par Al Fike : « Je souhaite élaborer sur l’expérience d’un individu en relation avec Dieu et recevant le grand présent de Son Amour dans son âme. »"
 date: 2022-06-01 06:00:01+00:160
 draft: False
 hidden: True

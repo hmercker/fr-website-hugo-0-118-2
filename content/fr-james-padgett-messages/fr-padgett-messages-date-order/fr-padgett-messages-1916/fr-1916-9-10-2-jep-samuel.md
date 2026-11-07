@@ -1,7 +1,7 @@
 ---
 title: "Le bonheur et la paix qui dépassent toute compréhension viennent au possesseur de l’Amour Divin"
 menu_title: ""
-description: "Le bonheur et la paix qui dépassent toute compréhension viennent au possesseur de l’Amour Divin"
+description: "Samuel, reçu par James Padgett : « Je sais que les soucis de la vie vous empêchent de vous rendre compte de l’influence de ce Grand Amour qui est autour … »"
 date: 2022-06-01 06:00:01+00:272
 draft: False
 hidden: True

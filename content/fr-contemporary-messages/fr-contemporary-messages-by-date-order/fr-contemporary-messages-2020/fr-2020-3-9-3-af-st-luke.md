@@ -1,7 +1,7 @@
 ---
 title: "Les pensées exercent une puissante influence sur votre monde"
 menu_title: ""
-description: "Les pensées exercent une puissante influence sur votre monde"
+description: "St Luc, reçu par Al Fike : « Les devises du monde sont celles de la condition et des désirs humains les plus bas. Dans ces échanges de pensées et … »"
 date: 2022-06-01 06:00:01+00:1024
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La connexion Divine"
 menu_title: ""
-description: "La connexion Divine"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Pour ceux qui luttent pour ressentir l’Amour de Dieu, pour ceux qui luttent contre la solitude ou le manque … »"
 date: 2022-06-01 06:00:01+00:225
 draft: False
 hidden: True

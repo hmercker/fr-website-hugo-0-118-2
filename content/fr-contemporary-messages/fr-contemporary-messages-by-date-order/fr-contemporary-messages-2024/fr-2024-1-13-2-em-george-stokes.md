@@ -1,7 +1,7 @@
 ---
 title: "Veut nous soutenir tous"
 menu_title: ""
-description: "Veut nous soutenir tous"
+description: "George Stoke, reçu par Elizabeth Mack : « Car le Père a rempli ce cercle d'un tel amour, de si beaux afflux de l'Essence de Dieu qui touche chacun d'entre … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

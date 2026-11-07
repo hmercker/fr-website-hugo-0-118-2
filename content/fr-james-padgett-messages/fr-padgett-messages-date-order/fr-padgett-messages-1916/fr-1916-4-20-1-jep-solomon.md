@@ -1,7 +1,7 @@
 ---
 title: "Quelle est la plus grande chose dans le monde ?"
 menu_title: ""
-description: "Quelle est la plus grande chose dans le monde ?"
+description: "Salomon, reçu par James Padgett : « Salomon, de l’Ancien Testament. Je ne vais pas écrire plus maintenant, mais je reviendrai bientôt. »"
 date: 2022-06-01 06:00:01+00:211
 draft: False
 hidden: True

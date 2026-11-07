@@ -1,7 +1,7 @@
 ---
 title: "Toute la paix et le silence"
 menu_title: ""
-description: "Toute la paix et le silence"
+description: "Yogananda, reçu par Jimbeau Walsh : « Permettez à la paix et au silence de cette prière d’ouvrir votre cœur. Permettez à vos âmes de tendre la main à … »"
 date: 2023-09-01 06:00:01+00:04
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le Maître a écrit et était anxieux que M. Padgett puisse comprendre son message et son importance"
 menu_title: ""
-description: "Le Maître a écrit et était anxieux que M. Padgett puisse comprendre son message et son importance"
+description: "Hélène Padgett, reçu par James Padgett : « Si seulement tu avais pu le voir lorsqu’il t’a parlé de son amour pour toi et du grand bonheur qui sera le tien … »"
 date: 2022-06-01 06:00:01+00:02
 draft: False
 hidden: True

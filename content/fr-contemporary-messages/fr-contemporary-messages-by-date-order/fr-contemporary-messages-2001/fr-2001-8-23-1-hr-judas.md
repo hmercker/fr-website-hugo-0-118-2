@@ -1,7 +1,7 @@
 ---
 title: "Guides, anges gardiens et écriture automatique"
 menu_title: ""
-description: "Guides, anges gardiens et écriture automatique"
+description: "Judas, reçu par H : « Je vois que tu es en meilleure forme maintenant. Notre relation en sera d’autant améliorée. »"
 date: 2022-06-01 06:00:01+00:25
 draft: False
 hidden: True

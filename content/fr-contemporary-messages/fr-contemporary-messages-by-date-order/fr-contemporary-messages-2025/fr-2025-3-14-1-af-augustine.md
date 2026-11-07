@@ -1,7 +1,7 @@
 ---
 title: "Être dans le monde, mais pas du monde"
 menu_title: ""
-description: "Être dans le monde, mais pas du monde"
+description: "Augustin, reçu par Albert Fike : « C’est votre maître, Augustin. Je vous demande de ne pas vous focaliser sur la situation et les opinions des enfants … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

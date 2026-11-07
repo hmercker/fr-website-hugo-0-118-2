@@ -1,7 +1,7 @@
 ---
 title: "Le ministère de l’âme s’accomplit par le partage de vos expériences et la création de liens personnels"
 menu_title: "Le ministère de l’âme s’accomplit par le partage de vos expériences et la création de liens personnels"
-description: ""
+description: "Jésus, reçu par Albert Fike : « J’étais présent lorsque vous avez évoqué votre amour pour Dieu. J’étais présent lorsque vous avez parlé de la prière et de … »"
 date: 2026-11-05 06:00:01+00:01
 draft: False
 hidden: True

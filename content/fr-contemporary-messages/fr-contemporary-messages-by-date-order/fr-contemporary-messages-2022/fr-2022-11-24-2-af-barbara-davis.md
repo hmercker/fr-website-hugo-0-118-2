@@ -1,7 +1,7 @@
 ---
 title: "Notre connexion avec notre âme"
 menu_title: ""
-description: "Notre connexion avec notre âme"
+description: "Barbara Davies, reçu par Al Fike : « Lorna est si heureuse de vous avoir parlé et de vous faire part de ses progrès, de son voyage vers la lumière, vers … »"
 date: 2022-06-01 06:00:01+00:215
 draft: False
 hidden: True

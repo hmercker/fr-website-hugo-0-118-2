@@ -1,7 +1,7 @@
 ---
 title: "Le chant du cœur et la danse de l'amour"
 menu_title: ""
-description: "Le chant du cœur et la danse de l'amour"
+description: "Inayat Khan, reçu par Jimbeau Walsh : « Les prières qui ont été adressées à notre cher frère ont amené beaucoup d’entre nous à ses côtés, influençant les … »"
 date: 2022-06-01 06:00:01+00:75
 draft: False
 hidden: True

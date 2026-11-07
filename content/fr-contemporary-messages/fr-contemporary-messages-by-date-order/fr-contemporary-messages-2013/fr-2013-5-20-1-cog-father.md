@@ -1,7 +1,7 @@
 ---
 title: "Tu as marché seul, maintenant réveille-toi à Mon Amour"
 menu_title: ""
-description: "Tu as marché seul, maintenant réveille-toi à Mon Amour"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Tu es un créateur d’amour. Laisse Mon Amour couler à travers toi, touchant chaque cellule de ton corps. »"
 date: 2022-06-01 06:00:01+00:58
 draft: False
 hidden: True

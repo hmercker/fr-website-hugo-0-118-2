@@ -1,7 +1,7 @@
 ---
 title: "L’Amour de Dieu agit à travers nous tous"
 menu_title: ""
-description: "L’Amour de Dieu agit à travers nous tous"
+description: "Jacques, reçu par Albert Fike : « J’encourage chacun d’entre vous à continuer de prier pour le grand don de l’Amour de Dieu. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "5ème Révélation : Pourquoi Jésus n’a pas été accepté comme le Messie"
 menu_title: ""
-description: "5ème Révélation : Pourquoi Jésus n’a pas été accepté comme le Messie"
+description: "Jésus, reçu par Dr Samuels : « Je souhaite continuer avec les vérités du Nouveau Testament et parler de mes enseignements dans le Temple de Jérusalem, à … »"
 date: 2022-06-01 06:00:01+00:05
 draft: False
 hidden: True

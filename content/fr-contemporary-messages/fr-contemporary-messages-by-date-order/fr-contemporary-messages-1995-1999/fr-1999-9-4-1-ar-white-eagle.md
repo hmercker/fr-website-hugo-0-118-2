@@ -1,7 +1,7 @@
 ---
 title: "Les animaux et l’amour naturel"
 menu_title: ""
-description: "Les animaux et l’amour naturel"
+description: "Aigle Blanc, reçu par Amada Reza : « Vous comprenez que dans les premiers temps de l’histoire de l’humanité, les animaux étaient considérés comme une … »"
 date: 2022-06-01 06:00:01+00:20
 draft: False
 hidden: True

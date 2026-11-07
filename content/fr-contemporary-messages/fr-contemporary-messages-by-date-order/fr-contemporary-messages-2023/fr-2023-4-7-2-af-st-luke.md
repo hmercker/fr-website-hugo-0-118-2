@@ -1,7 +1,7 @@
 ---
 title: "Être en phase avec la Volonté de Dieu"
 menu_title: ""
-description: "Être en phase avec la Volonté de Dieu"
+description: "St Luc, reçu par Al Fike : « Le monde est dans un processus de régénération bien que ce que vous voyez soit difficile à comprendre en tant que régénération. »"
 date: 2023-09-01 06:00:01+00:112
 draft: False
 hidden: True

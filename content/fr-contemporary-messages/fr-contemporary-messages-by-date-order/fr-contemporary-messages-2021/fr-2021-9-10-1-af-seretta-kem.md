@@ -1,7 +1,7 @@
 ---
 title: "Un merveilleux encouragement"
 menu_title: ""
-description: "Un merveilleux encouragement"
+description: "Seretta Kem, reçu par Al Fike : « Nous ne voyons pas d’obstacles majeurs qui pourraient vous empêcher de continuer à progresser et à évoluer. »"
 date: 2022-06-01 06:00:01+00:1635
 draft: False
 hidden: True

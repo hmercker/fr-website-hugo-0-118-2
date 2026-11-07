@@ -1,7 +1,7 @@
 ---
 title: "La vérité s'enflammera dans le monde"
 menu_title: ""
-description: "La vérité s'enflammera dans le monde"
+description: "Jésus, reçu par Al Fike : « Ainsi, le monde dort d’un profond sommeil, ne voulant pas être réveillé et apprendre que Dieu est là. »"
 date: 2023-09-01 06:00:01+00:100
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Jules César recherche l’Amour Divin. La lumière pénètre son âme"
 menu_title: ""
-description: "Jules César recherche l’Amour Divin. La lumière pénètre son âme"
+description: "Jules César, reçu par James Padgett : « J’étais alors tellement déçu, et choqué, de me trouver un esprit nu de qualités, qui me plongeait dans les … »"
 date: 2022-06-01 06:00:01+00:12
 draft: False
 hidden: True

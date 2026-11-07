@@ -1,7 +1,7 @@
 ---
 title: "Une leçon sur la pratique de la compassion pour atteindre la conscience de l'âme"
 menu_title: ""
-description: "Une leçon sur la pratique de la compassion pour atteindre la conscience de l'âme"
+description: "Orion, reçu par Albert Fike : « Bénédictions à vous, mes amis. Je vous exhorte à avoir de la compassion, de la compassion pour vous-mêmes et de la … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

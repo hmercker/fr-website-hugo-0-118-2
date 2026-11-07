@@ -1,7 +1,7 @@
 ---
 title: "Jésus est très intéressé que M. Padgett soit de nouveau dans une condition d’âme qui permette un bon rapport"
 menu_title: ""
-description: "Jésus est très intéressé que M. Padgett soit de nouveau dans une condition d’âme qui permette un bon rapport"
+description: "Jésus, reçu par James Padgett : « Eh bien, mon frère, je vois que vous êtes en bien meilleure condition ce soir que vous ne l’avez été depuis un certain … »"
 date: 2022-06-01 06:00:01+00:17
 draft: False
 hidden: True

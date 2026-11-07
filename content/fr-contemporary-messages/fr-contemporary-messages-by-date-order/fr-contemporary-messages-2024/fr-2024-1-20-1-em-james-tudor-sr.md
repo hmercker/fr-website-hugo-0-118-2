@@ -1,7 +1,7 @@
 ---
 title: "Je suis avec vous et je suis là pour vous"
 menu_title: ""
-description: "Je suis avec vous et je suis là pour vous"
+description: "James Tudor Sr, reçu par Elizabeth Mack : « Oh Père, je te demande de bénir ces âmes, qui ne sont pas seulement Tes enfants, mais Tes travailleurs sur … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

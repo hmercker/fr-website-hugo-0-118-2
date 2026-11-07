@@ -1,7 +1,7 @@
 ---
 title: "Une perception différente"
 menu_title: ""
-description: "Une perception différente"
+description: "John D Rockefeller, reçu par FAB : « Vous venez de lire que j'ai dit, lorsque j'ai créé ma société, la South Improvement Company, « c'était juste. »"
 date: 2022-06-01 06:00:01+00:133
 draft: False
 hidden: True

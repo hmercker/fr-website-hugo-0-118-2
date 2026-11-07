@@ -1,7 +1,7 @@
 ---
 title: "Une leçon d'humilité et des conseils pour éviter les pièges"
 menu_title: ""
-description: "Une leçon d'humilité et des conseils pour éviter les pièges"
+description: "Isaïe, reçu par Albert Fike : « Que les grandes bénédictions de l’Amour de Dieu vous soient accordées pour l’éternité. Ceux qui sont dévoués et fidèles … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

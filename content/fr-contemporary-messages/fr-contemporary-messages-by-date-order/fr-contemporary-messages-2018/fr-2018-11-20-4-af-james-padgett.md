@@ -1,7 +1,7 @@
 ---
 title: "D'autres vérités seront révélées au fil du temps"
 menu_title: ""
-description: "D'autres vérités seront révélées au fil du temps"
+description: "James Padgett, reçu par Al Fike : « Vous avez donc été bénis par une âme très estimée qui est déterminée à connaître les profondes vérités de Dieu. »"
 date: 2022-06-01 06:00:01+00:570
 draft: False
 hidden: True

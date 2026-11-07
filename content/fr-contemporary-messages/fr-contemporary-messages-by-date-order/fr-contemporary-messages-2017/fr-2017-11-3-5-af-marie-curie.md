@@ -1,7 +1,7 @@
 ---
 title: "Le scientifique de l'âme"
 menu_title: ""
-description: "Le scientifique de l'âme"
+description: "Marie Curie, reçu par Al Fike : « Oui ma compréhension du monde est tellement plus profonde qu'elle ne l'était. Le monde a besoin de comprendre que pour … »"
 date: 2022-06-01 06:00:01+00:179
 draft: False
 hidden: True

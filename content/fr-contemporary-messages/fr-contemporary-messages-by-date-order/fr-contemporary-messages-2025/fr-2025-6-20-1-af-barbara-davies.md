@@ -1,7 +1,7 @@
 ---
 title: "Vivez votre vie avec amour"
 menu_title: ""
-description: "Vivez votre vie avec amour"
+description: "Barbara Davies, reçu par Albert Fike : « Chaque jour est un don de Dieu. Qu’il soit rempli de défis, de travail et d’efforts, ou de joies, c’est un don. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

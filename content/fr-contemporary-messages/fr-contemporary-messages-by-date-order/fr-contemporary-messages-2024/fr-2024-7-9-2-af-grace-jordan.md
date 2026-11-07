@@ -1,7 +1,7 @@
 ---
 title: "La mère de David vient partager son histoire"
 menu_title: ""
-description: "La mère de David vient partager son histoire"
+description: "Grace Jordan, reçu par Albert Fike : « Je ne comprenais pas les vérités telles que vous les connaissez, à un degré tel que vous en êtes conscient en ce … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

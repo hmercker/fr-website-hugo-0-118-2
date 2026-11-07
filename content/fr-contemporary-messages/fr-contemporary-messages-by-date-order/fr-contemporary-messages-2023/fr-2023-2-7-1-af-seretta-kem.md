@@ -1,7 +1,7 @@
 ---
 title: "Chacun est responsable du développement des dons spirituels"
 menu_title: ""
-description: "Chacun est responsable du développement des dons spirituels"
+description: "Seretta Kem, reçu par Albert Fike : « Je souhaite parler des dons qui s’ouvrent à ceux qui sont diligents dans leurs prières et demandent à être réveillés. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

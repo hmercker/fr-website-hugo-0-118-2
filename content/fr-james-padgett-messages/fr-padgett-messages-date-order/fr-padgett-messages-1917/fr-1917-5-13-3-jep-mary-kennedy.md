@@ -1,7 +1,7 @@
 ---
 title: "Dit que St Jacques s’intéresse particulièrement à lui et fait tout ce qui est en son pouvoir pour l’aider à progresser"
 menu_title: ""
-description: "Dit que St Jacques s’intéresse particulièrement à lui et fait tout ce qui est en son pouvoir pour l’aider à progresser"
+description: "Mary Kennedy, reçu par James Padgett : « Vous devez savoir, bien sûr, comment il va, mais il ne peut deviner comment je vais, sauf pour une chose, et … »"
 date: 2022-06-01 06:00:01+00:126
 draft: False
 hidden: True

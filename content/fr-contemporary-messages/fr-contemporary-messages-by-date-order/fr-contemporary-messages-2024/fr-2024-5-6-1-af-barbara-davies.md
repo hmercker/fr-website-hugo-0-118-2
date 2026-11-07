@@ -1,7 +1,7 @@
 ---
 title: "Présente 8 anges chargés de travailler avec notre groupe"
 menu_title: ""
-description: "Présente 8 anges chargés de travailler avec notre groupe"
+description: "Barbara Davies, reçu par Albert Fike : « Comme vous êtes beaux, mes chers et beaux enfants. Comme vous êtes courageux ! »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

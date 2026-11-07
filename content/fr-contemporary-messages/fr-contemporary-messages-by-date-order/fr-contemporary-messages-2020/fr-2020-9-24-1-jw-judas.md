@@ -1,7 +1,7 @@
 ---
 title: "Un petit conseil"
 menu_title: ""
-description: "Un petit conseil"
+description: "Judas, reçu par Jimbeau Walsh : « Je souhaite vous donner un petit conseil. Une pratique très simple pour se connecter avec Dieu, pour sentir Sa présence … »"
 date: 2022-06-01 06:00:01+00:1257
 draft: False
 hidden: True

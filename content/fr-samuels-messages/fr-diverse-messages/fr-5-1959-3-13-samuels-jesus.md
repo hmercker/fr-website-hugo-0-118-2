@@ -1,7 +1,7 @@
 ---
 title: "De nombreux Hébreux se sont prénommés Jésus."
 menu_title: ""
-description: "De nombreux Hébreux se sont prénommés Jésus."
+description: "Jésus, reçu par Dr Samuels : « Je ne veux pas écrire longuement ce soir parce que vous n’êtes évidemment pas en état de soutenir une écriture longue ou … »"
 date: 2022-06-01 06:00:01+00:05
 draft: False
 hidden: True

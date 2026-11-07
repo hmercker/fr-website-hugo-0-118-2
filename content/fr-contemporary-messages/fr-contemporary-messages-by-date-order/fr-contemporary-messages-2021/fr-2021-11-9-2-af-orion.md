@@ -1,7 +1,7 @@
 ---
 title: "Notre développement se poursuit dans l'Amour de Dieu (Projet Orion 2021)"
 menu_title: ""
-description: "Notre développement se poursuit dans l'Amour de Dieu (Projet Orion 2021)"
+description: "Orion, reçu par Al Fike : « Mes amis, c’est votre frère Orion. Nous le faisons souvent dans vos états de sommeil. »"
 date: 2022-06-01 06:00:01+00:1710
 draft: False
 hidden: True

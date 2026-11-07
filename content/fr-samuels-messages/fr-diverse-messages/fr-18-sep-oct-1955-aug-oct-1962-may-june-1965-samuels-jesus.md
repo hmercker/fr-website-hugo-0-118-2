@@ -1,7 +1,7 @@
 ---
 title: "Les fêtes de Pâques et leur célébration commune le 2<sup>ème</sup> samedi soir et dimanche d’Avril"
 menu_title: ""
-description: "Les fêtes de Pâques et leur célébration commune le 2<sup>ème</sup> samedi soir et dimanche d’Avril"
+description: "Jésus, reçu par Dr Samuels en Septembre et Octobre : « Le premier jour férié de l’année sacrée était Pâques, le septième mois de l’année civile qui … »"
 date: 2022-06-01 06:00:01+00:18
 draft: False
 hidden: True

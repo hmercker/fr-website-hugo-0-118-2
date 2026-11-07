@@ -1,7 +1,7 @@
 ---
 title: "Bienvenue dans ce cercle d’Amour"
 menu_title: ""
-description: "Bienvenue dans ce cercle d’Amour"
+description: "Confucius, reçu par Al Fike : « Âmes bien-aimées, c’est Confucius. Vos cœurs se réjouissent en effet de se réunir. »"
 date: 2022-06-01 06:00:01+00:281
 draft: False
 hidden: True

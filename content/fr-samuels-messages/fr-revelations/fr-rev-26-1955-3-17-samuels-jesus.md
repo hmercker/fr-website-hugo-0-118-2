@@ -1,7 +1,7 @@
 ---
 title: "26ème Révélation : Avec la venue de Jésus, Dieu s’est vraiment révélé"
 menu_title: ""
-description: "26ème Révélation : Avec la venue de Jésus, Dieu s’est vraiment révélé"
+description: "Jésus, reçu par Dr Samuels : « Il peut être surprenant, pour l’homme, d’apprendre que Dieu est à la fois Jéhovah ou Yahweh, des Écritures Juives et, en … »"
 date: 2022-06-01 06:00:01+00:26
 draft: False
 hidden: True

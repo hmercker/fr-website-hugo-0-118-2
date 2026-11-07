@@ -1,7 +1,7 @@
 ---
 title: "Les empires tombent toujours"
 menu_title: ""
-description: "Les empires tombent toujours"
+description: "Simon Bolivar, reçu par FAB : « Même sur terre, je détestais l’esclavage, ayant libéré mes propres esclaves. Ce qui existe aujourd’hui dans le monde est … »"
 date: 2022-06-01 06:00:01+00:38
 draft: False
 hidden: True
