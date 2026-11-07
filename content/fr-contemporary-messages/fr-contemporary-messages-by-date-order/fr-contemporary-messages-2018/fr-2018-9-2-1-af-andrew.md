@@ -1,7 +1,7 @@
 ---
 title: "Cherchez à connaître l'Amour de Dieu"
 menu_title: ""
-description: "Cherchez à connaître l'Amour de Dieu"
+description: "André, reçu par Al Fike : « Respirez cette belle bénédiction qui est arrivée dans cette église. Sachez que Dieu a béni ce lieu et tous ceux qui l’habitent. »"
 date: 2022-06-01 06:00:01+00:470
 draft: False
 hidden: True

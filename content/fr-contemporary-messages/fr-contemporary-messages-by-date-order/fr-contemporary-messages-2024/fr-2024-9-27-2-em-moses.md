@@ -1,7 +1,7 @@
 ---
 title: "Tellement de personnes dans ce monde ont besoin que l'Amour Divin leur soit apporté"
 menu_title: ""
-description: "Tellement de personnes dans ce monde ont besoin que l'Amour Divin leur soit apporté"
+description: "Moïse, reçu par Elizabeth Mack : « Je vous dis que notre Créateur illuminera encore plus vos âmes. Chacun de vous est une lumière. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

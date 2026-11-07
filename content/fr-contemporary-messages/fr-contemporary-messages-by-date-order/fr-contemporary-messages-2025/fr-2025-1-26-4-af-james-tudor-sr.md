@@ -1,7 +1,7 @@
 ---
 title: "Poursuit son œuvre de partage des vérités de l'Amour Divin à la Barbade4"
 menu_title: ""
-description: "Poursuit son œuvre de partage des vérités de l'Amour Divin à la Barbade"
+description: "James Tudor Sr, reçu par ar Albert Fike : « Barthélémy et moi sommes de bons amis. Nous travaillons ensemble. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

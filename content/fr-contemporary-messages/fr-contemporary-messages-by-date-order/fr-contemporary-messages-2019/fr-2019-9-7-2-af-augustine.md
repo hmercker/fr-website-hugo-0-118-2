@@ -1,7 +1,7 @@
 ---
 title: "La puissance du toucher de Dieu est le fondement de l'exploration spirituelle"
 menu_title: ""
-description: "La puissance du toucher de Dieu est le fondement de l'exploration spirituelle"
+description: "Augustin, reçu par Al Fike : « Âmes bien-aimées, installez-vous dans la paix de la Présence de Dieu qui est avec vous. Respirez le Souffle de Dieu, qui … »"
 date: 2022-06-01 06:00:01+00:839
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Mackey est reconnaissant et n’oubliera jamais la bienveillance de M. Padgett qui l’a aidé à voir la lumière"
 menu_title: ""
-description: "Mackey est reconnaissant et n’oubliera jamais la bienveillance de M. Padgett qui l’a aidé à voir la lumière"
+description: "Franklin H. Mackey, reçu par James Padgett : « Je dois écrire juste une ligne pour te dire que tu es mon ami et mon aide dans mes ténèbres et mes souffrances. »"
 date: 2022-06-01 06:00:01+00:156
 draft: False
 hidden: True

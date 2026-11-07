@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes tous frères et sœurs parce que nous possédons une âme"
 menu_title: ""
-description: "Nous sommes tous frères et sœurs parce que nous possédons une âme"
+description: "Orion, reçu par Al Fike : « Je ne suis pas de la Terre. Nous avons la parenté de posséder une âme et donc nous sommes tous frères et sœurs parce que nous … »"
 date: 2022-06-01 06:00:01+00:87
 draft: False
 hidden: True

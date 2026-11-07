@@ -1,7 +1,7 @@
 ---
 title: "Apprenez à vous connaître"
 menu_title: ""
-description: "Apprenez à vous connaître"
+description: "Augustin, reçu par Albert Fike : « … grandit parmi vous, mes enfants. C’est Augustin, votre enseignante. »"
 date: 2026-10-16 06:00:01+00:09
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le Chant de l’Amour"
 menu_title: ""
-description: "Le Chant de l’Amour"
+description: "Yogananda, reçu par Jimbeau Walsh : « Dieu est le Maître musicien et chaque partie de la création vibre en chanson. Les vibrations de l’amour créent des … »"
 date: 2022-06-01 06:00:01+00:1499
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Faites le travail de Dieu"
 menu_title: ""
-description: "Faites le travail de Dieu"
+description: "Kuanaha Terhan Bey : « Cela fait de nombreuses années que je n'ai pas été sur le plan terrestre et je ne savais pas, jusqu'à tout récemment, que je … »"
 date: 2022-06-01 06:00:01+00:113
 draft: False
 hidden: True

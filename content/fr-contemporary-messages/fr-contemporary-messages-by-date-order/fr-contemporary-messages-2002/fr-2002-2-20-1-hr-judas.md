@@ -1,7 +1,7 @@
 ---
 title: "Judas et Jean le Baptiste"
 menu_title: ""
-description: "Judas et Jean le Baptiste"
+description: "Judas, reçu par H : « Je veux te faire revenir, en esprit, dans ton enfance. Une journée d’été, tu as demandé à tes parents de te permettre d’être un … »"
 date: 2022-06-01 06:00:01+00:27
 draft: False
 hidden: True

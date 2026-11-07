@@ -1,7 +1,7 @@
 ---
 title: "Construire des ponts d'amour"
 menu_title: ""
-description: "Construire des ponts d'amour"
+description: "St Jean, reçu par Al Fike : « Que Sa Lumière brille toujours sur vous. Où que vous soyez dans ce monde, sachez que le toucher de Dieu vous accompagne … »"
 date: 2022-06-01 06:00:01+00:245
 draft: False
 hidden: True

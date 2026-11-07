@@ -1,7 +1,7 @@
 ---
 title: "Immanuel Kant était présent lorsque M. Padgett et Dr Stone échangeaient sur l’Amour Divin du Père, et cela l’a intéressé parce qu’il ne connaissait que l’amour naturel"
 menu_title: ""
-description: "Immanuel Kant était présent lorsque M. Padgett et Dr Stone échangeaient sur l’Amour Divin du Père, et cela l’a intéressé parce qu’il ne connaissait que l’amour naturel"
+description: "Immanuel Kant, reçu par James Padgett : « J’ai écouté votre conversation de ce soir et j’ai été très intéressé, au point de me demander quelle est la … »"
 date: 2022-06-01 06:00:01+00:201
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Matière et invention dans le monde des esprits"
 menu_title: ""
-description: "Matière et invention dans le monde des esprits"
+description: "Thomas Alva Edison, reçu par FAB : « Je sais que vous êtes curieux au sujet de l'invention et de la technologie dans l'au-delà. »"
 date: 2022-06-01 06:00:01+00:10
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Beaucoup est donné à la Terre"
 menu_title: ""
-description: "Beaucoup est donné à la Terre"
+description: "Jean Huguess, reçu par Elizabeth Mack : « Alors que vous élevez vos âmes, vos intentions et vos aspirations, vous recevez les plus grandes bénédictions … »"
 date: 2026-01-30 16:00:01+00:01
 draft: False
 hidden: True

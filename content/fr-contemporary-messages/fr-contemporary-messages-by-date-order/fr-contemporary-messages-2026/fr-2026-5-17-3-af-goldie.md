@@ -1,7 +1,7 @@
 ---
 title: "L'attribut de la joie"
 menu_title: ""
-description: "L'attribut de la joie"
+description: "Goldie, reçu par Albert Fike : « L'expression de l'âme imprégnée de l'Amour de Dieu grandit en conscience, en développement et en capacité à rayonner la joie. »"
 date: 2026-09-30 06:00:01+00:01
 draft: False
 hidden: True

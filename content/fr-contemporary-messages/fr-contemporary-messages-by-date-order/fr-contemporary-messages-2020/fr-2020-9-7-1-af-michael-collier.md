@@ -1,7 +1,7 @@
 ---
 title: "Conscience de l'âme et communication avec l'âme"
 menu_title: ""
-description: "Conscience de l'âme et communication avec l'âme"
+description: "Michaël Collier, reçu par Al Fike : « Je ne pense pas que beaucoup d’entre vous soient conscients des possibilités que vous ouvrez en priant pour l’Amour … »"
 date: 2022-06-01 06:00:01+00:1246
 draft: False
 hidden: True

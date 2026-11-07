@@ -1,7 +1,7 @@
 ---
 title: "47ème Sermon – Le feu dans le cœur du Prophète"
 menu_title: ""
-description: "47ème Sermon – Le feu dans le cœur du Prophète"
+description: "Jésus, reçu par Dr Samuels : « C’est à partir de cette expérience que Jérémie a émergé dans une proximité avec Dieu, qu’il n’avait jamais connue, et à … »"
 date: 2022-06-01 06:00:01+00:100
 draft: False
 hidden: True

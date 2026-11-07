@@ -1,7 +1,7 @@
 ---
 title: "Marchez chaque jour dans Sa lumière"
 menu_title: ""
-description: "Marchez chaque jour dans Sa lumière"
+description: "Laila, reçu par Al Fike : « Ne vous inquiétez pas de savoir qui viendra dans votre petit cercle. Dieu guidera les âmes qui sont sérieuses et qui … »"
 date: 2022-06-01 06:00:01+00:33
 draft: False
 hidden: True

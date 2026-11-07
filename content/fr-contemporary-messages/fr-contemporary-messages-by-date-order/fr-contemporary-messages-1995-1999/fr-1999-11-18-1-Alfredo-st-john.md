@@ -1,7 +1,7 @@
 ---
 title: "L’intransigeance de la foi"
 menu_title: ""
-description: "L’intransigeance de la foi"
+description: "St Jean, reçu par Alfredo : « Je dois t’expliquer plusieurs choses que tu ignores encore. L’intransigeance de la foi est quelque chose qui dure longtemps … »"
 date: 2022-06-01 06:00:01+00:31
 draft: False
 hidden: True

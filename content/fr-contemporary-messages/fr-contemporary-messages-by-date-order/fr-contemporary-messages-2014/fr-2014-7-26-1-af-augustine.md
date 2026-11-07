@@ -1,7 +1,7 @@
 ---
 title: "Le libre arbitre fait que le monde est libre. Rien n’est garanti"
 menu_title: ""
-description: "Le libre arbitre fait que le monde est libre. Rien n’est garanti"
+description: "Augustin, reçu par Al Fike : « Donc comme vous le voyez les événements du monde ne se déroulent pas selon la Volonté de Dieu mais selon la volonté de l’homme. »"
 date: 2022-06-01 06:00:01+00:106
 draft: False
 hidden: True

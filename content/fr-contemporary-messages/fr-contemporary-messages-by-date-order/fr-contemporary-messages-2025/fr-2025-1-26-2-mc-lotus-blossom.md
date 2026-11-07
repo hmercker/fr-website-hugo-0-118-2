@@ -1,7 +1,7 @@
 ---
 title: "Décrit la transformation de l'âme avec l'Amour Divin"
 menu_title: ""
-description: "Décrit la transformation de l'âme avec l'Amour Divin"
+description: "Fleur de Lotus, reçu par Albert Fike : « Vous avez tous eu une grande opportunité de comprendre un peu plus cet enseignement de l’Amour de Dieu, la … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

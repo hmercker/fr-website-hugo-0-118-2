@@ -1,7 +1,7 @@
 ---
 title: "Libre arbitre et Volonté de Dieu"
 menu_title: ""
-description: "Libre arbitre et Volonté de Dieu"
+description: "Judas, reçu par Jimbeau Walsh : « J'aimerais vous parler du libre arbitre, ce don précieux de Dieu, unique en chaque âme et inviolable. »"
 date: 2026-09-08 16:00:01+00:01
 draft: False
 hidden: True

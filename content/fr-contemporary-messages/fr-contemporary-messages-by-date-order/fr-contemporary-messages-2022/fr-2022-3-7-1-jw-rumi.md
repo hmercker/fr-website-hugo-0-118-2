@@ -1,7 +1,7 @@
 ---
 title: "Laissez votre cœur prendre son envol"
 menu_title: ""
-description: "Laissez votre cœur prendre son envol"
+description: "Rumi, reçu par Jimbeau Walsh : « Ma famille a déménagé de nombreuses fois, et mon père était considéré comme le sultan des érudits, mon grand-père et ma … »"
 date: 2022-06-01 06:00:01+00:45
 draft: False
 hidden: True

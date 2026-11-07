@@ -1,7 +1,7 @@
 ---
 title: "Jésus parle de la juste indignation - 2"
 menu_title: ""
-description: "Jésus parle de la juste indignation - 2"
+description: "Jésus, reçu par FAB : « Vous savez que l'expression a été utilisée pour désigner l'émotion de la sensibilité outragée, avec l'idée « comment osent-ils me … »"
 date: 2022-06-01 06:00:01+00:138
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "20ème Révélation : La réincarnation est une doctrine orientale"
 menu_title: ""
-description: "20ème Révélation : La réincarnation est une doctrine orientale"
+description: "Jésus, reçu par Dr Samuels : « Dans les messages de James Padgett, diverses communications ont traité de la fausseté et de l’absurdité de cette doctrine … »"
 date: 2022-06-01 06:00:01+00:20
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Continuer sur cette voie"
 menu_title: ""
-description: "Continuer sur cette voie"
+description: "St Jean, reçu par Al Fike : « Vos désirs s’élèvent de vos âmes vers le Créateur et bien que vous veniez de nombreux endroits différents, de nombreuses … »"
 date: 2022-06-01 06:00:01+00:214
 draft: False
 hidden: True

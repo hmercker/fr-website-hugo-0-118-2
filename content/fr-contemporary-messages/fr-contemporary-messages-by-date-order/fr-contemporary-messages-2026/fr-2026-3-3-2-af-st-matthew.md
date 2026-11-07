@@ -1,7 +1,7 @@
 ---
 title: "Vivre chaque jour comme un instrument de Dieu"
 menu_title: ""
-description: "Vivre chaque jour comme un instrument de Dieu"
+description: "Matthieu, reçu par Al Fike : « Je vous apporte lumière et bénédictions, mes chers frères et sœurs. Je vous exhorte à saisir l'instant présent chaque jour … »"
 date: 2026-04-21 16:00:01+00:01
 draft: False
 hidden: True

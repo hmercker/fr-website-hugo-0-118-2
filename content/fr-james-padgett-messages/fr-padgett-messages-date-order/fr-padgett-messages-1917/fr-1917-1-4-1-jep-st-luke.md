@@ -1,7 +1,7 @@
 ---
 title: "Aucun homme ne peut atteindre la condition d’homme parfait si ses croyances ne sont pas en accord avec la Vérité"
 menu_title: ""
-description: "Aucun homme ne peut atteindre la condition d’homme parfait si ses croyances ne sont pas en accord avec la Vérité"
+description: "St Luc, reçu par James Padgett : « Je veux écrire, ce soir, quelques lignes sur un sujet que je désire faire connaître, à vous et aux autres, car je sais … »"
 date: 2022-06-01 06:00:01+00:04
 draft: False
 hidden: True

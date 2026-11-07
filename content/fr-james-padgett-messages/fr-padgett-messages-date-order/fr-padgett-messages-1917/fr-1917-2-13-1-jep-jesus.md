@@ -1,7 +1,7 @@
 ---
 title: "Jésus n’est pas disposé à écrire sur le sujet de l’âme parce que l’état de M. Padgett n’est pas ce qu’il devrait être bien que M. Padgett soit impatient de le recevoir"
 menu_title: ""
-description: "Jésus n’est pas disposé à écrire sur le sujet de l’âme parce que l’état de M. Padgett n’est pas ce qu’il devrait être bien que M. Padgett soit impatient de le recevoir"
+description: "Jésus, reçu par James Padgett : « Comme je vous l’ai dit, il est nécessaire que vous vous trouviez dans la meilleure condition réceptive possible afin que … »"
 date: 2022-06-01 06:00:01+00:57
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Les braises de l'amour qui brûlent dans vos âmes se font sentir partout dans le monde"
 menu_title: ""
-description: "Les braises de l'amour qui brûlent dans vos âmes se font sentir partout dans le monde"
+description: "Samuel, reçu par Al Fike : « Dieu attise les feux de l’amour en chacun de vous. Partout dans le monde, ces magnifiques feux brûlent lorsque vous portez … »"
 date: 2023-09-01 06:00:01+00:20
 draft: False
 hidden: True

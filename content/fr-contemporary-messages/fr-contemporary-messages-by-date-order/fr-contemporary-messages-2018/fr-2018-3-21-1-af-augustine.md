@@ -1,7 +1,7 @@
 ---
 title: "Le chemin de la guérison et de la compassion par l’amour"
 menu_title: ""
-description: "Le chemin de la guérison et de la compassion par l’amour"
+description: "Augustin, reçu par Al Fike : « Le chemin de l’éveil de l’âme n’est pas un chemin facile, âmes bien-aimées. Ce cheminement s’accompagne de perceptions plus … »"
 date: 2022-06-01 06:00:01+00:369
 draft: False
 hidden: True

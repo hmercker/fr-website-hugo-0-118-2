@@ -1,7 +1,7 @@
 ---
 title: "L’Amour de Dieu est votre droit de naissance"
 menu_title: ""
-description: "L’Amour de Dieu est votre droit de naissance"
+description: "Jeanne d'Arc, reçu par Elizabeth Mack : « Continuez à rechercher cet amour que Dieu a mis en vous et dans les âmes présentes dans cette pièce. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Fibonacci, Ai et l'intelligence Angélique"
 menu_title: ""
-description: "Fibonacci, Ai et l'intelligence Angélique"
+description: "Galilée, reçu par Jimbeau Walsh : « Je reviens, attiré par les nombreuses discussions sur la science et la spiritualité et sur la façon dont l’une peut … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

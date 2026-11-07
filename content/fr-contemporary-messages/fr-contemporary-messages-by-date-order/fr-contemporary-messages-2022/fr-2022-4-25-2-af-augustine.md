@@ -1,7 +1,7 @@
 ---
 title: "Comment savez-vous que vous recevez l'Amour Divin ?"
 menu_title: ""
-description: "Comment savez-vous que vous recevez l'Amour Divin ?"
+description: "Augustin, reçu par Al Fike : « Je souhaite aborder un problème qui est commun parmi les mortels qui cherchent et prient pour le don de l’Amour Divin et … »"
 date: 2023-09-01 06:00:01+00:25
 draft: False
 hidden: True

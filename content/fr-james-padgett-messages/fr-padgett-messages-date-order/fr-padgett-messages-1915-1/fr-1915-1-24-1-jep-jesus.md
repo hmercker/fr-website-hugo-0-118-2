@@ -1,7 +1,7 @@
 ---
 title: "Jésus n’est pas Dieu et ne doit pas être adoré comme Dieu. Explique sa mission. Ces messages reçus par M. Padgett constituent «le Nouvel Évangile à tous les hommes, qu’ils soient mortels ou esprits.»"
 menu_title: ""
-description: "Jésus n’est pas Dieu et ne doit pas être adoré comme Dieu. Explique sa mission. Ces messages reçus par M. Padgett constituent «le Nouvel Évangile à tous les hommes, qu’ils soient mortels ou esprits.»"
+description: "Jésus, reçu par James Padgett : « Vous êtes maintenant dans une bonne condition, et je vais vous donner un petit message. Durant ma vie terrestre, je ne … »"
 date: 2022-06-01 06:00:01+00:15
 draft: False
 hidden: True

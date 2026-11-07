@@ -1,7 +1,7 @@
 ---
 title: "Message d'ouverture de la retraite de médiumnité"
 menu_title: ""
-description: "Message d'ouverture de la retraite de médiumnité"
+description: "Augustin, reçu par Al Fike : « Sommes-nous prêts à commencer ce voyage de découverte de l’éveil des potentiels qui sont en vous ? »"
 date: 2022-06-01 06:00:01+00:449
 draft: False
 hidden: True

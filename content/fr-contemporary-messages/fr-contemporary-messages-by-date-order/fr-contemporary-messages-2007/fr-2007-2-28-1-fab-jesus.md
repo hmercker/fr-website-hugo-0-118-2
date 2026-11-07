@@ -1,7 +1,7 @@
 ---
 title: "Les concepts de justice et d’amour"
 menu_title: ""
-description: "Les concepts de justice et d’amour"
+description: "Jésus, reçu par FAB : « Nous voyons que vous avez une très haute opinion des canalisations de Judas – et nous aussi. »"
 date: 2022-06-01 06:00:01+00:114
 draft: False
 hidden: True

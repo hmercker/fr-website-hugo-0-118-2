@@ -1,7 +1,7 @@
 ---
 title: "La plus grande force vient de l'Amour de Dieu"
 menu_title: ""
-description: "La plus grande force vient de l'Amour de Dieu"
+description: "Nickolas : « Je dois venir ce soir pour vous parler, mes amis, car je veux que vous sachiez ce que nous faisons en esprit. »"
 date: 2022-06-01 06:00:01+00:129
 draft: False
 hidden: True

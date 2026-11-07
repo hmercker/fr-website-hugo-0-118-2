@@ -1,7 +1,7 @@
 ---
 title: "Nous encourage dans le monde"
 menu_title: ""
-description: "Nous encourage dans le monde"
+description: "Yogananda, reçu par Jimbeau Walsh : « Beaucoup dans votre monde sont insatisfaits et isolés. Ils cherchent à se distraire de plusieurs manières. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

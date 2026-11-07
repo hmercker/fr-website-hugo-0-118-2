@@ -1,7 +1,7 @@
 ---
 title: "L'importance de vos prières pour vous-mêmes et pour les esprits à bord de ce navire"
 menu_title: ""
-description: "L'importance de vos prières pour vous-mêmes et pour les esprits à bord de ce navire"
+description: "George Stokes, reçu par Elizabeth Mack : « Je constate une croissance et un développement dans votre soif d’Amour Divin. Je vois un but à ce voyage. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

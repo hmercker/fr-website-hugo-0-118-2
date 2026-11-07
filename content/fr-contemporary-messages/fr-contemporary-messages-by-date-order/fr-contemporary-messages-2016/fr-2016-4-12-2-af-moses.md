@@ -1,7 +1,7 @@
 ---
 title: "Leçon sur la fausseté de l’expiation indirecte et la nature incertaine de la vérité personnelle"
 menu_title: ""
-description: "Leçon sur la fausseté de l’expiation indirecte et la nature incertaine de la vérité personnelle"
+description: "Moïse, reçu par Al Fike : « Et je vous remercie ma fille pour votre prière. Tu as une Lumière pure et un désir profond d’être avec Dieu, ma fille … »"
 date: 2022-06-01 06:00:01+00:193
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La Doctrine de choc et sa défaite"
 menu_title: ""
-description: "La Doctrine de choc et sa défaite"
+description: "Jésus, reçu par FAB : « Vous venez de finir de lire le chapitre de La Doctrine du Choc [un livre de Naomi Klein sur la façon dont l'empire Américain … »"
 date: 2022-06-01 06:00:01+00:130
 draft: False
 hidden: True

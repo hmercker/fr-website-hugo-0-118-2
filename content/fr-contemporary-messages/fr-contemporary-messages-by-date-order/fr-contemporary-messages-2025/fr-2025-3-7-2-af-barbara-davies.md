@@ -1,7 +1,7 @@
 ---
 title: "Amour sans jugement"
 menu_title: ""
-description: "Amour sans jugement"
+description: "Barbara Davies, reçu par Albert Fike : « Comme vous l’avez peut-être deviné, j’ai passé tout ce temps avec vous, appréciant votre compagnie et vos … »"
 date: 2025-11-10 06:00:01+00:01
 draft: False
 hidden: True

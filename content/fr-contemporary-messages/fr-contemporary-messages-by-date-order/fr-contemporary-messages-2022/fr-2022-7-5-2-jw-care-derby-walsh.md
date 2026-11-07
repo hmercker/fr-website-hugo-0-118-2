@@ -1,7 +1,7 @@
 ---
 title: "Tout moment peut être une incitation à être en Grâce"
 menu_title: ""
-description: "Tout moment peut être une incitation à être en Grâce"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Croiriez-vous que chacun d’entre vous a été dans mes pensées aujourd’hui ? Vous pourriez vous attendre à ce … »"
 date: 2022-06-01 06:00:01+00:128
 draft: False
 hidden: True

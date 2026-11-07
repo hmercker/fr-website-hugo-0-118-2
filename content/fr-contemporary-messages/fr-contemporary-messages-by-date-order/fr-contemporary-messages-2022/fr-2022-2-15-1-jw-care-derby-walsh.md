@@ -1,7 +1,7 @@
 ---
 title: "Choisissez le chemin de l’amour"
 menu_title: ""
-description: "Choisissez le chemin de l’amour"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Lorsque vous êtes incertains de la direction à prendre, du chemin à choisir, eh bien, la réponse est de … »"
 date: 2022-06-01 06:00:01+00:29
 draft: False
 hidden: True

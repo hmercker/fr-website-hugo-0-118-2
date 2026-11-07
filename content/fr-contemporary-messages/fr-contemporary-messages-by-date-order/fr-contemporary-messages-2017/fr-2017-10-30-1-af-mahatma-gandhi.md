@@ -1,7 +1,7 @@
 ---
 title: "C'est votre travail"
 menu_title: ""
-description: "C'est votre travail"
+description: "Mahatma Gandhi, reçu par Al Fike : « J'ai observé vos efforts et votre travail en commun pour créer la Voix Directe. Je vous encourage donc, mes amis, je … »"
 date: 2022-06-01 06:00:01+00:169
 draft: False
 hidden: True

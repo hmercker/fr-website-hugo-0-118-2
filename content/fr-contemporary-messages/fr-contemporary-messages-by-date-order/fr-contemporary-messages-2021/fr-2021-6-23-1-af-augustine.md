@@ -1,7 +1,7 @@
 ---
 title: "S'aligner sur l'âme de Dieu (2021 Cercle de prière en ligne de Vancouver)"
 menu_title: ""
-description: "S'aligner sur l'âme de Dieu (2021 Cercle de prière en ligne de Vancouver)"
+description: "Augustin, reçu par Al Fike : « Bénédictions à vous, âmes bien-aimées et que la paix soit avec vous tous. Il manque tellement de choses dans votre vie … »"
 date: 2022-06-01 06:00:01+00:1551
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Marie apporte l'Amour d'une mère aux âmes de la Terre"
 menu_title: ""
-description: "Marie apporte l'Amour d'une mère aux âmes de la Terre"
+description: "Marie, reçu par Maureen Cardoso : « Je me joins à vous dans votre temps de prière, où vous ouvrez votre âme, désireuse d’être touchée par la Grâce de Dieu … »"
 date: 2022-06-01 06:00:01+00:844
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Votre ministère, votre vocation et votre vie"
 menu_title: ""
-description: "Votre ministère, votre vocation et votre vie"
+description: "Luc, reçu par Albert Fike : « Nous avons été appelés par le Maître, un par un, rassemblés autour de lui il y a toutes ces années. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

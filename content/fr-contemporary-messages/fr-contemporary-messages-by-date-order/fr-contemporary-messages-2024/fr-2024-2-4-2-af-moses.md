@@ -1,7 +1,7 @@
 ---
 title: "Votre responsabilité d’indiquer le chemin vers Dieu pour les autres"
 menu_title: ""
-description: "Votre responsabilité d’indiquer le chemin vers Dieu pour les autres"
+description: "Moïse, reçu par Albert Fike : « Ils n’avaient pas de maison, pour ainsi dire, et ils étaient agités, découragés et se sentaient abandonnés par Dieu. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

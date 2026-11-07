@@ -1,7 +1,7 @@
 ---
 title: "Laissez l'Amour de Dieu vous guider"
 menu_title: ""
-description: "Laissez l'Amour de Dieu vous guider"
+description: "Elizabeth, reçu par Jimbeau Walsh : « Ma sœur et moi, depuis si longtemps en esprit et dans les royaumes célestes, nous considérons nos vies terrestres … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

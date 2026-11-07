@@ -1,7 +1,7 @@
 ---
 title: "Questions et réponses d'un esprit Céleste"
 menu_title: ""
-description: "Questions et réponses d'un esprit Céleste"
+description: "Alec Gaunt, reçu par Al Fike : « Isis ne réside pas dans les Royaumes Célestes. Cet instrument insiste pour que les Esprits Célestes soient ses compagnons … »"
 date: 2022-06-01 06:00:01+00:656
 draft: False
 hidden: True

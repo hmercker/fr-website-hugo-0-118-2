@@ -1,7 +1,7 @@
 ---
 title: "Sur l'expiation de l'âme et le sentiment d'Amour Divin"
 menu_title: ""
-description: "Sur l'expiation de l'âme et le sentiment d'Amour Divin"
+description: "Seretta Kem, reçu par Al Fike : « Vous avez eu une conversation intéressante concernant les conditions de vos âmes et comment vos âmes peuvent être … »"
 date: 2022-06-01 06:00:01+00:270
 draft: False
 hidden: True

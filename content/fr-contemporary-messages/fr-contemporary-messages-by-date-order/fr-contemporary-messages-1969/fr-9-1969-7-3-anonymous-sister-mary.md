@@ -1,7 +1,7 @@
 ---
 title: "Les deux voies"
 menu_title: ""
-description: "Les deux voies"
+description: "Sœur Maria : « Je souhaite vous saluer depuis le Monde des Esprits et je veux vous parler ce soir de l'un des chemins du Monde des Esprits. »"
 date: 2022-06-01 06:00:01+00:09
 draft: False
 hidden: True

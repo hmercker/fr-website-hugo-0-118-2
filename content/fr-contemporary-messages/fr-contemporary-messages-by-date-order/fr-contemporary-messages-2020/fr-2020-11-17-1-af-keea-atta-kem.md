@@ -1,7 +1,7 @@
 ---
 title: "Appel à élargir les cercles de lumière"
 menu_title: ""
-description: "Appel à élargir les cercles de lumière"
+description: "Keea Atta Kem, reçu par Al Fike : « Que Dieu bénisse vos belles âmes de Son Amour. En priant ensemble dans ces Cercles de Lumière, vous créez une grande … »"
 date: 2022-06-01 06:00:01+00:1317
 draft: False
 hidden: True

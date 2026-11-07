@@ -1,7 +1,7 @@
 ---
 title: "S'élever au-dessus de la corruption du monde"
 menu_title: ""
-description: "S'élever au-dessus de la corruption du monde"
+description: "Confucius, reçu par Albert Fike : « Nous vous remercions de votre respect bienveillant envers nos efforts communs. Combien il est important d’avoir de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

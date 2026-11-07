@@ -1,7 +1,7 @@
 ---
 title: "6ème Sermon – L’incompréhension du sacrifice du sang"
 menu_title: ""
-description: "6ème Sermon – L’incompréhension du sacrifice du sang"
+description: "Jésus, reçu par Dr Samuels : « Ce soir, je veux écrire pourquoi aucun sang, qu’il s’agisse de celui de l’homme ou de l’animal, n’a un effet rédempteur sur … »"
 date: 2022-06-01 06:00:01+00:59
 draft: False
 hidden: True

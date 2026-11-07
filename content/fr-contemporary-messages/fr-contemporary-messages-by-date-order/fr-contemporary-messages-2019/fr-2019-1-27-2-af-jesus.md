@@ -1,7 +1,7 @@
 ---
 title: "Jésus s’est incarné en tant qu’âme complète et n’a pas d’autre moitié ou âme-sœur"
 menu_title: ""
-description: "Jésus s’est incarné en tant qu’âme complète et n’a pas d’autre moitié ou âme-sœur"
+description: "Jésus, reçu par Al Fike : « Il y a eu une question posée par notre cher frère vivant au loin concernant l’existence d’une âme-sœur dans ma vie. »"
 date: 2022-06-01 06:00:01+00:619
 draft: False
 hidden: True

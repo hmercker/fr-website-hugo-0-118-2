@@ -1,7 +1,7 @@
 ---
 title: "L’intégrisme"
 menu_title: ""
-description: "L’intégrisme"
+description: "Judas, reçu par H : « Le sujet d’aujourd’hui est très inhabituel, mais, lorsque j’ai vu hier comment tu lisais, pour la centième fois, la phrase… »"
 date: 2022-06-01 06:00:01+00:81
 draft: False
 hidden: True

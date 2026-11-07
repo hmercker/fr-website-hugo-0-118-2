@@ -1,7 +1,7 @@
 ---
 title: "Trois oiseaux sur un fil"
 menu_title: ""
-description: "Trois oiseaux sur un fil"
+description: "Confucius, reçu par Albert Fike : « ...sont prêts à rentrer chez eux. Comme vous avez été bénies, âmes bien-aimées. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

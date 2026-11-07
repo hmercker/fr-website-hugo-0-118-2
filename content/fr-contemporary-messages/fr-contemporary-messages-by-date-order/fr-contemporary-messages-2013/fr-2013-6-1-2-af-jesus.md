@@ -1,7 +1,7 @@
 ---
 title: "Bénédictions"
 menu_title: ""
-description: "Bénédictions"
+description: "Jésus, reçu par Albert Fike : « Le monde a profondément besoin de vous… un besoin si profond, et vous êtes les canaux de cet Amour ; vous devez offrir ce … »"
 date: 2026-10-16 06:00:01+00:09
 draft: False
 hidden: True

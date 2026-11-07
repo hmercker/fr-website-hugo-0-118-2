@@ -1,7 +1,7 @@
 ---
 title: "Shakespeare - Anne Hathaway"
 menu_title: ""
-description: "Shakespeare - Anne Hathaway"
+description: "William Shakespeare, reçu par FAB : « Tout d'abord, permettez-moi de clarifier ce que j'ai voulu dire dans mon message du 12 Août dernier : »"
 date: 2022-06-01 06:00:01+00:144
 draft: False
 hidden: True

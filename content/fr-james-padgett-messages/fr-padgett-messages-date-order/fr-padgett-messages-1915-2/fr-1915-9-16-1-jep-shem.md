@@ -1,7 +1,7 @@
 ---
 title: "Le père de l’une des tribus d’Israël qui est maintenant un ange Céleste encourage M. Padgett dans son travail d’assistance aux esprits des ténèbres"
 menu_title: ""
-description: "Le père de l’une des tribus d’Israël qui est maintenant un ange Céleste encourage M. Padgett dans son travail d’assistance aux esprits des ténèbres"
+description: "Shem, reçu par James Padgett : « Je fus un Juif de la première dispensation, et j’ai vécu avant la destruction de Jérusalem et même avant la grande … »"
 date: 2022-06-01 06:00:01+00:248
 draft: False
 hidden: True

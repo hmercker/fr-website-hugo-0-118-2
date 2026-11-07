@@ -1,7 +1,7 @@
 ---
 title: "Dites une petite prière pour chaque personne que vous rencontrez"
 menu_title: ""
-description: "Dites une petite prière pour chaque personne que vous rencontrez"
+description: "Jeanne d'Arc, reçu par Elizabeth Mack : « Je m'appelle Jeanne et j'aimerais parler de l'amour. Il est facile d'aimer notre Père Céleste car son amour est … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

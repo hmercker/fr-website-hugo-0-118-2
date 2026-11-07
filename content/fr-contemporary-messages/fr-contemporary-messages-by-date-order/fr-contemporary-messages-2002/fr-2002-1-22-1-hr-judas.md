@@ -1,7 +1,7 @@
 ---
 title: "La foi des petits enfants"
 menu_title: ""
-description: "La foi des petits enfants"
+description: "Judas, reçu par H : « Mon, oh mon, mon cher frère. Hier soir tu m’as laissé seul. »"
 date: 2022-06-01 06:00:01+00:13
 draft: False
 hidden: True

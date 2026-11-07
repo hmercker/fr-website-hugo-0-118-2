@@ -1,7 +1,7 @@
 ---
 title: "Que la bénédiction de l'Amour de Dieu soit en ce lieu et touche chaque âme qui y entre"
 menu_title: ""
-description: "Que la bénédiction de l'Amour de Dieu soit en ce lieu et touche chaque âme qui y entre"
+description: "Judas, reçu par Jimbeau Walsh : « Je souhaite saluer et honorer cette famille ouverte sur le chemin de l'Amour Divin et qui s’est engagée à servir … »"
 date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True

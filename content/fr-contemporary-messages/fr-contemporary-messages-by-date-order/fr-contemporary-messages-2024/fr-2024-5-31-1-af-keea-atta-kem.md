@@ -1,7 +1,7 @@
 ---
 title: "La Voix de Dieu est dans l'air"
 menu_title: ""
-description: "La Voix de Dieu est dans l'air"
+description: "Keea atta Kem, reçu par Albert Fike : « La voix de Dieu est dans l’air, âmes bien-aimées. Il murmure à votre oreille, vous transmettant les doux sons et … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Kate Sprague un esprit qui a vécu pour le développement du mental durant sa vie terrestre réalise maintenant l’importance de l’amour"
 menu_title: ""
-description: "Kate Sprague un esprit qui a vécu pour le développement du mental durant sa vie terrestre réalise maintenant l’importance de l’amour"
+description: "Kate Sprague, reçu par James Padgett : « Accordez-moi votre amour et votre aide. Je vois que votre sympathie va vers nous, et que votre amour nous appelle … »"
 date: 2022-06-01 06:00:01+00:133
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Hélène Padgett confirme que Jules César a écrit"
 menu_title: ""
-description: "Hélène Padgett confirme que Jules César a écrit"
+description: "Hélène Padgett, reçu par James Padgett : « Tu ne le penses peut-être pas, mais c’est un fait, et il vaut mieux que tu arrêtes. C’était César, comme on me … »"
 date: 2022-06-01 06:00:01+00:250
 draft: False
 hidden: True

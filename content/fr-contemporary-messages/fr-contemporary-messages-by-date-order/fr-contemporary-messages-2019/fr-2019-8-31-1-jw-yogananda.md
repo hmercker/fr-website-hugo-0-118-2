@@ -1,7 +1,7 @@
 ---
 title: "Branchez-vous sur le canal Céleste"
 menu_title: ""
-description: "Branchez-vous sur le canal Céleste"
+description: "Yogananda, reçu par Jimbeau Walsh : « De nombreux enseignements mettent actuellement l’accent sur cette unité avec l’Univers et c’est une chose merveilleuse. »"
 date: 2022-06-01 06:00:01+00:823
 draft: False
 hidden: True

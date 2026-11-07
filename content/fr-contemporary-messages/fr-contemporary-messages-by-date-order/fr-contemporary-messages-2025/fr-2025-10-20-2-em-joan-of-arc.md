@@ -1,7 +1,7 @@
 ---
 title: "Changements terrestres"
 menu_title: ""
-description: "Changements terrestres"
+description: "Jeanne d'Arc, reçu par Elizabeth Mack : « Son Amour est immense et recèle d'innombrables bénédictions, celles que je vous apporte par l'intermédiaire de … »"
 date: 2026-01-31 16:00:01+00:01
 draft: False
 hidden: True

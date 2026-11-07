@@ -1,7 +1,7 @@
 ---
 title: "À la fin, il y aura la paix et l'harmonie"
 menu_title: ""
-description: "À la fin, il y aura la paix et l'harmonie"
+description: "Augustin, reçu par Al Fike : « Oui votre monde est en profonde détresse. Il y a des moments où il devient tout à fait évident que les conditions de votre … »"
 date: 2022-06-01 06:00:01+00:966
 draft: False
 hidden: True

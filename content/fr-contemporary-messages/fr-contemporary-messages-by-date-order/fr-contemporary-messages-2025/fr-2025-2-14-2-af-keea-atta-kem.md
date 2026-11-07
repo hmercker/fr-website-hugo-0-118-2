@@ -1,7 +1,7 @@
 ---
 title: "Bénédiction de la Saint-Valentin"
 menu_title: ""
-description: "Bénédiction de la Saint-Valentin"
+description: "Keea atta Kem, reçu par Albert Fike : « Je vous apporte mon amour. Que chacun d’entre vous sache qu’il est aimé, aimé tendrement par Dieu, aimé tendrement … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

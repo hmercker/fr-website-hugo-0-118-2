@@ -1,7 +1,7 @@
 ---
 title: "Les Trois Naissances"
 menu_title: ""
-description: "Les Trois Naissances"
+description: "Judas, reçu par Jimbeau Walsh : « Je souhaite lui dire qu'il y a beaucoup de ses amis et de sa famille en esprit avec nous ainsi que sa bien-aimée. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

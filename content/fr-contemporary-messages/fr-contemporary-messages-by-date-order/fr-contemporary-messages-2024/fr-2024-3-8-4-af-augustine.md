@@ -1,7 +1,7 @@
 ---
 title: "lI existe un plan flexible pour notre temps ensemble"
 menu_title: ""
-description: "lI existe un plan flexible pour notre temps ensemble "
+description: "Augustin, reçu par Albert Fike : « Nous avons un plan pour ce moment ensemble, cet endroit et ceux qui viennent ici. Nous espérons que vous serez ouverts … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

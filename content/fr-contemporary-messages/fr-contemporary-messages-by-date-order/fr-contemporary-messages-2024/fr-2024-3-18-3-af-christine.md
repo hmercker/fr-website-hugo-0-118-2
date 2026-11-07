@@ -1,7 +1,7 @@
 ---
 title: "Conseils pour Matt partagés avec autorisation"
 menu_title: ""
-description: "Conseils pour Matt partagés avec autorisation"
+description: "Christine, reçu par Albert Fike : « Mon frère bien-aimé, le temps n'est pas si court pour que tu doives agir en courant. Je sais que tu sens que tu dois … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

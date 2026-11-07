@@ -1,7 +1,7 @@
 ---
 title: "Le voyage vers la vérité et l'éveil de l'âme"
 menu_title: ""
-description: "Le voyage vers la vérité et l'éveil de l'âme"
+description: "Augustin, reçu par Al Fike : « C’est votre maître Augustin. Nous continuerons à vous enseigner beaucoup de choses au fur et à mesure que vous progressez … »"
 date: 2023-09-01 06:00:01+00:79
 draft: False
 hidden: True

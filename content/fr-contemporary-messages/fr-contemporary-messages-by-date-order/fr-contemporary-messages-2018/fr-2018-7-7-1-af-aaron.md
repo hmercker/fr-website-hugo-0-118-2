@@ -1,7 +1,7 @@
 ---
 title: "Les anges accompagnent tous ceux qui cherchent l'Amour de Dieu"
 menu_title: ""
-description: "Les anges accompagnent tous ceux qui cherchent l'Amour de Dieu"
+description: "Aaron, reçu par Al Fike : « Qu’elle sache que les anges continuent de l’entourer, elle et sa chère sœur. La Main de Dieu repose en effet sur vous tous … »"
 date: 2022-06-01 06:00:01+00:421
 draft: False
 hidden: True

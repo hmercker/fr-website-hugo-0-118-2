@@ -1,7 +1,7 @@
 ---
 title: "Il n’y a aucun diable et aucun Satan en tant que personnes réelles et aucun ange déchu"
 menu_title: ""
-description: "Il n’y a aucun diable et aucun Satan en tant que personnes réelles et aucun ange déchu"
+description: "Jésus, reçu par James Padgett : « Le livre que vous lisez (Pasteur Russell – le spiritisme) est un leurre et un mensonge, car il n’y a aucun ange qui ne … »"
 date: 2022-06-01 06:00:01+00:112
 draft: False
 hidden: True

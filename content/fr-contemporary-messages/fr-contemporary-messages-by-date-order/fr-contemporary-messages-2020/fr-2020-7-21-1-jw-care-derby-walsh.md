@@ -1,7 +1,7 @@
 ---
 title: "Permettez la grâce de Dieu"
 menu_title: ""
-description: "Permettez la grâce de Dieu"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Dans le flux de l’Amour de Dieu, l’océan de Sa Grâce, les eaux vivantes, laissez-vous porter par le courant … »"
 date: 2022-06-01 06:00:01+00:1193
 draft: False
 hidden: True

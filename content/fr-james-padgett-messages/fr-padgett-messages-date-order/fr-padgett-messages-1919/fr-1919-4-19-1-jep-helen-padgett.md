@@ -1,7 +1,7 @@
 ---
 title: "Hélène commente le livre que M. Padgett lisait « la vie au-delà de la mort »"
 menu_title: ""
-description: "Hélène commente le livre que M. Padgett lisait « la vie au-delà de la mort »"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, je vois que tu as été très intéressé par le livre (« La vie au-delà de la mort » de Yogi … »"
 date: 2022-06-01 06:00:01+00:26
 draft: False
 hidden: True

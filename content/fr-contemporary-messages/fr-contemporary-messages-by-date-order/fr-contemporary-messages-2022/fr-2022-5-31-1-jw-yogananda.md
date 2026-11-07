@@ -1,7 +1,7 @@
 ---
 title: "Le don de donner dans l’amour de Dieu"
 menu_title: ""
-description: "Le don de donner dans l’amour de Dieu"
+description: "Yogananda, reçu par Jimbeau Walsh : « Mes chers frères et sœurs, que la lumière de l’Amour de Dieu remplisse vos âmes et vous apporte la légèreté de … »"
 date: 2022-06-01 06:00:01+00:101
 draft: False
 hidden: True

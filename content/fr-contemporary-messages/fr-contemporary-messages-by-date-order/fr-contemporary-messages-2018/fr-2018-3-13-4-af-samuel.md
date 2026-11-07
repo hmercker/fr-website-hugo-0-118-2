@@ -1,7 +1,7 @@
 ---
 title: "Le changement est la constante de l’univers"
 menu_title: ""
-description: "Le changement est la constante de l’univers"
+description: "Samuel, reçu par Al Fike : « Il y a une constante dans l’univers de Dieu et c’est le changement. Vos perceptions et vos perspectives changent, âmes … »"
 date: 2022-06-01 06:00:01+00:360
 draft: False
 hidden: True

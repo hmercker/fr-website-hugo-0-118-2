@@ -1,7 +1,7 @@
 ---
 title: "Hélène confirme que Blaine et Bismarck ont écrit sur la guerre et que leurs propos étaient très sérieux"
 menu_title: ""
-description: "Hélène confirme que Blaine et Bismarck ont écrit sur la guerre et que leurs propos étaient très sérieux"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, tu as reçu des lettres très intéressantes ce soir, et les deux esprits qui ont prétendu … »"
 date: 2022-06-01 06:00:01+00:40
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le Monde de Devenir sera en Harmonie"
 menu_title: ""
-description: "Le Monde de Devenir sera en Harmonie"
+description: "Jean le Baptiste, reçu par Elizabeth Mack : « Vos bénédictions se déversent sur vous. En ce moment même, le Père répond à vos prières, à vos désirs et à … »"
 date: 2026-01-30 16:00:01+00:01
 draft: False
 hidden: True

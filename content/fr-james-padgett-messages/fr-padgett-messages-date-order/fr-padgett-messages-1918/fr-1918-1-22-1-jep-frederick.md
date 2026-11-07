@@ -1,7 +1,7 @@
 ---
 title: "Frédérick le père accepte ce que Bismarck a dit au sujet de la liberté du peuple allemand vis à vis de son dirigeant et que la fin est très proche"
 menu_title: ""
-description: "Frédérick le père accepte ce que Bismarck a dit au sujet de la liberté du peuple allemand vis à vis de son dirigeant et que la fin est très proche"
+description: "Frédérick, reçu par James Padgett : « Laissez-moi écrire quelques propos. Le gouvernement des hommes est conçu par les idées qu’ils ont au sujet de … »"
 date: 2022-06-01 06:00:01+00:08
 draft: False
 hidden: True

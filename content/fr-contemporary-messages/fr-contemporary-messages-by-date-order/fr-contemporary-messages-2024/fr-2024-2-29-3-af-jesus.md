@@ -1,7 +1,7 @@
 ---
 title: "Nous encourage vers nos destinées"
 menu_title: ""
-description: "Nous encourage vers nos destinées"
+description: "Jésus, reçu par Albert Fike : « Chacun de vous a un destin et un but dans ce monde qui n’a pas encore été accompli, mais qui le sera avec le temps. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

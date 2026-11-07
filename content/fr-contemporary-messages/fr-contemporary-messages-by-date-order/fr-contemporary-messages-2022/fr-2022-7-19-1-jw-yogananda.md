@@ -1,7 +1,7 @@
 ---
 title: "Avec Dieu, tout est possible"
 menu_title: ""
-description: "Avec Dieu, tout est possible"
+description: "Yogananda, reçu par Jimbeau Walsh : « Car le Créateur tient chacun d’entre vous dans ses bras, vous protégeant du mal en ces temps tumultueux. »"
 date: 2022-06-01 06:00:01+00:136
 draft: False
 hidden: True

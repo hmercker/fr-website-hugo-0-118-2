@@ -1,7 +1,7 @@
 ---
 title: "La mère d’Eugène Morgan parle de son amour maternel, de son amour d’âme sœur et de l’Amour Divin du Père"
 menu_title: ""
-description: "La mère d’Eugène Morgan parle de son amour maternel, de son amour d’âme sœur et de l’Amour Divin du Père"
+description: "Mme Morgan, reçu par James Padgett : « Je l’ai entendu exprimer, aujourd’hui, le désir que je lui écrive, j’ai alors décidé de venir avec lui dans votre … »"
 date: 2022-06-01 06:00:01+00:29
 draft: False
 hidden: True

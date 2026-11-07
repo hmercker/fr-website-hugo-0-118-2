@@ -1,7 +1,7 @@
 ---
 title: "Les différents objectifs de la prochaine retraite"
 menu_title: ""
-description: "Les différents objectifs de la prochaine retraite"
+description: "Seretta Kem, reçu par Al Fike : « Chacun d'entre vous continue à se préparer, à rechercher des moments de prière, à être en bonne condition physique, à … »"
 date: 2022-06-01 06:00:01+00:91
 draft: False
 hidden: True

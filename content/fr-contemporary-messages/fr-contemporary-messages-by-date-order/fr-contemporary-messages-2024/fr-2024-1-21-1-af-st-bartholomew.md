@@ -1,7 +1,7 @@
 ---
 title: "Parle sérieusement de l’avenir de l’Amour Divin à la Barbade"
 menu_title: ""
-description: "Parle sérieusement de l’avenir de l’Amour Divin à la Barbade"
+description: "Bartholomée, reçu par Albert Fike : « Je m'appelle Jean Bartholomée. Pourtant, effectivement, nous vous voyons dans vos dilemmes. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

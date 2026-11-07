@@ -1,7 +1,7 @@
 ---
 title: "L'avancée de l'âme"
 menu_title: ""
-description: "L'avancée de l'âme"
+description: "Jésus, reçu par Helge Mercker : « C'est le fait de se rapprocher toujours plus de l'état de renaître dans la divinité de Son Amour. »"
 date: 2022-06-01 06:00:01+00:75
 draft: False
 hidden: True

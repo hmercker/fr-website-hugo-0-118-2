@@ -1,7 +1,7 @@
 ---
 title: "Vagues d’intervention divine et appel à être les instruments de Dieu"
 menu_title: ""
-description: "Vagues d’intervention divine et appel à être les instruments de Dieu"
+description: "Jésus, reçu par Albert Fike : « La miséricorde, l’amour et l’action de Dieu se déploient sur cette planète de manière à apporter perspicacité, réconfort … »"
 date: 2026-01-31 16:00:01+00:01
 draft: False
 hidden: True

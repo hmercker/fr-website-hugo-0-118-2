@@ -1,7 +1,7 @@
 ---
 title: "Les anges et ceux qui nous ont précédés soutiennent cette communauté"
 menu_title: ""
-description: "Les anges et ceux qui nous ont précédés soutiennent cette communauté"
+description: "Augustin, reçu par Albert Fike : « Votre monde est sur le point de s’ouvrir, chères et bien-aimées âmes. Ainsi, ils sont rassemblés autour de vous, âmes … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La grand-mère de M. Padgett écrit sur l’importance de connaître le chemin au Ciel Céleste"
 menu_title: ""
-description: "La grand-mère de M. Padgett écrit sur l’importance de connaître le chemin au Ciel Céleste"
+description: "Anne Rollins, reçu par James Padgett : « Je veux seulement écrire quelques lignes. Je ne vais pas écrire un long message mais un très court. »"
 date: 2022-06-01 06:00:01+00:12
 draft: False
 hidden: True

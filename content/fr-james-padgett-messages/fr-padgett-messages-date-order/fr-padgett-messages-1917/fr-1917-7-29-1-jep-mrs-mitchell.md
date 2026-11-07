@@ -1,7 +1,7 @@
 ---
 title: "La mère de Rev. Mitchell est très heureuse que son fils prêche la vérité de l’Amour de Dieu"
 menu_title: ""
-description: "La mère de Rev. Mitchell est très heureuse que son fils prêche la vérité de l’Amour de Dieu"
+description: "Mme Mitchell, reçu par James Padgett : « Permettez-moi de ne dire qu’un mot. J’étais présente à l’église ce matin et j’ai entendu le sermon de mon fils … »"
 date: 2022-06-01 06:00:01+00:172
 draft: False
 hidden: True

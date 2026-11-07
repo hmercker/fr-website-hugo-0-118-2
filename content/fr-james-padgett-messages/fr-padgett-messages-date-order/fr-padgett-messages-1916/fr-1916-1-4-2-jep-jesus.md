@@ -1,7 +1,7 @@
 ---
 title: "Jésus confirme que Luc a écrit sur l’expiation"
 menu_title: ""
-description: "Jésus confirme que Luc a écrit sur l’expiation"
+description: "Jésus, reçu par James Padgett : « J’écrirai seulement quelques lignes parce que je souhaite confirmer ce que Luc a clairement expliqué quant à l’expiation. »"
 date: 2022-06-01 06:00:01+00:115
 draft: False
 hidden: True

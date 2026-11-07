@@ -1,7 +1,7 @@
 ---
 title: "Un grand changement s'annonce dans le monde, qui apportera la lumière, la joie et la paix"
 menu_title: ""
-description: "Un grand changement s'annonce dans le monde, qui apportera la lumière, la joie et la paix"
+description: "André, reçu par Albert Fike : « Je sens que l’élan se construit dans le monde, un élan qui apportera de grands changements et une grande guérison. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

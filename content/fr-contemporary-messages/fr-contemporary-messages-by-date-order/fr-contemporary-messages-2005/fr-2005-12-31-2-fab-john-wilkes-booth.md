@@ -1,7 +1,7 @@
 ---
 title: "Le meurtre [d’Abraham Lincoln] est pardonné."
 menu_title: ""
-description: "Le meurtre [d’Abraham Lincoln] est pardonné."
+description: "John Wilkes Booth, reçu par FAB : « Vous êtes en train de canaliser un esprit qui a réalisé assez tôt l'acte terrible qu'il a commis. »"
 date: 2022-06-01 06:00:01+00:67
 draft: False
 hidden: True

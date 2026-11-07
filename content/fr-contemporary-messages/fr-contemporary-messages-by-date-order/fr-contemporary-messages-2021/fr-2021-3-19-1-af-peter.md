@@ -1,7 +1,7 @@
 ---
 title: "En mémoire de Charlie Thomson"
 menu_title: ""
-description: "En mémoire de Charlie Thomson"
+description: "Pierre, reçu par Al Fike : « Il a pris son voyage très au sérieux, a consacré du temps à la prière, a beaucoup réfléchi à la vérité et à la façon dont il … »"
 date: 2022-06-01 06:00:01+00:1447
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le ciel chante 'Oh Holy One' (Cercles de prière en ligne 2020)"
 menu_title: ""
-description: "Le ciel chante 'Oh Holy One' (Cercles de prière en ligne 2020)"
+description: "Goldie, reçu par Maureen Cardoso : « Au cher frère, notre instrument bien-aimé qui partage abondamment son don de chant et de musique, nous voudrions que … »"
 date: 2022-06-01 06:00:01+00:1056
 draft: False
 hidden: True

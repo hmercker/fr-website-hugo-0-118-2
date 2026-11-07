@@ -1,7 +1,7 @@
 ---
 title: "La grand-mère de M. Padgett décrit sa maison dans la seconde sphère Céleste"
 menu_title: ""
-description: "La grand-mère de M. Padgett décrit sa maison dans la seconde sphère Céleste"
+description: "Anne Rollins, reçu par James Padgett : « Ma maison est faite d’un matériau dont il n’existe aucune contrepartie sur terre, et elle est pourvue de tout ce … »"
 date: 2022-06-01 06:00:01+00:76
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L'harmonisation de vos prières crée une grande lumière"
 menu_title: ""
-description: "L'harmonisation de vos prières crée une grande lumière"
+description: "Keea Atta Kem, reçu par Albert Fike : « L’harmonisation de vos prières ensemble crée une grande lumière dans le monde. À mesure que vous vous rapprochez … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

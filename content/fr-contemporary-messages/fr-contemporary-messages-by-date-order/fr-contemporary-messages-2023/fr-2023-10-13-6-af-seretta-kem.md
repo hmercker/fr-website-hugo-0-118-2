@@ -1,7 +1,7 @@
 ---
 title: "lI y a un ange assigné à chacun de nous"
 menu_title: ""
-description: "lI y a un ange assigné à chacun de nous"
+description: "Seretta Kem, reçu par Albert Fike : « Il y a un ange, un ange qui sera avec vous pendant toute la durée de ce temps ensemble. Si vous souhaitez être … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La beauté de la fleur"
 menu_title: ""
-description: "La beauté de la fleur"
+description: "Goldie, reçu par Al Fike : « La beauté d’une fleur dit plus de mots de vérité et de Dieu qu’un livre entier sur le sujet. »"
 date: 2022-06-01 06:00:01+00:1372
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Mettez votre lumière en avant"
 menu_title: ""
-description: "Mettez votre lumière en avant"
+description: "Confucius, reçu par Al Fike : « Dieu te bénisse, mon fils bien-aimé c'est Confucius. Mes petits oiseaux, c'est si bon de vous voir vous rassembler de … »"
 date: 2022-06-01 06:00:01+00:263
 draft: False
 hidden: True

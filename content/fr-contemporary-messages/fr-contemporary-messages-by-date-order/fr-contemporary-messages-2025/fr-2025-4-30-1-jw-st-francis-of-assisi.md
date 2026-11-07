@@ -1,7 +1,7 @@
 ---
 title: "Laissez vos soucis de côté et accueillez-vous dans l'Amour de Dieu"
 menu_title: ""
-description: "Laissez vos soucis de côté et accueillez-vous dans l'Amour de Dieu"
+description: "François d'Assise, reçu par reçu par Jimbeau Walsh : « Car chacun a un don à offrir à l’autre. Chacun a une histoire qui élèvera l’autre, lui donnera une … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

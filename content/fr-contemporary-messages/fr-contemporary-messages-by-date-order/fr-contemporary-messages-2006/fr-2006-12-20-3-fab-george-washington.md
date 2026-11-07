@@ -1,7 +1,7 @@
 ---
 title: "Le fondateur de son pays apporte son soutien"
 menu_title: ""
-description: "Le fondateur de son pays apporte son soutien"
+description: "George Washington, reçu par FAB : « Vous et votre pays avez un avenir brillant et heureux. La libération à laquelle vous aspirez viendra, et dans le monde … »"
 date: 2022-06-01 06:00:01+00:73
 draft: False
 hidden: True

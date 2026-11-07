@@ -1,7 +1,7 @@
 ---
 title: "Nous bénissent et nous encouragent"
 menu_title: ""
-description: "Nous bénissent et nous encouragent"
+description: "James et Hélène Padgett, reçu par Al Fike : « Que la vérité du sujet provienne de la Bible, des œuvres qui sont passées par moi, ou des œuvres qui sont … »"
 date: 2022-06-01 06:00:01+00:197
 draft: False
 hidden: True

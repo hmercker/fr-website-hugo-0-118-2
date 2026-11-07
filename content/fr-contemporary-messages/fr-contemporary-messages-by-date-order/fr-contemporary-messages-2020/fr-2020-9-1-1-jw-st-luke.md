@@ -1,7 +1,7 @@
 ---
 title: "Les pensées que vous entretenez"
 menu_title: ""
-description: "Les pensées que vous entretenez"
+description: "St Luc, reçu par Jimbeau Walsh : « Mes frères, moi et nos deux sœurs, nous sommes restés avec vous aujourd’hui pour écouter votre conversation. »"
 date: 2022-06-01 06:00:01+00:1237
 draft: False
 hidden: True

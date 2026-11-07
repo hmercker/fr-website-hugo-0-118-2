@@ -1,7 +1,7 @@
 ---
 title: "Nous travaillons pour servir"
 menu_title: ""
-description: "Nous travaillons pour servir"
+description: "Jean-Baptiste : « Comme je me sens privilégié ce soir de pouvoir m'adresser à vous une fois de plus. De sentir la condition merveilleuse qui est au milieu … »"
 date: 2022-06-01 06:00:01+00:68
 draft: False
 hidden: True

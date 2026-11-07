@@ -1,7 +1,7 @@
 ---
 title: "46ème Sermon – La conception de Jérémie d’un monde moral"
 menu_title: ""
-description: "46ème Sermon – La conception de Jérémie d’un monde moral"
+description: "Jésus, reçu par Dr Samuels : « Jérémie, et tous ceux intéressés à préserver les rituels purifiés de Jéhovah et une meilleure éthique morale parmi le … »"
 date: 2022-06-01 06:00:01+00:99
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Transformez votre perception du monde"
 menu_title: ""
-description: "Transformez votre perception du monde"
+description: "Fleur de Lotus, reçu par Maureen Cardoso : « J'ai eu le grand plaisir d'être avec vous pendant que vous étiez en état de sommeil pour aider vos corps à … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

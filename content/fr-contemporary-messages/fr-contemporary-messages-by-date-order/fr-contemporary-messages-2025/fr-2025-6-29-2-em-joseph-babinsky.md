@@ -1,7 +1,7 @@
 ---
 title: "Message pour les anciens résidents de l'île"
 menu_title: ""
-description: "Message pour les anciens résidents de l'île"
+description: "Joseph Babinsky, reçu par Elizabeth Mack : « Car ce cercle de prière est puissant. Vous attirez beaucoup de ceux qui vivaient autrefois sur votre île et … »"
 date: 2026-01-30 16:00:01+00:01
 draft: False
 hidden: True

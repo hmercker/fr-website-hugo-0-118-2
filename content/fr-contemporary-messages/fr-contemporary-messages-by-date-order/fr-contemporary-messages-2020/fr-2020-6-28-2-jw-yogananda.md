@@ -1,7 +1,7 @@
 ---
 title: "Les vibrations de la Vérité et de l'Amour Divin"
 menu_title: ""
-description: "Les vibrations de la Vérité et de l'Amour Divin"
+description: "Yogananda, reçu par Jimbeau Walsh : « Je souhaite parler du discernement de la vérité. Il y a eu beaucoup de discussions tant en public qu’en privé et il … »"
 date: 2022-06-01 06:00:01+00:1162
 draft: False
 hidden: True

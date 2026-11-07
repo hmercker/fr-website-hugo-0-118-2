@@ -1,7 +1,7 @@
 ---
 title: "Lutter pour la justice"
 menu_title: ""
-description: "Lutter pour la justice"
+description: "Oscar Romero, reçu par FAB : « La situation est grave, mais le Créateur fera sa magie, et vous vivrez pour voir l’accomplissement de ce qui a été commencé … »"
 date: 2022-06-01 06:00:01+00:40
 draft: False
 hidden: True

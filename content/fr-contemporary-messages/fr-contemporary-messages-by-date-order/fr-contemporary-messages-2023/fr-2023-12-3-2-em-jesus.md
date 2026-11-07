@@ -1,7 +1,7 @@
 ---
 title: "Une invitation aux membres de la Fédération Galactique"
 menu_title: ""
-description: "Une invitation aux membres de la Fédération Galactique"
+description: "Jésus, reçu par Elizabeth Mack : « L’amour qui accompagne ce chemin dépasse votre entendement. Il est accessible à toutes les âmes qui aspirent à l’union … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

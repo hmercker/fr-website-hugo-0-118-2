@@ -1,7 +1,7 @@
 ---
 title: "Luc s’exprime sur la déchéance et l’évolution de l’homme – les scientifiques connaissent seulement l’évolution après que l’homme ait atteint le fond de sa dégénérescence ou transmission"
 menu_title: ""
-description: "Luc s’exprime sur la déchéance et l’évolution de l’homme – les scientifiques connaissent seulement l’évolution après que l’homme ait atteint le fond de sa dégénérescence ou transmission"
+description: "St Luc, reçu par James Padgett : « Luc, qui fut l’auteur du troisième Évangile. Eh bien, je désire écrire quelques lignes sur le sujet figurant dans le … »"
 date: 2022-06-01 06:00:01+00:171
 draft: False
 hidden: True

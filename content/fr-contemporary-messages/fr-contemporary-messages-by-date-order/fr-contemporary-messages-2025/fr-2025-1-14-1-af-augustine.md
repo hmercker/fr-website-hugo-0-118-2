@@ -1,7 +1,7 @@
 ---
 title: "Continue de vous appeler au service"
 menu_title: ""
-description: "Continue de vous appeler au service"
+description: "Augustin, reçu par Albert Fike : « Jésus continue de vous appeler au service, âmes bien-aimées. Je sais que vous avez une oreille qui écoute et une … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

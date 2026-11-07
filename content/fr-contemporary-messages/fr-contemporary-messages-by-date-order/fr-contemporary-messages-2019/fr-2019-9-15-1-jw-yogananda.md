@@ -1,7 +1,7 @@
 ---
 title: "Le yoga de l'Amour de Dieu est le yoga le plus élevé"
 menu_title: ""
-description: "Le yoga de l'Amour de Dieu est le yoga le plus élevé"
+description: "Yogananda, reçu par Jimbeau Walsh : « J’étais avec vous tous plus tôt dans la belle petite église. Cupidon est sur son épaule comme on dit. »"
 date: 2022-06-01 06:00:01+00:853
 draft: False
 hidden: True

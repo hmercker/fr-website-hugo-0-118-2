@@ -1,7 +1,7 @@
 ---
 title: "Permettez-vous l'amour, la patience et la persévérance"
 menu_title: ""
-description: "Permettez-vous l'amour, la patience et la persévérance"
+description: "Professeur Salyards, reçu par Al Fike : « Oh mes beaux amis, si seulement vous pouviez passer une journée au ciel et comprendre ces choses dont nous parlons. »"
 date: 2022-06-01 06:00:01+00:1362
 draft: False
 hidden: True

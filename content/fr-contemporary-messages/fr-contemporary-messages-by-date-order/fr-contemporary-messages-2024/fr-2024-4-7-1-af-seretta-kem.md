@@ -1,7 +1,7 @@
 ---
 title: "Les prières inébranlables sont essentielles au développement des médiums de l’Amour Divin"
 menu_title: ""
-description: "Les prières inébranlables sont essentielles au développement des médiums de l’Amour Divin"
+description: "Seretta Kem, reçu par Albert Fike : « Je m’appelle Seretta Kem en ce qui concerne la médiumnité. Je souhaite transmettre ce message à ceux qui se … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Lorsque vous marchez dans la Lumière, les autres réagissent ; certains avec Amour, d'autres avec Colère"
 menu_title: ""
-description: "Lorsque vous marchez dans la Lumière, les autres réagissent ; certains avec Amour, d'autres avec Colère"
+description: "André, reçu par Albert Fike : « Les anges vous entourent, mes enfants. L’Amour se déverse dans vos âmes. »"
 date: 2026-10-16 06:00:01+00:09
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Les bénédictions de Dieu sont partout !"
 menu_title: ""
-description: "Les bénédictions de Dieu sont partout !"
+description: "Keea atta Kem, reçu par Albert Fike : « Nous continuons à vous soutenir et à vous servir, âmes bien-aimées. Alors que vous recherchez l’amour du Père … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

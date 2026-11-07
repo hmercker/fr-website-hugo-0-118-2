@@ -1,7 +1,7 @@
 ---
 title: "Puissance"
 menu_title: ""
-description: "Puissance"
+description: "Jésus, reçu par FAB : « Comme nous l’avons dit maintes fois par l’intermédiaire de M. Padgett, nous allons révéler notre puissance, et rien ne pourra y … »"
 date: 2022-06-01 06:00:01+00:212
 draft: False
 hidden: True

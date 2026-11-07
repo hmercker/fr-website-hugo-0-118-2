@@ -1,7 +1,7 @@
 ---
 title: "Tout est fait dans l'amour"
 menu_title: ""
-description: "Tout est fait dans l'amour"
+description: "Jésus, reçu par Al Fike : « Vous forgez un chemin où les mystères ne sont plus des mystères et où la Vérité est évidente pour ceux qui ont des yeux pour voir. »"
 date: 2022-06-01 06:00:01+00:118
 draft: False
 hidden: True

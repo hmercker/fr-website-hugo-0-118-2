@@ -1,7 +1,7 @@
 ---
 title: "Hélène affirme que Salomon a écrit par l’intermédiaire de M. Padgett"
 menu_title: ""
-description: "Hélène affirme que Salomon a écrit par l’intermédiaire de M. Padgett"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, tu as certainement eu de merveilleux messages ce soir. Ce que Salomon t’a écrit est vrai, car j’ai … »"
 date: 2022-06-01 06:00:01+00:294
 draft: False
 hidden: True

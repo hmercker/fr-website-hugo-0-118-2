@@ -1,7 +1,7 @@
 ---
 title: "La prière est l'outil essentiel de transformation"
 menu_title: ""
-description: "La prière est l'outil essentiel de transformation"
+description: "Orion, reçu par Elizabeth Mack : « Nous sommes avec certains d'entre vous de temps en temps et d'autres d'entre vous de temps en temps. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

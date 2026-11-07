@@ -1,7 +1,7 @@
 ---
 title: "Saleeba: un ancien esprit de la sixième sphère recherche de l’aide"
 menu_title: ""
-description: "Saleeba: un ancien esprit de la sixième sphère recherche de l’aide"
+description: "Saleeba, reçu par James Padgett : « Permettez-moi juste d’écrire un peu parce que j’ai besoin d’aide, et j’ai vu comment vous avez aidé le dernier esprit … »"
 date: 2022-06-01 06:00:01+00:93
 draft: False
 hidden: True

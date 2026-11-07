@@ -1,7 +1,7 @@
 ---
 title: "La violence est-elle jamais justifiée en cas de légitime défense ?"
 menu_title: ""
-description: "La violence est-elle jamais justifiée en cas de légitime défense ?"
+description: "Jésus, reçu par Kathryn Stokes : « Je sais qu’il s’agit d’une question embarrassante, mais si vous savez que la vie terrestre n’est qu’un moment dans … »"
 date: 2022-06-01 06:00:01+00:27
 draft: False
 hidden: True

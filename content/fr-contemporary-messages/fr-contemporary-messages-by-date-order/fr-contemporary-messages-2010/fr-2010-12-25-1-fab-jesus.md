@@ -1,7 +1,7 @@
 ---
 title: "Le pardon de Dieu"
 menu_title: ""
-description: "Le pardon de Dieu"
+description: "Jésus, reçu par FAB : « Vous cherchez une clarification. J'ai dit par l'intermédiaire de M. »"
 date: 2022-06-01 06:00:01+00:179
 draft: False
 hidden: True

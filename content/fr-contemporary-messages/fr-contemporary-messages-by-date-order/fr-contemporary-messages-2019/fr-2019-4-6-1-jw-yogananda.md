@@ -1,7 +1,7 @@
 ---
 title: "Il vaut mieux être un fou de Dieu qu'un roi des hommes"
 menu_title: ""
-description: "Il vaut mieux être un fou de Dieu qu'un roi des hommes"
+description: "Yogananda, reçu par Jimbeau Walsh : « Plus tôt dans la journée, j'ai établi un rapport avec toi alors que tu étais en prière. Tu as effectivement ressenti … »"
 date: 2022-06-01 06:00:01+00:697
 draft: False
 hidden: True

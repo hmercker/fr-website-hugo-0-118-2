@@ -1,7 +1,7 @@
 ---
 title: "Bénédictions de lumière pour le monde"
 menu_title: ""
-description: "Bénédictions de lumière pour le monde"
+description: "Jésus & Moïse & Elie, reçu par Al Fike : « Bénédictions à vous tous, âmes bien-aimées. Bien que beaucoup soient perdus dans l’obscurité et ne comprennent … »"
 date: 2022-06-01 06:00:01+00:1540
 draft: False
 hidden: True

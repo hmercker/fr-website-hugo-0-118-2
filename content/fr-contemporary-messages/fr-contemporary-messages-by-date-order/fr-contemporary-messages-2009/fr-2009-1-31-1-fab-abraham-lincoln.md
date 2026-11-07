@@ -1,7 +1,7 @@
 ---
 title: "Le progrès de Lincoln"
 menu_title: ""
-description: "Le progrès de Lincoln"
+description: "Abraham Lincoln, reçu par FAB : « Vous venez de terminer cette merveilleuse biographie de ma vie par Ronald C. Vous avez apprécié d'en apprendre davantage … »"
 date: 2022-06-01 06:00:01+00:10
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Demandez l'aide des anges"
 menu_title: ""
-description: "Demandez l'aide des anges"
+description: "Keea Atta Kem, reçu par Al Fike : « Parallèlement à vos prières à Dieu, vous pouvez faire appel à nous pour vous aider dans vos efforts pour être plus en … »"
 date: 2022-06-01 06:00:01+00:483
 draft: False
 hidden: True

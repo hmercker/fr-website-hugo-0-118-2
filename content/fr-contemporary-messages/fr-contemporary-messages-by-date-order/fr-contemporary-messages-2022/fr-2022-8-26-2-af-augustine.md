@@ -1,7 +1,7 @@
 ---
 title: "Voyage au puits"
 menu_title: ""
-description: "Voyage au puits"
+description: "Augustin, reçu par Al Fike : « Soyez ouverts au monde des possibilités, âmes bien-aimées. Alors que vous grandissez dans l’Amour du Père et que vos âmes … »"
 date: 2023-09-01 06:00:01+00:46
 draft: False
 hidden: True

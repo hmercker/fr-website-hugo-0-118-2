@@ -1,7 +1,7 @@
 ---
 title: "Indignation vertueuse II"
 menu_title: ""
-description: "Indignation vertueuse II"
+description: "Jésus, reçu par FAB : « Tu veux savoir si l'indignation vertueuse est une bonne ou une mauvaise chose. Lorsque nous sommes confrontés à quelque chose … »"
 date: 2022-06-01 06:00:01+00:62
 draft: False
 hidden: True

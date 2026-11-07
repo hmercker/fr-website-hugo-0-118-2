@@ -1,7 +1,7 @@
 ---
 title: "Ne vous contentez pas de rechercher le repentir. Votre amour manifesté sur Terre produit déjà ses effets"
 menu_title: ""
-description: "Ne vous contentez pas de rechercher le repentir. Votre amour manifesté sur Terre produit déjà ses effets"
+description: "Jean le baptiste et Pierre, reçu par Elizabeth Mack : « En ces temps où beaucoup cherchent à se repentir de leurs fautes, nous qui connaissons la vérité … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

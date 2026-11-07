@@ -1,7 +1,7 @@
 ---
 title: "Votre volonté et la Volonté de Dieu"
 menu_title: ""
-description: "Votre volonté et la Volonté de Dieu"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « Je souhaite vous dire quelques mots sur le libre arbitre et la Volonté de Dieu. Vous pouvez réfléchir au nombre … »"
 date: 2022-06-01 06:00:01+00:1348
 draft: False
 hidden: True

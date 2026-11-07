@@ -1,7 +1,7 @@
 ---
 title: "Vous qui voulez être des canaux de lumière, vous avez amené beaucoup, beaucoup d'esprits ici pour recevoir l'Amour de Dieu"
 menu_title: ""
-description: "Vous qui voulez être des canaux de lumière, vous avez amené beaucoup, beaucoup d'esprits ici pour recevoir l'Amour de Dieu"
+description: "Georges Stokes et Jésus, reçu par Elizabeth Mack : « Ce cercle est rempli, rempli d’âmes du monde des esprits, d’âmes qui cherchent un terrain plus élevé … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La guérison et la loi de l'harmonie Partie 2"
 menu_title: ""
-description: "La guérison et la loi de l'harmonie Partie 2"
+description: "Seretta Kem, reçu par Al Fike : « Je souhaite poursuivre mon propos sur la guérison, car il y a de nombreux aspects de la guérison et des conditions … »"
 date: 2022-06-01 06:00:01+00:111
 draft: False
 hidden: True

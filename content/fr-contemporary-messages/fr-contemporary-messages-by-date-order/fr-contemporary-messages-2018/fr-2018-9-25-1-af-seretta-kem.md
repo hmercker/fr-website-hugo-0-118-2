@@ -1,7 +1,7 @@
 ---
 title: "Instructions pour la Voix Directe"
 menu_title: ""
-description: "Instructions pour la Voix Ddirecte"
+description: "Seretta Kem, reçu par Al Fike : « Je souhaite transmettre quelques conseils à votre groupe de sept concernant le temps que vous allez passer ensemble. »"
 date: 2022-06-01 06:00:01+00:485
 draft: False
 hidden: True

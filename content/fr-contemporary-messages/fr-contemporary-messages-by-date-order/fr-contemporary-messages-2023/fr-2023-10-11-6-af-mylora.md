@@ -1,7 +1,7 @@
 ---
 title: "Bénédiction de guérison profonde alors que nous voyageons à Laurelville"
 menu_title: ""
-description: "Bénédiction de guérison profonde alors que nous voyageons à Laurelville"
+description: "Mylora, reçu par Albert Fike : « Car nous comptons sur vos instruments, vos dons et vos capacités pour aider à élever le groupe dans son ensemble. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

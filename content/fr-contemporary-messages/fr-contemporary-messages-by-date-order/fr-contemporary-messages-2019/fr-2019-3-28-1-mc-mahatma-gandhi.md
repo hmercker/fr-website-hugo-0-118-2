@@ -1,7 +1,7 @@
 ---
 title: "Retenez la vision de Dieu et ne vous laissez pas distraire"
 menu_title: ""
-description: "Retenez la vision de Dieu et ne vous laissez pas distraire"
+description: "Mahatma Gandhi, reçu par Maureen Cardoso : « Cela a été un voyage, votre temps dans cette terre lointaine, jusqu’à ce centre de guérison. »"
 date: 2022-06-01 06:00:01+00:687
 draft: False
 hidden: True

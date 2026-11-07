@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes sur une trajectoire de grands changements"
 menu_title: ""
-description: "Vous êtes sur une trajectoire de grands changements"
+description: "Faith, reçu par Maureen Cardoso : « Comme il est merveilleux d’entendre la prière de cette chère sœur, qui prie pour recevoir le déversement, semblable à … »"
 date: 2026-09-22 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Les 3 niveaux du mental"
 menu_title: ""
-description: "Les 3 niveaux du mental"
+description: "Yogananda, reçu par Al Fike : « C’est un véritable privilège de prier avec vous aujourd’hui, mes beaux amis. Et je souhaite faire un commentaire sur un … »"
 date: 2022-06-01 06:00:01+00:1549
 draft: False
 hidden: True

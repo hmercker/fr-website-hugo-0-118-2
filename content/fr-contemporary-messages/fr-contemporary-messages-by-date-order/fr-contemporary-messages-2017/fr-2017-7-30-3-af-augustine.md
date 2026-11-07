@@ -1,7 +1,7 @@
 ---
 title: "La vérité passe par l'âme et elle commence par un simple désir"
 menu_title: ""
-description: "La vérité passe par l'âme et elle commence par un simple désir"
+description: "Augustin, reçu par Al Fike : « Ressentez-vous la paix dans cette pièce ? Êtes-vous conscients de la Présence de Dieu ? »"
 date: 2022-06-01 06:00:01+00:71
 draft: False
 hidden: True

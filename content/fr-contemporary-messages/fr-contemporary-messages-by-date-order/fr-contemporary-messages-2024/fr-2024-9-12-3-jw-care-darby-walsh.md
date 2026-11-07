@@ -1,7 +1,7 @@
 ---
 title: "Vos trésors sont gardés au Ciel"
 menu_title: ""
-description: "Vos trésors sont gardés au Ciel"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Comme le dit la chanson, « Qui aurait pu imaginer que nous serions tellement bénis de l’intérieur comme de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

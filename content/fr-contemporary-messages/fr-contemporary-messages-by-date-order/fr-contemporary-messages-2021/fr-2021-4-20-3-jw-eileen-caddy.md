@@ -1,7 +1,7 @@
 ---
 title: "Allez à l’intérieur et permettez à Dieu d’ouvrir votre âme"
 menu_title: ""
-description: "Allez à l’intérieur et permettez à Dieu d’ouvrir votre âme"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « Toutes les prières qui émanent de l’âme, prononcées avec le cœur, atteignent l’âme de Dieu. »"
 date: 2022-06-01 06:00:01+00:1478
 draft: False
 hidden: True

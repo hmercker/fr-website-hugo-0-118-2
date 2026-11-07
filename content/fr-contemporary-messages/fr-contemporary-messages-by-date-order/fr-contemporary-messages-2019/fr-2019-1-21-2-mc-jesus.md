@@ -1,7 +1,7 @@
 ---
 title: "Jésus apporte une bénédiction"
 menu_title: ""
-description: "Jésus apporte une bénédiction"
+description: "Jésus, reçu par Maureen Cardoso : « Que l’Amour du Père vous baigne et vous traverse en grande abondance. Que cet Amour vous purifie et vous apporte … »"
 date: 2022-06-01 06:00:01+00:610
 draft: False
 hidden: True

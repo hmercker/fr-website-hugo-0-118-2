@@ -1,7 +1,7 @@
 ---
 title: "Le Juif errant"
 menu_title: ""
-description: "Le Juif errant"
+description: "Anonyme, reçu par James Padgett : « Pendant des années et des années, j’ai attendu à ce qu’il vienne jusqu’à moi, pas comme le Jésus réincarné, mais comme … »"
 date: 2022-06-01 06:00:01+00:152
 draft: False
 hidden: True

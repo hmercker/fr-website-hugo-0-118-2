@@ -1,7 +1,7 @@
 ---
 title: "Le don de la Voix Directe se rapproche - Voix Directe"
 menu_title: ""
-description: "Le don de la Voix Directe se rapproche - Voix Directe"
+description: "Seretta Kem, reçu par Al Fike : « Vous vous rapprochez de la réalisation de ce don d’expressions et de manifestations matérielles en alignement avec … »"
 date: 2022-06-01 06:00:01+00:1323
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Soyez inébranlables dans vos prières (2022 Gardiens de la Lumière)"
 menu_title: ""
-description: "Soyez inébranlables dans vos prières (2022 Gardiens de la Lumière)"
+description: "Seretta Kem, reçu par Al Fike : « Le monde continue d’attendre son réveil. Le monde a grand besoin de ceux qui sont éveillés. »"
 date: 2022-06-01 06:00:01+00:12
 draft: False
 hidden: True

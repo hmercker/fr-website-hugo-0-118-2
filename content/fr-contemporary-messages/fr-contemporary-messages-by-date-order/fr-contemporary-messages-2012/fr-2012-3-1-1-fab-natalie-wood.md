@@ -1,7 +1,7 @@
 ---
 title: "Expériences dans le monde des esprits d’une star de cinéma - 2"
 menu_title: ""
-description: "Expériences dans le monde des esprits d’une star de cinéma - 2"
+description: "Natalie Wood, reçu par FAB : « Comme vous le savez maintenant, je ne savais pas qui j’étais. Cela n’a jamais été retenu contre moi ici. »"
 date: 2022-06-01 06:00:01+00:217
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L’espoir du sénateur John Bricker"
 menu_title: ""
-description: "L’espoir du sénateur John Bricker"
+description: "John Bricker, reçu par FAB : « J’aimais vraiment mon pays et la Constitution, comme beaucoup au Congrès. John William Bricker (6 Septembre 1893 – 22 Mars … »"
 date: 2022-06-01 06:00:01+00:229
 draft: False
 hidden: True

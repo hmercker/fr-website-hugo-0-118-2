@@ -1,7 +1,7 @@
 ---
 title: "Vivez la vérité de l'Amour de Dieu"
 menu_title: ""
-description: "Vivez la vérité de l'Amour de Dieu"
+description: "St Matthieu, reçu par Al Fike : « Oui vous voyez avec vos yeux matériels et connaissez avec votre mental matériel beaucoup d’iniquités et de ténèbres au … »"
 date: 2022-06-01 06:00:01+00:550
 draft: False
 hidden: True

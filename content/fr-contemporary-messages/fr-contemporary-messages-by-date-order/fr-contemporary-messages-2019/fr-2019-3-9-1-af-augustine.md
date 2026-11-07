@@ -1,7 +1,7 @@
 ---
 title: "Qu’est-ce que l’âme ?"
 menu_title: ""
-description: "Qu’est-ce que l’âme ?"
+description: "Augustin, reçu par Al Fike : « Vous demandez, qu’est-ce que l’âme ? Quel est ce lieu profond en moi dont mes amis les anges ont dit qu’il était si vital … »"
 date: 2022-06-01 06:00:01+00:669
 draft: False
 hidden: True

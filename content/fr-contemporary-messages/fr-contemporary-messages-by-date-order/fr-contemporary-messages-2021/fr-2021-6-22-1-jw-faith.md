@@ -1,7 +1,7 @@
 ---
 title: "Parlez à Dieu avec passion et exprimez-vous avec passion"
 menu_title: ""
-description: "Parlez à Dieu avec passion et exprimez-vous avec passion"
+description: "Faith, reçu par Jimbeau Walsh : « Bénédictions à vous, âmes bien-aimées. Je veux vous encourager tous à avoir de la passion dans votre vie, à ne pas vivre … »"
 date: 2023-09-01 06:00:01+00:05
 draft: False
 hidden: True

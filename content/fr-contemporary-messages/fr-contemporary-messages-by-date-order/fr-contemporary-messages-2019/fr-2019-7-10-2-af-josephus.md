@@ -1,7 +1,7 @@
 ---
 title: "Ne vous attardez pas sur le seuil de votre âme"
 menu_title: ""
-description: "Ne vous attardez pas sur le seuil de votre âme"
+description: "Flavius Josèphe, reçu par Al Fike : « Je souhaite reconnaître les deux précieuses âmes dont le jour est important et leur souhaiter toute la Lumière et … »"
 date: 2022-06-01 06:00:01+00:774
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Mettez l'accent sur la prière pour l'Amour Divin"
 menu_title: ""
-description: "Mettez l'accent sur la prière pour l'Amour Divin"
+description: "Augustin, reçu par Al Fike : « Oh, comme chacun de vous est mis au défi dans ce monde, ce monde rempli de douleur, ce monde qui manque d’amour, ce monde … »"
 date: 2022-06-01 06:00:01+00:376
 draft: False
 hidden: True

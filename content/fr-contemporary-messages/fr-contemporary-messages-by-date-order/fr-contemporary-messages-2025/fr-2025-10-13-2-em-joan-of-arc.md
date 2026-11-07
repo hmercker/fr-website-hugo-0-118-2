@@ -1,7 +1,7 @@
 ---
 title: "L'Œuvre de la Prière"
 menu_title: ""
-description: "L'Œuvre de la Prière"
+description: "Jeanne d'Arc, reçu par Elizabeth Mack : « Nous venons aujourd'hui vous accompagner dans vos prières, les fortifier et nous rapprocher de vous pour ouvrir … »"
 date: 2026-01-31 16:00:01+00:01
 draft: False
 hidden: True

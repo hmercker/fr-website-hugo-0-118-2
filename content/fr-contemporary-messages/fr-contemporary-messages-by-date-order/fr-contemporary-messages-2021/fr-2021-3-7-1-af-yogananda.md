@@ -1,7 +1,7 @@
 ---
 title: "Cherchez à connaître les dons que Dieu vous a donnés"
 menu_title: ""
-description: "Cherchez à connaître les dons que Dieu vous a donnés"
+description: "Yogananda, reçu par Al Fike : « Je vous salue tous du monde de l’esprit. La prière est l’activation de l’âme. »"
 date: 2022-06-01 06:00:01+00:1433
 draft: False
 hidden: True

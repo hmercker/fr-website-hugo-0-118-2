@@ -1,7 +1,7 @@
 ---
 title: "Créer une condition de base pour la Voix Directe"
 menu_title: ""
-description: "Créer une condition de base pour la Voix Directe"
+description: "Seretta Kem, reçu par Al Fike : « J'espère que toutes les préoccupations matérielles sont traitées et que nous pouvons parler de choses plus profondes qui … »"
 date: 2022-06-01 06:00:01+00:162
 draft: False
 hidden: True

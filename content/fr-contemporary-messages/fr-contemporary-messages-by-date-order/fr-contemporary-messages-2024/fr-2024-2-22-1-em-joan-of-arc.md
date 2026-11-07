@@ -1,7 +1,7 @@
 ---
 title: "Instruction sur la façon d’ÊTRE"
 menu_title: ""
-description: "Instruction sur la façon d’ÊTRE"
+description: "Jeanne d'Arc, reçu par Elizabeth Mack : « En tant qu’enfants de Dieu, bénéficiant de nombreuses bénédictions et bien sûr de beaucoup d’amour, considérez … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

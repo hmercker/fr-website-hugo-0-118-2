@@ -1,7 +1,7 @@
 ---
 title: "Saleeba progresse vers les Sphères Célestes"
 menu_title: ""
-description: "Saleeba progresse vers les Sphères Célestes"
+description: "Saleeba, reçu par James Padgett : « J’ai l’intention de tenir ma promesse et de vous raconter ma vie sur terre il y a plusieurs milliers d’années, et je … »"
 date: 2022-06-01 06:00:01+00:305
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La Confédération iroquoise - 3"
 menu_title: ""
-description: "La Confédération iroquoise - 3"
+description: "Benjamin Franklin, reçu par FAB : « Mais malgré tout, nous ne pouvions pas considérer la contribution des autochtones comme égale aux modèles et aux idées … »"
 date: 2022-06-01 06:00:01+00:153
 draft: False
 hidden: True

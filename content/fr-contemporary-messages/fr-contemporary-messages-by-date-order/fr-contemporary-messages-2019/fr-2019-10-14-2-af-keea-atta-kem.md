@@ -1,7 +1,7 @@
 ---
 title: "Prier pour l'Amour de Dieu dans les conditions difficiles de notre monde"
 menu_title: ""
-description: "Prier pour l'Amour de Dieu dans les conditions difficiles de notre monde"
+description: "Keea Atta Kem, reçu par Al Fike : « Alors que vous envoyez vos prières à Dieu avec toutes vos intentions et tous vos sentiments, vos désirs d’apporter la … »"
 date: 2022-06-01 06:00:01+00:878
 draft: False
 hidden: True

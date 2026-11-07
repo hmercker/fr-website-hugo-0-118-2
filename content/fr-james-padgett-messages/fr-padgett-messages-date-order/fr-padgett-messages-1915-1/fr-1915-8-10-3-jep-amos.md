@@ -1,7 +1,7 @@
 ---
 title: "Amos le Prophète préfère la version dans la Bible"
 menu_title: ""
-description: "Amos le Prophète préfère la version dans la Bible"
+description: "Amos, reçu par James Padgett : « Je veux simplement dire que j’ai entendu le message de l’esprit qui a écrit en dernier ; C’est peut-être un vrai récit de … »"
 date: 2022-06-01 06:00:01+00:188
 draft: False
 hidden: True

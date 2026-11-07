@@ -1,7 +1,7 @@
 ---
 title: "L’honnêteté d’un Rockefeller"
 menu_title: ""
-description: "L’honnêteté d’un Rockefeller"
+description: "Nelson Rockefeller, reçu par FAB : « Vous êtes en train de lire mes conférences « L’avenir du fédéralisme ». Ce ne sont que des foutaises. »"
 date: 2022-06-01 06:00:01+00:194
 draft: False
 hidden: True

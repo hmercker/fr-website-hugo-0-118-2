@@ -1,7 +1,7 @@
 ---
 title: "Garder la Foi"
 menu_title: ""
-description: "Garder la Foi"
+description: "Jésus, reçu par Kathryn Stokes : « Comme tu le réalises, le travail doit se dérouler jour après jour et ne peut pas être « transformé » du jour au … »"
 date: 2022-06-01 06:00:01+00:02
 draft: False
 hidden: True

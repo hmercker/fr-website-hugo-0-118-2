@@ -1,7 +1,7 @@
 ---
 title: "Le réconfort de Jésus"
 menu_title: ""
-description: "Le réconfort de Jésus"
+description: "Jésus, reçu par FAB : « Ce que nous avons dit par l’intermédiaire de M. Padgett, nous vous l’avons dit maintes fois, et nous le répétons aujourd’hui  … »"
 date: 2022-06-01 06:00:01+00:204
 draft: False
 hidden: True

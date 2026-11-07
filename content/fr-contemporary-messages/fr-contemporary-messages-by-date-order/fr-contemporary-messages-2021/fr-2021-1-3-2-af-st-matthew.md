@@ -1,7 +1,7 @@
 ---
 title: "Puissiez-vous vraiment comprendre le voyage que vous entreprenez"
 menu_title: ""
-description: "Puissiez-vous vraiment comprendre le voyage que vous entreprenez"
+description: "St Matthieu, reçu par Al Fike : « Âmes bien-aimées, comme vous êtes toutes belles ! Bien sûr, vous allez refléter votre parcours, votre pensée, les idées … »"
 date: 2022-06-01 06:00:01+00:1365
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Confirmation des portraits"
 menu_title: ""
-description: "Confirmation des portraits"
+description: "Jésus, reçu par FAB : « Je souhaite confirmer que les portraits dans les canalisations de Judas sont authentiques et réels. »"
 date: 2022-06-01 06:00:01+00:219
 draft: False
 hidden: True

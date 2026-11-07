@@ -1,7 +1,7 @@
 ---
 title: "La médiumnité exige de se consacrer au développement d'une relation avec Dieu"
 menu_title: ""
-description: "La médiumnité exige de se consacrer au développement d'une relation avec Dieu"
+description: "Seretta Kem, reçu par Al Fike : « Si peu dans votre monde ont ce désir ou même une idée de ce qui est possible. Mettre en avant la sagesse des anges sera … »"
 date: 2022-06-01 06:00:01+00:1048
 draft: False
 hidden: True

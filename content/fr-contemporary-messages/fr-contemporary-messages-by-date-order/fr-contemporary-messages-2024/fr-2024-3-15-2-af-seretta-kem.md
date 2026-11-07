@@ -1,7 +1,7 @@
 ---
 title: "Les temps que nous vivons sont un don de Dieu"
 menu_title: ""
-description: "Les temps que nous vivons sont un don de Dieu"
+description: "Seretta Kem, reçu par Albert Fike : « La situation dans laquelle vous vous trouvez n’est pas contraire à nos plans. En fait, il est fortuit que vous … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

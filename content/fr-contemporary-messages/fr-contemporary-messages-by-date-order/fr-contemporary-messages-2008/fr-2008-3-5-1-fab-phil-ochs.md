@@ -1,7 +1,7 @@
 ---
 title: "Un Folksinger est heureux"
 menu_title: ""
-description: "Un Folksinger est heureux"
+description: "Phil Ochs, reçu par FAB : « Mes chansons sont maintenant plus nettes, plus claires, mais aussi plus douces et plus heureuses, reflétant ma rédemption de … »"
 date: 2022-06-01 06:00:01+00:33
 draft: False
 hidden: True

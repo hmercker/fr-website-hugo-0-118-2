@@ -1,7 +1,7 @@
 ---
 title: "Les Âmes-sœurs"
 menu_title: ""
-description: "Les Âmes-sœurs"
+description: "Judas, reçu par H : « Mon cher frère H , le moment est venu d’approfondir un peu plus le sujet des âmes sœurs. Je ferai cela dans un seul message, mais il … »"
 date: 2022-06-01 06:00:01+00:49
 draft: False
 hidden: True

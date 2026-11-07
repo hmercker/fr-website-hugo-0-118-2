@@ -1,7 +1,7 @@
 ---
 title: "Le père de Leslie veut qu’il sache que l’Amour de Dieu a coulé dans son âme en grande abondance"
 menu_title: ""
-description: "Le père de Leslie veut qu’il sache que l’Amour de Dieu a coulé dans son âme en grande abondance"
+description: "William Stone, reçu par James Padgett : « Je veux juste dire un mot à mon fils. Dernièrement, j’ai beaucoup été avec lui, observant la présence de l’Amour … »"
 date: 2022-06-01 06:00:01+00:154
 draft: False
 hidden: True

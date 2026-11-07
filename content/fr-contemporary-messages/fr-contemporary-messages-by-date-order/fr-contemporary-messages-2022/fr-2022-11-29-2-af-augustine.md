@@ -1,7 +1,7 @@
 ---
 title: "Vulnérabilités de l'interprétation et de l'enseignement des vérités de l'Amour Divin"
 menu_title: ""
-description: "Vulnérabilités de l'interprétation et de l'enseignement des vérités de l'Amour Divin"
+description: "Augustin, reçu par Al Fike : « Vous avez des inquiétudes au sujet de ceux qui souhaitent interpréter et enseigner ces vérités à leur manière et par leurs … »"
 date: 2023-09-01 06:00:01+00:61
 draft: False
 hidden: True

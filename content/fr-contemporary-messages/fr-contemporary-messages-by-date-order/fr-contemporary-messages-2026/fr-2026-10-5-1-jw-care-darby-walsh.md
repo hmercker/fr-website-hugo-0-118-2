@@ -1,7 +1,7 @@
 ---
 title: "Permettre à votre âme, à votre vie, d'être transformées"
 menu_title: ""
-description: "Permettre à votre âme, à votre vie, d'être transformées"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Nous sommes conscients des nombreux changements qui s'opèrent, non seulement sur Terre, mais aussi à travers … »"
 date: 2026-10-12 06:00:01+00:01
 draft: False
 hidden: True

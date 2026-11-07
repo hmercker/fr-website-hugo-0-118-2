@@ -1,7 +1,7 @@
 ---
 title: "Aigle Blanc n’a pas permis à un esprit des ténèbres d’écrire"
 menu_title: ""
-description: "Aigle Blanc n’a pas permis à un esprit des ténèbres d’écrire"
+description: "Aigle Blanc, reçu par James Padgett : « Lipscomb a essayé d’écrire mais je ne l’ai pas laissé faire parce qu’il était ivre et je sais que vous ne vouliez … »"
 date: 2022-06-01 06:00:01+00:182
 draft: False
 hidden: True

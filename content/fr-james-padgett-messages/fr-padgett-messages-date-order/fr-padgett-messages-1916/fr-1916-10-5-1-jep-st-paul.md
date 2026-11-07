@@ -1,7 +1,7 @@
 ---
 title: "Quel est le corps réel qui est ressuscité au moment de la mort physique (Suite)"
 menu_title: ""
-description: "Quel est le corps réel qui est ressuscité au moment de la mort physique (Suite)"
+description: "St Paul, reçu par James Padgett : « Je vais terminer mon message ce soir si vous en avez la possibilité. Eh bien, nous allons essayer. »"
 date: 2022-06-01 06:00:01+00:287
 draft: False
 hidden: True

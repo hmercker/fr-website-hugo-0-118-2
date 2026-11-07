@@ -1,7 +1,7 @@
 ---
 title: "La vie n'est pas faite pour travailler dur, s'inquiéter ou être opprimé"
 menu_title: ""
-description: "La vie n'est pas faite pour travailler dur, s'inquiéter ou être opprimé"
+description: "Marie, reçu par Albert Fike : « Je vous exhorte à ouvrir vos âmes et à prier. Demandez à Dieu d’infuser son amour en vos âmes, car c’est ce qui guérira la … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

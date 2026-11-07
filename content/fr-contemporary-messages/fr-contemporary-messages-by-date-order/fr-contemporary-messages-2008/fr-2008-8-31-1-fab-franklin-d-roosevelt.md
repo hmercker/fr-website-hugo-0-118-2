@@ -1,7 +1,7 @@
 ---
 title: "Les expériences d'un Président Américain"
 menu_title: ""
-description: "Les expériences d'un Président Américain"
+description: "Franklin D Roosevelt, reçu par FAB : « Lorsque j'ai survécu intact à la tentative d'assassinat [qui s'est produite le mois précédant son entrée à la … »"
 date: 2022-06-01 06:00:01+00:99
 draft: False
 hidden: True

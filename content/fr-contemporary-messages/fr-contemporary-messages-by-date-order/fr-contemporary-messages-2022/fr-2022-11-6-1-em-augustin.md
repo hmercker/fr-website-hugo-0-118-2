@@ -1,7 +1,7 @@
 ---
 title: "Déclin des désirs matériels"
 menu_title: ""
-description: "Déclin des désirs matériels "
+description: "Augustin, reçu par Elizabeth Mack : « Et en particulier, je voudrais parler de la consommation. Car j’étais de ceux qui consommaient trop, même à cette … »"
 date: 2022-06-01 06:00:01+00:206
 draft: False
 hidden: True

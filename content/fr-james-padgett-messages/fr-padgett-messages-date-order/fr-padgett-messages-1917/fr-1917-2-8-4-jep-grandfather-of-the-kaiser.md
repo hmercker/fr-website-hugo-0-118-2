@@ -1,7 +1,7 @@
 ---
 title: "Le grand père du Kaiser a fortement essayé d’influencer son petit fils afin de mettre un terme à la guerre"
 menu_title: ""
-description: "Le grand père du Kaiser a fortement essayé d’influencer son petit fils afin de mettre un terme à la guerre"
+description: "Le grand père du Kaiser, reçu par James Padgett : « Permettez-moi de dire un mot en réponse à ce qui vient d’être écrit, car je m’intéresse à la guerre. »"
 date: 2022-06-01 06:00:01+00:51
 draft: False
 hidden: True

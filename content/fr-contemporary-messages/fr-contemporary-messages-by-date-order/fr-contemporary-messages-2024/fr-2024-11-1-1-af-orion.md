@@ -1,7 +1,7 @@
 ---
 title: "Les multiples dimensions de la création de Dieu"
 menu_title: ""
-description: "Les multiples dimensions de la création de Dieu"
+description: "Orion, reçu par Albert Fike : « Que le grand Amour du Créateur pénètre dans votre âme, alimentant votre progression sur le chemin éternel de la vie. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

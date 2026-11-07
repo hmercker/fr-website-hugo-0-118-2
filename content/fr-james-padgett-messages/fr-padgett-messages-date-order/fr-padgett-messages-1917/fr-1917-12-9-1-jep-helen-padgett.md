@@ -1,7 +1,7 @@
 ---
 title: "Hélène : alors que la Science Chrétienne enseigne la vérité dans certains détails, cependant elle n’enseigne pas aux hommes la plus Haute vérité qui fait d’eux des Anges Divins"
 menu_title: ""
-description: "Hélène : alors que la Science Chrétienne enseigne la vérité dans certains détails, cependant elle n’enseigne pas aux hommes la plus Haute vérité qui fait d’eux des Anges Divins"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, j’ai entendu tes prières, et j’ai prié avec toi pour l’arrivée de l’Amour, et je sais que le … »"
 date: 2022-06-01 06:00:01+00:189
 draft: False
 hidden: True

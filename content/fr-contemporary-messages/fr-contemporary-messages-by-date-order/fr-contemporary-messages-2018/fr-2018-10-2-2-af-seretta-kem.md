@@ -1,7 +1,7 @@
 ---
 title: "La naissance de l'âme"
 menu_title: ""
-description: "La naissance de l'âme"
+description: "Seretta Kem, reçu par Al Fike : « Vous vous interrogez donc sur vos expériences dans la chambre noire. Les expériences que vous vivrez pendant ce temps … »"
 date: 2022-06-01 06:00:01+00:495
 draft: False
 hidden: True

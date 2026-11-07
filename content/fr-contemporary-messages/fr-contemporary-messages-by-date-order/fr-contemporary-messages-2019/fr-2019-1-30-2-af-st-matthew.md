@@ -1,7 +1,7 @@
 ---
 title: "Merci pour vos efforts dans la prière"
 menu_title: ""
-description: "Merci pour vos efforts dans la prière"
+description: "St Matthieu, reçu par Al Fike : « Il y aura toujours plus à dire, à enseigner, à donner pour répondre aux questions de l’esprit, mais souvenez-vous, âmes … »"
 date: 2022-06-01 06:00:01+00:630
 draft: False
 hidden: True

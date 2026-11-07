@@ -1,7 +1,7 @@
 ---
 title: "Les esprits Célestes dansent avec joie"
 menu_title: ""
-description: "Les esprits Célestes dansent avec joie"
+description: "Goldie, reçu par Maureen Cardoso : « Je ne peux pas me contenir avec la joie que nous, dans les Cieux Célestes, dansons avec votre grand désir, votre … »"
 date: 2022-06-01 06:00:01+00:498
 draft: False
 hidden: True

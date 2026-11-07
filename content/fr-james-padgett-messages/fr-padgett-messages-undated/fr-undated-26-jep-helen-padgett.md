@@ -1,7 +1,7 @@
 ---
 title: "Hélène dit que les esprits qui voulaient écrire ont été arrêtés par son guide indien parce que M. Padgett était trop fatigué"
 menu_title: ""
-description: "Hélène dit que les esprits qui voulaient écrire ont été arrêtés par son guide indien parce que M. Padgett était trop fatigué"
+description: "Hélène Padgett, reçu par James Padgett : « Alors pense à moi avec tout ton amour et je serai heureuse. Tout ira bien et tu ne dois pas t’inquiéter. »"
 date: 2022-06-01 06:00:01+00:100
 draft: False
 hidden: True

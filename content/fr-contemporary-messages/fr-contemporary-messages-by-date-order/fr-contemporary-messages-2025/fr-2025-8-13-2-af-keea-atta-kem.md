@@ -1,7 +1,7 @@
 ---
 title: "Comment prier efficacement"
 menu_title: ""
-description: "Comment prier efficacement"
+description: "Keea Atta Kem, reçu par Albert Fike : « Le développement de l'âme peut être une chose très complexe. Lorsqu'il est à son apogée, il résulte de … »"
 date: 2025-11-21 06:00:01+00:01
 draft: False
 hidden: True

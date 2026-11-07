@@ -1,7 +1,7 @@
 ---
 title: "Q&R : L'éveil de l'âme et l'ego"
 menu_title: ""
-description: "Q&R : L'éveil de l'âme et l'ego"
+description: "Augustin, reçu par Al Fike : « J’ai le privilège aujourd’hui d’être avec vous, pour répondre aux questions que vous pourriez avoir. »"
 date: 2022-06-01 06:00:01+00:773
 draft: False
 hidden: True

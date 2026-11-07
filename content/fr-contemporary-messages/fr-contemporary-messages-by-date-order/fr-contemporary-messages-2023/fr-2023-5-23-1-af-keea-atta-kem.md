@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes les rares privilégiés au monde"
 menu_title: ""
-description: "Vous êtes les rares privilégiés au monde"
+description: "Keea Atta Kem, reçu par Al Fike : « Car combien sur votre plan terrestre connaissent ce don comme vous le ressentez, ressentent ce don de la manière dont … »"
 date: 2023-09-01 06:00:01+00:27
 draft: False
 hidden: True

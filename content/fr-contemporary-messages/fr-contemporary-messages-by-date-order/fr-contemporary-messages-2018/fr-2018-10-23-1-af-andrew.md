@@ -1,7 +1,7 @@
 ---
 title: "Recherchez l'harmonie grâce à l'Amour de Dieu"
 menu_title: ""
-description: "Recherchez l'harmonie grâce à l'Amour de Dieu"
+description: "André, reçu par Al Fike : « Dans la création de Dieu, toutes les choses recherchent l’harmonie. Tout mouvement, toute évolution et toute expression de la … »"
 date: 2022-06-01 06:00:01+00:533
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Commentaires sur le travail avec les esprits sombres"
 menu_title: ""
-description: "Commentaires sur le travail avec les esprits sombres"
+description: "St Luc, reçu par Eugène Morgan : « Des millions de personnes ont fait appel à vos services ce soir pour nous permettre de les visualiser. »"
 date: 2022-06-01 06:00:01+00:03
 draft: False
 hidden: True

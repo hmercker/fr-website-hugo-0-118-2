@@ -1,7 +1,7 @@
 ---
 title: "Voyage vers l'expiation"
 menu_title: ""
-description: "Voyage vers l'expiation"
+description: "Augustin, reçu par Al Fike : « Que le Père bénisse effectivement vos âmes. Puissiez-vous en venir à connaître ce désir ardent qui réside au fond de vous … »"
 date: 2022-06-01 06:00:01+00:61
 draft: False
 hidden: True

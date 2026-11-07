@@ -1,7 +1,7 @@
 ---
 title: "Mary Kennedy parle, dans un message précédent, de son grand amour pour son âme sœur, Leslie"
 menu_title: ""
-description: "Mary Kennedy parle, dans un message précédent, de son grand amour pour son âme sœur, Leslie"
+description: "Mary Kennedy, reçu par James Padgett : « Dites-lui que, dans toute la terre, et dans le ciel aussi, il n’y a personne qui l’aime comme sa Mary. »"
 date: 2022-06-01 06:00:01+00:125
 draft: False
 hidden: True

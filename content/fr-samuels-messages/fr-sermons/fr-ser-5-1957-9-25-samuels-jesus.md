@@ -1,7 +1,7 @@
 ---
 title: "5ème Sermon – La vraie foi et vertu d’Abraham"
 menu_title: ""
-description: "5ème Sermon – La vraie foi et vertu d’Abraham"
+description: "Jésus, reçu par Dr Samuels : « Il est très important, pour l’humanité, de comprendre de quelle façon le Christianisme, tel qu’il existe aujourd’hui, ne … »"
 date: 2022-06-01 06:00:01+00:58
 draft: False
 hidden: True

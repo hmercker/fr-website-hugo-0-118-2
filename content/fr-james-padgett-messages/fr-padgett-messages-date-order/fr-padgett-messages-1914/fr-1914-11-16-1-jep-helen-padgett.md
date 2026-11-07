@@ -1,7 +1,7 @@
 ---
 title: "Hélène parle de son développement spirituel initial dans la troisième sphère avec l’aide de M. Padgett"
 menu_title: ""
-description: "Hélène parle de son développement spirituel initial dans la troisième sphère avec l’aide de M. Padgett"
+description: "Hélène Padgett, reçu par James Padgett : « Il est tout près de moi et l’Esprit Saint vient de plus en plus dans mon âme. Je commence à avoir plus de foi … »"
 date: 2022-06-01 06:00:01+00:28
 draft: False
 hidden: True

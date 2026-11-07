@@ -1,7 +1,7 @@
 ---
 title: "Les âmes qui aspirent à la lumière apporteront le changement"
 menu_title: ""
-description: "Les âmes qui aspirent à la lumière apporteront le changement"
+description: "St Pierre, reçu par Al Fike : « L’Amour de Dieu se répandra dans le monde à partir des âmes qui aspirent à la Lumière. Préparez vos âmes, soyez ouverts à … »"
 date: 2022-06-01 06:00:01+00:310
 draft: False
 hidden: True

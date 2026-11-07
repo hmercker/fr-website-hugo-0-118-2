@@ -1,7 +1,7 @@
 ---
 title: "La guérison du paralytique à Capharnaüm"
 menu_title: ""
-description: "La guérison du paralytique à Capharnaüm"
+description: "Judas, reçu par H : « Aujourd’hui, tu as écrit une lettre sur la guérison à la piscine de Bethesda et le blasphème supposé que le Maître a commis en … »"
 date: 2022-06-01 06:00:01+00:46
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes tous de belles fleurs de Dieu S'éveiller à l'amour"
 menu_title: ""
-description: "Nous sommes tous de belles fleurs de Dieu S'éveiller à l'amour"
+description: "Keea Atta Kem, reçu par Al Fike : « Nous avons travaillé très diligemment sur chacun d’entre vous. Cette opportunité de vous avoir tous ensemble dans une … »"
 date: 2022-06-01 06:00:01+00:955
 draft: False
 hidden: True

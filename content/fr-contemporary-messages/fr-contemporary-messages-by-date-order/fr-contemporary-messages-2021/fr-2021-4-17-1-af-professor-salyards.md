@@ -1,7 +1,7 @@
 ---
 title: "Vous connaîtrez votre rôle à jouer"
 menu_title: ""
-description: "Vous connaîtrez votre rôle à jouer"
+description: "Professeur Salyards, reçu par Al Fike : « Soyez assurés, mes chers et beaux amis, qu’il y a un plan et que votre défi et votre invitation sont d’être … »"
 date: 2022-06-01 06:00:01+00:1472
 draft: False
 hidden: True

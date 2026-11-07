@@ -1,7 +1,7 @@
 ---
 title: "Un changement spirituel dans la politique Américaine"
 menu_title: ""
-description: "Un changement spirituel dans la politique Américaine"
+description: "Thomas Jefferson, reçu par FAB : « Bien que j’ai progressé vers les Cieux Célestes, je n’ai pas perdu mon intérêt ou mon dévouement envers mon pays. »"
 date: 2022-06-01 06:00:01+00:88
 draft: False
 hidden: True

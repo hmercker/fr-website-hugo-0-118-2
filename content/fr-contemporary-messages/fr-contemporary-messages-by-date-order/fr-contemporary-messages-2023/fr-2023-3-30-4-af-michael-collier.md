@@ -1,7 +1,7 @@
 ---
 title: "Également engagé envers des liens d'äme"
 menu_title: ""
-description: "Également engagé envers des liens d'äme"
+description: "Michael Collier, reçu par Al Fike : « Moi aussi je m’engagerai envers vous, mes amis. En effet c’était mon pays lorsque j’étais dans la chair et j’ai un … »"
 date: 2023-09-01 06:00:01+00:109
 draft: False
 hidden: True

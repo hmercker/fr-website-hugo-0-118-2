@@ -1,7 +1,7 @@
 ---
 title: "Imperfections des Pères fondateurs"
 menu_title: ""
-description: "Imperfections des Pères fondateurs"
+description: "Benjamin Franklin, reçu par FAB : « Nous ne pouvions pas percevoir cela aussi clairement sur terre. Nous nous sentions privilégiés de régner pour des … »"
 date: 2022-06-01 06:00:01+00:133
 draft: False
 hidden: True

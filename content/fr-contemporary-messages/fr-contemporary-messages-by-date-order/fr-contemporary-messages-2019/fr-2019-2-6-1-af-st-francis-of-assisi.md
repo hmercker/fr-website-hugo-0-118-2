@@ -1,7 +1,7 @@
 ---
 title: "Vos prières peuvent changer les conditions du monde"
 menu_title: ""
-description: "Vos prières peuvent changer les conditions du monde"
+description: "St François d'Assise, reçu par Al Fike : « ….et contre la loi de Dieu. Donc, l’humanité doit venir, par sa propre volonté, à Dieu, doit venir et recevoir … »"
 date: 2022-06-01 06:00:01+00:638
 draft: False
 hidden: True

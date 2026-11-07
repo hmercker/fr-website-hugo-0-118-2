@@ -1,7 +1,7 @@
 ---
 title: "Faites du monde votre ashram, votre monastère"
 menu_title: ""
-description: "Fais du monde votre ashram, votre monastère"
+description: "Yogananda, reçu par Jimbeau Walsh : « Je voudrais remercier chacun d’entre vous d’avoir pris le temps d’être en union sacrée avec notre Père Céleste. »"
 date: 2022-06-01 06:00:01+00:1203
 draft: False
 hidden: True

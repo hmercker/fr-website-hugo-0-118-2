@@ -1,7 +1,7 @@
 ---
 title: "La saison pour être seul"
 menu_title: ""
-description: "La saison pour être seul"
+description: "Judas, reçu par H : « Il y a un temps pour tout, un temps pour toute chose sous les cieux: Un temps pour naître et un temps pour mourir ; Un temps pour … »"
 date: 2022-06-01 06:00:01+00:77
 draft: False
 hidden: True

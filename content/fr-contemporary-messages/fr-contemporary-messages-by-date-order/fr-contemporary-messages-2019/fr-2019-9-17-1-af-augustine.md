@@ -1,7 +1,7 @@
 ---
 title: "Dieu utilisera de nombreux instruments pour réveiller les âmes"
 menu_title: ""
-description: "Dieu utilisera de nombreux instruments pour réveiller les âmes"
+description: "Augustin, reçu par Al Fike : « Votre enseignant Augustin est ici. Merci chère fille bien-aimée pour tes efforts dans le chant et la prière et pour … »"
 date: 2022-06-01 06:00:01+00:856
 draft: False
 hidden: True

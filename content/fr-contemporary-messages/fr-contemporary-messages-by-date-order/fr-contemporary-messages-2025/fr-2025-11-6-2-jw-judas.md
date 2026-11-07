@@ -1,7 +1,7 @@
 ---
 title: "Vous devez écouter"
 menu_title: ""
-description: "Vous devez écouter"
+description: "Judas, reçu par Jimbeau Walsh : « En leur nom à tous, je tiens à vous assurer, sans la moindre inquiétude, que vous êtes aimés, que nous veillons sur vous … »"
 date: 2025-12-12 16:00:01+00:01
 draft: False
 hidden: True

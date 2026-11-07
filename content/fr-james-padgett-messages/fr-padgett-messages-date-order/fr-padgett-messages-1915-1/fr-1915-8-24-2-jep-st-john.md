@@ -1,7 +1,7 @@
 ---
 title: "Jean explique que même Jésus, lorsqu’il est épuisé, peut perdre la capacité de communiquer selon la loi de la communication"
 menu_title: ""
-description: "Jean explique que même Jésus, lorsqu’il est épuisé, peut perdre la capacité de communiquer selon la loi de la communication"
+description: "St Jean, reçu par James Padgett : « Je veux simplement dire que ce que le Maître dit est vrai, et triomphera bientôt, et vous devez croire que la foi est … »"
 date: 2022-06-01 06:00:01+00:210
 draft: False
 hidden: True

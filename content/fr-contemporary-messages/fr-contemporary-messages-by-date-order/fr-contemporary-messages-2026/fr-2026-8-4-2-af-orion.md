@@ -1,7 +1,7 @@
 ---
 title: "Affranchissez-vous de votre condition humaine pour devenir un véritable instrument de Dieu"
 menu_title: ""
-description: "Affranchissez-vous de votre condition humaine pour devenir un véritable instrument de Dieu"
+description: "Orion, reçu par Albert Fike : « Les conséquences des actions humaines sont évidentes, n'est-ce pas, mes amis ? Alors que les incendies font rage et que la … »"
 date: 2026-10-04 06:00:01+00:01
 draft: False
 hidden: True

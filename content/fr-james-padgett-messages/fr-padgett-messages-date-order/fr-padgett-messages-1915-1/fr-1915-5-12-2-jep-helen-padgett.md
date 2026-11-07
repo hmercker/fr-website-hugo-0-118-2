@@ -1,7 +1,7 @@
 ---
 title: "Hélène dit que la grand-mère de M. Padgett va aider la Reine"
 menu_title: ""
-description: "Hélène dit que la grand-mère de M. Padgett va aider la Reine"
+description: "Hélène Padgett, reçu par James Padgett : « Chéri, tu as eu une longue réunion ce soir, tu es fatigué et tu ne dois plus écrire. Mais ta mère va l’aider et … »"
 date: 2022-06-01 06:00:01+00:82
 draft: False
 hidden: True

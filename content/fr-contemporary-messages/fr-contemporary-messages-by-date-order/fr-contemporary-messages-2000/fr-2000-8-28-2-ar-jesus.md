@@ -1,7 +1,7 @@
 ---
 title: "Alfredo et Ourson Véloce"
 menu_title: ""
-description: "Alfredo et Ourson véloce"
+description: "Jésus, reçu par Amada Réza : « Mes enfants, ne vous désespérez pas d’être encore peu nombreux, car je vous demanderai de percevoir avec votre âme remplie … »"
 date: 2022-06-01 06:00:01+00:22
 draft: False
 hidden: True

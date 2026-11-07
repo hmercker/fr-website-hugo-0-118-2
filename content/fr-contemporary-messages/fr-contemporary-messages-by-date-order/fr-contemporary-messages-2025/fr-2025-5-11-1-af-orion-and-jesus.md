@@ -1,7 +1,7 @@
 ---
 title: "La prière est un élément essentiel du plan divin pour la transformation du monde"
 menu_title: ""
-description: "La prière est un élément essentiel du plan divin pour la transformation du monde"
+description: "Orion et Jésus, reçu par Al Fike : « Le monde a besoin de vos prières. Dieu peut guérir la Terre, mais Il dépend de vos prières et de vos désirs. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

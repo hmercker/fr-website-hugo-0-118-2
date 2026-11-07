@@ -1,7 +1,7 @@
 ---
 title: "La faim de l’âme"
 menu_title: ""
-description: "La faim de l’âme"
+description: "Judas, reçu par Jimbeau Walsh : « J’ai passé une partie de ma journée à faire comprendre à celui-ci certaines choses dont je souhaite parler, et il s’est … »"
 date: 2022-06-01 06:00:01+00:126
 draft: False
 hidden: True

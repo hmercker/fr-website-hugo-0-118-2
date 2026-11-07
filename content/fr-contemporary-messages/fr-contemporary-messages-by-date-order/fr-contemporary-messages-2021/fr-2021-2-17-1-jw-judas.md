@@ -1,7 +1,7 @@
 ---
 title: "Faire face aux menaces de préjudice"
 menu_title: ""
-description: "Faire face aux menaces de préjudice"
+description: "Judas, reçu par Jimbeau Walsh : « Que Son amour soit déversé sur toi. Ces questions sur la violence, les conflits, sur ceux qui ne sont pas en harmonie … »"
 date: 2022-06-01 06:00:01+00:1413
 draft: False
 hidden: True

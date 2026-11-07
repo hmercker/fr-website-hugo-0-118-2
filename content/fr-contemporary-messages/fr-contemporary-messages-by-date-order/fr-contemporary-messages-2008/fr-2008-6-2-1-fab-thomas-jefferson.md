@@ -1,7 +1,7 @@
 ---
 title: "Une bataille entre la lumière et les ténèbres - 2"
 menu_title: ""
-description: "Une bataille entre la lumière et les ténèbres - 2"
+description: "Thomas Jefferson, reçu par FAB : « Dans ma canalisation du 1er janvier 2008, j'ai dit ce qui suit : \"L'obscurité est bruyante, agressive, injuste et … »"
 date: 2022-06-01 06:00:01+00:67
 draft: False
 hidden: True

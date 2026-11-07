@@ -1,7 +1,7 @@
 ---
 title: "L'Amour de Dieu a déjà conquis le Monde"
 menu_title: ""
-description: "L'Amour de Dieu a déjà conquis le Monde"
+description: "Judas, reçu par Jimbeau Walsh : « Laisser aller le monde pendant ces moments afin que vos âmes puissent s’élever au-dessus de vos préoccupations et … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Conseils concernant vos guides"
 menu_title: ""
-description: "Conseils concernant vos guides"
+description: "Keea Atta Kem & Goldie, reçu par Al Fike : « C'est Goldie et j'apporte une surprise ! Notre chère et bien-aimée M a pour guide Lotus Blossom qui l'aide … »"
 date: 2022-06-01 06:00:01+00:65
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L'Amour de Dieu et le pape"
 menu_title: ""
-description: "L'Amour de Dieu et le pape"
+description: "Jean Paul II, reçu par FAB : « En réponse au commentaire d'un de vos coreligionnaires, permettez-moi d'ajouter une ligne à mon message précédent. »"
 date: 2022-06-01 06:00:01+00:84
 draft: False
 hidden: True

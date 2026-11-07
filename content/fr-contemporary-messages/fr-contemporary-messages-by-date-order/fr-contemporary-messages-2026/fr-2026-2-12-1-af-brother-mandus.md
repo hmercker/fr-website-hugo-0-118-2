@@ -1,7 +1,7 @@
 ---
 title: "Foi et Âme 5 : Frère Mandus parle du WHC et nous exhorte à surmonter nos réticences"
 menu_title: ""
-description: "Foi et Âme 5 : Frère Mandus parle du WHC et nous exhorte à surmonter nos réticences"
+description: "Frère Mandus, reçu par Al Fike : « Puisque vous avez évoqué vos expériences au centre (Centre Mondial de Guérison à Blackpool, Royaume-Uni) que j’ai … »"
 date: 2026-05-23 16:00:01+00:01
 draft: False
 hidden: True

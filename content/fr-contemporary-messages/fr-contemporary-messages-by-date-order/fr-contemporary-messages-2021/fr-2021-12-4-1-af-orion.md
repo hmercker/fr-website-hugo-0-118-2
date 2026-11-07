@@ -1,7 +1,7 @@
 ---
 title: "Appel à l'action ! Nous sommes tous profondément nécessaires dans le plan de Dieu"
 menu_title: ""
-description: "Appel à l'action ! Nous sommes tous profondément nécessaires dans le plan de Dieu"
+description: "Orion, reçu par Al Fike : « Nous continuons à vous aider et à assister nos amis anges dans l’établissement des fondations et des vérités qui sont … »"
 date: 2022-06-01 06:00:01+00:1724
 draft: False
 hidden: True

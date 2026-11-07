@@ -1,7 +1,7 @@
 ---
 title: "La couleur dans la mosaïque de la vie"
 menu_title: ""
-description: "La couleur dans la mosaïque de la vie"
+description: "Ophélius, reçu par Chris : « Un abonné de la liste a écrit après le message « There Will Come a Time (il viendra un temps) », demandant quel sera l’état … »"
 date: 2022-06-01 06:00:01+00:197
 draft: False
 hidden: True

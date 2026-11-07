@@ -1,7 +1,7 @@
 ---
 title: "Leçon 17 : Les dons psychiques et les dons spirituels plus profonds sont accessibles à tous !"
 menu_title: ""
-description: "Leçon 17 : Les dons psychiques et les dons spirituels plus profonds sont accessibles à tous !"
+description: "Jésus, reçu par Al Fike : « Que tous ceux qui cherchent la vérité découvrent la vérité dans ce que je partage avec vous et qu’ils puissent appliquer ces … »"
 date: 2022-06-01 06:00:01+00:151
 draft: False
 hidden: True

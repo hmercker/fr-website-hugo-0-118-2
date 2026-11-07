@@ -1,7 +1,7 @@
 ---
 title: "L’univers est contenu dans l’Amour de Dieu"
 menu_title: ""
-description: "L’univers est contenu dans l’Amour de Dieu"
+description: "Luc, reçu par Maureen Cardoso : « Que le don de l’Amour de Dieu et son flux répondent à vos aspirations ; que ce grand déversement trouve le chemin vers … »"
 date: 2026-09-22 06:00:00+00:00
 draft: False
 hidden: True

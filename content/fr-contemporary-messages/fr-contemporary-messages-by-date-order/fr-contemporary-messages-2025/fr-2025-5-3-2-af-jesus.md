@@ -1,7 +1,7 @@
 ---
 title: "Bénédictions et louanges pour clôturer la retraite d'Anaheim"
 menu_title: ""
-description: "Bénédictions et louanges pour clôturer la retraite d'Anaheim"
+description: "Jésus, reçu par Albert Fike : « Vous avez été bénéfiques non seulement pour vous-mêmes, mais aussi pour beaucoup d'autres personnes que vous ignorez, mais … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

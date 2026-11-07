@@ -1,7 +1,7 @@
 ---
 title: "Saint Chrysostome donne son témoignage sur les erreurs de l’église qui ne connaissait pas l’Amour Divin"
 menu_title: ""
-description: "Saint Chrysostome donne son témoignage sur les erreurs de l’église qui ne connaissait pas l’Amour Divin"
+description: "St Chrysostome, reçu par James Padgett : « De mon vivant, je fus un enseignant des vérités du Maître, et j’ai vécu de nombreuses années parmi un peuple … »"
 date: 2022-06-01 06:00:01+00:153
 draft: False
 hidden: True

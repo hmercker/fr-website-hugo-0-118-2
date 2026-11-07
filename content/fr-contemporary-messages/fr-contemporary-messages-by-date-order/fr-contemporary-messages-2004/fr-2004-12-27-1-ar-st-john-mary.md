@@ -1,7 +1,7 @@
 ---
 title: "La vue de l’âme (suite)"
 menu_title: ""
-description: "La vue de l’âme (suite)"
+description: "St Jean et Marie, reçu par Amada Reza : « Je voudrais continuer mon message sur la vue de l’âme, c’est-à-dire la capacité de voir le potentiel de l’âme … »"
 date: 2022-06-01 06:00:01+00:11
 draft: False
 hidden: True

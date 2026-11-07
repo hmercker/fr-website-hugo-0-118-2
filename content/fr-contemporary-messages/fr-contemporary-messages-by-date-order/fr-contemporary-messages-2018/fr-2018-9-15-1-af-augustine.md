@@ -1,7 +1,7 @@
 ---
 title: "Le point de vue de nombreux participants à la conférence de l’A.R.E.I."
 menu_title: ""
-description: "Le point de vue de nombreux participants à la conférence de l’A.R.E.I."
+description: "Augustin, reçu par Al Fike : « Vous avez observé ces nombreuses âmes, douées comme elles le sont, avec leurs perspectives et leurs compréhensions du monde … »"
 date: 2022-06-01 06:00:01+00:477
 draft: False
 hidden: True

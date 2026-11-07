@@ -1,7 +1,7 @@
 ---
 title: "S'efforcer d'atteindre l'éveil de l'âme"
 menu_title: ""
-description: "S'efforcer d'atteindre l'éveil de l'âme"
+description: "Seretta Kem, reçu par Al Fike : « Je souhaite vous encourager sur votre chemin et vos efforts pour recevoir le don de la voix directe. »"
 date: 2022-06-01 06:00:01+00:354
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Je suis reconnaissant pour les prières et l'amour qui me sont envoyés de la Terre"
 menu_title: ""
-description: "Je suis reconnaissant pour les prières et l'amour qui me sont envoyés de la Terre"
+description: "Mario Lanza : « J'aimerais seulement pouvoir vous parler directement, mais j'ai bien peur que cela prenne un certain temps. »"
 date: 2022-06-01 06:00:01+00:65
 draft: False
 hidden: True

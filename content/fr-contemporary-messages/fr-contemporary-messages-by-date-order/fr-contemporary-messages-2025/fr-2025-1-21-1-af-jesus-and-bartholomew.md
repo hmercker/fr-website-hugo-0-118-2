@@ -1,7 +1,7 @@
 ---
 title: "Bénédictions propices de l'Amour de Dieu pour un grand nombre d'âmes des deux côtés du Voile"
 menu_title: ""
-description: "Bénédictions propices de l'Amour de Dieu pour un grand nombre d'âmes des deux côtés du Voile"
+description: "Jésus et Barthélémy, reçu par Albert Fike : « Jésus : Enfants de Dieu, je viens. Quelles occasions ces âmes en quête ont-elles de faire partie d’un tel … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La médiumnité et l’atteinte de ce qui est le plus élevé"
 menu_title: ""
-description: "La médiumnité et l’atteinte de ce qui est le plus élevé"
+description: "Seretta Kem, reçu par Al Fike : « Tout d'abord, je tiens à souligner que lorsque vous faites partie d'un cercle de prière, votre objectif premier est de … »"
 date: 2022-06-01 06:00:01+00:289
 draft: False
 hidden: True

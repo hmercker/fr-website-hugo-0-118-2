@@ -1,7 +1,7 @@
 ---
 title: "Au sujet des divers médiums"
 menu_title: ""
-description: "Au sujet des divers médiums"
+description: "Jésus, reçu par Kathryn Stokes : « aimerait confirmer l'exactitude et la clarté de la médiumnité de . Est-ce que vous écrivez/parlez à travers elle ? »"
 date: 2022-06-01 06:00:01+00:52
 draft: False
 hidden: True

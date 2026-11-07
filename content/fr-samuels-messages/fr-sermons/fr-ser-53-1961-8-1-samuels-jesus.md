@@ -1,7 +1,7 @@
 ---
 title: "53ème Sermon – L’idéal de démocratie de Jérémie"
 menu_title: ""
-description: "53ème Sermon – L’idéal de démocratie de Jérémie"
+description: "Jésus, reçu par Dr Samuels : « Il reste à parler des idéaux démocratiques de Jérémie qui étonnent même à ce jour. Le concept le plus important du … »"
 date: 2022-06-01 06:00:01+00:106
 draft: False
 hidden: True

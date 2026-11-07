@@ -1,7 +1,7 @@
 ---
 title: "Votre travail est le travail de l'enfant humble"
 menu_title: ""
-description: "Votre travail est le travail de l'enfant humble"
+description: "St Matthieu, reçu par Al Fike : « Vous avez spéculé et parlé de votre avenir, de votre instrumentalité et du temps à venir où vos espoirs et vos rêves … »"
 date: 2022-06-01 06:00:01+00:819
 draft: False
 hidden: True

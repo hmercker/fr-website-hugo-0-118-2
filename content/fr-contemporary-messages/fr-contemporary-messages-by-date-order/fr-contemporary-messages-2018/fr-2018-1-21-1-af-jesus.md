@@ -1,7 +1,7 @@
 ---
 title: "Jésus est avec nous - Voix Directe"
 menu_title: ""
-description: "Jésus est avec nous - Voix Directe"
+description: "Jésus, reçu par Al Fike : « Vous êtes dans mon étreinte, mes pensées et mes prières. Je vous soutiens dans vos efforts. »"
 date: 2022-06-01 06:00:01+00:304
 draft: False
 hidden: True

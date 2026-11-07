@@ -1,7 +1,7 @@
 ---
 title: "La guérison (Suite)"
 menu_title: ""
-description: "La guérison (Suite)"
+description: "Jésus, reçu par Amada Reza : « Comme vous le savez, mes disciples, sur terre, étaient des hommes simples qui n’avaient pas un grand développement … »"
 date: 2022-06-01 06:00:01+00:08
 draft: False
 hidden: True

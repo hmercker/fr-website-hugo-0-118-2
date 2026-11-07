@@ -1,7 +1,7 @@
 ---
 title: "La tension entre la Volonté de Dieu et la résistance de l’humanité"
 menu_title: ""
-description: "La tension entre la Volonté de Dieu et la résistance de l’humanité"
+description: "Augustin, reçu par Al Fike : « Que Dieu bénisse profondément vos âmes, âmes bien-aimées, de Son Amour. À mesure que les conditions changent dans votre … »"
 date: 2022-06-01 06:00:01+00:1250
 draft: False
 hidden: True

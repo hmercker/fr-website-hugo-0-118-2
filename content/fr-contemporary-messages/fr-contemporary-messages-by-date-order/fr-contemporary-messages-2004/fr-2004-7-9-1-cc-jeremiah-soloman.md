@@ -1,7 +1,7 @@
 ---
 title: "Allez à l'intérieur"
 menu_title: ""
-description: "Allez à l'intérieur"
+description: "Jérémie et Salomon, reçu par CC : « Si tu sens que tu es prêt, nous parlerons ? Tu t'es bien préparé à recevoir à nouveau nos messages. »"
 date: 2022-06-01 06:00:01+00:36
 draft: False
 hidden: True

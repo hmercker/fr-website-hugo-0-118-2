@@ -1,7 +1,7 @@
 ---
 title: "École pour médiums"
 menu_title: ""
-description: "École pour médiums"
+description: "Jacques : « Je voudrais aussi te dire quelques mots. L'harmonie qui se développe entre vous et l'amour qui grandit entre vous se développeront, j\"en suis … »"
 date: 2022-06-01 06:00:01+00:139
 draft: False
 hidden: True

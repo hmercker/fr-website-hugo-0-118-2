@@ -1,7 +1,7 @@
 ---
 title: "Une Tribu dans l'Amour de Dieu"
 menu_title: ""
-description: "Une Tribu dans l'Amour de Dieu"
+description: "Aigle Blanc, reçu par reçu par Jimbeau Walsh : « Que la grâce du Grand Esprit soit sur vous tous. En ces temps troublés, les gens recherchent la sécurité … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

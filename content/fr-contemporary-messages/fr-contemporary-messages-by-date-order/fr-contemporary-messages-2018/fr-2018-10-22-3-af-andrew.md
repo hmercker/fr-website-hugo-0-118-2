@@ -1,7 +1,7 @@
 ---
 title: "André apportera des messages d'Amour et de Vérité - (Cercle de prière en ligne)"
 menu_title: ""
-description: "André apportera des messages d'Amour et de Vérité - (Cercle de prière en ligne)"
+description: "André, reçu par Al Fike : « Je viendrai vous apporter des enseignements alors que vous vous réunissez de cette manière et j’espère que vous prendrez le … »"
 date: 2022-06-01 06:00:01+00:530
 draft: False
 hidden: True

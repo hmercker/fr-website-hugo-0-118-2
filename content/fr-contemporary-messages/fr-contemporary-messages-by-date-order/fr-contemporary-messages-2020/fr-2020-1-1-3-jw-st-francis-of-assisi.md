@@ -1,7 +1,7 @@
 ---
 title: "La croyance en l'Amour de Dieu transcende toutes les autres croyances"
 menu_title: ""
-description: "La croyance en l'Amour de Dieu transcende toutes les autres croyances"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « C’est une nouvelle année pour vous tous ; comme vous l’accueillez dans la prière, nous nous joignons à vous. »"
 date: 2022-06-01 06:00:01+00:973
 draft: False
 hidden: True

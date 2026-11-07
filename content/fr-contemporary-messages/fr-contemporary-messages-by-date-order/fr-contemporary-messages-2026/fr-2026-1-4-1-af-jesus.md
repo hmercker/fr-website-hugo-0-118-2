@@ -1,7 +1,7 @@
 ---
 title: "Unis dans l’Amour de Dieu"
 menu_title: ""
-description: "Unis dans l’Amour de Dieu"
+description: "Jesus, reçu par Albert Fike : « Nous nous unissons pour apporter la lumière, pour apporter l’amour à nous-mêmes et à ce monde. »"
 date: 2026-03-15 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Comment vous sentez-vous ?"
 menu_title: ""
-description: "Comment vous sentez-vous ?"
+description: "Yogananda, reçu par Jimbeau Walsh : « Ce magnifique Cercle de Lumière ne cesse de s’étendre, de grandir, non seulement sur le plan terrestre, mais à … »"
 date: 2023-09-01 06:00:01+00:45
 draft: False
 hidden: True

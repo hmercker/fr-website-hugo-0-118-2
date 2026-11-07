@@ -1,7 +1,7 @@
 ---
 title: "Dieu vous invite à vous réveiller dans Son Amour"
 menu_title: ""
-description: "Dieu vous invite à vous réveiller dans Son Amour"
+description: "Augustin, reçu par Al Fike : « Dieu rassemble de nombreuses âmes, de différentes manières, dans les prières, dans les conversations, dans les efforts … »"
 date: 2022-06-01 06:00:01+00:551
 draft: False
 hidden: True

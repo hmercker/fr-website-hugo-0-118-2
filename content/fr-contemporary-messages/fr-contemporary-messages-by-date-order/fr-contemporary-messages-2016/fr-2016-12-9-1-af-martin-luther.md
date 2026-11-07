@@ -1,7 +1,7 @@
 ---
 title: "Défendez la vérité"
 menu_title: ""
-description: "Défendez la vérité"
+description: "Martin Luther, reçu par Al Fike : « Vous avez fait entrer dans le cercle de nombreuses âmes qui sont sur ce plan terrestre et de nombreuses âmes qui sont … »"
 date: 2022-06-01 06:00:01+00:295
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Changements dans le monde"
 menu_title: ""
-description: "Changements dans le monde"
+description: "Augustin, reçu par Al Fike : « Âmes bien-aimées, le changement fait partie de ce monde. Il a toujours fait partie de ce monde. »"
 date: 2022-06-01 06:00:01+00:14
 draft: False
 hidden: True

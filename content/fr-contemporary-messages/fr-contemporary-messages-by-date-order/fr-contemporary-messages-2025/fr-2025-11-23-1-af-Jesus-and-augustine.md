@@ -1,7 +1,7 @@
 ---
 title: "Éveil à la Mission"
 menu_title: ""
-description: "Éveil à la Mission"
+description: "Jésus et Augustin, reçu par Albert Fike : « Votre frère et ami, Jésus, est là. Les Anges Célestes sont avec vous. »"
 date: 2025-12-21 16:00:01+00:01
 draft: False
 hidden: True

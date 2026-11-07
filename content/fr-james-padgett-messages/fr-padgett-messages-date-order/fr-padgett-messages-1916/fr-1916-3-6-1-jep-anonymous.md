@@ -1,7 +1,7 @@
 ---
 title: "Monsieur Padgett a aidé des esprits de tous les horizons et l’ancien Indien qui a demandé de l’aide a pu écrire"
 menu_title: ""
-description: "Monsieur Padgett a aidé des esprits de tous les horizons et l’ancien Indien qui a demandé de l’aide a pu écrire"
+description: "Anonyme, reçu par James Padgett : « Je fus un Indien qui a vécu dans les premiers temps de l’existence de votre pays et je ne fus pas un Indien civilisé … »"
 date: 2022-06-01 06:00:01+00:161
 draft: False
 hidden: True

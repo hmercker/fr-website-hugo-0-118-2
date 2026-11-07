@@ -1,7 +1,7 @@
 ---
 title: "La foi et comment découvrir la vérité"
 menu_title: ""
-description: "La foi et comment découvrir la vérité"
+description: "Esprit Céleste Elevé, reçu par Kathryn Stokes : « Cette foi ouvrira les perceptions de vos âmes à la vérité. Lorsque vous désirez faire la volonté de Dieu … »"
 date: 2022-06-01 06:00:01+00:41
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La naissance d'Isaac"
 menu_title: ""
-description: "La naissance d'Isaac"
+description: "Sarah, reçu par FAB : « Je fus l'épouse d'Abraham, un homme merveilleux et béni. Il m'a donné tant de choses que j'ai chéries sur terre et en esprit. »"
 date: 2022-06-01 06:00:01+00:121
 draft: False
 hidden: True

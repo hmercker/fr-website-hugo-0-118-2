@@ -1,7 +1,7 @@
 ---
 title: "Le choix"
 menu_title: ""
-description: "Le choix"
+description: "St Matthieu, reçu par Albert Fike : « Ne voyez-vous pas et n’appréciez-vous pas le caractère unique de chaque âme présente ? Leurs expressions façonnées … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

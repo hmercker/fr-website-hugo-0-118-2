@@ -1,7 +1,7 @@
 ---
 title: "Les désirs de votre âme"
 menu_title: ""
-description: "Les désirs de votre âme"
+description: "Moïse, reçu par Jimbeau Walsh : « Vous avez commencé ce voyage avec votre âme qui tend la main et aspire à l’amour du Créateur. »"
 date: 2022-06-01 06:00:01+00:843
 draft: False
 hidden: True

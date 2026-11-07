@@ -1,7 +1,7 @@
 ---
 title: "Le gourou Hindou Sri Yukteswar parle de l’Amour Divin"
 menu_title: ""
-description: "Le gourou Hindou Sri Yukteswar parle de l’Amour Divin"
+description: "Sri Yukteswar, reçu par FAB : « J’ai été attiré par vous à cause des charmantes conversations que vous teniez. Beaucoup d’anges sont attirés lorsque vous … »"
 date: 2022-06-01 06:00:01+00:76
 draft: False
 hidden: True

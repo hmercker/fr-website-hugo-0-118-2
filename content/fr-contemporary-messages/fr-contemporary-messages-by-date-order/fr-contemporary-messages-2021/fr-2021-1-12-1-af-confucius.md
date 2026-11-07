@@ -1,7 +1,7 @@
 ---
 title: "Bénédictions"
 menu_title: ""
-description: "Bénédictions"
+description: "Confucius, reçu par Al Fike : « Chacun de vous a de nombreuses âmes qui vous accompagnent, tant dans la chair que dans l'esprit. »"
 date: 2022-06-01 06:00:01+00:1377
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "7ème Révélation : Le Royaume de Dieu est en vous"
 menu_title: ""
-description: "7ème Révélation : Le Royaume de Dieu est en vous"
+description: "Jésus, reçu par Dr Samuels : « Je tiens à vous écrire au sujet de la phrase : « Le Royaume de Dieu est en vous », comme il apparaît dans Luc, chapitre 17 … »"
 date: 2022-06-01 06:00:01+00:07
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Ce pays a grand besoin de nos prières"
 menu_title: ""
-description: "Ce pays a grand besoin de nos prières"
+description: "Faith Nyquist, reçu par Al Fike : « Ce pays a besoin de vos prières. Tant de personnes souffrent et aspirent à être réconfortées, à retrouver l'espoir et … »"
 date: 2026-05-21 06:00:01+00:26
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Une puissante leçon sur la prise de responsabilité pour la progression de notre âme"
 menu_title: ""
-description: "Une puissante leçon sur la prise de responsabilité pour la progression de notre âme"
+description: "Isaïe, reçu par Albert Fike : « Les choses se passent, n’est-ce pas, mon garçon ? Car nous travaillons sur chacun d’entre vous à chaque instant. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

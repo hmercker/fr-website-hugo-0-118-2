@@ -1,7 +1,7 @@
 ---
 title: "Mme Padgett parle des conditions qui ont permis au Juge Syrick d’écrire cette longue lettre à ses amis"
 menu_title: ""
-description: "Mme Padgett parle des conditions qui ont permis au Juge Syrick d’écrire cette longue lettre à ses amis"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, chéri, tu as reçu une assez longue lettre du Juge, une lettre très éloquente et véridique. »"
 date: 2022-06-01 06:00:01+00:80
 draft: False
 hidden: True

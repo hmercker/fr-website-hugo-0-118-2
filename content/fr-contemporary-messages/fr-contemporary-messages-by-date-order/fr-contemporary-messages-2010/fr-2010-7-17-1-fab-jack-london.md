@@ -1,7 +1,7 @@
 ---
 title: "Les lois de Dieu sont simples"
 menu_title: ""
-description: "Les lois de Dieu sont simples"
+description: "Jack London, reçu par FAB : « Je lis ma biographie en même temps que vous. En revivant ma vie sur Terre, je peux voir comment Dieu a travaillé, et je peux … »"
 date: 2022-06-01 06:00:01+00:141
 draft: False
 hidden: True

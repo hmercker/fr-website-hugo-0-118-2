@@ -1,7 +1,7 @@
 ---
 title: "Discussion sérieuse sur l’effondrement économique et l’élévation de la conscience sur Terre"
 menu_title: ""
-description: "Discussion sérieuse sur l’effondrement économique et l’élévation de la conscience sur Terre"
+description: "Orion, reçu par Al Fike : « Vous avez des questions sur les changements à venir sur la Terre. Votre Terre est dirigée par des systèmes, des systèmes que … »"
 date: 2022-06-01 06:00:01+00:71
 draft: False
 hidden: True

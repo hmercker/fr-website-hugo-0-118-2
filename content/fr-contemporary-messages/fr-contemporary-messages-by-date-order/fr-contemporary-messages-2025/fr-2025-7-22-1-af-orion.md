@@ -1,7 +1,7 @@
 ---
 title: "Prévient les participants à l’expression de la Voix Directe de ce qui les attend"
 menu_title: ""
-description: "Prévient les participants à l’expression de la Voix Directe de ce qui les attend"
+description: "Orion, reçu par reçu par Al Fike : « Votre monde est au bord de grandes tempêtes, mes amis. Les nuages ​​s’accumulent. »"
 date: 2025-07-15 06:00:01+00:01
 draft: False
 hidden: True

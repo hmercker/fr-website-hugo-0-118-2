@@ -1,7 +1,7 @@
 ---
 title: "Ne doutez pas"
 menu_title: ""
-description: "Ne doutez pas"
+description: "Judas, reçu par Elizabeth Mack : « Vous avez demandé et me voilà. Nous sommes toujours avec vous, mes enfants. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

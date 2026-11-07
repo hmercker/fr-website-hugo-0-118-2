@@ -1,7 +1,7 @@
 ---
 title: "Répond à notre conversation en se demandant pourquoi les humains ne répondent pas aux opportunités d'Amour Divin"
 menu_title: ""
-description: "Répond à notre conversation en se demandant pourquoi les humains ne répondent pas aux opportunités d'Amour Divin"
+description: "Augustin, reçu par Albert Fike : « Mon fils, tu parles de tes frustrations et de tes observations de la condition humaine et de la nature humaine, pour … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Contrôle de l'instrument"
 menu_title: ""
-description: "Contrôle de l'instrument"
+description: "Keea Atta Kem : « Nous devons donc continuer et continuer à nous efforcer, à rechercher plus de connaissances, plus de compréhension et de sagesse, et … »"
 date: 2022-06-01 06:00:01+00:81
 draft: False
 hidden: True

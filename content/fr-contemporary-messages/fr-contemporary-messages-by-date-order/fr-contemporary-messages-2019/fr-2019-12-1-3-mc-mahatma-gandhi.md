@@ -1,7 +1,7 @@
 ---
 title: "Nous serons avec vous au cours de vos défis"
 menu_title: ""
-description: "Nous serons avec vous au cours de vos défis"
+description: "Mahatma Gandhi, reçu par Maureen Cardoso : « Puis-je dire que ce cher instrument conversait avec moi avant de me permettre de parler. Elle me demandait  … »"
 date: 2022-06-01 06:00:01+00:932
 draft: False
 hidden: True

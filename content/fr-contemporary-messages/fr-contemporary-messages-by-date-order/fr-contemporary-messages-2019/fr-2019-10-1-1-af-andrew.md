@@ -1,7 +1,7 @@
 ---
 title: "Les vraies prières à Dieu"
 menu_title: ""
-description: "Les vraies prières à Dieu"
+description: "André, reçu par Al Fike : « En ces temps lointains où nous marchions avec notre frère Jésus, il nous a appris à prier. »"
 date: 2022-06-01 06:00:01+00:868
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le pouvoir de la prière pour invoquer la lumière dans le monde"
 menu_title: ""
-description: "Le pouvoir de la prière pour invoquer la lumière dans le monde"
+description: "Augustin, reçu par Al Fike : « Soyez bénies, âmes bien-aimées. Nous sommes tous avec Dieu en ce moment. »"
 date: 2022-06-01 06:00:01+00:1538
 draft: False
 hidden: True

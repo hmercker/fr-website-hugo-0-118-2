@@ -1,7 +1,7 @@
 ---
 title: "Continuez d'être avec Dieu"
 menu_title: ""
-description: "Continuez d'être avec Dieu"
+description: "Augustin, reçu par Al Fike : « Votre monde continue d’être dans les ténèbres. Car les hommes continuent à marcher d’une manière qui les lie dans leurs … »"
 date: 2022-07-10 06:25:48+00:80
 draft: False
 hidden: True

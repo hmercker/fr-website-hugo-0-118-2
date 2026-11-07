@@ -1,7 +1,7 @@
 ---
 title: "Interférence de l’homme avec l’Esprit de Dieu"
 menu_title: ""
-description: "Interférence de l’homme avec l’Esprit de Dieu"
+description: "Judas, reçu par H : « Hier, nous avons mentionné que, outre l’esprit de la vie, de Dieu émane aussi Son esprit créatif. »"
 date: 2022-06-01 06:00:01+00:30
 draft: False
 hidden: True

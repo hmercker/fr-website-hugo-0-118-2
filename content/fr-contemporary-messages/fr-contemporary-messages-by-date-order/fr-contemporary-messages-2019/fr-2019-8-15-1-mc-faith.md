@@ -1,7 +1,7 @@
 ---
 title: "Importance du Portail de Lumière au Centre Mondial de Guérison"
 menu_title: ""
-description: "Importance du Portail de Lumière au Centre Mondial de Guérison"
+description: "Faith, reçu par Maureen Cardoso : « Bénissez chacun de vous avec vos efforts continus pour être proche du Père Céleste permettant à cet Amour de changer … »"
 date: 2022-06-01 06:00:01+00:812
 draft: False
 hidden: True

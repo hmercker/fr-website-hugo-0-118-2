@@ -1,7 +1,7 @@
 ---
 title: "Dans l'Amour de Dieu, vous n'êtes jamais seuls"
 menu_title: ""
-description: "Dans l'Amour de Dieu, vous n'êtes jamais seuls"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Les pauvres dames et moi qui sommes devenues connues sous le nom de Clarisses, nous voulions suivre les désirs … »"
 date: 2022-06-01 06:00:01+00:1184
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Foi"
 menu_title: ""
-description: "Foi"
+description: "Thomas/Jeanne d'Arc, reçu par Elizabeth Mack : « J’ai été appelé « Thomas le Doutant ». Développer la foi prend du temps et, plus important encore, des … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

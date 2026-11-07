@@ -1,7 +1,7 @@
 ---
 title: "Une quaker de l'Amérique coloniale"
 menu_title: ""
-description: "Une quaker de l'Amérique coloniale"
+description: "Elizabeth Ashbridge, reçu par FAB : « Mes croyances quakers m'ont été très utiles. Les Quakers ne traversent généralement pas la grave crise qui frappe … »"
 date: 2022-06-01 06:00:01+00:01
 draft: False
 hidden: True

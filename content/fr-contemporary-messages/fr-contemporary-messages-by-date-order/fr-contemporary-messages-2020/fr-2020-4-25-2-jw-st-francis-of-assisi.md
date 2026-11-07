@@ -1,7 +1,7 @@
 ---
 title: "Uu pont entre le Ciel et la Terre "
 menu_title: ""
-description: "Uu pont entre le Ciel et la Terre "
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Vous êtes un groupe des plus aimables. Vous avez touché mon cœur. »"
 date: 2022-06-01 06:00:01+00:1073
 draft: False
 hidden: True

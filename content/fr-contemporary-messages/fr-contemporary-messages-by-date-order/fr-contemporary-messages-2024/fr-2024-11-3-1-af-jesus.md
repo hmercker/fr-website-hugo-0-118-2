@@ -1,7 +1,7 @@
 ---
 title: "Demandez pour moi"
 menu_title: ""
-description: "Demandez pour moi"
+description: "Jésus, reçu par Albert Fike : « Certains d’entre eux sont très proches parce qu’au fond de leur cœur et de leur âme, ils ont un désir pour cela. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

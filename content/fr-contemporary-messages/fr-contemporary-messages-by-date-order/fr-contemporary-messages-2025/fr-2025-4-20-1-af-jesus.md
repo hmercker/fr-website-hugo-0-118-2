@@ -1,7 +1,7 @@
 ---
 title: "Proclamation du dimanche de Pâques : Jésus se manifestera à nouveau au monde"
 menu_title: ""
-description: "Proclamation du dimanche de Pâques : Jésus se manifestera à nouveau au monde"
+description: "Jésus, reçu par Albert Fike : « Vos prières pour la grande Vérité de l’Amour du Père ont une grande puissance et la capacité d’attirer les anges du ciel … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La puissance de l'Amour Divin est la réponse à tout"
 menu_title: ""
-description: "La puissance de l'Amour Divin est la réponse à tout"
+description: "Keea Atta Kem, reçu par Maureen Cardoso : « C’est la puissance de l’Amour Divin, âmes bien-aimées, qui est la réponse à tout. Nous disons, et c’est une … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

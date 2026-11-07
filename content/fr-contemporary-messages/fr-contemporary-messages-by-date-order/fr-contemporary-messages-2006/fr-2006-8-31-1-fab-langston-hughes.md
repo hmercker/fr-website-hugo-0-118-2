@@ -1,7 +1,7 @@
 ---
 title: "L'Amérique sera fidèle à elle-même"
 menu_title: ""
-description: "L'Amérique sera fidèle à elle-même"
+description: "Langston Hughes, reçu par FAB : « Comme tant d'Américains, j'ai aspiré à cela. Je vois maintenant que Dieu veut que cela se produise, alors cela se produira. »"
 date: 2022-06-01 06:00:01+00:41
 draft: False
 hidden: True

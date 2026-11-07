@@ -1,7 +1,7 @@
 ---
 title: "Soyez l'Amour"
 menu_title: ""
-description: "Soyez l'Amour"
+description: "Mahatma Gandhi, reçu par Jimbeau Walsh : « Je vous remercie de m’avoir permis de venir. Lorsque j’ai prononcé les mots « Soyez le changement que vous … »"
 date: 2022-06-01 06:00:01+00:1152
 draft: False
 hidden: True

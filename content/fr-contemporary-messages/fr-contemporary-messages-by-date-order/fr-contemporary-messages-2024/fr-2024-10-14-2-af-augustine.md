@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes l’espoir du monde"
 menu_title: ""
-description: "Vous êtes l’espoir du monde"
+description: "Augustin, reçu par Albert Fike : « Âmes bien-aimées, c’est votre enseignant Augustin. Alors que vous continuez à grandir dans l’Amour du Père, je vous … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

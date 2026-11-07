@@ -1,7 +1,7 @@
 ---
 title: "Hélène Padgett Confirme que la mère du Dr Stone a écrit"
 menu_title: ""
-description: "Hélène Padgett Confirme que la mère du Dr Stone a écrit"
+description: "Hélène Padgett, reçu par James Padgett : « Son amour pour lui semble être grand ce soir. Et ce cher professeur Salyards a également écrit de sa manière … »"
 date: 2022-06-01 06:00:01+00:150
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Réflexions sur la sorcellerie"
 menu_title: ""
-description: "Réflexions sur la sorcellerie"
+description: "Cotton Mather, reçu par FAB : « Vous m'avez correctement canalisé. Après avoir déterminé que la sorcellerie était mauvaise, j'ai combattu cette pratique. »"
 date: 2022-06-01 06:00:01+00:26
 draft: False
 hidden: True

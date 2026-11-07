@@ -1,7 +1,7 @@
 ---
 title: "La prière de groupe multiplie les bénédictions"
 menu_title: ""
-description: "La prière de groupe multiplie les bénédictions"
+description: "Seretta Kem, reçu par Al Fike : « Et que l’Amour du Père trouve un afflux constant dans vos âmes afin que cette Lumière puisse brûler de plus en plus fort … »"
 date: 2022-06-01 06:00:01+00:228
 draft: False
 hidden: True

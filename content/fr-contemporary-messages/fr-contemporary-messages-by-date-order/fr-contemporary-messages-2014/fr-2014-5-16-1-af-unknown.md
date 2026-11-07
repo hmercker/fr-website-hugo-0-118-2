@@ -1,7 +1,7 @@
 ---
 title: "Conditions des sessions de prières collectives"
 menu_title: ""
-description: "Conditions des sessions de prières collectives"
+description: "Inconnu, reçu par Al Fike : « Oui notre frère a raison lorsqu’il affirme que l’on peut recevoir l’Amour Divin dans n’importe quelle position, à n’importe … »"
 date: 2022-06-01 06:00:01+00:81
 draft: False
 hidden: True

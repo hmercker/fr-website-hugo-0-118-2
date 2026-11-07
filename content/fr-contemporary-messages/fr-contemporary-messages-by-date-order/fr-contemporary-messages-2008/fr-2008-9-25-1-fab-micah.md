@@ -1,7 +1,7 @@
 ---
 title: "Les encouragements d'un prophète biblique"
 menu_title: ""
-description: "Les encouragements d'un prophète biblique"
+description: "Michée, reçu par FAB : « Beaucoup de gens dans votre pays [les États-Unis] sont en train de tout réévaluer. Mais essayez de ne pas vous concentrer sur eux … »"
 date: 2022-06-01 06:00:01+00:114
 draft: False
 hidden: True

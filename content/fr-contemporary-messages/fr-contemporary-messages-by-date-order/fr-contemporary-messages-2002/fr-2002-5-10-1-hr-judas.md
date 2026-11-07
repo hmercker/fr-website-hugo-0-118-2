@@ -1,7 +1,7 @@
 ---
 title: "Le Dieu de Saramago"
 menu_title: ""
-description: "Le Dieu de Saramago"
+description: "Judas, reçu par H : « Que savons-nous au sujet de Dieu ? Très peu, bien sûr, comme je l’ai fait remarquer dans mon dernier message. »"
 date: 2022-06-01 06:00:01+00:67
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Jésus n’est jamais allé en Inde et (ou) en Grèce pour étudier leurs philosophies comme certains le pensent"
 menu_title: ""
-description: "Jésus n’est jamais allé en Inde et (ou) en Grèce pour étudier leurs philosophies comme certains le pensent"
+description: "Jésus, reçu par James Padgett : « Bien, vous devez avoir plus de foi, et priez plus. Ce sont les choses importantes, et la prochaine est que vous devez … »"
 date: 2022-06-01 06:00:01+00:116
 draft: False
 hidden: True

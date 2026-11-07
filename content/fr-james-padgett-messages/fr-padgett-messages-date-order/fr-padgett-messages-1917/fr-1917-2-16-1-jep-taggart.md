@@ -1,7 +1,7 @@
 ---
 title: "Anne Rollins aide un ami de M. Padgett, un esprit suicide qui a perdu tout espoir d’être pardonné et de réaliser qu’il y a un espoir pour lui dans le monde spirituel"
 menu_title: ""
-description: "Anne Rollins aide un ami de M. Padgett, un esprit suicide qui a perdu tout espoir d’être pardonné et de réaliser qu’il y a un espoir pour lui dans le monde spirituel"
+description: "Hugh Taggart, reçu par James Padgett : « Permets-moi de dire un mot, car j’ai hâte de te dire que Perry a eu la démonstration, par la venue de certains … »"
 date: 2022-06-01 06:00:01+00:60
 draft: False
 hidden: True

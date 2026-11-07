@@ -1,7 +1,7 @@
 ---
 title: "La réticence à s’avancer pleinement dans la Lumière"
 menu_title: ""
-description: "La réticence à s’avancer pleinement dans la Lumière"
+description: "Alec Gaunt, reçu par Al Fike : « Je tiens à féliciter mes deux protégés pour leur long et heureux mariage, ainsi que pour la poursuite de ce magnifique … »"
 date: 2026-10-24 06:00:01+00:01
 draft: False
 hidden: True

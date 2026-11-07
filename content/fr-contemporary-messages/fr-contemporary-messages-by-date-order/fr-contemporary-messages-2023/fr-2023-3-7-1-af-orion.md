@@ -1,7 +1,7 @@
 ---
 title: "Le chemin deviendra plus facile avec l'Amour Divin (2023 groupe des douze)"
 menu_title: ""
-description: "Le chemin deviendra plus facile avec l'Amour Divin (2023 groupe des douze)"
+description: "Orion, reçu par Al Fike : « Je vois comment vos prières ont une grande portée, apportant une plus grande lumière à ce monde qui est le vôtre. »"
 date: 2022-06-01 06:00:01+00:45
 draft: False
 hidden: True

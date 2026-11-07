@@ -1,7 +1,7 @@
 ---
 title: "Notre boussole intérieure supérieure"
 menu_title: ""
-description: "Notre boussole intérieure supérieure"
+description: "Socrate, reçu par FAB : « Je sais que vous êtes très curieux de savoir sur quel sujet je souhaite écrire. Eh bien, puisque vous lisez sur ma culture … »"
 date: 2022-06-01 06:00:01+00:31
 draft: False
 hidden: True

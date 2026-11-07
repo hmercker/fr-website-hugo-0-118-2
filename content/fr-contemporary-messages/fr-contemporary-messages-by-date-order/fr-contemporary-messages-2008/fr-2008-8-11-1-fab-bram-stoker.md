@@ -1,7 +1,7 @@
 ---
 title: "L'auteur de Dracula a changé ses croyances"
 menu_title: ""
-description: "L'auteur de Dracula a changé ses croyances"
+description: "Bram Stoker, reçu par FAB : « Le temps et l'expérience vous ont apporté plus de connaissances et de perspicacité, de sorte que votre appréciation de mon … »"
 date: 2022-06-01 06:00:01+00:90
 draft: False
 hidden: True

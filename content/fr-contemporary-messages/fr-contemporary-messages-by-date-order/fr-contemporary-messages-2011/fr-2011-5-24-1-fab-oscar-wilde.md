@@ -1,7 +1,7 @@
 ---
 title: "Dieu se fiche de votre homosexualité"
 menu_title: ""
-description: "Dieu se fiche de votre homosexualité"
+description: "Oscar Wilde, reçu par FAB : « Vous êtes en train de lire le récit qu’André Gide a fait de moi dans « Si ça meurt ». Je dois dire que je connaissais son … »"
 date: 2022-06-01 06:00:01+00:192
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le magnétisme de l'Amour de Dieu"
 menu_title: ""
-description: "Le magnétisme de l'Amour de Dieu"
+description: "Yogananda, reçu par Jimbeau Walsh : « Soyez en paix, mes frères et sœurs, car nous sommes tous des enfants de Dieu. Je vous encourage à rayonner l’amour … »"
 date: 2022-06-01 06:00:01+00:1386
 draft: False
 hidden: True

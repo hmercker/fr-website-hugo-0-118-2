@@ -1,7 +1,7 @@
 ---
 title: "Il est nécessaire de toujours exprimer la Vérité et l’Amour"
 menu_title: ""
-description: "Il est nécessaire de toujours exprimer la Vérité et l’Amour"
+description: "Keea Atta Kem, reçu par Al Fike : « J’ai vécu sur la Terre bien avant que le Maître Jésus ne vienne apporter sa Vérité au monde. »"
 date: 2022-06-01 06:00:01+00:1157
 draft: False
 hidden: True

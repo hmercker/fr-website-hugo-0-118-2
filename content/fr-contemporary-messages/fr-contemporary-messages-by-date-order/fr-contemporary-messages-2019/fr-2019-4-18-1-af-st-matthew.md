@@ -1,7 +1,7 @@
 ---
 title: "Connaître les différences entre le mental de l'âme et le mental matériel"
 menu_title: ""
-description: "Connaître les différences entre le mental de l'âme et le mental matériel"
+description: "St Matthieu, reçu par Al Fike : « J'ai été avec vous, durant votre conversation, écoutant vos pensées et vos idées relatives aux différences entre le … »"
 date: 2022-06-01 06:00:01+00:716
 draft: False
 hidden: True

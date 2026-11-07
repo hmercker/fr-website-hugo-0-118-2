@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes avec vous dans ce voyage"
 menu_title: ""
-description: "Nous sommes avec vous dans ce voyage"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Et j’étais avec l’un de vous plus tôt aujourd’hui alors qu’il explorait les sœurs qui ont poursuivi la … »"
 date: 2022-06-01 06:00:01+00:1202
 draft: False
 hidden: True

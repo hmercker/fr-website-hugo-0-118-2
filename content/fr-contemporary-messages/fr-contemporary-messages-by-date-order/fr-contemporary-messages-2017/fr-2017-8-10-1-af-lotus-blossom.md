@@ -1,7 +1,7 @@
 ---
 title: "Personnel pour M"
 menu_title: ""
-description: "Personnel pour M"
+description: "Fleur de Lotus, reçu par Al Fike : « J'ai souvent été avec toi, ma fille ; j'ai entendu tes requêtes et tes questions. Je t'ai vue utiliser les vérités … »"
 date: 2022-06-01 06:00:01+00:82
 draft: False
 hidden: True

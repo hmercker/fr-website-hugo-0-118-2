@@ -2,8 +2,7 @@
 title: "Le porteur de bonnes nouvelles
 "
 menu_title: ""
-description: "Le porteur de bonnes nouvelles
-"
+description: "Jésus, reçu par Révérend Dave Lampron : « Aujourd'hui, je voudrais dire que la prière à notre Père Céleste a été et sera toujours le moyen d'obtenir non … »"
 date: 2022-06-01 06:00:01+00:40
 draft: False
 hidden: True

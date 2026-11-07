@@ -1,7 +1,7 @@
 ---
 title: "La mère de M. Padgett, un esprit Céleste, veut affirmer à M. Padgett qu’ils sont réellement les esprits qu’ils prétendent être et de n’avoir aucun doute à ce sujet"
 menu_title: ""
-description: "La mère de M. Padgett, un esprit Céleste, veut affirmer à M. Padgett qu’ils sont réellement les esprits qu’ils prétendent être et de n’avoir aucun doute à ce sujet"
+description: "Anne Padgett, reçu par James Padgett : « Il est si aimant, si gracieux et si puissant, et quand il vient à toi, il apporte avec lui une gloire qui n’est … »"
 date: 2022-06-01 06:00:01+00:58
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Vos actes d'amour, de service, de bonté et de lumière seront votre héritage"
 menu_title: ""
-description: "Vos actes d'amour, de service, de bonté et de lumière seront votre héritage"
+description: "St Jean, reçu par Al Fike : « Vous êtes profondément bénies, âmes bien-aimées, par Son amour. Chacune de vos âmes a pris une décision, s’est levée pour … »"
 date: 2022-06-01 06:00:01+00:1118
 draft: False
 hidden: True

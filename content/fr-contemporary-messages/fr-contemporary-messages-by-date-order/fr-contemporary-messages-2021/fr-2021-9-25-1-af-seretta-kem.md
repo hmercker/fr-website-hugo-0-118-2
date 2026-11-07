@@ -1,7 +1,7 @@
 ---
 title: "Message de clôture de la retraite Voix Directe (2021 Voix Directe II)"
 menu_title: ""
-description: "Message de clôture de la retraite Voix Directe (2021 Voix Directe II)"
+description: "Seretta Kem, reçu par Al Fike : « Vous comprenez maintenant pourquoi nous n’allons pas dans les détails pour expliquer votre voyage et votre éveil … »"
 date: 2022-06-01 06:00:01+00:1660
 draft: False
 hidden: True

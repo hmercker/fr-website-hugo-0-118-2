@@ -1,7 +1,7 @@
 ---
 title: "Encouragement et orientation - un plan directeur pour le changement"
 menu_title: ""
-description: "Encouragement et orientation - un plan directeur pour le changement"
+description: "Seretta Kem, reçu par Al Fike : « C'est ce que nous vous avons demandé et vous êtes effectivement à l'écoute et faites les efforts nécessaires. »"
 date: 2022-06-01 06:00:01+00:62
 draft: False
 hidden: True

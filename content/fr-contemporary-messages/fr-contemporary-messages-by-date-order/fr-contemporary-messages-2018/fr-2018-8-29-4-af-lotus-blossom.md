@@ -1,7 +1,7 @@
 ---
 title: "L'ouverture du don de médiumnité"
 menu_title: ""
-description: "L'ouverture du don de médiumnité"
+description: "Fleur de Lotus, reçu par Al Fike : « Elle est curieuse d’elle-même et la curiosité est un élément qui peut vous aider tous à faire l’expérience du … »"
 date: 2022-06-01 06:00:01+00:461
 draft: False
 hidden: True

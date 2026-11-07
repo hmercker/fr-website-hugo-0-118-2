@@ -1,7 +1,7 @@
 ---
 title: "Un roi anglais est humble"
 menu_title: ""
-description: "Un roi anglais est humble"
+description: "Jacques Ier, reçu par FAB : « La vie dans ce monde spirituel m'a ouvert les yeux, alors qu'auparavant ils étaient fermés. »"
 date: 2022-06-01 06:00:01+00:25
 draft: False
 hidden: True

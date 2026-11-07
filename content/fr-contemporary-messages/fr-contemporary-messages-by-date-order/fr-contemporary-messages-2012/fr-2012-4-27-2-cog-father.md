@@ -1,7 +1,7 @@
 ---
 title: "Qu’est-ce que le péché ?"
 menu_title: ""
-description: "Qu’est-ce que le péché ?"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Tu as profité de ces derniers jours pour réfléchir à « qu’est-ce qu’un péché ? » et tu as eu des problèmes … »"
 date: 2022-06-01 06:00:01+00:246
 draft: False
 hidden: True

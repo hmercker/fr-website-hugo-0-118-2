@@ -1,7 +1,7 @@
 ---
 title: "L'importance de la Voix Directe"
 menu_title: ""
-description: "L'importance de la Voix Directe"
+description: "Nuage Blanc : « Nous avons entendu les Chinois, les enfants, et nous avons entendu ceux qui ont travaillé pour l'église et maintenant vous allez entendre … »"
 date: 2022-06-01 06:00:01+00:89
 draft: False
 hidden: True

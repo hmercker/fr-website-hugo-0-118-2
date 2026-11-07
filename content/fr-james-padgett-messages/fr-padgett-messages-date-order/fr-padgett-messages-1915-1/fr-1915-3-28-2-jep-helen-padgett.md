@@ -1,7 +1,7 @@
 ---
 title: "Nous laissons les esprits sombres écrire"
 menu_title: ""
-description: "Nous laissons les esprits sombres écrire"
+description: "Hélène Padgett, reçu par James Padgett : « Tu as eu un sacré siège d’esprits malheureux et j’espère que tu as leur a fait tout le bien possible. »"
 date: 2022-06-01 06:00:01+00:47
 draft: False
 hidden: True

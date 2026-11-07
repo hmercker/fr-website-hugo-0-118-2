@@ -1,7 +1,7 @@
 ---
 title: "Venez connaitre la réalité de l'amour"
 menu_title: ""
-description: "Venez connaitre la réalité de l'amour"
+description: "St Pierre, reçu par Al Fike : « Quelle est la réalité de l’amour ? Et nous vous exhortons à découvrir cette réalité, à l’entretenir dans votre être, dans … »"
 date: 2022-06-01 06:00:01+00:09
 draft: False
 hidden: True

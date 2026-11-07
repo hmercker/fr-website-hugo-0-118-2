@@ -1,7 +1,7 @@
 ---
 title: "La liberté dans l’Amérique coloniale et dans le futur"
 menu_title: ""
-description: "La liberté dans l’Amérique coloniale et dans le futur"
+description: "Roger Williams, reçu par FAB : « Je croyais, comme vous, à l’égalité totale, en droits et en libertés, des Amérindiens. J’ai montré à certains de ces … »"
 date: 2022-06-01 06:00:01+00:24
 draft: False
 hidden: True

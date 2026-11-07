@@ -1,7 +1,7 @@
 ---
 title: "Charles T. Wilson un esprit des ténèbres demande l’aide du Dr Stone, il l’a connu alors qu’il vivait sur terre"
 menu_title: ""
-description: "Charles T. Wilson un esprit des ténèbres demande l’aide du Dr Stone, il l’a connu alors qu’il vivait sur terre"
+description: "Charles Wilson, reçu par James Padgett : « Laissez-moi écrire quelques lignes. J’étais dans un hôpital où il s’occupait de mortels fous, comme moi. »"
 date: 2022-06-01 06:00:01+00:38
 draft: False
 hidden: True

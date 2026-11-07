@@ -1,7 +1,7 @@
 ---
 title: "Vous méritez l’Amour"
 menu_title: ""
-description: "Vous méritez l’Amour"
+description: "Charlie Chaplin, reçu par Jimbeau Walsh : « Que le précieux Amour Divin de Dieu entre dans vos âmes, mes amis. Je ne vous ai pas parlé depuis un certain … »"
 date: 2022-06-01 06:00:01+00:1611
 draft: False
 hidden: True

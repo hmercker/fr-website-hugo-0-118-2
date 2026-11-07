@@ -1,7 +1,7 @@
 ---
 title: "La Romance Divine"
 menu_title: ""
-description: "La Romance Divine"
+description: "Yogananda, reçu par Jimbeau Walsh : « C’est une romance Divine que vous avez choisie et qui ne ressemble à aucune autre. Lorsque vous vous ouvrez à cet … »"
 date: 2022-06-01 06:00:01+00:995
 draft: False
 hidden: True

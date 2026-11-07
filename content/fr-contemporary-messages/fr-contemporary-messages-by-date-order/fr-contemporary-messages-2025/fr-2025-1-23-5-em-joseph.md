@@ -1,7 +1,7 @@
 ---
 title: "Guérison et santé en relation avec les demandes adressées à Dieu"
 menu_title: ""
-description: "Guérison et santé en relation avec les demandes adressées à Dieu"
+description: "Joseph, reçu par Elizabeth Mack : « La volonté du Père est que tous vivent en harmonie et dans l’amour, pour tous Ses enfants. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

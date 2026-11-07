@@ -1,7 +1,7 @@
 ---
 title: "Le système et les personnes - 2"
 menu_title: ""
-description: "Le système et les personnes - 2"
+description: "Jésus, reçu par FAB : « J'ai dit dans ma canalisation du 1er mai 2009, Le système et les personnes : Mais si vous l'étudiez de plus près, vous vous … »"
 date: 2022-06-01 06:00:01+00:42
 draft: False
 hidden: True

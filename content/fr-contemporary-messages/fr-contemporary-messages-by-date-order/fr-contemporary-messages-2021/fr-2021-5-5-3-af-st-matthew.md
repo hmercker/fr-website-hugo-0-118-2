@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes tous engagés dans une entreprise gigantesque"
 menu_title: ""
-description: "Nous sommes tous engagés dans une entreprise gigantesque"
+description: "St Matthieu, reçu par Al Fike : « Nous sommes tous engagés dans une formidable entreprise, un projet qui est conçu pour construire un escalier vers une … »"
 date: 2022-06-01 06:00:01+00:1494
 draft: False
 hidden: True

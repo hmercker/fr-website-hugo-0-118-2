@@ -1,7 +1,7 @@
 ---
 title: "Aide angélique"
 menu_title: ""
-description: "Aide angélique"
+description: "Jésus, reçu par FAB : « Nous voyons tous combien vous été secoué récemment par la profondeur de la crise qui frappe le monde entier . »"
 date: 2022-06-01 06:00:01+00:124
 draft: False
 hidden: True

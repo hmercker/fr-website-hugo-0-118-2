@@ -1,7 +1,7 @@
 ---
 title: "Le fils prodigue"
 menu_title: ""
-description: "Le fils prodigue"
+description: "Judas, reçu par H : « Le lendemain, Jésus dit au revoir à Zébédée, en le remerciant pour son hospitalité. Il est parti, emmenant avec lui ses nouveaux … »"
 date: 2022-06-01 06:00:01+00:25
 draft: False
 hidden: True

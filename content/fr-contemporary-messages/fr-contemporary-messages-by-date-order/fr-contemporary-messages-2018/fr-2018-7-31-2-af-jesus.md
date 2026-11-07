@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes à un point tournant dans votre service à Dieu"
 menu_title: ""
-description: "Vous êtes à un point tournant dans votre service à Dieu"
+description: "Jésus, reçu par Al Fike : « Vous êtes tous réunis dans l’amour, recherchant la plus haute vérité, exprimant vos ambitions et vos désirs de servir Dieu … »"
 date: 2022-06-01 06:00:01+00:437
 draft: False
 hidden: True

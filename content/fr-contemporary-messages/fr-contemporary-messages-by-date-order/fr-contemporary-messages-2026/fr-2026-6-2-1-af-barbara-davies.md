@@ -1,7 +1,7 @@
 ---
 title: "Être les instruments de Dieu dans le monde"
 menu_title: ""
-description: "Être les instruments de Dieu dans le monde"
+description: "Barbara Davies, reçu par Albert Fike : « Bénédictions à vous, âmes bien-aimées. La joie dans mon cœur est immense. »"
 date: 2026-09-30 06:00:01+00:01
 draft: False
 hidden: True

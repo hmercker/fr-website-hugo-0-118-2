@@ -1,7 +1,7 @@
 ---
 title: "Rapport de Progression"
 menu_title: ""
-description: "Rapport de Progression"
+description: "Daniel, reçu par Elizabeth Mack : « C’est une grande mission qui vous a été confiée, une mission que vous avez choisie d’accomplir durant votre vie. »"
 date: 2026-01-31 16:00:01+00:01
 draft: False
 hidden: True

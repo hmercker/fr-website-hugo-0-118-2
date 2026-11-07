@@ -1,7 +1,7 @@
 ---
 title: "Le monde change"
 menu_title: ""
-description: "Le monde change"
+description: "Isaïe, Jésus, Moïse, reçu par Albert Fike : « Le monde est en transition. Bien que beaucoup ne le voient pas ou ne le ressentent pas de manière … »"
 date: 2026-02-03 16:00:01+00:01
 draft: False
 hidden: True

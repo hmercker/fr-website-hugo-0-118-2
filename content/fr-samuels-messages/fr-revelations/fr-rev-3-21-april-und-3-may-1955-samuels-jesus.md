@@ -1,7 +1,7 @@
 ---
 title: " 3ème Révélation : L’Amour Divin est un privilège, un Don du Père"
 menu_title: ""
-description: " 3ème Révélation : L’Amour Divin est un privilège, un Don du Père"
+description: "Jésus, reçu par Dr Samuels : « Je vais répondre à la question du Dr Stone qui veut savoir s’il est possible, pour les Esprits Célestes, de conserver … »"
 date: 2022-06-01 06:00:01+00:03
 draft: False
 hidden: True

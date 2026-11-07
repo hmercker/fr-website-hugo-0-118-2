@@ -1,7 +1,7 @@
 ---
 title: "Impressions d'Al après la prière Voix Directe"
 menu_title: ""
-description: "Impressions d'Al après la prière Voix Directe"
+description: "Al Fike, reçu par Al Fike : « Au début de la prière, j’ai vu chacun de nous dans une robe blanche et autour de la taille il y avait une ceinture de … »"
 date: 2022-06-01 06:00:01+00:350
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L'amour de Dieu est disponible pour chaque âme et existe partout"
 menu_title: ""
-description: "L'amour de Dieu est disponible pour chaque âme et existe partout"
+description: "Jésus, reçu par Al Fike : « Laissez votre âme être touchée par l’Essence de Dieu, Son Amour. Âmes bien-aimées, engagez-vous à alimenter les feux de votre âme. »"
 date: 2022-06-01 06:00:01+00:1030
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Puissiez-vous développer la sagesse dans vos interactions avec vos frères et sœurs"
 menu_title: ""
-description: "Puissiez-vous développer la sagesse dans vos interactions avec vos frères et sœurs"
+description: "Anne, reçu par Elizabeth Mack : « Puissiez-vous bénéficier de votre protection tout au long de ce voyage. Que le Père vous bénisse abondamment à chaque … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

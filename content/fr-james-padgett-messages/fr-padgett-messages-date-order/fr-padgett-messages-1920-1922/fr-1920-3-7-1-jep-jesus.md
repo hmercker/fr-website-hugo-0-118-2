@@ -1,7 +1,7 @@
 ---
 title: "Jésus explique la grande importance d’être en bonne condition afin de recevoir les nombreuses vérités qui doivent encore être écrites pendant que M. Padgett est encore ici"
 menu_title: ""
-description: "Jésus explique la grande importance d’être en bonne condition afin de recevoir les nombreuses vérités qui doivent encore être écrites pendant que M. Padgett est encore ici"
+description: "Jésus, reçu par James Padgett : « Permettez-moi d’écrire quelques lignes car je vois que vous êtes désireux d’avoir de mes nouvelles et d’obtenir … »"
 date: 2022-06-01 06:00:01+00:54
 draft: False
 hidden: True

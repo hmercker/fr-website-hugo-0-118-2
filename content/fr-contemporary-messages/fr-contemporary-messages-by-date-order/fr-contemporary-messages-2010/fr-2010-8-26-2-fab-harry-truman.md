@@ -1,7 +1,7 @@
 ---
 title: "Pensées d'un président"
 menu_title: ""
-description: "Pensées d'un président"
+description: "Harry Truman, reçu par FAB : « J'ai lu avec vous ce livre sur mon mandat de président [The Fifties, de David Halberstam]. »"
 date: 2022-06-01 06:00:01+00:148
 draft: False
 hidden: True

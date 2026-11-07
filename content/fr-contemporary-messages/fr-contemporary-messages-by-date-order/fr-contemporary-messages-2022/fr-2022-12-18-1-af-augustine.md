@@ -1,7 +1,7 @@
 ---
 title: "Le vrai sens de Noël"
 menu_title: ""
-description: "Le vrai sens de Noël"
+description: "Augustin, reçu par Al Fike : « Vous approchez d’une période où vous célébrez la naissance de notre bien-aimé Maître Jésus, et je vous exhorte à vivre son … »"
 date: 2022-06-01 06:00:01+00:224
 draft: False
 hidden: True

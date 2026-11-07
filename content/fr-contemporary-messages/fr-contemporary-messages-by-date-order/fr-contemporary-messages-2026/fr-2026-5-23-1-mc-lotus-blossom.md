@@ -1,7 +1,7 @@
 ---
 title: "Demandez à Dieu de vous révéler vos dons"
 menu_title: ""
-description: "Demandez à Dieu de vous révéler vos dons"
+description: "Fleur de Lotus, reçu par Maureen Cardoso : « Beaucoup se rassemblent avec vous, emplissant vos espaces, apportant leur état d'amour et des bénédictions … »"
 date: 2026-09-30 06:00:01+00:01
 draft: False
 hidden: True

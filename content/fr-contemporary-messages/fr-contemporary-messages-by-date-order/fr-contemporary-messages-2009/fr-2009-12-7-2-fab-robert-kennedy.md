@@ -1,7 +1,7 @@
 ---
 title: "Plus sur Robert Kennedy - 2"
 menu_title: ""
-description: "Plus sur Robert Kennedy - 2"
+description: "Robert Kennedy, reçu par FAB : « Je veux que vous tapiez les deux paragraphes importants suivants, situés à la page 345 de l'excellente biographie d'Evan … »"
 date: 2022-06-01 06:00:01+00:95
 draft: False
 hidden: True

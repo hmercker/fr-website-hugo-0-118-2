@@ -1,7 +1,7 @@
 ---
 title: "Un ancien Pape des premiers temps du Catholicisme qui a maintenant atteint les Sphères Célestes, souligne l’importance de la religion de l’âme"
 menu_title: ""
-description: "Un ancien Pape des premiers temps du Catholicisme qui a maintenant atteint les Sphères Célestes, souligne l’importance de la religion de l’âme"
+description: "Le pape Grégoire, reçu par James Padgett : « Je fus le grand pape de Rome qui a tant fait pour établir l’Église Romane sur une base solide et pour étendre … »"
 date: 2022-06-01 06:00:01+00:46
 draft: False
 hidden: True

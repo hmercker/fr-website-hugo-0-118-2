@@ -1,7 +1,7 @@
 ---
 title: "Avancez en tant qu’instruments de lumière"
 menu_title: ""
-description: "Avancez en tant qu’instruments de lumière"
+description: "Augustin, reçu par Al Fike : « Le défi et le dilemme d’accomplir l’œuvre de Dieu dans le monde, ce monde matériel qui est le vôtre, est en cours depuis … »"
 date: 2022-06-01 06:00:01+00:1495
 draft: False
 hidden: True

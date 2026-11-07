@@ -1,7 +1,7 @@
 ---
 title: "L'importance de la foi"
 menu_title: ""
-description: "L'importance de la foi"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Comme il est important d’avoir la foi. J’ai parlé de courage et aujourd’hui vous avez mentionné d’avoir un … »"
 date: 2022-06-01 06:00:01+00:1406
 draft: False
 hidden: True

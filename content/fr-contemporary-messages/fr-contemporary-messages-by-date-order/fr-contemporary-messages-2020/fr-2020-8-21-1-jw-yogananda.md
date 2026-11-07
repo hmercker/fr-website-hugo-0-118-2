@@ -1,7 +1,7 @@
 ---
 title: "S’ouvrir sans crainte"
 menu_title: ""
-description: "S’ouvrir sans crainte"
+description: "Yogananda, reçu par Jimbeau Walsh : « Je te regarde grandir, te voir devenir à l’aise avec tes dons, te regarder partager. Je souhaite aborder le sujet de … »"
 date: 2022-06-01 06:00:01+00:1226
 draft: False
 hidden: True

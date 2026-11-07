@@ -1,7 +1,7 @@
 ---
 title: "Pasteur Russel écrit à propos de son passage dans le monde des esprits"
 menu_title: ""
-description: "Pasteur Russel écrit à propos de son passage dans le monde des esprits"
+description: "Charles Russel, reçu par James Padgett : « Cependant, en un clin d’œil, j’ai découvert toute la fausseté de mes croyances et de mes enseignements, car je … »"
 date: 2022-06-01 06:00:01+00:325
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Qu’y a-t-il dans un nom ?"
 menu_title: ""
-description: "Qu’y a-t-il dans un nom ?"
+description: "Sri Yarisupta, reçu par Al Fike : « Sri Yarigupta est mon nom officiel. Sri Yarisupta est un nom familier qui m’a été donné dans mon enfance et j’utilise … »"
 date: 2022-06-01 06:00:01+00:621
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes tous ensemble en train de boire l'élixir d'amour"
 menu_title: ""
-description: "Nous sommes tous ensemble en train de boire l'élixir d'amour"
+description: "Yogananda, reçu par Al Fike : « Vos prières à Dieu sont comme un rêve. Elles dérivent jusqu’à la Source de tout amour et de toute créativité, de toute … »"
 date: 2022-06-01 06:00:01+00:1131
 draft: False
 hidden: True

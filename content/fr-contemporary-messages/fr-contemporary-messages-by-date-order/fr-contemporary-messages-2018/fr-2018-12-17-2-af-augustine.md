@@ -1,7 +1,7 @@
 ---
 title: "Dieu attend votre choix"
 menu_title: ""
-description: "Dieu attend votre choix"
+description: "Augustin, reçu par Al Fike : « Dieu attend le choix de toute l’humanité, pour que vos frères et sœurs, et vous, choisissiez la lumière et l’harmonie, la … »"
 date: 2026-10-28 06:00:01+00:435
 draft: False
 hidden: True

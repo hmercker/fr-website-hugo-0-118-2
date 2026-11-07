@@ -1,7 +1,7 @@
 ---
 title: "Faites de votre vision une réalité"
 menu_title: ""
-description: "Faites de votre vision une réalité"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Cela m’apporte une grande joie et ouvre mon cœur à vous. Vous n’avez pas à vous inquiéter de … »"
 date: 2022-06-01 06:00:01+00:79
 draft: False
 hidden: True

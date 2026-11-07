@@ -1,7 +1,7 @@
 ---
 title: "Recherchez la réalité de Dieu"
 menu_title: ""
-description: "Recherchez la réalité de Dieu"
+description: "Orion, reçu par Albert Fike : « Chacun de vous aspire à découvrir les subtilités et les complexités de la création divine et de l’Être divin. »"
 date: 2026-10-28 06:00:01+00:01
 draft: False
 hidden: True

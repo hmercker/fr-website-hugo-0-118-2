@@ -1,7 +1,7 @@
 ---
 title: "Le Professeur Salyards est invité à écrire sa prose ou son poème, comme il l’a mentionné dans un texte précédent"
 menu_title: ""
-description: "Le Professeur Salyards est invité à écrire sa prose ou son poème, comme il l’a mentionné dans un texte précédent"
+description: "Professeur Salyards, reçu par James Padgett : « Elle a plus d’amour dans son âme. Elle vous aime beaucoup et veut, un jour, vous écrire pour vous dire à … »"
 date: 2022-06-01 06:00:01+00:55
 draft: False
 hidden: True

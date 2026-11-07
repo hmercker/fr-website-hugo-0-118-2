@@ -1,7 +1,7 @@
 ---
 title: "Bénit et prophétise le travail de James, David, Michael et Patricia à la Barbade"
 menu_title: ""
-description: "Bénit et prophétise le travail de James, David, Michael et Patricia à la Barbade"
+description: "Jésus, reçu par Albert Fike : « Je vous donne une prophétie selon laquelle, même si vous prenez des directions différentes sur les rives de la vérité … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Orientation concernant la retraite de développement pour vraiment reconnaître les murmures de Dieu dans vos âmes"
 menu_title: ""
-description: "Orientation concernant la retraite de développement pour vraiment reconnaître les murmures de Dieu dans vos âmes"
+description: "Keae-atta-Kem, reçu par Maureen Cardoso : « Bien que votre cercle ne soit pas complet, c’est-à-dire ceux qui doivent encore arriver et se joindre à nous … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

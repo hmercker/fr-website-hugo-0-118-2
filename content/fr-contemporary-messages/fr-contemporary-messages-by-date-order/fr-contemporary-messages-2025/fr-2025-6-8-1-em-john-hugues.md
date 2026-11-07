@@ -1,7 +1,7 @@
 ---
 title: "Nous avons un aperçu de cet Amour en vivant sur Terre"
 menu_title: ""
-description: "Nous avons un aperçu de cet Amour en vivant sur Terre"
+description: "Jean Hugues, reçu par Elizabeth Mack : « J’accompagne cette âme, ce médium, durant la majeure partie de sa vie. Nous serons avec vous aujourd’hui, chacun … »"
 date: 2026-01-30 16:00:01+00:01
 draft: False
 hidden: True

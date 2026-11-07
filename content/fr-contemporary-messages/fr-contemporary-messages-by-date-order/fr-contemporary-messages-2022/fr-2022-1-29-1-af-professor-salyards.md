@@ -1,7 +1,7 @@
 ---
 title: "Votre attention et votre concentration sont nécessaires"
 menu_title: ""
-description: "Votre attention et votre concentration sont nécessaires"
+description: "Professeur Salyards, reçu par Al Fike : « Il est temps de tirer les rideaux et d’attirer le regard de vos amis, de ceux qui sont intéressés par ce que … »"
 date: 2022-06-01 06:00:01+00:21
 draft: False
 hidden: True

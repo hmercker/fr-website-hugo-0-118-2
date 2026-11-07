@@ -1,7 +1,7 @@
 ---
 title: "N'ignorez pas le conseil de votre âme"
 menu_title: ""
-description: "N'ignorez pas le conseil de votre âme"
+description: "Keea Atta Kem, reçu par Maureen Cardoso : « Fils bien-aimé, quelle prière qui vient du cœur et de l’âme tu as partagée pour ouvrir ce cercle. »"
 date: 2022-06-01 06:00:01+00:666
 draft: False
 hidden: True

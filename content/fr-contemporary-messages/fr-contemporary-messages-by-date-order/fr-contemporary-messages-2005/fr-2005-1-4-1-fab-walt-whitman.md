@@ -1,7 +1,7 @@
 ---
 title: "Walt Whitman et les Amérindiens"
 menu_title: ""
-description: "Walt Whitman et les Amérindiens"
+description: "Walt Whitman, reçu par FAB : « Vos intérêts m'ont attiré. Tout comme vous, j'ai profondément réfléchi à la signification de l'Amérique et, tout comme … »"
 date: 2022-06-01 06:00:01+00:40
 draft: False
 hidden: True

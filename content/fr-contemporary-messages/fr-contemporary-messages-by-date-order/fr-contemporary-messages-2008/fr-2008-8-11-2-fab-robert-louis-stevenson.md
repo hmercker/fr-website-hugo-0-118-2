@@ -1,7 +1,7 @@
 ---
 title: "Un auteur sur la nature du soi"
 menu_title: ""
-description: "Un auteur sur la nature du soi"
+description: "Robert Louis Stevenson, reçu par FAB : « J'ai en effet eu de longues conversations avec d'autres auteurs qui, comme moi, ont été aux prises avec l'énigme … »"
 date: 2022-06-01 06:00:01+00:91
 draft: False
 hidden: True

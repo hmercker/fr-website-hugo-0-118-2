@@ -1,7 +1,7 @@
 ---
 title: "Bénédiction d’une rose"
 menu_title: ""
-description: "Bénédiction d’une rose"
+description: "Anna (Grand mère de Jésus), reçu par Maureen Cardoso : « Alors que nous passons ce temps ensemble, je me tiens devant vous avec un cadeau que je vous … »"
 date: 2022-06-01 06:00:01+00:42
 draft: False
 hidden: True

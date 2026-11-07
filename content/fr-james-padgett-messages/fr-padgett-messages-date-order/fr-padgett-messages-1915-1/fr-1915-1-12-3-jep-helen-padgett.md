@@ -1,7 +1,7 @@
 ---
 title: "Hélène confirme l’écriture et est une intermédiaire"
 menu_title: ""
-description: "Hélène confirme l’écriture et est une intermédiaire"
+description: "Hélène Padgett, reçu par James Padgett : « Je vois qu’il est parti à la recherche de M. Taggart, mais je ne pense pas qu’il sera beaucoup aidé. »"
 date: 2022-06-01 06:00:01+00:10
 draft: False
 hidden: True

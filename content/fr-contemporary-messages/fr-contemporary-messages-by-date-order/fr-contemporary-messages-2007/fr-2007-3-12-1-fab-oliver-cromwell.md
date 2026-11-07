@@ -1,7 +1,7 @@
 ---
 title: "Souffrances d’un souverain Anglais"
 menu_title: ""
-description: "Souffrances d’un souverain Anglais"
+description: "Oliver Cromwell, reçu par FAB : « Vous êtes en train de lire ce que j’ai fait en Irlande. Beaucoup de ces mêmes Irlandais que j’ai assassinés sont venus … »"
 date: 2022-06-01 06:00:01+00:122
 draft: False
 hidden: True

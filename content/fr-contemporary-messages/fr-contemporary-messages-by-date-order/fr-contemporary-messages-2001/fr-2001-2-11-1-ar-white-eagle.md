@@ -1,7 +1,7 @@
 ---
 title: "L’autre vision"
 menu_title: ""
-description: "L’autre vision"
+description: "Aigle Blanc, reçu par Amada Reza : « Je voudrais partager avec A que nous sommes avec lui, pour l'aider à voir la vérité sur sa condition, car la vérité … »"
 date: 2022-06-01 06:00:01+00:09
 draft: False
 hidden: True

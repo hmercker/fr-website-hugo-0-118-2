@@ -1,7 +1,7 @@
 ---
 title: "Nous nous réjouissons en vous"
 menu_title: ""
-description: "Nous nous réjouissons en vous"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Vos explorations des vérités vous ont apporté à chacun une merveilleuse clarté et vous ont permis non … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

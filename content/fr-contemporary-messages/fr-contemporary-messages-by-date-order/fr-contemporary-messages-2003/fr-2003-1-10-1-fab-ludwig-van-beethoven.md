@@ -1,7 +1,7 @@
 ---
 title: "La relation entre l’artistique et le spirituel"
 menu_title: ""
-description: "La relation entre l’artistique et le spirituel"
+description: "Ludwig van Beethoven, reçu par FAB : « Nous voyons comment vous avez eu faim de clarté sur ce sujet, même si vptre compréhension s’est accrue. »"
 date: 2022-06-01 06:00:01+00:08
 draft: False
 hidden: True

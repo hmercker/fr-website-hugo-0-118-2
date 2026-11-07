@@ -1,7 +1,7 @@
 ---
 title: "Pas à pas, le Royaume de Dieu se construit avec Amour"
 menu_title: ""
-description: "Pas à pas, le Royaume de Dieu se construit avec Amour"
+description: "Jésus, reçu par Kathryn Stokes : « Bien qu'il y ait encore une grande moisson d'âmes à sauver de l'erreur de leurs voies et à guider sur le chemin de la … »"
 date: 2022-06-01 06:00:01+00:43
 draft: False
 hidden: True

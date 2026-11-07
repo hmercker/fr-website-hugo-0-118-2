@@ -1,7 +1,7 @@
 ---
 title: "37ème Sermon – Michée et la prédiction de Bethléem"
 menu_title: ""
-description: "37ème Sermon – Michée et la prédiction de Bethléem"
+description: "Jésus, reçu par Dr Samuels : « Il y a un passage, dans le livre de Michée, que je souhaite commenter. Il s’agit du chapitre 6 dans lequel Dieu, par … »"
 date: 2022-06-01 06:00:01+00:90
 draft: False
 hidden: True

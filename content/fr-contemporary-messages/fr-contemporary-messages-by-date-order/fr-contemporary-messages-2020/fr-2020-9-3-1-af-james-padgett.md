@@ -1,7 +1,7 @@
 ---
 title: "James Padgett affirme son engagement à atteindre le plus haut niveau"
 menu_title: ""
-description: "James Padgett affirme son engagement à atteindre le plus haut niveau"
+description: "James Padgett, reçu par Al Fike : « Cet instrument a écrit quelque chose qui est une déclaration importante concernant ses dons et sa médiumnité. »"
 date: 2022-06-01 06:00:01+00:1240
 draft: False
 hidden: True

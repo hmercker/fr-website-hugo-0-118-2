@@ -1,7 +1,7 @@
 ---
 title: "36ème Sermon – Michée et les aristocrates de Jérusalem"
 menu_title: ""
-description: "36ème Sermon – Michée et les aristocrates de Jérusalem"
+description: "Jésus, reçu par Dr Samuels : « Avec le premier Isaïe et contemporain avec lui, nous avons un autre prophète, Michée, qui est né dans la petite ville de … »"
 date: 2022-06-01 06:00:01+00:89
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Connaissez votre but"
 menu_title: ""
-description: "Connaissez votre but"
+description: "Jacques, reçu par Al Fike : « Vivre une vie remplie de buts, c’est vivre une vie riche et généreuse. Lorsque ce but et ce sens du but viennent de l’âme et … »"
 date: 2022-06-01 06:00:01+00:1427
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Vous créez un centre de lumière"
 menu_title: ""
-description: "Vous créez un centre de lumière"
+description: "Marc, reçu par Al Fike : « Les eaux vivantes de l'Amour de Dieu se déversent dans ce lieu en ce moment. Ouvrez vos âmes, ouvrez vos âmes et buvez … »"
 date: 2022-06-01 06:00:01+00:742
 draft: False
 hidden: True

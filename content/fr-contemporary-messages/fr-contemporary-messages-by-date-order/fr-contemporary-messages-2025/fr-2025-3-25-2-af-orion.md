@@ -1,7 +1,7 @@
 ---
 title: "Soyez une lumière dans les conditions sombres qui vous assaillent"
 menu_title: ""
-description: "Soyez une lumière dans les conditions sombres qui vous assaillent"
+description: "Orion, reçu par Albert Fike : « Mes amis, Orion vient une fois de plus pour vous élever, vous enseigner et vous inspirer. Je ne suis pas le seul, comme … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

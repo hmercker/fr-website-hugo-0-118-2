@@ -1,7 +1,7 @@
 ---
 title: "Il est temps d'avancer et de sortir"
 menu_title: ""
-description: "Il est temps d'avancer et de sortir"
+description: "St Matthieu, reçu par Al Fike : « l est bon de vous voir réunis dans la prière et dans la communion d’amour que vous avez les uns avec les autres en tant … »"
 date: 2023-09-01 06:00:01+00:90
 draft: False
 hidden: True

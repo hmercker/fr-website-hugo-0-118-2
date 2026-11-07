@@ -1,7 +1,7 @@
 ---
 title: "Cornelius parle des grandes audiences qui assistent aux écrits reçus par M Padgett et écoutent ce qui est dit"
 menu_title: ""
-description: "Cornelius parle des grandes audiences qui assistent aux écrits reçus par M Padgett et écoutent ce qui est dit"
+description: "Corneille, reçu par James Padgett : « Je n’écrirai qu’une ligne ou deux, car je vois dans votre état d’esprit que vous êtes anxieux d’étudier la prière … »"
 date: 2022-06-01 06:00:01+00:05
 draft: False
 hidden: True

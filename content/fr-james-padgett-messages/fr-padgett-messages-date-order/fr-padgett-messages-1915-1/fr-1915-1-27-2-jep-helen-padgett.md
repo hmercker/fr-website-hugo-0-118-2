@@ -1,7 +1,7 @@
 ---
 title: "Hélène raconte le décès soudain d’une amie"
 menu_title: ""
-description: "Hélène raconte le décès soudain d’une amie"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, j’étais présente quand Jen est passée, et je l’ai prise dans mes bras et je l’ai portée à un lieu dans … »"
 date: 2022-06-01 06:00:01+00:17
 draft: False
 hidden: True

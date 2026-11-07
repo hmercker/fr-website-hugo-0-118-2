@@ -1,7 +1,7 @@
 ---
 title: "Demander les bénédictions et les dons de Dieu"
 menu_title: ""
-description: "Demander les bénédictions et les dons de Dieu"
+description: "Nuage Blanc, reçu par Al Fike : « La lumière brille à travers ce grand portail remplissant cette pièce de lumière, d’amour, de guérison, de paix. »"
 date: 2022-06-01 06:00:01+00:850
 draft: False
 hidden: True

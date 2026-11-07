@@ -1,7 +1,7 @@
 ---
 title: "Hélène Padgett confirme les progrès de leur fille Nita et de la vérité au sujet de la seconde venue de Jésus"
 menu_title: ""
-description: "Hélène Padgett confirme les progrès de leur fille Nita et de la vérité au sujet de la seconde venue de Jésus"
+description: "Hélène Padgett, reçu par James Padgett : « Jean viendra bientôt – tout dépend de toi. Eh bien, notre Bébé était si heureuse qu’elle ait pu t’écrire et te … »"
 date: 2022-06-01 06:00:01+00:78
 draft: False
 hidden: True

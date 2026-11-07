@@ -1,7 +1,7 @@
 ---
 title: "La confiance de Ruth dans l’Amour du Père"
 menu_title: ""
-description: "La confiance de Ruth dans l’Amour du Père"
+description: "Jésus, reçu par Dr Samuels : « Dans ce sermon, je continue à vous montrer comment l’Ancien Testament des Hébreux a développé des histoires dans lesquelles … »"
 date: 2022-06-01 06:00:01+00:41
 draft: False
 hidden: True

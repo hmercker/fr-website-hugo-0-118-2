@@ -1,7 +1,7 @@
 ---
 title: "La médiumnité Céleste comparée à la médiumnité évidentielle"
 menu_title: ""
-description: "La médiumnité Céleste comparée à la médiumnité évidentielle"
+description: "James Padgett, reçu par Al Fike : « Vous avez donc appris à connaître les différences entre le travail que vous faites pour le Père Céleste et le travail … »"
 date: 2022-06-01 06:00:01+00:811
 draft: False
 hidden: True

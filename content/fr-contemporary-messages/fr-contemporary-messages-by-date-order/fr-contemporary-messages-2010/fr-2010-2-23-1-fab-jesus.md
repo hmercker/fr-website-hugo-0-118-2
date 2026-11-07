@@ -1,7 +1,7 @@
 ---
 title: "Clarification concernant Barack Obama"
 menu_title: ""
-description: "Clarification concernant Barack Obama"
+description: "Jésus, reçu par FAB : « J'ai dit dans ma canalisation intitulée L'avènement de la paix et de l'aharmonie : Je vois votre pensée, et elle est exacte  … »"
 date: 2022-06-01 06:00:01+00:114
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Répandez la vérité de l'Amour Divin"
 menu_title: ""
-description: "Répandez la vérité de l'Amour Divin"
+description: "Ézéchiel, reçu par Albert Fike : « Celui qui vit dans le monde des esprits depuis de très nombreux siècles. Celui qui est dans les Cieux Célestes depuis … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

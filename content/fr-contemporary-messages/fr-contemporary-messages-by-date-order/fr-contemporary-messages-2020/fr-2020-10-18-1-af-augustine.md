@@ -1,7 +1,7 @@
 ---
 title: "L'Esprit Saint"
 menu_title: ""
-description: "L'Esprit Saint"
+description: "Augustin, reçu par Al Fike : « Car lorsque vous combinez ces forces en vous et les dirigez vers Dieu, elles pénètrent à travers les conditions terrestres … »"
 date: 2022-06-01 06:00:01+00:1289
 draft: False
 hidden: True

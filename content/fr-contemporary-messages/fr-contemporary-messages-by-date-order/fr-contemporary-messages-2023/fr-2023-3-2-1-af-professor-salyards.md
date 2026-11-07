@@ -1,7 +1,7 @@
 ---
 title: "Soyez conscients des opportunités qui s'offrent à vous"
 menu_title: ""
-description: "Soyez conscients des opportunités qui s'offrent à vous"
+description: "Professor Salyards, reçu par Al Fike : « Les fenêtres et les avenues d’opportunités iront et viendront au fur et à mesure que vous continuerez à atteindre … »"
 date: 2022-06-01 06:00:01+00:43
 draft: False
 hidden: True

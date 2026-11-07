@@ -1,7 +1,7 @@
 ---
 title: "Comment rester en bonne santé"
 menu_title: ""
-description: "Comment rester en bonne santé"
+description: "Dr Gordon Leonard : « J'aimerais parler de la guérison, mais je préférerais de loin vous parler de la façon de rester en bonne santé, car nous pouvons … »"
 date: 2022-06-01 06:00:01+00:174
 draft: False
 hidden: True

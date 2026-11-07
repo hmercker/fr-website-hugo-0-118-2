@@ -1,7 +1,7 @@
 ---
 title: "La confiance en Dieu"
 menu_title: ""
-description: "La confiance en Dieu"
+description: "Judas, reçu par H : « Connais-tu la différence entre toi et moi ? Je me réfère à quelque chose de fondamental; ne pense pas à des choses superficielles … »"
 date: 2022-06-01 06:00:01+00:21
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Clôture la retraite Voix Directe"
 menu_title: ""
-description: "Clôture la retraite Voix Directe"
+description: "Jésus, reçu par Albert Fike : « Car n’est-ce pas notre objectif ensemble, apporter la vérité de Son Amour, la lumière de Son Amour, la joie de Son Amour … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

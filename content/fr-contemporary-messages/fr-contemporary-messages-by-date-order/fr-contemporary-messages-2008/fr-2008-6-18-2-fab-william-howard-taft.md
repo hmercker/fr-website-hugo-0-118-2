@@ -1,7 +1,7 @@
 ---
 title: "Les politiciens dans le monde des esprits - 2"
 menu_title: ""
-description: "Les politiciens dans le monde des esprits - 2"
+description: "William Howard Taft, reçu par FAB : « Permettez-moi de commenter ce que j'ai dit dans ma précédente canalisation : Puis, j'ai poursuivi en décrivant un … »"
 date: 2022-06-01 06:00:01+00:77
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Conseils pour que nous puissions nous démarquer en tant qu'instruments au service de Dieu"
 menu_title: ""
-description: "Conseils pour que nous puissions nous démarquer en tant qu'instruments au service de Dieu"
+description: "Care Darby Walsh, reçu par Albert Fike : « Que l’Amour du Père continue de vous bénir, belles âmes de Dieu. Tous ses amis sont mes amis. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

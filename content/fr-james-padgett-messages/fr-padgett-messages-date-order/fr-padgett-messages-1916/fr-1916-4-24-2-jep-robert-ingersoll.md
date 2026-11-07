@@ -1,7 +1,7 @@
 ---
 title: "Robert Ingersoll décrit ses progrès et ses difficultés pour changer les vues de ses disciples"
 menu_title: ""
-description: "Robert Ingersoll décrit ses progrès et ses difficultés pour changer les vues de ses disciples"
+description: "Robert Ingersoll, reçu par James Padgett : « Vous vous souviendrez que je vous avais déclaré ma conversion au Christianisme – je veux dire au vrai … »"
 date: 2022-06-01 06:00:01+00:217
 draft: False
 hidden: True

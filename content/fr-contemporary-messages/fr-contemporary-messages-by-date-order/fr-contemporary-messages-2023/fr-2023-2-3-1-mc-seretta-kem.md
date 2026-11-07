@@ -1,7 +1,7 @@
 ---
 title: "Ouverture de la retraite - Cadeau d'un portail"
 menu_title: ""
-description: "Ouverture de la retraite - Cadeau d'un portail"
+description: "Seretta Kem, reçu par Maureen Cardoso : « Nous vous invitons à ce rassemblement. Un rassemblement mondial où nous répondons à l’orchestration de Dieu, le … »"
 date: 2022-06-01 06:00:01+00:20
 draft: False
 hidden: True

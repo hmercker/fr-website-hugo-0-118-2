@@ -1,7 +1,7 @@
 ---
 title: "La porte sera ouverte"
 menu_title: ""
-description: "La porte sera ouverte"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Mais pour l’instant, elle n’est qu’un simple reflet de la lumière des Cieux Célestes. Car vous regardez le … »"
 date: 2022-06-01 06:00:01+00:1718
 draft: False
 hidden: True

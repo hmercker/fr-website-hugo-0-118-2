@@ -1,7 +1,7 @@
 ---
 title: "Je suis avec vous : L’éveil de l’âme par l’Amour Divin"
 menu_title: ""
-description: "Je suis avec vous : L’éveil de l’âme par l’Amour divin"
+description: "Jésus, reçu par Maureen Cardoso : « La soif de vos âmes est manifeste. La puissance de ce désir intérieur de connaître Dieu motive votre ascension vers la … »"
 date: 2026-09-30 06:00:01+00:01
 draft: False
 hidden: True

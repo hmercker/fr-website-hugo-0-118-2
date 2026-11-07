@@ -1,7 +1,7 @@
 ---
 title: "Priez pour l’amour tous les jours"
 menu_title: ""
-description: "Priez pour l’amour tous les jours"
+description: "Jésus, reçu par Al Fike : « Et je vous bénis, je vous bénis dans vos aspirations, et votre désir de Vérité et votre volonté de vous ouvrir de cette façon … »"
 date: 2022-06-01 06:00:01+00:84
 draft: False
 hidden: True

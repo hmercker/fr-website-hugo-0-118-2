@@ -1,7 +1,7 @@
 ---
 title: "Sur la Foi"
 menu_title: ""
-description: "Sur la Foi"
+description: "Jacob, reçu par Helge Mercker : « Ma fille, nous pouvons commencer à écrire. Je m'appelle Jacob et je me suis présenté à toi hier. »"
 date: 2022-06-01 06:00:01+00:1090
 draft: False
 hidden: True

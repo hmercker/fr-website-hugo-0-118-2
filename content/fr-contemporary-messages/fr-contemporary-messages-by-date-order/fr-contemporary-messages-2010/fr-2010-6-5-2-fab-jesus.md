@@ -1,7 +1,7 @@
 ---
 title: "Les Rockefellers"
 menu_title: ""
-description: "Les Rockefellers"
+description: "Jésus, reçu par FAB : « Nous approuvons votre lecture du livre [Les Rockfellers, une Dynastie Américaine]. Il vous aide à mettre un visage humain sur … »"
 date: 2022-06-01 06:00:01+00:135
 draft: False
 hidden: True

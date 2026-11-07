@@ -1,7 +1,7 @@
 ---
 title: "Pourquoi les gens accusent-ils Dieu du mal dans ce monde ?"
 menu_title: ""
-description: "Pourquoi les gens accusent-ils Dieu du mal dans ce monde ?"
+description: "Ourson Véloce, reçu par Alfredo : « Observez votre entourage, observez les esprits agités de ce monde, espérant trouver une réponse à tout ce qui se passe. »"
 date: 2022-06-01 06:00:01+00:28
 draft: False
 hidden: True

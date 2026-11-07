@@ -1,7 +1,7 @@
 ---
 title: "Le monde a besoin de plus de cercles de lumière d'Amour Divin"
 menu_title: ""
-description: "Le monde a besoin de plus de cercles de lumière d'Amour Divin"
+description: "Seretta Kem, reçu par Al Fike : « Combien il est important d'être dans un Cercle de Lumière tel que celui-ci, et combien il est important pour ceux … »"
 date: 2022-06-01 06:00:01+00:167
 draft: False
 hidden: True

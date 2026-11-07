@@ -1,7 +1,7 @@
 ---
 title: "Jésus explique la différence de mission entre M. Morgan et Dr Stone et l’importance de chacun, mais ces révélations peuvent seulement êtres faites à travers M. Padgett"
 menu_title: ""
-description: "Jésus explique la différence de mission entre M. Morgan et Dr Stone et l’importance de chacun, mais ces révélations peuvent seulement êtres faites à travers M. Padgett"
+description: "Jésus, reçu par James Padgett : « Permettez-moi d’écrire quelques lignes, car il y a longtemps que vous n’avez pas eu de mes nouvelles, et j’ai le désir … »"
 date: 2022-06-01 06:00:01+00:64
 draft: False
 hidden: True

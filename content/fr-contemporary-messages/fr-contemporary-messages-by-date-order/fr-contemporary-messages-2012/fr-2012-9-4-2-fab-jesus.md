@@ -1,7 +1,7 @@
 ---
 title: "Le réconfort du Maître"
 menu_title: ""
-description: "Le réconfort du Maître"
+description: "Jésus, reçu par FAB : « Rien de la vie mortelle, aussi puissant et organisé soit-il, ne pourra résister à la pleine puissance du Royaume Céleste. »"
 date: 2022-06-01 06:00:01+00:291
 draft: False
 hidden: True

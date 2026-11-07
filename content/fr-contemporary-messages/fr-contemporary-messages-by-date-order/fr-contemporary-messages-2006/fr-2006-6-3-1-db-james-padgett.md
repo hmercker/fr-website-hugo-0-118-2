@@ -1,7 +1,7 @@
 ---
 title: "Les bonnes choses"
 menu_title: ""
-description: "Les bonnes choses"
+description: "James Padgett, reçu par DB : « Vous êtes prêt Daniel, alors commençons. Je voudrais répondre aux commentaires de Geoff concernant ma réception des … »"
 date: 2022-06-01 06:00:01+00:19
 draft: False
 hidden: True

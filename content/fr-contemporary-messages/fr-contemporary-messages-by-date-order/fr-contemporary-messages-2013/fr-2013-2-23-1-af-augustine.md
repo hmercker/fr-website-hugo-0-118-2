@@ -1,7 +1,7 @@
 ---
 title: "Priez plus intensément et plus souvent pour cet Amour"
 menu_title: ""
-description: "Priez plus intensément et plus souvent pour cet Amour"
+description: "Augustin, reçu par Albert Fike : « La présence de Dieu est avec vous, mes enfants. Ne pouvez-vous pas sentir la chaleur de Son amour vous baigner, vous … »"
 date: 2026-10-16 06:00:01+00:09
 draft: False
 hidden: True

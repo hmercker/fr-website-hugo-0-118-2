@@ -1,7 +1,7 @@
 ---
 title: "Réalisez la puissance du don divin du libre arbitre"
 menu_title: ""
-description: "Réalisez la puissance du don divin du libre arbitre"
+description: "Judas, reçu par Albert Fike : « C’est le pouvoir de choisir, le pouvoir du libre arbitre. C’est un pouvoir qu’aucune autre créature sur Terre ne possède à … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

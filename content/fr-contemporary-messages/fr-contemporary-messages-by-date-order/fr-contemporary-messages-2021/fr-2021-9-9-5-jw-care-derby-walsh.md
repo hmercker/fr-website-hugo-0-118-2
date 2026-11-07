@@ -1,7 +1,7 @@
 ---
 title: "Le Vrai Bonheur"
 menu_title: ""
-description: "Le Vrai Bonheur"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Que la Grâce de l’Amour de Dieu soit sur vous tous. Que son très Esprit saint apporte Son Amour dans vos âmes … »"
 date: 2022-06-01 06:00:01+00:1634
 draft: False
 hidden: True

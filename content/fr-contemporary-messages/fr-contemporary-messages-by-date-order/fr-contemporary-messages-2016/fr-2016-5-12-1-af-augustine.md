@@ -1,7 +1,7 @@
 ---
 title: "Comment être un canal d’amour sans peur dans le monde"
 menu_title: ""
-description: "Comment être un canal d’amour sans peur dans le monde"
+description: "Augustin, reçu par Al Fike : « Car vous voyez que pour être un canal d’Amour dans le monde, vous devez être dans le monde et être ce canal où que vous … »"
 date: 2022-06-01 06:00:01+00:206
 draft: False
 hidden: True

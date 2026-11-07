@@ -1,7 +1,7 @@
 ---
 title: "Jésus était le vrai Messie et le vrai Christ comme il est enseigné sur la Terre"
 menu_title: ""
-description: "Jésus était le vrai Messie et le vrai Christ comme il est enseigné sur la Terre"
+description: "Jean le Baptiste, reçu par James Padgett : « Non, je n’étais pas présent à l’époque. »"
 date: 2022-06-01 06:00:01+00:212
 draft: False
 hidden: True

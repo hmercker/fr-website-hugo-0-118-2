@@ -1,7 +1,7 @@
 ---
 title: "Votre destin dans l'Amour de Dieu"
 menu_title: ""
-description: "Votre destin dans l'Amour de Dieu"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « L’Amour de Dieu est le grand transformateur de l’âme. L’image de la métamorphose de la chenille en papillon … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

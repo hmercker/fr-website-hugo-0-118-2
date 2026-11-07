@@ -1,7 +1,7 @@
 ---
 title: "L’âme d’un Enfant"
 menu_title: ""
-description: "L’âme d’un Enfant"
+description: "Jésus, reçu par Dr Samuels : « Ce sujet est en effet d’un intérêt vital pour les jeunes parents qui ont subi le terrible deuil de la mort d’un jeune … »"
 date: 2022-06-01 06:00:01+00:11
 draft: False
 hidden: True

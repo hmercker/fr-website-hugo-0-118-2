@@ -1,7 +1,7 @@
 ---
 title: "C’est simple"
 menu_title: ""
-description: "C’est simple"
+description: "Yogananda, reçu par Jimbeau Walsh : « Lorsque vous permettez à vos âmes de s’ouvrir et à vos cœurs d’être dans un lieu sûr et dans l’étreinte de notre … »"
 date: 2022-06-01 06:00:01+00:1466
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Permettre à nos cœurs de s'ouvrir, écouter avec nos âmes"
 menu_title: ""
-description: "Permettre à nos cœurs de s'ouvrir, écouter avec nos âmes"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « Comme nous l’avons vécu à plusieurs reprises à Findhorn, où j’étais la fondatrice spirituelle, mon chemin était … »"
 date: 2022-06-01 06:00:01+00:904
 draft: False
 hidden: True

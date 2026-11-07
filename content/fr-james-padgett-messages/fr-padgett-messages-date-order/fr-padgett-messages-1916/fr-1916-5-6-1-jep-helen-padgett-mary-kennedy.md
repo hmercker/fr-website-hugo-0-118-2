@@ -1,7 +1,7 @@
 ---
 title: "Hélène et Mary écrivent ce message ; Mary a progressé vers la Première Sphère Céleste, ce qui est confirmé par Hélène"
 menu_title: ""
-description: "Hélène et Mary écrivent ce message ; Mary a progressé vers la Première Sphère Céleste, ce qui est confirmé par Hélène"
+description: "Hélène Padgett & Mary Kennedy, reçu par James Padgett : « Je veux simplement dire que j’ai écouté la discussion que tu as eue avec le Dr Stone, et je … »"
 date: 2022-06-01 06:00:01+00:220
 draft: False
 hidden: True

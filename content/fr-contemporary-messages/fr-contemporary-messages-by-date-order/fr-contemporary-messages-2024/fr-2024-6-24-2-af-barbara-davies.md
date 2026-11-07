@@ -1,7 +1,7 @@
 ---
 title: "Permettez à ce don de faire son œuvre, cette bénédiction de transformation pour chacun d'entre vous"
 menu_title: ""
-description: "Permettez à ce don de faire son œuvre, cette bénédiction de transformation pour chacun d'entre vous"
+description: "Barbara, reçu par Albert Fike : « Mes chères filles vous ont apporté des pierres en cadeau et je vous invite à les porter partout où vous irez pendant que … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

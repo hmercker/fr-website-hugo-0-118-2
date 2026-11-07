@@ -1,7 +1,7 @@
 ---
 title: "Martin Luther commente la guerre en cours et ses conséquences"
 menu_title: ""
-description: "Martin Luther commente la guerre en cours et ses conséquences"
+description: "Martin Luther, reçu par James Padgett : « J’ai eu quelques difficultés à écrire mon nom, mais je n’ai pas laissé cette difficulté me dissuader ou … »"
 date: 2022-06-01 06:00:01+00:91
 draft: False
 hidden: True

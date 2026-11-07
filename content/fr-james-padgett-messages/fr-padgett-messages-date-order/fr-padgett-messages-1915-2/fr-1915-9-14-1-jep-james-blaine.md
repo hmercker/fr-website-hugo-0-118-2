@@ -1,7 +1,7 @@
 ---
 title: "Un ami de M. Padgett, le félicite pour son travail et raconte ses activités spirituelles"
 menu_title: ""
-description: "Un ami de M. Padgett, le félicite pour son travail et raconte ses activités spirituelles"
+description: "Blaine, reçu par James Padgett : « Eh bien, j’ai été avec toi lorsque tu recevais certains écrits, j’ai vu quels messages tu as reçus, et quel effet les … »"
 date: 2022-06-01 06:00:01+00:247
 draft: False
 hidden: True

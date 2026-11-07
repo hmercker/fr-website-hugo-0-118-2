@@ -1,7 +1,7 @@
 ---
 title: "Continuez à nous bénir et à prier avec nous"
 menu_title: ""
-description: "Continuez à nous bénir et à prier avec nous"
+description: "Orion, reçu par Albert Fike : « Nous continuons notre route, chers et beaux amis. Nous avançons pas à pas, à la recherche de l’éveil et de l’ouverture de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

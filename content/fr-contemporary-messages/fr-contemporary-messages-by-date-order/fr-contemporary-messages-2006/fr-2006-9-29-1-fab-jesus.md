@@ -1,7 +1,7 @@
 ---
 title: "Jésus et le Talmud - Similitudes, suite"
 menu_title: ""
-description: "Jésus et le Talmud - Similitudes, suite"
+description: "Jésus, reçu par FAB : « Beaucoup de gens considèrent que mes idées sont tout à fait originales. Par exemple, il y a la fameuse idée : « Aimez vos ennemis … »"
 date: 2022-06-01 06:00:01+00:48
 draft: False
 hidden: True

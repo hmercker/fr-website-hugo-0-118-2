@@ -1,7 +1,7 @@
 ---
 title: "Entrez dans la Lumière"
 menu_title: ""
-description: "Entrez dans la Lumière"
+description: "André, reçu par Albert Fike : « Ô précieux enfants, belles âmes, belles âmes de l’Amour du Père. Vous vous rassemblez avec tant d’empressement pour … »"
 date: 2026-10-21 06:00:01+00:09
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Créez votre vision"
 menu_title: ""
-description: "Créez votre vision"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Je n’ai pas d’ordre du jour à promouvoir, ni d’exposition réfléchie. Chaque fois que quelqu’un sur Terre peut … »"
 date: 2022-06-01 06:00:01+00:10
 draft: False
 hidden: True

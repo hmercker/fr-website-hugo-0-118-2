@@ -1,7 +1,7 @@
 ---
 title: "L’Amour que je suis est l’Amour que tu es"
 menu_title: ""
-description: "L’Amour que je suis est l’Amour que tu es"
+description: "Père, reçu par Enfant de Dieu : « Connais-toi toi-même et tu me connaîtras. Toute ma sagesse est en toi. »"
 date: 2022-06-01 06:00:01+00:103
 draft: False
 hidden: True

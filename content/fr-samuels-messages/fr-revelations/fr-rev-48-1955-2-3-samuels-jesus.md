@@ -1,7 +1,7 @@
 ---
 title: "48ème Révélation : Les origines anciennes de certains des miracles cités dans le Nouveau Testament"
 menu_title: ""
-description: "48ème Révélation : Les origines anciennes de certains des miracles cités dans le Nouveau Testament"
+description: "Jésus, reçu par Dr Samuels : « Je n’en dirai pas plus, pour le moment, au sujet de ces passages Messianiques, je vais changer et parler au sujet de … »"
 date: 2022-06-01 06:00:01+00:48
 draft: False
 hidden: True

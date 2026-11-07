@@ -1,7 +1,7 @@
 ---
 title: "Recevoir des conseils"
 menu_title: ""
-description: "Recevoir des conseils"
+description: "Jésus, reçu par Al Fike : « Âmes précieuses, je viens. Il faut comprendre que les messages et les conseils donnés par le biais d’un médium sont souvent … »"
 date: 2022-06-01 06:00:01+00:220
 draft: False
 hidden: True

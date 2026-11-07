@@ -1,7 +1,7 @@
 ---
 title: "Apprendre à connaître l’amour de votre Créateur"
 menu_title: ""
-description: "Apprendre à connaître l’amour de votre Créateur"
+description: "Élie, reçu par Albert Fike : « Car c’est la chose la plus importante que vous puissiez faire pour vous-même pendant que vous habitez ce plan terrestre. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

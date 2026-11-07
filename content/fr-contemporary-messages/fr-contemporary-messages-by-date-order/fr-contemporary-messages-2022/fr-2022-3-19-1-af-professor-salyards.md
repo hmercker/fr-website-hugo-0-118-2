@@ -1,7 +1,7 @@
 ---
 title: "L’élan se construit"
 menu_title: ""
-description: "L’élan se construit"
+description: "Professeur Salyards, reçu par Al Fike : « Vous êtes certainement aimé, cher frère (Bill), comme vous tous ici. L’élan se construit et nous continuons à … »"
 date: 2022-06-01 06:00:01+00:51
 draft: False
 hidden: True

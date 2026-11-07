@@ -1,7 +1,7 @@
 ---
 title: "Qu'est-ce qu'une âme humble ?"
 menu_title: ""
-description: "Qu'est-ce qu'une âme humble ?"
+description: "Faith, reçu par Maureen Cardoso : « Il est remarquable d'entendre ce qui émane de vous, de votre conscience et de vos échanges. »"
 date: 2026-09-30 06:00:01+00:01
 draft: False
 hidden: True

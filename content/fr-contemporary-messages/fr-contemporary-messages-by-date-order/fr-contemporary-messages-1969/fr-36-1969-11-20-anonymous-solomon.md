@@ -1,7 +1,7 @@
 ---
 title: "Laissez les esprits de votre âme prendre le dessus (Salomon de l'Ancien Testament)"
 menu_title: ""
-description: "Laissez les esprits de votre âme prendre le dessus (Salomon de l'Ancien Testament)"
+description: "Salomon : « Je veux être avec vous ce soir. Je veux continuer le mélange d'amour et le mélange de vos personnalités, le mélange de vos âmes, où nous … »"
 date: 2022-06-01 06:00:01+00:35
 draft: False
 hidden: True

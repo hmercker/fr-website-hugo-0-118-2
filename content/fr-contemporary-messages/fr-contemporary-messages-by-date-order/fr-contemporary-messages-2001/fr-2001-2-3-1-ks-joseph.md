@@ -1,7 +1,7 @@
 ---
 title: "Suivez le courant"
 menu_title: ""
-description: "Suivez le courant"
+description: "Joseph, reçu par Kathryn Stokes : « Tu es consciente du fait que tu t’attardes trop souvent sur des préoccupations matérielles, qui à leur tour te … »"
 date: 2022-06-01 06:00:01+00:03
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L'importance de s'aimer soi-même"
 menu_title: ""
-description: "L'importance de s'aimer soi-même"
+description: "Barbara, reçu par Albert Fike : « Que les bénédictions de l’Amour du Père vous touchent profondément, remplissent vos âmes, les élargissent dans cette … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

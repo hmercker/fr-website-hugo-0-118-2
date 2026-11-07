@@ -1,7 +1,7 @@
 ---
 title: "R.G Ingersoll était présent lorsque Jésus a écrit et montré sa gloire. Il n’est plus agnostique mais un croyant le plus repentant"
 menu_title: ""
-description: "R.G Ingersoll était présent lorsque Jésus a écrit et montré sa gloire. Il n’est plus agnostique mais un croyant le plus repentant"
+description: "Robert Ingersoll, reçu par James Padgett : « Je dois dire un mot, car mon cœur est tellement rempli de regrets, de remords, et de souvenirs de mes … »"
 date: 2022-06-01 06:00:01+00:277
 draft: False
 hidden: True

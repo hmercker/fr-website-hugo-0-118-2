@@ -1,7 +1,7 @@
 ---
 title: "Questions et réponses sur la période de sommeil"
 menu_title: ""
-description: "Questions et réponses sur la période de sommeil"
+description: "St Jean, reçu par Al Fike : « Avez-vous un but et une mission pendant ces périodes de sommeil ? Dieu utilise Ses instruments de bien des façons. »"
 date: 2022-06-01 06:00:01+00:620
 draft: False
 hidden: True

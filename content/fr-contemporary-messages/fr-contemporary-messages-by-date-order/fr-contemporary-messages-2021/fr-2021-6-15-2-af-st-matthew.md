@@ -1,7 +1,7 @@
 ---
 title: "Continuez à chercher la conscience de l'âme"
 menu_title: ""
-description: "Continuez à chercher la conscience de l'âme"
+description: "St Matthieu, reçu par Al Fike : « Le monde de l’homme est un monde rempli de tromperie et d’erreur. Le monde que vous avez construit, la réalité que … »"
 date: 2022-06-01 06:00:01+00:1543
 draft: False
 hidden: True

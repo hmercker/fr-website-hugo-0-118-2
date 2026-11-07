@@ -1,7 +1,7 @@
 ---
 title: "Les esprits qui ont un certain développement d’âme peuvent aider ceux qui ont un développement moindre"
 menu_title: ""
-description: "Les esprits qui ont un certain développement d’âme peuvent aider ceux qui ont un développement moindre"
+description: "St Jean, reçu par James Padgett : « Je veux vous parler ce soir des choses que les esprits qui n’ont pas reçu l’Amour Divin du Père font, ou ont … »"
 date: 2022-06-01 06:00:01+00:65
 draft: False
 hidden: True

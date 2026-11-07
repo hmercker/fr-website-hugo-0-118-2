@@ -1,7 +1,7 @@
 ---
 title: "Qui et qu’est ce que Dieu ?"
 menu_title: ""
-description: "Qui et qu’est ce que Dieu ?"
+description: "Jésus, reçu par James Padgett : « J’étais avec vous alors que vous priiez et je me suis joint à votre prière au Père pour l’arrivée, en grande abondance … »"
 date: 2022-06-01 06:00:01+00:138
 draft: False
 hidden: True

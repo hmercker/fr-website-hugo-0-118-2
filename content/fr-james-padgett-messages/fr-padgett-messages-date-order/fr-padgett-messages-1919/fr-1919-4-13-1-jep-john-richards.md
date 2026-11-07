@@ -1,7 +1,7 @@
 ---
 title: "Richards parle au sujet de la séance de Kate et qu’il n’y pas d’animaux dans la monde des esprits"
 menu_title: ""
-description: "Richards parle au sujet de la séance de Kate et qu’il n’y pas d’animaux dans la monde des esprits"
+description: "John Richards, reçu par James Padgett : « Permettez-moi d’écrire quelques lignes, car j’ai très envie de vous raconter la scène de la réunion de ce soir. »"
 date: 2022-06-01 06:00:01+00:22
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Expériences de Mozart dans le monde des esprits"
 menu_title: ""
-description: "Expériences de Mozart dans le monde des esprits"
+description: "Wolfgang Amadeus Mozart, reçu par FAB : « J’ai attendu patiemment toutes ces années pour communiquer avec les mortels. Je tiens à vous remercier très … »"
 date: 2022-06-01 06:00:01+00:02
 draft: False
 hidden: True

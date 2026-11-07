@@ -1,7 +1,7 @@
 ---
 title: "Encouragement personnel pour Al et Jeanne"
 menu_title: ""
-description: "Encouragement personnel pour Al et Jeanne"
+description: "Seretta Kem, reçu par Albert Fike : « Ne laissez pas les obstacles liés à l'attitude et aux conditions physiques vous priver de cette opportunité … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

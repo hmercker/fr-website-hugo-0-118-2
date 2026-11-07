@@ -1,7 +1,7 @@
 ---
 title: "73ème Sermon – La révélation de Dieu à Aggée"
 menu_title: ""
-description: "73ème Sermon – La révélation de Dieu à Aggée"
+description: "Jésus, reçu par Dr Samuels : « Dans les cinq cents ans ou plus qui ont précédé ma venue comme le Messie, le Temple a acquis de vastes trésors, non par la … »"
 date: 2022-06-01 06:00:01+00:126
 draft: False
 hidden: True

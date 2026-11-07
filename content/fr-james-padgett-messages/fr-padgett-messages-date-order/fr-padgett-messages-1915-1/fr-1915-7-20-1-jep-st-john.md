@@ -1,7 +1,7 @@
 ---
 title: "Jean donne des encouragements à M. Padgett – L’amour merveilleux que le Maître a pour lui"
 menu_title: ""
-description: "Jean donne des encouragements à M. Padgett – L’amour merveilleux que le Maître a pour lui"
+description: "St Jean, reçu par James Padgett : « Je désire vous écrire un peu et vous parler de l’amour merveilleux que le Maître a pour vous alors qu’il vous a choisi … »"
 date: 2022-06-01 06:00:01+00:143
 draft: False
 hidden: True

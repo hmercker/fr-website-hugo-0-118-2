@@ -1,7 +1,7 @@
 ---
 title: "Des conseils vous seront donnés"
 menu_title: ""
-description: "Des conseils vous seront donnés"
+description: "Augustin, reçu par Al Fike : « Des conseils vous seront donnés, mes amis, concernant votre travail, concernant vos Cercles de Lumière. »"
 date: 2023-09-01 06:00:01+00:51
 draft: False
 hidden: True

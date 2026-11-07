@@ -1,7 +1,7 @@
 ---
 title: "Le monde est un lieu meurtri"
 menu_title: ""
-description: "Le monde est un lieu meurtri"
+description: "Jésus, reçu par Al Fike : « Le monde est un lieu meurtri, un monde où tant d’âmes continuent à vivre leur vie sans véritable sens ou but. »"
 date: 2023-09-01 06:00:01+00:26
 draft: False
 hidden: True

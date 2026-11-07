@@ -1,7 +1,7 @@
 ---
 title: "Peter Byerly, un ami d’école, écrit au sujet de ses expériences sur terre et dans le monde spirituel"
 menu_title: ""
-description: "Peter Byerly, un ami d’école, écrit au sujet de ses expériences sur terre et dans le monde spirituel"
+description: "Peter Byerly, reçu par James Padgett : « J’ai été présent plusieurs fois lorsque tu écrivais, et j’ai été très intéressé par ce que j’ai vu et entendu, et … »"
 date: 2022-06-01 06:00:01+00:27
 draft: False
 hidden: True

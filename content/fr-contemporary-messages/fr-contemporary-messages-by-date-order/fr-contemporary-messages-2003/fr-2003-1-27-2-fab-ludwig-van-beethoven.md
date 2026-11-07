@@ -1,7 +1,7 @@
 ---
 title: "La passion musicale dans les Cieux Célestes"
 menu_title: ""
-description: "La passion musicale dans les Cieux Célestes"
+description: "Ludwig van Beethoven, reçu par FAB : « Comme je l’ai mentionné à la fin de mon message précédent, il y a certains esprits Célestes qui sont assez consumés … »"
 date: 2022-06-01 06:00:01+00:18
 draft: False
 hidden: True

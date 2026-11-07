@@ -1,7 +1,7 @@
 ---
 title: "Ma vie de prière"
 menu_title: ""
-description: "Ma vie de prière"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Ayant lutté pendant mon temps sur terre, je souhaite que vous sachiez que j’ai une grande empathie pour vos … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

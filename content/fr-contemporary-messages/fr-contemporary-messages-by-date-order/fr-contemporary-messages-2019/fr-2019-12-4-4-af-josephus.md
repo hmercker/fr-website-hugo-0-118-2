@@ -1,7 +1,7 @@
 ---
 title: "Q&R : Comment enseigner l’Amour Divin aux enfants ?"
 menu_title: ""
-description: "Q&R : Comment enseigner l’Amour Divin aux enfants ?"
+description: "Flavius Josèphe, reçu par Al Fike : « La meilleure façon d’enseigner l’Amour Divin aux enfants est d’être aimant. Vous pouvez prier avec votre enfant ou … »"
 date: 2022-06-01 06:00:01+00:945
 draft: False
 hidden: True

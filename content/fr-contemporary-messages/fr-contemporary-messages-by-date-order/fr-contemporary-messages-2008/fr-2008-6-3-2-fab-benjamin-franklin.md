@@ -1,7 +1,7 @@
 ---
 title: "Les changements de rapport de force"
 menu_title: ""
-description: "Les changements de rapport de force"
+description: "Benjamin Franklin, reçu par FAB : « La perte de crédibilité morale et les politiques désastreuses des États-Unis accélèrent certainement la fin de leur … »"
 date: 2022-06-01 06:00:01+00:68
 draft: False
 hidden: True

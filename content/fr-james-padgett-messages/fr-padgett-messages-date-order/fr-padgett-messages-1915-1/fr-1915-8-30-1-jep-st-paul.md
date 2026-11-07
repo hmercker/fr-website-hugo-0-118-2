@@ -1,7 +1,7 @@
 ---
 title: "Saint Paul veut écrire ce qu’il sait maintenant être la vérité. Et aussi corriger les erreurs dans ses épîtres telles qu’elles sont contenues dans la Bible"
 menu_title: ""
-description: "Saint Paul veut écrire ce qu’il sait maintenant être la vérité. Et aussi corriger les erreurs dans ses épîtres telles qu’elles sont contenues dans la Bible"
+description: "St Paul, reçu par James Padgett : « Je sais maintenant qu’il peut vous sembler étrange que des erreurs se soient glissées dans mes épîtres, mais il y a … »"
 date: 2022-06-01 06:00:01+00:220
 draft: False
 hidden: True

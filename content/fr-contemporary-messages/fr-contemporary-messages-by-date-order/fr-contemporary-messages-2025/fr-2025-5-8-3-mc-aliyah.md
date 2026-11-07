@@ -1,7 +1,7 @@
 ---
 title: "La Promesse de l'Amour Divin"
 menu_title: ""
-description: "La Promesse de l'Amour Divin"
+description: "Aliyah, reçu par Maureen Cardoso : « En entendant ce message, elle saura qui elle est. Je lui envoie mon amour et mon réconfort. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

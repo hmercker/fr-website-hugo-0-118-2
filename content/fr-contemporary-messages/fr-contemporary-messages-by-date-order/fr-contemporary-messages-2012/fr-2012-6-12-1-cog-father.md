@@ -1,7 +1,7 @@
 ---
 title: "Je t’ai toujours aimé"
 menu_title: ""
-description: "Je t’ai toujours aimé"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Comme tu as apprécié notre communication d’hier soir et que tu étais rempli de la joie de ma proximité, je … »"
 date: 2022-06-01 06:00:01+00:268
 draft: False
 hidden: True

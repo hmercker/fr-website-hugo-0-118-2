@@ -1,7 +1,7 @@
 ---
 title: "S'il vous plaît, poursuivez vos efforts pour éliminer les barrières entre Dieu et l'humanité"
 menu_title: ""
-description: "S'il vous plaît, poursuivez vos efforts pour éliminer les barrières entre Dieu et l'humanité"
+description: "Bartholomée, reçu par Albert Fike : « Que notre Père Céleste continue de vous bénir. Pour beaucoup d’entre vous qui connaissez la vérité et vivez dans la … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

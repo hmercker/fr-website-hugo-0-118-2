@@ -1,7 +1,7 @@
 ---
 title: "Prière et union avec Dieu"
 menu_title: ""
-description: "Prière et union avec Dieu"
+description: "St Jean, reçu par CC : « Quelqu’un est toujours à tes côtés. C’est pourquoi tu ne te sens pas seul ou solitaire, tu sais qu’il y a toujours quelqu’un avec … »"
 date: 2022-06-01 06:00:01+00:66
 draft: False
 hidden: True

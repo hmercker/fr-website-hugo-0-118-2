@@ -1,7 +1,7 @@
 ---
 title: "Quelques-unes des erreurs et lacunes de la Science Chrétienne"
 menu_title: ""
-description: "Quelques-unes des erreurs et lacunes de la Science Chrétienne"
+description: "Jésus, reçu par James Padgett : « J’ai été avec vous dans vos lectures de plusieurs jours passés, et j’ai observé l’effet sur vous du contraste entre les … »"
 date: 2022-06-01 06:00:01+00:257
 draft: False
 hidden: True

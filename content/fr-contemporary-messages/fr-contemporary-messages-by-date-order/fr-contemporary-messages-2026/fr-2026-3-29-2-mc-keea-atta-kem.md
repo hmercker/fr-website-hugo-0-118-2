@@ -1,7 +1,7 @@
 ---
 title: "Une conscience grandissante des perceptions et des attributs de l'âme qui vous guident"
 menu_title: ""
-description: "Une conscience grandissante des perceptions et des attributs de l'âme qui vous guident"
+description: "Keea Atta Kem, reçu par Maureen Cardoso : « Quelle merveille de me joindre à vous alors que nous ouvrons nos âmes pour laisser entrer le grand flux de … »"
 date: 2026-09-22 06:00:00+00:00
 draft: False
 hidden: True

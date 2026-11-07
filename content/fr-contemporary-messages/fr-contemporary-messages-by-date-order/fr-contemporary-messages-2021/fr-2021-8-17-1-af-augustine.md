@@ -1,7 +1,7 @@
 ---
 title: "Avoir la foi plutôt que la peur alors que les conditions changent dans le monde"
 menu_title: ""
-description: "Avoir la foi plutôt que la peur alors que les conditions changent dans le monde"
+description: "Augustin, reçu par Al Fike : « Que la paix qui surpasse toute compréhension soit vôtre, âmes bien-aimées, que vous veniez au Père avec des cœurs ouverts … »"
 date: 2022-06-01 06:00:01+00:1602
 draft: False
 hidden: True

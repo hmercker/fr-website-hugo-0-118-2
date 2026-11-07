@@ -1,7 +1,7 @@
 ---
 title: "Le voyage d'un écrivain de l'époque"
 menu_title: ""
-description: "Le voyage d'un écrivain de l'époque"
+description: "Jack Kerouac, reçu par FAB : « Je vous ai incité à acheter mon livre, \"The Dharma Bums\", ce soir. Merci d'avoir écouté vos conseils. »"
 date: 2022-06-01 06:00:01+00:50
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Hélène dit que, comme son amour augmente pour le Père, son amour pour lui progresse également"
 menu_title: ""
-description: "Hélène dit que, comme son amour augmente pour le Père, son amour pour lui progresse également"
+description: "Hélène Padgett, reçu par James Padgett : « Je veux te parler de mon amour pour toi, comme promis. Eh bien, parce que je n’ai pas beaucoup parlé de mon … »"
 date: 2022-06-01 06:00:01+00:71
 draft: False
 hidden: True

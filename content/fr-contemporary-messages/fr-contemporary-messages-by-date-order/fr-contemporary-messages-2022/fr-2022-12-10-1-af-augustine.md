@@ -1,7 +1,7 @@
 ---
 title: "Leçon sur le chagrin"
 menu_title: ""
-description: "Leçon sur le chagrin"
+description: "Augustin, reçu par Al Fike : « Vous avez demandé des conseils et des commentaires sur la nature du désespoir. C’est une question et un sujet intéressants. »"
 date: 2022-06-01 06:00:01+00:222
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Bon changement"
 menu_title: ""
-description: "Bon changement"
+description: "Jésus, reçu par FAB : « Lorsque nous avons critiqué le système, c'était à cause de l'injustice inhérente à sa structure. »"
 date: 2022-06-01 06:00:01+00:74
 draft: False
 hidden: True

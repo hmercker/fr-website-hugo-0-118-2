@@ -1,7 +1,7 @@
 ---
 title: "Allez de l'avant en tant qu'enseignants et guérisseurs"
 menu_title: ""
-description: "Allez de l'avant en tant qu'enseignants et guérisseurs"
+description: "Confucius : « Car Dieu souhaite que tous Ses enfants aient la connaissance du salut, qu'ils puissent trouver ce chemin de la Vérité et qu'ils puissent … »"
 date: 2022-06-01 06:00:01+00:18
 draft: False
 hidden: True

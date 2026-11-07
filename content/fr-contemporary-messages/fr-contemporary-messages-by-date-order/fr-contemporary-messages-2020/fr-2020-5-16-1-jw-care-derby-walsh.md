@@ -1,7 +1,7 @@
 ---
 title: "Réalisation de soi et réalisation de Dieu"
 menu_title: ""
-description: "Réalisation de soi et réalisation de Dieu"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Ils m’ont permis de venir et de parler parce qu’ils souhaitent vous honorer ici, dans ce Cercle, pour le … »"
 date: 2022-06-01 06:00:01+00:1106
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Discours sur l’esprit et le pouvoir de l’amour"
 menu_title: ""
-description: "Discours sur l’esprit et le pouvoir de l’amour"
+description: "Nicolas Tesla, reçu par Al Fike : « L’univers est un endroit tellement vaste, mes amis. Les connaissances de l’humanité sont bien maigres en comparaison … »"
 date: 2022-06-01 06:00:01+00:90
 draft: False
 hidden: True

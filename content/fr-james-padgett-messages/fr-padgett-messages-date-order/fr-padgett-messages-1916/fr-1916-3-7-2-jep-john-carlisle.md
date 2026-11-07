@@ -1,7 +1,7 @@
 ---
 title: "Carlisle, un vieil ami de M. Padgett, demande son aide pour sortir de l’obscurité"
 menu_title: ""
-description: "Carlisle, un vieil ami de M. Padgett, demande son aide pour sortir de l’obscurité"
+description: "John G Carlisle, reçu par James Padgett : « Les conseils que vous m’avez donnés et l’aide que j’ai reçue de M. Riddle m’ont été très bénéfiques, et … »"
 date: 2022-06-01 06:00:01+00:166
 draft: False
 hidden: True

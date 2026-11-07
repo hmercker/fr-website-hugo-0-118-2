@@ -1,7 +1,7 @@
 ---
 title: "Les anges nous aident à passer de la conscience de l'esprit à la conscience de l'âme"
 menu_title: ""
-description: "Les anges nous aident à passer de la conscience de l'esprit à la conscience de l'âme"
+description: "St Luc, reçu par Albert Fike : « Si vous continuez à rechercher cet agent de changement, l’élixir de l’âme de Dieu, vous serez transformés et vous … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

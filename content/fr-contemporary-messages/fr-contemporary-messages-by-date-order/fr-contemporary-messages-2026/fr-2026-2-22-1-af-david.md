@@ -1,7 +1,7 @@
 ---
 title: "Message de David de la Bible"
 menu_title: ""
-description: "Message de David de la Bible"
+description: "David, reçu par Al Fike : « Dieu saisit chaque occasion pour apporter Lumière, Amour et bénédictions à tous ceux qui sont réceptifs et désireux de se … »"
 date: 2026-04-21 16:00:01+00:01
 draft: False
 hidden: True

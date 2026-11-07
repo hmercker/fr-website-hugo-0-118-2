@@ -1,7 +1,7 @@
 ---
 title: "Hélène confirme que de nombreux esprits sombres étaient présents et voulaient écrire"
 menu_title: ""
-description: "Hélène confirme que de nombreux esprits sombres étaient présents et voulaient écrire"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, les influences n’ont pas été bonnes ce soir, et beaucoup d’esprits sombres étaient présents. »"
 date: 2022-06-01 06:00:01+00:136
 draft: False
 hidden: True

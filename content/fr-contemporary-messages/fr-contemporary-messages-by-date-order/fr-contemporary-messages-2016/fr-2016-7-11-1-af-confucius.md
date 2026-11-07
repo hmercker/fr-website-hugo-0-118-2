@@ -1,7 +1,7 @@
 ---
 title: "Priez quotidiennement"
 menu_title: ""
-description: "Priez quotidiennement"
+description: "Confucius, reçu par Al Fike : « Une fois de plus, mes petits oiseaux se sont rassemblés – comme vous aimez bavarder ensemble et partager vos vies ! – et … »"
 date: 2026-10-24 06:00:01+00:01
 draft: False
 hidden: True

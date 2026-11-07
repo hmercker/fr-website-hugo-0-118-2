@@ -1,7 +1,7 @@
 ---
 title: "Être libéré du temps"
 menu_title: ""
-description: "Être libéré du temps"
+description: "Judas, reçu par reçu par Jimbeau Walsh : « Que l’amour de Dieu soit sur vous. En ce lieu intemporel où mon âme repose dans la grâce de Dieu, je me laisse … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

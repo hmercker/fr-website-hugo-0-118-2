@@ -1,7 +1,7 @@
 ---
 title: "Les règles du jeu"
 menu_title: ""
-description: "Les règles du jeu"
+description: "St Pierre, reçu par Kathryn Stokes : « Comme le disent les messages que vous avez partagés avec les autres membres du Conseil, il n'y aura jamais de fin … »"
 date: 2022-06-01 06:00:01+00:32
 draft: False
 hidden: True

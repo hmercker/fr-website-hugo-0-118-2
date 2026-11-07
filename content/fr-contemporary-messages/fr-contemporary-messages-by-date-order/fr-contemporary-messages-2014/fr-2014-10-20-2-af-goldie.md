@@ -1,7 +1,7 @@
 ---
 title: "Oui, nous apportons de la joie"
 menu_title: ""
-description: "Oui, nous apportons de la joie"
+description: "Goldie, reçu par Al Fike : « Vos prières ont été exaucées l’autre jour, et j’ai posé la bague sur le lit. Notre chère et douce âme qui s’inquiète pour sa … »"
 date: 2026-10-12 06:00:01+00:84
 draft: False
 hidden: True

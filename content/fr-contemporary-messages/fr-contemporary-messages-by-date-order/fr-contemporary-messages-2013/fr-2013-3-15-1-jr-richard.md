@@ -1,7 +1,7 @@
 ---
 title: "Donner, recevoir, émotions et pensées"
 menu_title: ""
-description: "Donner, recevoir, émotions et pensées"
+description: "Richard, reçu par James Reid : « Nous apprécions votre gratitude qui vous est vraiment bénéfique. Nous sommes également très reconnaissants de votre … »"
 date: 2022-06-01 06:00:01+00:39
 draft: False
 hidden: True

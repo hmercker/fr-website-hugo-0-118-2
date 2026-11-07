@@ -1,7 +1,7 @@
 ---
 title: "Volonté"
 menu_title: ""
-description: "Volonté"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Mon enfant bien aimé, la communication d’aujourd’hui porte sur la volonté. Ta volonté d’accepter tout ce qui est. »"
 date: 2022-06-01 06:00:01+00:249
 draft: False
 hidden: True

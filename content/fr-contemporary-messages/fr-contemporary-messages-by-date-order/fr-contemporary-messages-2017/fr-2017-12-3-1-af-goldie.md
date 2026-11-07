@@ -1,7 +1,7 @@
 ---
 title: "Poudre de Lutin et Fleurs"
 menu_title: ""
-description: "Poudre de Lutin et Fleurs"
+description: "Goldie, reçu par Al Fike : « J’ai répandu de la poussière de lutin sur vous avec des fleurs à vos pieds. J’ai embrassé chacun d’entre vous. »"
 date: 2022-06-01 06:00:01+00:251
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "James E. Padgett :  Message personnel"
 menu_title: ""
-description: "James E. Padgett :  Message personnel"
+description: "James Padgett, reçu par David Lampron : « Padgett, un ange Céleste et l’un des esprits de votre équipe. Vous vous souviendrez que j’ai donné un message … »"
 date: 2022-06-01 06:00:01+00:43
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Une bénédiction pour le Nouvel An"
 menu_title: ""
-description: "Une bénédiction pour le Nouvel An"
+description: "Seretta Kem, reçu par Al Fike : « Vous avez chacun reçu une profonde guérison cette nuit, une bénédiction qui est venue avec les anges et les prières que … »"
 date: 2022-06-01 06:00:01+00:02
 draft: False
 hidden: True

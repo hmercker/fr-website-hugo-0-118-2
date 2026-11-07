@@ -1,7 +1,7 @@
 ---
 title: "Vos pensées ont un grand pouvoir"
 menu_title: ""
-description: "Vos pensées ont un grand pouvoir"
+description: "Fleur de Lotus, reçu par Maureen Cardoso : « Vous m’attirez près de vous avec l’opportunité pour ma chère protégée de partager avec vous le rapport que … »"
 date: 2022-06-01 06:00:01+00:915
 draft: False
 hidden: True

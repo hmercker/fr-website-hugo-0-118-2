@@ -1,7 +1,7 @@
 ---
 title: "L’esprit Robert Dale Owen parle des recherches sur les phénomènes spirituels au sujet desquels les il a écrit"
 menu_title: ""
-description: "L’esprit Robert Dale Owen parle des recherches sur les phénomènes spirituels au sujet desquels les il a écrit"
+description: "Robert Dale Owen, reçu par James Padgett : « Permettez-moi de dire un mot, car je m’intéresse à votre travail et aux phénomènes du spiritualisme. »"
 date: 2022-06-01 06:00:01+00:06
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Martin Luther, ancien moine et réformateur"
 menu_title: ""
-description: "Martin Luther, ancien moine et réformateur"
+description: "Martin Luther, reçu par James Padgett : « J’écris avec l’autorisation de votre équipe et je n’ai donc pas le sentiment que je m’impose. »"
 date: 2022-06-01 06:00:01+00:120
 draft: False
 hidden: True

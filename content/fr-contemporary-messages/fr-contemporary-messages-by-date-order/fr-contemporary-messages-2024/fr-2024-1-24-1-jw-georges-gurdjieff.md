@@ -1,7 +1,7 @@
 ---
 title: "Un cœur transformé"
 menu_title: ""
-description: "Un cœur transformé"
+description: "George Gurdjieff, reçu par Jimbeau Walsh : « Nous parlons souvent de la vie spirituelle comme du voyage vers l’unité avec Dieu et dans ce voyage sur … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La mentalité de guerre"
 menu_title: ""
-description: "La mentalité de guerre"
+description: "Walt Disney, reçu par FAB : « Vous vous demandez si j’ai dû rendre compte de mon soutien à l’effort de guerre [Seconde Guerre mondiale]. »"
 date: 2022-06-01 06:00:01+00:31
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Leçon sur le discernement"
 menu_title: ""
-description: "Leçon sur le discernement"
+description: "Augustin, reçu par Albert Fike : « Avant l'intervention de notre chère Keea, je souhaite faire une brève remarque sur le discernement. »"
 date: 2025-11-21 06:00:01+00:01
 draft: False
 hidden: True

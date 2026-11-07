@@ -1,7 +1,7 @@
 ---
 title: "Guérison pour la Terre Mère"
 menu_title: ""
-description: "Guérison pour la Terre Mère"
+description: "Keea Atta Kem, reçu par Al Fike : « Dieu a créé ce monde en harmonie. Il a créé tout ce qui s’y trouve et y a déposé Son Souffle de Vie. »"
 date: 2022-06-01 06:00:01+00:1430
 draft: False
 hidden: True

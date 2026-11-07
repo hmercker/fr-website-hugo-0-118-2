@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes des âmes comme vous"
 menu_title: ""
-description: "Nous sommes des âmes comme vous"
+description: "Orion, reçu par Albert Fike : « Je vous dis : « Suis-je différent de vous ? » Bien que je vive dans un endroit différent, en effet, Dieu a créé de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

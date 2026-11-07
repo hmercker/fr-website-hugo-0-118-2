@@ -1,7 +1,7 @@
 ---
 title: "Centre dans la ville"
 menu_title: ""
-description: "Centre dans la ville"
+description: "André : « Je n'ai pas besoin d'apporter la lumière au milieu de vous, car au moment où je me tiens ici, mes amis, il y a une grande lumière. »"
 date: 2022-06-01 06:00:01+00:93
 draft: False
 hidden: True

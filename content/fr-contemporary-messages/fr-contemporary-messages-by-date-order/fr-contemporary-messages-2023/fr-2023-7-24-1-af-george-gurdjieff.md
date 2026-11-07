@@ -1,7 +1,7 @@
 ---
 title: "Restez éveillé dans l'Amour Divin"
 menu_title: ""
-description: "Restez éveillé dans l'Amour Divin"
+description: "George Gurdjieff, reçu par Albert Fike : « Que l’amour de Dieu soit sur vous ! J’étais un enseignant de vérités spirituelles et j’ai passé de nombreuses … »"
 date: 2023-09-01 06:00:01+00:56
 draft: False
 hidden: True

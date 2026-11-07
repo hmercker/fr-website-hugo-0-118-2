@@ -1,7 +1,7 @@
 ---
 title: "S'éveiller à la promesse"
 menu_title: ""
-description: "S'éveiller à la promesse"
+description: "Augustin, reçu par Al Fike : « Un grand Portail de Lumière est établi dans cette pièce. C’est à vous de le demander, mes amis. »"
 date: 2022-06-01 06:00:01+00:821
 draft: False
 hidden: True

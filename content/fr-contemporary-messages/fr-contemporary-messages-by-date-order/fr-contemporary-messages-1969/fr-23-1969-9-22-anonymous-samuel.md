@@ -1,7 +1,7 @@
 ---
 title: "Préparation à la Voix Directe"
 menu_title: ""
-description: "Préparation à la Voix Directe"
+description: "Samuel : « Vous avez fait de très bons progrès. Vous avez attiré à vous de nombreux enseignants de haut niveau et de nombreuses grandes âmes et si les … »"
 date: 2022-06-01 06:00:01+00:22
 draft: False
 hidden: True

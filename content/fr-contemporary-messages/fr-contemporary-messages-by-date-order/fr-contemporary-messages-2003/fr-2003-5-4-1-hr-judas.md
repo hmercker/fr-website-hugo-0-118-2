@@ -1,7 +1,7 @@
 ---
 title: "La parabole des deux chambres"
 menu_title: ""
-description: "La parabole des deux chambres"
+description: "Judas, reçu par H : « Le pauvre Shmu’el était un personnage très connu à Capharnaüm. Chaque jour, à la première lumière de l’aube, il venait, avec son … »"
 date: 2022-06-01 06:00:01+00:43
 draft: False
 hidden: True

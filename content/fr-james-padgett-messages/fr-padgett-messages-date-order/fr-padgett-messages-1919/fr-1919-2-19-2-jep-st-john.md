@@ -1,7 +1,7 @@
 ---
 title: "Jean explique la différence entre l’amour naturel et l’Amour Divin"
 menu_title: ""
-description: "Jean explique la différence entre l’amour naturel et l’Amour Divin"
+description: "St Jean, reçu par James Padgett : « Permettez-moi de juste dire un mot. J’étais avec vous aujourd’hui lorsque vous parliez à votre ami (Colburn) et j’ai … »"
 date: 2022-06-01 06:00:01+00:08
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Reconnaît notre instrumentalité"
 menu_title: ""
-description: "Reconnaît notre instrumentalité"
+description: "André, reçu par Albert Fike : « Vous voyez, même pendant ce que vous considérez comme des vacances, des opportunités s’offrent à vous pour accomplir … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

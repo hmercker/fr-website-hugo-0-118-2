@@ -1,7 +1,7 @@
 ---
 title: "Jésus dit à M. Padgett qu’il révélera les vérités du Père, que le temps est maintenant venu de le faire, et qu’elles ne sont pas le résultat d’instruments ou d’auteurs antérieurs"
 menu_title: ""
-description: "Jésus dit à M. Padgett qu’il révélera les vérités du Père, que le temps est maintenant venu de le faire, et qu’elles ne sont pas le résultat d’instruments ou d’auteurs antérieurs"
+description: "Jésus, reçu par James Padgett : « Je veux simplement dire que le livre que vous avez lu montre que le spiritualisme est une chose établie dans ce monde de … »"
 date: 2022-06-01 06:00:01+00:209
 draft: False
 hidden: True

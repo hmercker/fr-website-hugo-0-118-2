@@ -1,7 +1,7 @@
 ---
 title: "Il est temps pour nous de collaborer"
 menu_title: ""
-description: "Il est temps pour nous de collaborer"
+description: "Charlie Chaplin, reçu par Jimbeau Walsh : « Le monde semble parfois être une tragi-comédie, et vu de loin, il apparaît comme une folie, et pourtant, il … »"
 date: 2026-04-21 16:00:01+00:01
 draft: False
 hidden: True

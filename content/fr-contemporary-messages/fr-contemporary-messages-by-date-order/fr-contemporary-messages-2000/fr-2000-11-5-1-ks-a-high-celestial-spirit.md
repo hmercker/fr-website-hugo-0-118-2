@@ -1,7 +1,7 @@
 ---
 title: "Les problèmes des groupes religieux organisés"
 menu_title: ""
-description: "Les problèmes des groupes religieux organisés"
+description: "Esprit Céleste Elevé, reçu par Kathryn Stokes : « Nous travaillons sans relâche pour servir les chercheurs sincères de vérité et d’amour, car nous savons … »"
 date: 2022-06-01 06:00:01+00:35
 draft: False
 hidden: True

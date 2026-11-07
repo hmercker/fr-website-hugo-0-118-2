@@ -1,7 +1,7 @@
 ---
 title: "Unis dans l’Amour de Dieu"
 menu_title: ""
-description: "Unis dans l’Amour de Dieu"
+description: "Elizabeth, reçu par Jimbeau Walsh : « Il y a un grand désir, et je dirais même une grande émotion, de la part des femmes de cette communauté, d’entendre … »"
 date: 2022-06-01 06:00:01+00:1142
 draft: False
 hidden: True

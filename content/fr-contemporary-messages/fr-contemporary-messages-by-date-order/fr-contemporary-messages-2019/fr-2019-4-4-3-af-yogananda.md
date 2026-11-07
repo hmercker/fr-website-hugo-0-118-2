@@ -1,7 +1,7 @@
 ---
 title: "Lâcher prise sur les illusions de la condition humaine (Collection générale 2019)"
 menu_title: ""
-description: "Lâcher prise sur les illusions de la condition humaine (Collection générale 2019)"
+description: "Yogananda, reçu par Al Fike : « C’est un cadeau pour vous, en ce jour, mes amis. Chaque jour, ce contact, ce doux nectar d’Amour est offert à votre âme. »"
 date: 2022-06-01 06:00:01+00:694
 draft: False
 hidden: True

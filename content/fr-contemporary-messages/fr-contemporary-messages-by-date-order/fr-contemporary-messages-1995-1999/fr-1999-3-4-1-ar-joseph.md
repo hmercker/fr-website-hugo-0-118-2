@@ -1,7 +1,7 @@
 ---
 title: "Mental et spiritualité"
 menu_title: ""
-description: "Mental et spiritualité"
+description: "Joseph, reçu par Amada Reza : « Le mental, tout comme les énergies de l’âme – la partie réelle et durable de l’être humain et de l’esprit – a des aspects … »"
 date: 2022-06-01 06:00:01+00:15
 draft: False
 hidden: True

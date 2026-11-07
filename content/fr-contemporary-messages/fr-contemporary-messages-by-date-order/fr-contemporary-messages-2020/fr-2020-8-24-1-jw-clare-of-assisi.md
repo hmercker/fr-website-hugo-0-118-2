@@ -1,7 +1,7 @@
 ---
 title: "Prenez ceci à cœur"
 menu_title: ""
-description: "Prenez ceci à cœur"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Je souhaite que vous soyez tous dans l’Amour de Dieu, dans sa paix, la paix qui dépasse l’entendement, la paix … »"
 date: 2022-06-01 06:00:01+00:1229
 draft: False
 hidden: True

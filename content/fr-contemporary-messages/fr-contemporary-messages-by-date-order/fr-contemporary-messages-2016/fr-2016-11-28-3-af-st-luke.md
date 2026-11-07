@@ -1,7 +1,7 @@
 ---
 title: "Luc souhaite la bienvenue à ceux qui font partie du rassemblement de Punnalu"
 menu_title: ""
-description: "Luc souhaite la bienvenue à ceux qui font partie du rassemblement de Punnalu"
+description: "St Luc, reçu par Al Fike : « Que l’Amour du Père trouve un afflux constant dans vos âmes mes amis, que vous puissiez sentir Sa présence dans votre cœur en … »"
 date: 2022-06-01 06:00:01+00:273
 draft: False
 hidden: True

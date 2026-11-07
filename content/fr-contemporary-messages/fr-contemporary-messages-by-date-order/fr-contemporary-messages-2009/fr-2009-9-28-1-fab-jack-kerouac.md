@@ -1,7 +1,7 @@
 ---
 title: "L'identité religieuse de Jack Kerouac"
 menu_title: ""
-description: "L'identité religieuse de Jack Kerouac"
+description: "Jack Kerouac, reçu par FAB : « Je veux vous expliquer comment je me voyais en tant que Catholique. J'ai beaucoup hérité de la tradition Catholique, et il … »"
 date: 2022-06-01 06:00:01+00:87
 draft: False
 hidden: True

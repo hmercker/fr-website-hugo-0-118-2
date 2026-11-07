@@ -1,7 +1,7 @@
 ---
 title: "Message pour l’année à venir"
 menu_title: ""
-description: "Message pour l’année à venir"
+description: "Seretta Kem, reçu par Al Fike : « Ce que vous pouvez anticiper pour cette année à venir ne sera pas nécessairement les résultats qui seront exprimés. »"
 date: 2022-06-01 06:00:01+00:01
 draft: False
 hidden: True

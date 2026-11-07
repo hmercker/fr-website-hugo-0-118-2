@@ -1,7 +1,7 @@
 ---
 title: "25ème Révélation : Jésus jette plus de lumière sur son procès et sa crucifixion et fournit des vérités supplémentaires sur sa naissance"
 menu_title: ""
-description: "25ème Révélation : Jésus jette plus de lumière sur son procès et sa crucifixion et fournit des vérités supplémentaires sur sa naissance"
+description: "Jésus, reçu par Dr Samuels : « Je commencerai en disant que ma connaissance sur la dématérialisation de mon corps ne résultait absolument pas de pouvoirs … »"
 date: 2022-06-01 06:00:01+00:25
 draft: False
 hidden: True

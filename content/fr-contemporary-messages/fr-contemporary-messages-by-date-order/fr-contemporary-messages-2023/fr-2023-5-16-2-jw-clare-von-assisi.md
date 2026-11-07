@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes là où se trouve votre âme"
 menu_title: ""
-description: "Vous êtes là où se trouve votre âme"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « ’ai suivi cette journée avec beaucoup d’intérêt, non seulement pour l’encouragement à rester tranquille, mais … »"
 date: 2023-09-01 06:00:01+00:23
 draft: False
 hidden: True

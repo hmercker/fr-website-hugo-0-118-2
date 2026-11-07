@@ -1,7 +1,7 @@
 ---
 title: "Paix"
 menu_title: ""
-description: "Paix"
+description: "Yogananda, reçu par reçu par Jimbeau Walsh : « Soyons en paix dans l’Amour de Dieu. Je souhaite parler de la vie en paix dans un monde agité et anxieux … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

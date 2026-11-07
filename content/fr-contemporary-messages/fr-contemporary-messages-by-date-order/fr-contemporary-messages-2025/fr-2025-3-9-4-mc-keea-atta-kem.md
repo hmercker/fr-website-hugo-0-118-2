@@ -1,7 +1,7 @@
 ---
 title: "Félicitations à tous pour la rencontre spirituelle avec Orion"
 menu_title: ""
-description: "Félicitations à tous pour la rencontre spirituelle avec Orion"
+description: "Keea Atta Kem, reçu par Maureen Cardoso : « Certains d’entre vous ont apprécié cette rencontre spirituelle intense, orchestrée et planifiée depuis de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

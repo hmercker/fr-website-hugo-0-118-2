@@ -1,7 +1,7 @@
 ---
 title: "Guérison des chaînes temporelles et spirituelles"
 menu_title: ""
-description: "Guérison des chaînes temporelles et spirituelles"
+description: "Frederick Douglass, reçu par Jimbeau Walsh : « Né esclave, je me suis enfui vers la liberté. Amoureux des Évangiles, autodidacte, j'ai été à la fois … »"
 date: 2026-04-24 16:00:01+00:01
 draft: False
 hidden: True

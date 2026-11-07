@@ -1,7 +1,7 @@
 ---
 title: "Travailler en groupe présente de nombreux avantages pour le monde"
 menu_title: ""
-description: "Travailler en groupe présente de nombreux avantages pour le monde"
+description: "Seretta Kem, reçu par Al Fike : « Il y a beaucoup de choses que nous pouvons accomplir avec ce groupe tel qu’il est si vous souhaitez vous engager à vous … »"
 date: 2022-06-01 06:00:01+00:202
 draft: False
 hidden: True

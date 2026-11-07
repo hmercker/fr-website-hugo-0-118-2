@@ -1,7 +1,7 @@
 ---
 title: "Harmonie dans la nature et Amour Divin"
 menu_title: ""
-description: "Harmonie dans la nature et Amour Divin"
+description: "Yogananda, reçu par Jimbeau Walsh : « Mes chers, alors que les vagues déferlent sur le rivage, que le soleil se lève et se couche, que la lune éclaire la … »"
 date: 2022-06-01 06:00:01+00:1245
 draft: False
 hidden: True

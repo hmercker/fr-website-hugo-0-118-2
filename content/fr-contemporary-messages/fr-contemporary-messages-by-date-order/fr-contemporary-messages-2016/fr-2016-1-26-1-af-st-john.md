@@ -1,7 +1,7 @@
 ---
 title: "Ne vacillez pas sur votre chemin"
 menu_title: ""
-description: "Ne vacillez pas sur votre chemin"
+description: "St Jean, reçu par Al Fike : « Ouvrez vos âmes bien-aimées au toucher de Dieu. Ne vacillez pas sur votre chemin, ne doutez pas que Dieu vous guide toujours … »"
 date: 2022-06-01 06:00:01+00:159
 draft: False
 hidden: True

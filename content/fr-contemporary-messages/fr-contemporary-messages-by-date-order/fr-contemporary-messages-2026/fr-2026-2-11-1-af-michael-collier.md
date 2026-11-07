@@ -1,7 +1,7 @@
 ---
 title: "Foi et Âme 4 : Se libérer de l'emprise limitante du doute"
 menu_title: ""
-description: "Foi et Âme 4 : Se libérer de l'emprise limitante du doute"
+description: "Michael Collier, reçu par Al Fike : « Diffuser la Vérité de cet Amour, les bénédictions de l'Essence divine, requiert de nombreuses facultés et capacités … »"
 date: 2026-04-21 16:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Ayez foi et confiance en votre instrumentalité"
 menu_title: ""
-description: "Ayez foi et confiance en votre instrumentalité"
+description: "St François d'Assise, reçu par Maureen Cardoso : « Cette lumière qui attire chacune de vos âmes circule non seulement en vous, mais à travers et autour de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

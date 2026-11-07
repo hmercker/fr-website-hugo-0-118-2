@@ -1,7 +1,7 @@
 ---
 title: "Saint Étienne écrit à propos de Jésus en tant que chef de l’Église dans les Cieux Célestes. Et confirme que Paul a écrit sur la résurrection"
 menu_title: ""
-description: "Saint Étienne écrit à propos de Jésus en tant que chef de l’Église dans les Cieux Célestes. Et confirme que Paul a écrit sur la résurrection"
+description: "St Étienne, reçu par James Padgett : « Je veux simplement dire un mot sur l’importance du sujet sur lequel Paul a écrit. C’est l’une des vérités les plus … »"
 date: 2022-06-01 06:00:01+00:131
 draft: False
 hidden: True

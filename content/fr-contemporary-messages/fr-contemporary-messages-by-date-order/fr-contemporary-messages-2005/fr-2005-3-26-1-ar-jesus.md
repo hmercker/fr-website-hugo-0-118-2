@@ -1,7 +1,7 @@
 ---
 title: "La compassion et le don du choix"
 menu_title: ""
-description: "La compassion et le don du choix"
+description: "Jésus, reçu par Amada Reza : « Le choix est un cadeau que nous possédons à chaque instant. Nous pouvons nous élever pour répondre au besoin de l'âme … »"
 date: 2022-06-01 06:00:01+00:45
 draft: False
 hidden: True

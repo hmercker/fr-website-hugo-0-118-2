@@ -1,7 +1,7 @@
 ---
 title: "Nous vous avons réunis dans un but précis, ne faites qu'un avec Dieu"
 menu_title: ""
-description: "Nous vous avons réunis dans un but précis, ne faites qu'un avec Dieu"
+description: "Jeanne d'Arc, Keea Atta Kem, Jésus, reçu par Elizabeth Mack : « Vous nous avez, avec une protection tout autour. Nous vous élevons, vous apportant les … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

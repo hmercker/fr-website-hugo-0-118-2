@@ -1,7 +1,7 @@
 ---
 title: "Ne restez pas inactifs : Tenez ferme dans la simple Vérité de l'Amour de Dieu"
 menu_title: ""
-description: "Ne restez pas inactifs : Tenez ferme dans la simple Vérité de l'Amour de Dieu"
+description: "Barthélémy, reçu par Albert Fike : « Âmes bien-aimées, considérez ceci : vous avez été réunis dans un but précis et vous avez un grand dessein. »"
 date: 2026-03-15 06:00:00+00:00
 draft: False
 hidden: True

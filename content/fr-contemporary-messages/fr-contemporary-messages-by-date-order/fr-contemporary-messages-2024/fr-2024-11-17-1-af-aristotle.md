@@ -1,7 +1,7 @@
 ---
 title: "L’âme a une capacité bien supérieure à celle de l’esprit matériel"
 menu_title: ""
-description: "L’âme a une capacité bien supérieure à celle de l’esprit matériel"
+description: "Aristote, reçu par Albert Fike : « Bien qu’en vérité, je n’étais qu’un parmi tant d’autres. Mais en effet, mes efforts ont guidé l’homme sur la voie du … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Leçon 3 : Comment contrecarrer la condition humaine"
 menu_title: ""
-description: "Leçon 3 : Comment contrecarrer la condition humaine"
+description: "Jésus, reçu par Al Fike : « Je souhaite évoquer le sujet de la neutralisation et de la lutte contre la condition humaine sur votre plan terrestre, la … »"
 date: 2022-06-01 06:00:01+00:1475
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Une courageuse dissidente de la Colonie américaine affirme que la paix viendra"
 menu_title: ""
-description: "Une courageuse dissidente de la Colonie américaine affirme que la paix viendra"
+description: "Anne Hutchison, reçu par FAB : « En effet, beaucoup ont fini par être d’accord avec moi dans la vie mortelle. Et dans ce processus, aucun mal ne vous sera … »"
 date: 2022-06-01 06:00:01+00:40
 draft: False
 hidden: True

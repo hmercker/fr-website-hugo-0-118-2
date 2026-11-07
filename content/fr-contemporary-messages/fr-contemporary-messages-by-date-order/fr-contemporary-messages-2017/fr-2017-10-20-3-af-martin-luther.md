@@ -1,7 +1,7 @@
 ---
 title: "Martin Luther salue H"
 menu_title: ""
-description: "Martin Luther salue H"
+description: "Martin Luther, reçu par Al Fike : « Nous poursuivrons nos efforts pour apporter des messages qui enseigneront les autres alors que vous priez ensemble en … »"
 date: 2022-06-01 06:00:01+00:149
 draft: False
 hidden: True

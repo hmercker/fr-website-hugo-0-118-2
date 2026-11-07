@@ -1,7 +1,7 @@
 ---
 title: "Prendre soin de son corps physique et de son corps spirituel"
 menu_title: ""
-description: "Prendre soin de son corps physique et de son corps spirituel"
+description: "Faith, reçu par Maureen Cardoso : « Notre bien-aimé Augustin touche à la racine d’une connexion d’âme avec votre Créateur bien-aimé. »"
 date: 2022-06-01 06:00:01+00:453
 draft: False
 hidden: True

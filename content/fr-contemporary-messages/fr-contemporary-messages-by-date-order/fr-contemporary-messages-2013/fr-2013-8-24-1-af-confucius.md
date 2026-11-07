@@ -1,7 +1,7 @@
 ---
 title: "Connaître la Volonté de Dieu"
 menu_title: ""
-description: "Connaître la Volonté de Dieu"
+description: "Confucius, reçu par Albert Fike : « Ne vous inquiétez pas, mes enfants. Soyez rassurés : vous marchez à l’ombre de l’Amour de Dieu, vous êtes portés par … »"
 date: 2026-10-21 06:00:01+00:09
 draft: False
 hidden: True

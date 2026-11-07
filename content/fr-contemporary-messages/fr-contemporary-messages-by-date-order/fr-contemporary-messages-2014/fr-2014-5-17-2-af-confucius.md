@@ -1,7 +1,7 @@
 ---
 title: "Recevoir l’amour"
 menu_title: ""
-description: "Recevoir l’amour"
+description: "Confucius, reçu par Al Fike : « Vous avez faim de l’Amour du Père et chaque âme dans ce monde est digne de recevoir l’Amour de Dieu – cette bénédiction … »"
 date: 2022-06-01 06:00:01+00:83
 draft: False
 hidden: True

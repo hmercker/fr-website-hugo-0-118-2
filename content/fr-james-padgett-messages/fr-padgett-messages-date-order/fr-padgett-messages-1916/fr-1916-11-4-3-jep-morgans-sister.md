@@ -1,7 +1,7 @@
 ---
 title: "La sœur d’Eugène Morgan est heureuse qu’Eugène ait reçu le Grand Amour du Père"
 menu_title: ""
-description: "La sœur d’Eugène Morgan est heureuse qu’Eugène ait reçu le Grand Amour du Père"
+description: "La soeur d’Eugène Morgan, reçu par James Padgett : « Je n’ai jamais écrit auparavant. Oh, je ne peux pas exprimer mes sentiments, car j’écris maintenant … »"
 date: 2022-06-01 06:00:01+00:319
 draft: False
 hidden: True

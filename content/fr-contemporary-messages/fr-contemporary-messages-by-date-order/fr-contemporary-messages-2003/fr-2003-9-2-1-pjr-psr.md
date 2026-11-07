@@ -1,7 +1,7 @@
 ---
 title: "Ces Limites sont tes limites"
 menu_title: ""
-description: "Ces Limites sont tes limites"
+description: "PSR, reçu par PJR : « Tu peux être sûr que tu passeras par beaucoup, beaucoup de changements au cours de ta vie – comme tu l’as fait jusqu’à présent, en fait. »"
 date: 2022-06-01 06:00:01+00:61
 draft: False
 hidden: True

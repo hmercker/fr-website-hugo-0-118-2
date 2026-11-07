@@ -1,7 +1,7 @@
 ---
 title: "66ème Sermon – Jésus explique encore les chants d’Isaïe"
 menu_title: ""
-description: "66ème Sermon – Jésus explique encore les chants d’Isaïe"
+description: "Jésus, reçu par Dr Samuels : « Le deuxième chant se trouve dans Isaïe 49 : 1-6 Peuples lointains, soyez attentifs ! »"
 date: 2022-06-01 06:00:01+00:119
 draft: False
 hidden: True

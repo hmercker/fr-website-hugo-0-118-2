@@ -1,7 +1,7 @@
 ---
 title: "Jésus dit que c’est ce degré de croyance qui vous permet de connaître une Vérité. Et cette foi est la seule chose qui vous fait réaliser que je suis ce que je suis et ce que je déclare être"
 menu_title: ""
-description: "Jésus dit que c’est ce degré de croyance qui vous permet de connaître une Vérité. Et cette foi est la seule chose qui vous fait réaliser que je suis ce que je suis et ce que je déclare être"
+description: "Jésus, reçu par James Padgett : « (Foi.) C’est ce degré de croyance qui vous permet de savoir, en tant que réalité, que ce qui se présente à votre … »"
 date: 2022-06-01 06:00:01+00:45
 draft: False
 hidden: True

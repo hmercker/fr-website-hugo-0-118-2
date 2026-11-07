@@ -1,7 +1,7 @@
 ---
 title: "Les fondations sont dans votre âme"
 menu_title: ""
-description: "Les fondations sont dans votre âme"
+description: "St Matthieu, reçu par Al Fike : « Je voudrais encourager chacun d’entre vous à être introspectif et contemplatif en ce qui concerne vos propres dons … »"
 date: 2022-06-01 06:00:01+00:1334
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Éveillez-vous, recevez et devenez la Lumière"
 menu_title: ""
-description: "Éveillez-vous, recevez et devenez la Lumière"
+description: "Jésus, reçu par Al Fike : « La porte de l’Amour de Dieu vous est ouverte. Vous avez découvert le don le plus grand et le plus élevé que Dieu puisse offrir … »"
 date: 2026-05-28 16:00:01+00:01
 draft: False
 hidden: True

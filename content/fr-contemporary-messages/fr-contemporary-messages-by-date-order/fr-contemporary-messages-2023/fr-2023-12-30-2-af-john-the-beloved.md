@@ -1,7 +1,7 @@
 ---
 title: "Il se présente à Jose Miguel Sanchez comme son guide"
 menu_title: ""
-description: "Il se présente à Jose Miguel Sanchez comme son guide"
+description: "Jean le Bien Aimé, reçu par Albert Fike : « Que l'Amour Divin emplisse vos âmes. Son temps sur terre ne sera pas écourté ; il s'étendra sur des décennies … »"
 date: 2026-09-15 06:00:01+00:01
 draft: False
 hidden: True

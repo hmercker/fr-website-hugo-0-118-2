@@ -1,7 +1,7 @@
 ---
 title: "Étancher la soif de votre âme"
 menu_title: ""
-description: "Étancher la soif de votre âme"
+description: "Augustin, reçu par Al Fike : « Que Son Amour trouve un gîte dans vos âmes, chacun ici, car Son Amour se déverse dans cette salle en ce moment. »"
 date: 2022-06-01 06:00:01+00:106
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Pourquoi les églises refusent d’examiner le fait que les esprits peuvent et communiquent vraiment avec les mortels"
 menu_title: ""
-description: "Pourquoi les églises refusent d’examiner le fait que les esprits peuvent et communiquent vraiment avec les mortels"
+description: "St Jean, reçu par James Padgett : « Bien entendu, ce que les prédicateurs matinaux ont dit, sur les raisons d’inférer que l’immortalité devait être le … »"
 date: 2022-06-01 06:00:01+00:214
 draft: False
 hidden: True

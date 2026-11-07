@@ -1,7 +1,7 @@
 ---
 title: "L’expérience d’un Esprit après avoir écrit à travers M. Padgett. A obtenu l’Amour Divin et a progressé vers la troisième sphère"
 menu_title: ""
-description: "L’expérience d’un Esprit après avoir écrit à travers M. Padgett. A obtenu l’Amour Divin et a progressé vers la troisième sphère"
+description: "Albert Riddle, reçu par James Padgett : « J’ai dit à ta femme que je désirais écrire et partager mes progrès spirituels et, comme tu es assez aimable pour … »"
 date: 2022-06-01 06:00:01+00:13
 draft: False
 hidden: True

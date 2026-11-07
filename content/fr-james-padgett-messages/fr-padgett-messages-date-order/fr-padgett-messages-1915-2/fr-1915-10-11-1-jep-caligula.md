@@ -1,7 +1,7 @@
 ---
 title: "Caligula, Empereur Romain et meurtrier de Chrétiens, trouve son âme-sœur"
 menu_title: ""
-description: "Caligula, Empereur Romain et meurtrier de Chrétiens, trouve son âm- sœur"
+description: "Caligula, reçu par James Padgett : « Je fus un Empereur Romain et l’assassin des Chrétiens, et depuis ce temps, et pour les péchés que j’ai commis, j’ai … »"
 date: 2022-06-01 06:00:01+00:06
 draft: False
 hidden: True

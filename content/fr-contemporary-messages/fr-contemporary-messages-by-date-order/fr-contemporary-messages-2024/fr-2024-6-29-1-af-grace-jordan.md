@@ -1,7 +1,7 @@
 ---
 title: " Grace dit la vérité à son fils"
 menu_title: ""
-description: " Grace dit la vérité à son fils"
+description: "Grace Jordan, reçu par Albert Fike : « …à la dérive, en laissant les vents t’emmener là où ils veulent et maintenant tu as atteint le rivage. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

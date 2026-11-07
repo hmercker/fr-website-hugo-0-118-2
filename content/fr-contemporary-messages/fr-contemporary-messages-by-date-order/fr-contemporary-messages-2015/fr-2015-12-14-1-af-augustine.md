@@ -1,7 +1,7 @@
 ---
 title: "Libre arbitre contre Volonté de Dieu"
 menu_title: ""
-description: "Libre arbitre contre Volonté de Dieu"
+description: "Augustin, reçu par Al Fike : « Car l’humanité a tendance à formuler, à modeler et à manipuler le flux de la Volonté et de l’Amour de Dieu dans le monde  … »"
 date: 2022-06-01 06:00:01+00:147
 draft: False
 hidden: True

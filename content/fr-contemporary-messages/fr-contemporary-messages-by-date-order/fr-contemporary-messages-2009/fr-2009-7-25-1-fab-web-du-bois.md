@@ -1,7 +1,7 @@
 ---
 title: "La passion d'un militant afro-américain"
 menu_title: ""
-description: "La passion d'un militant afro-américain"
+description: "W.E.B. Du Bois, reçu par FAB : « Vous êtes très désireux de connaître mes pensées. Eh bien, je vais satisfaire votre curiosité en ce bel après-midi à San … »"
 date: 2022-06-01 06:00:01+00:69
 draft: False
 hidden: True

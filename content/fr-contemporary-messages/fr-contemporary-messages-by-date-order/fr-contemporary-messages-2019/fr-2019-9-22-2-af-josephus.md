@@ -1,7 +1,7 @@
 ---
 title: "Le progrès de l'âme en recevant l'Amour de Dieu"
 menu_title: ""
-description: "Le progrès de l'âme en recevant l'Amour de Dieu"
+description: "Flavius Josèphe, reçu par Al Fike : « Vous vivez dans un monde de défis, un monde rempli de nombreuses conditions errantes qui ne sont pas de l’amour, ces … »"
 date: 2022-06-01 06:00:01+00:861
 draft: False
 hidden: True

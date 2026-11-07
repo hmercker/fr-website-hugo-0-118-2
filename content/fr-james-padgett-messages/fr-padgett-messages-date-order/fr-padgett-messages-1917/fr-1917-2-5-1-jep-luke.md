@@ -1,7 +1,7 @@
 ---
 title: "Luc : les conditions des esprits dans la zone crépusculaire et leurs progrès dans l’amour naturel"
 menu_title: ""
-description: "Luc : les conditions des esprits dans la zone crépusculaire et leurs progrès dans l’amour naturel"
+description: "St Luc, reçu par James Padgett : « Je veux simplement vous dire que vous êtes en meilleure condition ce soir, et que je vais écrire quelques lignes sur un … »"
 date: 2022-06-01 06:00:01+00:41
 draft: False
 hidden: True

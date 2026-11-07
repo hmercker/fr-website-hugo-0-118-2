@@ -1,7 +1,7 @@
 ---
 title: "Il n'y a pas de drapeaux au Ciel"
 menu_title: ""
-description: "Il n'y a pas de drapeaux au Ciel"
+description: "Goldie, reçu par Al Fike : « Je ne souhaite pas décevoir mon cher ami, mais il n’y a pas de drapeaux imaginaires au Ciel, ni aucun autre drapeau. »"
 date: 2022-06-01 06:00:01+00:74
 draft: False
 hidden: True

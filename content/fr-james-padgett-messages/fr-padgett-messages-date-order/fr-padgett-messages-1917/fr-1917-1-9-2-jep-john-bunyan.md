@@ -1,7 +1,7 @@
 ---
 title: "La loi de compensation"
 menu_title: ""
-description: "La loi de compensation"
+description: "John Bunyan, reçu par James Padgett : « Je veux seulement écrire quelques lignes. Je m’intéresse beaucoup à vous et à votre travail et je veux faire tout … »"
 date: 2022-06-01 06:00:01+00:16
 draft: False
 hidden: True

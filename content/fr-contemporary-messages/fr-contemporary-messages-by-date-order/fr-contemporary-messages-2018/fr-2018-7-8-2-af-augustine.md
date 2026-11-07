@@ -1,7 +1,7 @@
 ---
 title: "Choisirez-vous la transformation de l'âme par l'Amour Divin ?"
 menu_title: ""
-description: "Choisirez-vous la transformation de l'âme par l'Amour Divin ?"
+description: "Augustin, reçu par Al Fike : « En fait, peu savent comment attirer cette lumière à eux. Pourtant, cette lumière est disponible pour chaque âme dans votre … »"
 date: 2022-06-01 06:00:01+00:423
 draft: False
 hidden: True

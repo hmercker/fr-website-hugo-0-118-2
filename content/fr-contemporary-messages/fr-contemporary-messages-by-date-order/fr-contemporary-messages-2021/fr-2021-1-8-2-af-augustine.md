@@ -1,7 +1,7 @@
 ---
 title: "Les pièges de la communication avec les esprits"
 menu_title: ""
-description: "Les pièges de la communication avec les esprits"
+description: "Augustin, reçu par Al Fike : « En effet, nous, dans le Royaume Céleste, continuons à vous observer sur la Terre et nous continuons à commenter l’obscurité … »"
 date: 2022-06-01 06:00:01+00:1371
 draft: False
 hidden: True

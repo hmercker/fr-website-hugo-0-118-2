@@ -1,7 +1,7 @@
 ---
 title: "Le libre arbitre et son impact sur la Terre (Collection générale 2020)"
 menu_title: ""
-description: "Le libre arbitre et son impact sur la Terre (Collection générale 2020)"
+description: "Flavius Josèphe, reçu par Al Fike : « Je souhaite donner un message à tous ceux qui sont prêts à écouter. Il a pour thème le libre arbitre et le fait que … »"
 date: 2022-06-01 06:00:01+00:1076
 draft: False
 hidden: True

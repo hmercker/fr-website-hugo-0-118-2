@@ -1,7 +1,7 @@
 ---
 title: "Luc – Ce qu’un homme doit faire pour retrouver la pureté d’âme et d’amour que possédaient les premiers parents. La doctrine du péché originel est un mensonge hypocrite"
 menu_title: ""
-description: "Luc – Ce qu’un homme doit faire pour retrouver la pureté d’âme et d’amour que possédaient les premiers parents. La doctrine du péché originel est un mensonge hypocrite"
+description: "St Luc, reçu par James Padgett : « Je ne vous ai pas écrit depuis un certain temps et j’ai le désir d’écrire un court message ce soir sur le sujet : « Ce … »"
 date: 2022-06-01 06:00:01+00:219
 draft: False
 hidden: True

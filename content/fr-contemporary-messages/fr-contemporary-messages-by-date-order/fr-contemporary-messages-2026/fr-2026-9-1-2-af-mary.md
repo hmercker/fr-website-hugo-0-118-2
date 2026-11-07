@@ -1,7 +1,7 @@
 ---
 title: "Tout commence et tout finit en Dieu"
 menu_title: ""
-description: "Tout commence et tout finit en Dieu"
+description: "Marie, reçu par Albert Fike : « Que les bénédictions du Père soient sur vous, âmes bien-aimées. C’est Dieu qui a pourvu à tout ce dont vous avez besoin … »"
 date: 2026-11-05 06:00:01+00:01
 draft: False
 hidden: True

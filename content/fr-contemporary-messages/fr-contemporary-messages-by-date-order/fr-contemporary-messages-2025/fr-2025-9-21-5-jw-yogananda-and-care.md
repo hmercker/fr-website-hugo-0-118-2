@@ -1,7 +1,7 @@
 ---
 title: "Que votre guidance soit Céleste plutôt que terrestre"
 menu_title: ""
-description: "Que votre guidance soit Céleste plutôt que terrestre"
+description: "Yogananda et Care Darby Walsh, reçu par Jimbeau Walsh : « Être confronté à la dichotomie entre l’esprit et l’âme est souvent un grand défi. Car dans le … »"
 date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True

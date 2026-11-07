@@ -1,7 +1,7 @@
 ---
 title: "La foi opposée à la peur pendant le nettoyage du monde"
 menu_title: ""
-description: "La foi opposée à la peur pendant le nettoyage du monde"
+description: "Orion, reçu par Albert Fike : « Vous êtes tous confrontés à des défis dans votre vie, reflet de la condition humaine et des conditions terrestres. »"
 date: 2023-09-01 06:00:01+00:63
 draft: False
 hidden: True

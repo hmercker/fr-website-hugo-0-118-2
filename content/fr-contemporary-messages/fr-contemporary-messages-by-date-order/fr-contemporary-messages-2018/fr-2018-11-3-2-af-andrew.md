@@ -1,7 +1,7 @@
 ---
 title: "L’Amour de Dieu vous fortifiera et vous guidera vers l’avant"
 menu_title: ""
-description: "L’Amour de Dieu vous fortifiera et vous guidera vers l’avant"
+description: "André, reçu par Al Fike : « Je vous ai entendus parler et prier pour des changements dans ce monde. Comme vous le savez bien, le changement commence avec … »"
 date: 2026-10-28 06:00:01+00:435
 draft: False
 hidden: True

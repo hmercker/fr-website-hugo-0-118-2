@@ -1,7 +1,7 @@
 ---
 title: "Le voyage et la lutte vers la conscience de l'âme" 
 menu_title: ""
-description: "Le voyage et la lutte vers la conscience de l'âme"
+description: "Orion, reçu par Albert Fike : « Je voudrais vous expliquer plus en détail les trois centres de conscience qui existent en vous. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

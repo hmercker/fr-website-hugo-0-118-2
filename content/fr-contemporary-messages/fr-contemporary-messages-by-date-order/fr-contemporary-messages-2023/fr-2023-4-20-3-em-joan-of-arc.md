@@ -1,7 +1,7 @@
 ---
 title: "L'Amour Divin favorise l'unité et l'harmonie"
 menu_title: ""
-description: "L'Amour Divin favorise l'unité et l'harmonie"
+description: "Jeanne d'Arc, reçu par Elizabeth Mack : « Je ne fais qu’un avec mon créateur, notre Créateur. Tu as entendu parler de moi et tu as déjà fait l’expérience … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

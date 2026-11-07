@@ -1,7 +1,7 @@
 ---
 title: "Les vents du changement apportent de nombreuses bénédictions et perturbations"
 menu_title: ""
-description: "Les vents du changement apportent de nombreuses bénédictions et perturbations"
+description: "Augustin, reçu par Albert Fike : « Votre enseignant, Augustin, souhaite s’adresser à vous. Je souhaite vous donner des instructions concernant votre … »"
 date: 2026-10-21 06:00:01+00:09
 draft: False
 hidden: True

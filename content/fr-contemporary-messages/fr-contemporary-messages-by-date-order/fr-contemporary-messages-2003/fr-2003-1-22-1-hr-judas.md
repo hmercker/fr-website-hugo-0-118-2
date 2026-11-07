@@ -1,7 +1,7 @@
 ---
 title: "Jésus confond les Pharisiens"
 menu_title: ""
-description: "Jésus confond les Pharisiens"
+description: "Judas, reçu par H : « Nous allons parler d’un sujet différent : Imagine le paramétrage suivant : »"
 date: 2022-06-01 06:00:01+00:13
 draft: False
 hidden: True

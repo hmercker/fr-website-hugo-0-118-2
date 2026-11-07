@@ -1,7 +1,7 @@
 ---
 title: "Soyez la Lumière de l'Amour"
 menu_title: ""
-description: "Soyez la Lumière de l'Amour"
+description: "François d'Assise, reçu par Albert Fike : « Comme vous le savez, rechercher le don suprême de l’Amour, l’Essence de Dieu, et demander qu’il pénètre votre … »"
 date: 2026-02-03 16:00:01+00:01
 draft: False
 hidden: True

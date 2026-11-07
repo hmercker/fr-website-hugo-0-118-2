@@ -1,7 +1,7 @@
 ---
 title: "Embrassez-les comme Dieu vous a embrassé"
 menu_title: ""
-description: "Embrassez-les comme Dieu vous a embrassé"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Si vous deviez passer en ce moment dans l’esprit, où souhaiteriez-vous être ? En quelle compagnie seriez-vous … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La justice trouvera sa voie"
 menu_title: ""
-description: "La justice trouvera sa voie"
+description: "Jésus, reçu par Jimbeau Walsh : « Comment peut-on ne pas être conscient de toute l’injustice dans le monde et ne pas vouloir y répondre ? »"
 date: 2022-06-01 06:00:01+00:110
 draft: False
 hidden: True

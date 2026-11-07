@@ -1,7 +1,7 @@
 ---
 title: "Demande de service"
 menu_title: ""
-description: "Demande de service"
+description: "Faith Nyquist, reçu par Albert Fike : « … enfants de Dieu, puissiez-vous trouver votre chemin vers une plus grande lumière, éveiller vos âmes à un amour … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Discours de bienvenue et objectif (Retraite Voix Directe 2021)"
 menu_title: ""
-description: "Discours de bienvenue et objectif (Retraite Voix Directe 2021)"
+description: "Seretta Kem, reçu par Al Fike : « Que l’amour de Dieu vous réveille, âmes bien-aimées. Tant de semaines et de mois de préparation ont été consacrés à ce … »"
 date: 2022-06-01 06:00:01+00:1623
 draft: False
 hidden: True

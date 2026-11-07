@@ -1,7 +1,7 @@
 ---
 title: "Connectez-vous à l'amour"
 menu_title: ""
-description: "Connectez-vous à l'amour"
+description: "Charlie Chaplin, reçu par Jimbeau Walsh : « Ne faisons-nous pas tous ce voyage ? Je vous écoutais tout à l’heure lorsque vous avez parlé de moi, m’avez … »"
 date: 2022-06-01 06:00:01+00:1146
 draft: False
 hidden: True

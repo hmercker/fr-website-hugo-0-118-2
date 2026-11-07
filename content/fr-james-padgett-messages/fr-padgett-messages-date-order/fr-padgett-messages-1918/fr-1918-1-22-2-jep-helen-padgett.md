@@ -1,7 +1,7 @@
 ---
 title: "Hélène Padgett commente St Jean qui n’a pas pu terminer son message ainsi que les prédictions des deux auteurs allemands au sujet de la fin prochaine de la guerre"
 menu_title: ""
-description: "Hélène Padgett commente St Jean qui n’a pas pu terminer son message ainsi que les prédictions des deux auteurs allemands au sujet de la fin prochaine de la guerre"
+description: "Hélène Padgett, reçu par James Padgett : « Chéri, tu es un peu fatigué et tu ferais mieux de ne pas écrire plus ce soir. Saint Jean t’a écrit et a été … »"
 date: 2022-06-01 06:00:01+00:09
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L'expérience spirituelle d'un militant gay - 2"
 menu_title: ""
-description: "L'expérience spirituelle d'un militant gay - 2"
+description: "Harvey Milk, reçu par FAB : « Et beaucoup de choses que j'avais faites et dites me sont revenues, et j'ai souffert. Ce commentaire ne doit pas être … »"
 date: 2022-06-01 06:00:01+00:25
 draft: False
 hidden: True

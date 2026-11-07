@@ -1,7 +1,7 @@
 ---
 title: "La vérité ne peut jamais échouer"
 menu_title: ""
-description: "La vérité ne peut jamais échouer"
+description: "Samuel : « Et le Père vous aime tant. Il y a une plus grande opportunité pour beaucoup dans cette pièce de recevoir le don de médiumnité et ce médium que … »"
 date: 2022-06-01 06:00:01+00:16
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Jésus est avec nous"
 menu_title: ""
-description: "Jésus est avec nous"
+description: "Jésus, reçu par Al Fike : « Dans Sa réponse, Il apporte Sa Lumière et Son Amour, Sa Paix et Sa Guérison sur vous. Il en sera ainsi, âmes bien-aimées … »"
 date: 2022-06-01 06:00:01+00:173
 draft: False
 hidden: True

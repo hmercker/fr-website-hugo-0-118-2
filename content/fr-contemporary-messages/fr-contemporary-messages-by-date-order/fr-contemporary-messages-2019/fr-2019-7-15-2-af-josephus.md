@@ -1,7 +1,7 @@
 ---
 title: "Q&R : Choisissez toujours la lumière et l'amour"
 menu_title: ""
-description: "Q&R : Choisissez toujours la lumière et l'amour"
+description: "Flavius Josèphe, reçu par Al Fike : « Mais cela m'enchante, car l'un de mes dons est d'aider à articuler la Vérité de manière à ce que les autres puissent … »"
 date: 2022-06-01 06:00:01+00:791
 draft: False
 hidden: True

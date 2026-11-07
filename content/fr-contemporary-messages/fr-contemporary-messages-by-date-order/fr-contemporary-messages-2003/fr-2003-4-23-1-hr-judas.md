@@ -1,7 +1,7 @@
 ---
 title: "La parabole de la roseraie"
 menu_title: ""
-description: "La parabole de la roseraie"
+description: "Judas, reçu par H : « Pourquoi n’as-tu pas retranscrit ce que je t’ai dit ? Tu as suffisamment compris. »"
 date: 2022-06-01 06:00:01+00:39
 draft: False
 hidden: True

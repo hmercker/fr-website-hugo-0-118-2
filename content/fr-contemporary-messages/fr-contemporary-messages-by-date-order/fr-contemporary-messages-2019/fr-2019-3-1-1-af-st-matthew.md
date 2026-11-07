@@ -1,7 +1,7 @@
 ---
 title: "Le voyage de la vie n'est pas rapide, il fait des méandres"
 menu_title: ""
-description: "Le voyage de la vie n'est pas rapide, il fait des méandres"
+description: "St Matthieu, reçu par Al Fike : « Vous poursuivez tous vos voyages de la vie et pour ceux qui sont plus jeunes, il y a un empressement à ce que le voyage … »"
 date: 2022-06-01 06:00:01+00:662
 draft: False
 hidden: True

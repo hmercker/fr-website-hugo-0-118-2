@@ -1,7 +1,7 @@
 ---
 title: "Fait écho à l’importance pour nous tous de diffuser les vérités de l’Amour de Dieu"
 menu_title: ""
-description: "Fait écho à l’importance pour nous tous de diffuser les vérités de l’Amour de Dieu"
+description: "Keea Atta Kem, reçu par Albert Fike : « Je voudrais simplement dire que ce qu'Augustin a à vous dire est vraiment très important. Être agent actif de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

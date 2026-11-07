@@ -1,7 +1,7 @@
 ---
 title: "Chaque voyage commence par un pas"
 menu_title: ""
-description: "Chaque voyage commence par un pas"
+description: "Rachel Carson, reçu par Jimbeau Walsh : « J’ai été attiré dans ce cercle par les intentions de vos prières pour une terre plus durable, pour des lieux de … »"
 date: 2022-06-01 06:00:01+00:04
 draft: False
 hidden: True

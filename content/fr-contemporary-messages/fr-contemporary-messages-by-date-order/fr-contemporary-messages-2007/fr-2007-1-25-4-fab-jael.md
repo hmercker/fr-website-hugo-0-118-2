@@ -1,7 +1,7 @@
 ---
 title: "La sœur de Caïn et Abel raconte ses expériences"
 menu_title: ""
-description: "La sœur de Caïn et Abel raconte ses expériences"
+description: "Jael, reçu par FAB : « Le fait que mon nom ait été retenu est simplement le signe du travail de la mémoire ancestrale. [Jaël est un personnage de la … »"
 date: 2022-06-01 06:00:01+00:108
 draft: False
 hidden: True

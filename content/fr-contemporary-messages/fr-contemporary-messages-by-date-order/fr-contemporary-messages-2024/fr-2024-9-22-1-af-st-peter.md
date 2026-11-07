@@ -1,7 +1,7 @@
 ---
 title: "Vos bénédictions ne seront pas oubliées"
 menu_title: ""
-description: "Vos bénédictions ne seront pas oubliées"
+description: "Pierre, reçu par Albert Fike : « Âmes nourries, âmes bien-aimées. Vous êtes venus au puits et avez bu l’eau vive. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

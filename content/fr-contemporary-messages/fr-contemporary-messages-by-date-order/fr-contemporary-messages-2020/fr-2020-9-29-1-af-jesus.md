@@ -1,7 +1,7 @@
 ---
 title: "La foi est l’acte de croire qu’il y a plus"
 menu_title: ""
-description: "La foi est l’acte de croire qu’il y a plus"
+description: "Jésus, reçu par Al Fike : « Âmes bien-aimées, que le Souffle de Dieu soit sur chacun de vous comme il l’est sûrement. Lorsque je marchais sur la Terre … »"
 date: 2022-06-01 06:00:01+00:1261
 draft: False
 hidden: True

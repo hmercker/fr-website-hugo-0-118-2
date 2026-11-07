@@ -1,7 +1,7 @@
 ---
 title: "Une bénédiction de guérison"
 menu_title: ""
-description: "Une bénédiction de guérison"
+description: "Guru Ram Das, reçu par Maureen Cardoso : « Je réside dans les Ceux Célestes. Je fus le quatrième Guru de la tradition Sikh connu pour mes dons de guérison. »"
 date: 2022-06-01 06:00:01+00:511
 draft: False
 hidden: True

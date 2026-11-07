@@ -1,7 +1,7 @@
 ---
 title: "Les pensées d’un Leader Chinois"
 menu_title: ""
-description: "Les pensées d’un Leader Chinois"
+description: "Mao Zedong, reçu par FAB : « J'ai traversé, ici, une période difficile, car rien de ceci ne m'était connu. Et tous les marxistes connaîtront un sort … »"
 date: 2022-06-01 06:00:01+00:233
 draft: False
 hidden: True

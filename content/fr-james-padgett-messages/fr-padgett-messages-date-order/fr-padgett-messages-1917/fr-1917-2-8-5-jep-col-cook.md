@@ -1,7 +1,7 @@
 ---
 title: "Un ancien portier de la Maison Blanche exprime son désir que des esprits communiquent avec le Président"
 menu_title: ""
-description: "Un ancien portier de la Maison Blanche exprime son désir que des esprits communiquent avec le Président"
+description: "Col Cook, reçu par James Padgett : « Vous êtes très sollicité ce soir, et les esprits qui ont écrit sont en réalité ceux qu’ils sont censés être ; car … »"
 date: 2022-06-01 06:00:01+00:52
 draft: False
 hidden: True

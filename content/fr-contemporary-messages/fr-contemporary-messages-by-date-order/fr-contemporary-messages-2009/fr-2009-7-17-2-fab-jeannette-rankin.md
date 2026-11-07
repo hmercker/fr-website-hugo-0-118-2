@@ -1,7 +1,7 @@
 ---
 title: "L’opinion de Jeannette Rankin sur ses biographes"
 menu_title: ""
-description: "L’opinion de Jeannette Rankin sur ses biographes"
+description: "Jeannette Rankin, reçu par FAB : « Luckowski, mais je les félicite d’avoir voulu connaître la vérité. Le monde n’a pas été informé des aspects de ma vie … »"
 date: 2022-06-01 06:00:01+00:63
 draft: False
 hidden: True

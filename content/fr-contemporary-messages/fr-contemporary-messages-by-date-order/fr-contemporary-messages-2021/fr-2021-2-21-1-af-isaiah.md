@@ -1,7 +1,7 @@
 ---
 title: "Vous serez une lumière brillante pour la condition humaine"
 menu_title: ""
-description: "Vous serez une lumière brillante pour la condition humaine"
+description: "Isaïe, reçu par Al Fike : « Dieu lève un voile entre Lui et vos âmes, alors que vous priez ensemble de cette façon. Vous formez un puissant cri vers Dieu … »"
 date: 2022-06-01 06:00:01+00:1415
 draft: False
 hidden: True

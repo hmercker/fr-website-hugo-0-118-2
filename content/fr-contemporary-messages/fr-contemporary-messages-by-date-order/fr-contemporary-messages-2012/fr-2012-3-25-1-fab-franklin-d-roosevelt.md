@@ -1,7 +1,7 @@
 ---
 title: "Habiter la Maison Blanche"
 menu_title: ""
-description: "Habiter la Maison Blanche"
+description: "Franklin D Roosevelt, reçu par FAB : « Nous voyons que vous êtes en conflit au sujet de mon New Deal. Ce que vous lisez à nouveau dans « Wall Street et … »"
 date: 2022-06-01 06:00:01+00:228
 draft: False
 hidden: True

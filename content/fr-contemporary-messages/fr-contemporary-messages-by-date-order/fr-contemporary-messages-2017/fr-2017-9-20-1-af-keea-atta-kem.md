@@ -1,7 +1,7 @@
 ---
 title: "Les couleurs de la guérison de Dieu"
 menu_title: ""
-description: "Les couleurs de la guérison de Dieu"
+description: "Keea Atta Kem, reçu par Al Fike : « J'ai vécu à l'époque de Ramsès II en Égypte, il y a de très nombreuses années. Je souhaite venir vous parler des … »"
 date: 2022-06-01 06:00:01+00:109
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Pourquoi faut-il prier pour l’Amour de Dieu ?"
 menu_title: ""
-description: "Pourquoi faut-il prier pour l’Amour de Dieu ?"
+description: "Joseph le jeune, reçu par RL : « Que voulez-vous demander ? Non, nous ne parlerons pas de la fermeture des Cieux. »"
 date: 2022-06-01 06:00:01+00:17
 draft: False
 hidden: True

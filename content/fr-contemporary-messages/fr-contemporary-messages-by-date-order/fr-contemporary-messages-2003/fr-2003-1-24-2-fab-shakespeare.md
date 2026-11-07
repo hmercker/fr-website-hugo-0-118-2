@@ -1,7 +1,7 @@
 ---
 title: "La curiosité de Shakespeare"
 menu_title: ""
-description: "La curiosité de Shakespeare"
+description: "Shakespeare, reçu par FAB : « Eh bien, il m’est arrivé tellement de choses depuis que j’ai traversé, qu’il est un peu difficile de me souvenir des détails … »"
 date: 2022-06-01 06:00:01+00:16
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Abdulla ben Caliph un imam musulman parle de la vie telle que vécue dans sa sphère"
 menu_title: ""
-description: "Abdulla ben Caliph un imam musulman parle de la vie telle que vécue dans sa sphère"
+description: "Abdullah ben Caliph, reçu par James Padgett : « Je ne suis pas un homme d’église, mais un amoureux de l’humanité et un croyant en Dieu, notre Père à tous. »"
 date: 2022-06-01 06:00:01+00:110
 draft: False
 hidden: True

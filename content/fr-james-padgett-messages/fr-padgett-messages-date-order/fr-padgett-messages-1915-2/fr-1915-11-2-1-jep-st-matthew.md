@@ -1,7 +1,7 @@
 ---
 title: "Matthieu: L’âme et sa relation avec Dieu et la vie future et l’immortalité"
 menu_title: ""
-description: "Matthieu: L’âme et sa relation avec Dieu et la vie future et l’immortalité"
+description: "St Matthieu, reçu par James Padgett : « Je ne vous ai pas écrit depuis un certain temps ; ce soir j’ai envie de partager quelques mots sur les questions … »"
 date: 2022-06-01 06:00:01+00:40
 draft: False
 hidden: True

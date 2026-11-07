@@ -1,7 +1,7 @@
 ---
 title: "Profitez de chaque instant de l’aspiration de l’âme dans la prière"
 menu_title: ""
-description: "Profitez de chaque instant de l’aspiration de l’âme dans la prière"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Certains d'entre vous ont fait de nombreux voyages et pour d'autres de nouveaux départs vous attendent. »"
 date: 2022-06-01 06:00:01+00:60
 draft: False
 hidden: True

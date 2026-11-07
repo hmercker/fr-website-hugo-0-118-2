@@ -1,7 +1,7 @@
 ---
 title: "Q&R : Questions diverses"
 menu_title: ""
-description: "Q&R : Questions diverses"
+description: "Flavius Josèphe, reçu par Al Fike : « Les conditions de lumière, les bénédictions de Dieu qui ont été données pour ces moments de prière ensemble … »"
 date: 2022-06-01 06:00:01+00:782
 draft: False
 hidden: True

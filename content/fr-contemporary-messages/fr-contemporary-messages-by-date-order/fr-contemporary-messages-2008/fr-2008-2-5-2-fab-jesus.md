@@ -1,7 +1,7 @@
 ---
 title: "Quelle est la vérité sur l'évolution - 2"
 menu_title: ""
-description: "Quelle est la vérité sur l'évolution - 2"
+description: "Jésus, reçu par FAB : « Dans ma canalisation du 20 janvier 2007, « L'évolution du corps physique et les messages de Padgett », j'ai dit que l'évolution du … »"
 date: 2022-06-01 06:00:01+00:18
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Reconnaître sa propre responsabilité et sa capacité à contribuer au salut de l'humanité"
 menu_title: ""
-description: "Reconnaître sa propre responsabilité et sa capacité à contribuer au salut de l'humanité"
+description: "Seretta Kem, reçu par Al Fike : « Il y a une grande appréciation de notre côté de la vie pour ceux d’entre vous qui sont prêts à prendre ce temps dans la … »"
 date: 2022-06-01 06:00:01+00:684
 draft: False
 hidden: True

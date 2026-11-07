@@ -1,7 +1,7 @@
 ---
 title: "Le Pouvoir de l'Amour Persévérant : Éveiller l'Âme à la Vérité de Dieu"
 menu_title: ""
-description: "Le Pouvoir de l'Amour Persévérant : Éveiller l'Âme à la Vérité de Dieu"
+description: "Goldie, Augustin et Jésus, reçu par Albert Fike : « Je vois tant de souffrance dans votre monde. Pourtant, chacun de vous voit ses besoins comblés. »"
 date: 2026-05-21 06:00:01+00:01
 draft: False
 hidden: True

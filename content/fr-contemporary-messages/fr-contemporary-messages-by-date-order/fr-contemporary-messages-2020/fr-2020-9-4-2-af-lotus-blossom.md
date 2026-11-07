@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes à la fois récepteurs et donneurs"
 menu_title: ""
-description: "Nous sommes à la fois récepteurs et donneurs"
+description: "Fleur de Lotus, reçu par Al Fike : « Je fais partie du rassemblement des guérisseurs qui sont venus travailler avec vous, pour apporter les bénédictions … »"
 date: 2022-06-01 06:00:01+00:1242
 draft: False
 hidden: True

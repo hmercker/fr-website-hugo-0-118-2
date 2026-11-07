@@ -1,7 +1,7 @@
 ---
 title: "Permettez-vous de recevoir l'Amour de Dieu"
 menu_title: ""
-description: "Permettez-vous de recevoir l'Amour de Dieu"
+description: "Augustin, reçu par Al Fike : « Mon âme a été rachetée par l’Amour, l’Amour de Dieu, et je réside très haut dans ces Cieux, très loin de ce monde, ce monde … »"
 date: 2022-06-01 06:00:01+00:331
 draft: False
 hidden: True

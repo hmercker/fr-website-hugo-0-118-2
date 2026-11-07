@@ -1,7 +1,7 @@
 ---
 title: "16ème Sermon – L’Amour du Roi David pour ses enfants rebelles"
 menu_title: ""
-description: "16ème Sermon – L’Amour du Roi David pour ses enfants rebelles"
+description: "Jésus, reçu par Dr Samuels : « J’ai essayé de montrer que David, dans sa conduite envers Saul, Jonathan et Abigaïl, la femme de Nabal, a révélé un cœur où … »"
 date: 2022-06-01 06:00:01+00:69
 draft: False
 hidden: True

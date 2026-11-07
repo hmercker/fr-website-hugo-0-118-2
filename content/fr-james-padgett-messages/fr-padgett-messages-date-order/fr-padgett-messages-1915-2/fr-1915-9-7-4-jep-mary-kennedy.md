@@ -1,7 +1,7 @@
 ---
 title: "Après un certain temps, c’est le deuxième message écrit par Mary Kennedy"
 menu_title: ""
-description: "Après un certain temps, c’est le deuxième message écrit par Mary Kennedy"
+description: "Mary Kennedy, reçu par James Padgett : « J’aimerais qu’il ait le pouvoir d’écrire comme vous, car s’il l’avait, je crois que je monopoliserais tout son … »"
 date: 2022-06-01 06:00:01+00:238
 draft: False
 hidden: True

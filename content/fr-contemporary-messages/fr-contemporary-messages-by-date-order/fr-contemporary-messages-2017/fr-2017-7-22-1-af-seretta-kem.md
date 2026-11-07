@@ -1,7 +1,7 @@
 ---
 title: "Guide de la confidentialité"
 menu_title: ""
-description: "Guide de la confidentialité"
+description: "Seretta Kem, reçu par Al Fike : « Vous l'avez déjà fait, beaucoup d'entre vous l'ont fait. Il n'y a pas besoin de se cacher, d'être secret, de s'inquiéter … »"
 date: 2022-06-01 06:00:01+00:66
 draft: False
 hidden: True

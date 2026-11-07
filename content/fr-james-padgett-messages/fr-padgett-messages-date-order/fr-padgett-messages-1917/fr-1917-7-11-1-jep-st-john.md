@@ -1,7 +1,7 @@
 ---
 title: "L’Amour Divin est toujours en attente de remplir l’âme et le fait lorsque les désirs de l’âme, pour sa possession, deviennent réels"
 menu_title: ""
-description: "L’Amour Divin est toujours en attente de remplir l’âme et le fait lorsque les désirs de l’âme, pour sa possession, deviennent réels"
+description: "St Jean, reçu par James Padgett : « J’ai entendu votre prière et je sais que cet Amour coule dans votre âme et que vous êtes conscient de le posséder … »"
 date: 2022-06-01 06:00:01+00:169
 draft: False
 hidden: True

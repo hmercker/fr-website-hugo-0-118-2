@@ -1,7 +1,7 @@
 ---
 title: "Surmonter les obstacles au voyage"
 menu_title: ""
-description: "Surmonter les obstacles au voyage"
+description: "André, reçu par Kathryn Stokes : « Comme vous le savez, il faut que le médium le souhaite pour que nous puissions canaliser nos pensées clairement, avec … »"
 date: 2022-06-01 06:00:01+00:15
 draft: False
 hidden: True

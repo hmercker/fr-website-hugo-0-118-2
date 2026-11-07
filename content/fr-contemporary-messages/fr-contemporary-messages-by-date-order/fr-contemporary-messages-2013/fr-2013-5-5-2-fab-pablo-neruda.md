@@ -1,7 +1,7 @@
 ---
 title: "Communistes – 2"
 menu_title: ""
-description: "Communistes – 2"
+description: "Pablo Neruda, reçu par FAB : « Ce que je disais dans ma canalisation du 6 Mars 2008, c’est que beaucoup de communistes se voyaient comme luttant pour la … »"
 date: 2022-06-01 06:00:01+00:55
 draft: False
 hidden: True

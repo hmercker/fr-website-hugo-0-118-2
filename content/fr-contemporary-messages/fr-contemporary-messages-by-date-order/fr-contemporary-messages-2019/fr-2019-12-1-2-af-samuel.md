@@ -1,7 +1,7 @@
 ---
 title: "Un fleuve puissant commence par une goutte d'eau"
 menu_title: ""
-description: "Un fleuve puissant commence par une goutte d'eau"
+description: "Samuel, reçu par Al Fike : « Alors que chaque goutte se rassemble créant le filet d’eau qui coule dans le ruisseau qui se jette alors dans le grand fleuve … »"
 date: 2022-06-01 06:00:01+00:931
 draft: False
 hidden: True

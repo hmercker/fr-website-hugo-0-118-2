@@ -1,7 +1,7 @@
 ---
 title: "Leçon 5 : Le pouvoir de l’âme pour amener quelqu’un à Dieu"
 menu_title: ""
-description: "Leçon 5 : Le pouvoir de l’âme pour amener quelqu’un à Dieu"
+description: "Jésus, reçu par Al Fike : « Je souhaite parler des désirs et des aspirations de l’âme et de la façon dont ils sont souvent ignorés et méconnus par l’individu. »"
 date: 2022-06-01 06:00:01+00:1483
 draft: False
 hidden: True

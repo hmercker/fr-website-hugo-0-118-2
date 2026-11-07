@@ -1,7 +1,7 @@
 ---
 title: "Vous entrez dans une nouvelle phase de service"
 menu_title: ""
-description: "Vous entrez dans une nouvelle phase de service"
+description: "Augustin, reçu par Al Fike : « C’est votre maître Augustin. Vous entrez dans une nouvelle phase de votre service à Dieu, car c’est un temps où des portes … »"
 date: 2022-06-01 06:00:01+00:294
 draft: False
 hidden: True

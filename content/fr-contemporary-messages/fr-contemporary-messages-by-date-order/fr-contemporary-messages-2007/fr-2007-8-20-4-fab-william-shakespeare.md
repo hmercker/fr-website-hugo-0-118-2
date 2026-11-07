@@ -1,7 +1,7 @@
 ---
 title: "Shakespeare - religion"
 menu_title: ""
-description: "Shakespeare - religion"
+description: "William Shakespeare, reçu par FAB : « Ne soyez pas perturbé si vous lisez quelque chose d'un érudit qui semble contredire ce que je canalise. »"
 date: 2022-06-01 06:00:01+00:150
 draft: False
 hidden: True

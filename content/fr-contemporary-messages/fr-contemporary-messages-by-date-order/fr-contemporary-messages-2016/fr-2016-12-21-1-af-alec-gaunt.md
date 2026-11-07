@@ -1,7 +1,7 @@
 ---
 title: "En progressant à l’intérieur de votre âme, vous serez en mesure de recevoir les changements qui arrivent"
 menu_title: ""
-description: "En progressant à l’intérieur de votre âme, vous serez en mesure de recevoir les changements qui arrivent"
+description: "Alec Gaunt, reçu par Al Fike : « Mes beaux amis, c’est Alec. Alors que vous commencez à ouvrir votre âme, les perceptions et les prises de conscience … »"
 date: 2022-06-01 06:00:01+00:300
 draft: False
 hidden: True

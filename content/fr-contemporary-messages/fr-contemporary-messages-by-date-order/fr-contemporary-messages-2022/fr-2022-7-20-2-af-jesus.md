@@ -1,7 +1,7 @@
 ---
 title: "Leçon 12 : Les méandres de la condition humaine"
 menu_title: ""
-description: "Leçon 12 : Les méandres de la condition humaine"
+description: "Jésus, reçu par Al Fike : « Je souhaite parler de l’expérience de la vie que la plupart ont dans ce monde, qu’en effet, pour beaucoup, leur chemin de vie … »"
 date: 2022-06-01 06:00:01+00:139
 draft: False
 hidden: True

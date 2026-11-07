@@ -1,7 +1,7 @@
 ---
 title: "Il y a une raison pour laquelle chacun d'entre vous a été appelé à se réunir ici"
 menu_title: ""
-description: "Il y a une raison pour laquelle chacun d'entre vous a été appelé à se réunir ici"
+description: "Joseph Babinky, reçu par Elizabeth Mack : « Je vous souhaite la bienvenue dans cette maison qui est déjà remplie de nos frères et sœurs des sphères Célestes. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Jésus explique la phrase_Quiconque vit et croit en moi ne mourra jamais"
 menu_title: ""
-description: "Jésus explique la phrase_Quiconque vit et croit en moi ne mourra jamais"
+description: "Jésus, reçu par James Padgett : « J’étais avec vous, ce soir, lors de la réunion des Chrétiens, et j’ai vu que vous pensiez à plusieurs choses que j’avais … »"
 date: 2022-06-01 06:00:01+00:199
 draft: False
 hidden: True

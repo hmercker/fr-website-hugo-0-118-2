@@ -1,7 +1,7 @@
 ---
 title: "Tout évolue vers une plus grande harmonie (2020 Online Prayer Circles)"
 menu_title: ""
-description: "Tout évolue vers une plus grande harmonie (2020 Online Prayer Circles)"
+description: "St François d'Assise, reçu par Al Fike : « De nombreux anges sont avec nous aujourd’hui, apportant avec eux de nombreuses bénédictions et des dons … »"
 date: 2022-06-01 06:00:01+00:1053
 draft: False
 hidden: True

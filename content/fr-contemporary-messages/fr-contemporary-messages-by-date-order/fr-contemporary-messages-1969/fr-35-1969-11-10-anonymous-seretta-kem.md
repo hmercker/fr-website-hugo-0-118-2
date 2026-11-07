@@ -1,7 +1,7 @@
 ---
 title: "Produits chimiques de guérison (Chimiste en chef Egyptien du groupe)"
 menu_title: ""
-description: "Produits chimiques de guérison (Chimiste en chef Egyptien du groupe)"
+description: "Seretta Kem : « J'ai étudié de nombreuses années dans mon domaine et j'ai beaucoup travaillé avec des mortels, et beaucoup de ces mortels n'ont jamais su … »"
 date: 2022-06-01 06:00:01+00:34
 draft: False
 hidden: True

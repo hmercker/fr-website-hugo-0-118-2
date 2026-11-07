@@ -1,7 +1,7 @@
 ---
 title: "Vous travaillez pour apporter une plus grande harmonie dans le monde"
 menu_title: ""
-description: "Vous travaillez pour apporter une plus grande harmonie dans le monde"
+description: "Seretta Kem, reçu par Al Fike : « Beaucoup d'entre vous ont ressenti les différences de conditions dans cette salle. Et cela a été accompli en une seule … »"
 date: 2022-06-01 06:00:01+00:161
 draft: False
 hidden: True

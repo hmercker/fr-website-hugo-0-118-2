@@ -1,7 +1,7 @@
 ---
 title: "Libre arbitre et offre de guérison"
 menu_title: ""
-description: "Libre arbitre et offre de guérison"
+description: "Jean Marc, reçu par H : « Il est clair que beaucoup d’entre nous sont des canaux pour différents types d’énergie spirituelle. »"
 date: 2022-06-01 06:00:01+00:37
 draft: False
 hidden: True

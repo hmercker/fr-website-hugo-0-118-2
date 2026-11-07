@@ -1,7 +1,7 @@
 ---
 title: "La vérité vient par la prière"
 menu_title: ""
-description: "La vérité vient par la prière"
+description: "Confucius, reçu par Al Fike : « La vérité vient par la prière, la prière reçoit une réponse de Dieu, et c’est dans la réponse de Dieu que réside la vérité. »"
 date: 2026-10-12 06:00:01+00:84
 draft: False
 hidden: True

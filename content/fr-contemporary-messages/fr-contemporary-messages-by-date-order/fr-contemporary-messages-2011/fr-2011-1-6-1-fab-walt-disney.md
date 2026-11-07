@@ -1,7 +1,7 @@
 ---
 title: "Walt Disney, l’histoire et l’espoir"
 menu_title: ""
-description: "Walt Disney, l’histoire et l’espoir"
+description: "Walt Disney, reçu par FAB : « Vous venez de terminer l’excellente biographie de Bob Thomas sur ma vie, et je veux partager avec vous quelques réflexions … »"
 date: 2022-06-01 06:00:01+00:180
 draft: False
 hidden: True

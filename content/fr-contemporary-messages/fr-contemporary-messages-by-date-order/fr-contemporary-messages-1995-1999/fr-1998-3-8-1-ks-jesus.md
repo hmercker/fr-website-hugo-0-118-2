@@ -1,7 +1,7 @@
 ---
 title: "Répond aux questions sur la chute des premiers parents et le clonage humain"
 menu_title: ""
-description: "Répond aux questions sur la chute des premiers parents et le clonage humain"
+description: "Jésus, reçu par Kathryn Stokes : « Je prie pour que je puisse mettre de côté mes propres pensées et permettre à Jésus d’écrire sans interruption à travers … »"
 date: 2022-06-01 06:00:01+00:12
 draft: False
 hidden: True

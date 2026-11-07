@@ -1,7 +1,7 @@
 ---
 title: "Témoigne que M. Padgett a été sélectionné pour recevoir les messages de Vérité de la part de Jésus et d’autres esprits élevés"
 menu_title: ""
-description: "Témoigne que M. Padgett a été sélectionné pour recevoir les messages de Vérité de la part de Jésus et d’autres esprits élevés"
+description: "St Clément le Pape, reçu par James Padgett : « Je sais que mon témoignage n’est pas nécessaire pour vous convaincre de ces faits, mais certains seront … »"
 date: 2022-06-01 06:00:01+00:145
 draft: False
 hidden: True

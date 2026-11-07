@@ -1,7 +1,7 @@
 ---
 title: "La conception de l'homme naît dans l'esprit"
 menu_title: ""
-description: "La conception de l'homme naît dans l'esprit"
+description: "St Matthieu, reçu par Al Fike : « Que l’Amour du Père se déverse en vous. C’est votre raison d’être. »"
 date: 2023-09-01 06:00:01+00:24
 draft: False
 hidden: True

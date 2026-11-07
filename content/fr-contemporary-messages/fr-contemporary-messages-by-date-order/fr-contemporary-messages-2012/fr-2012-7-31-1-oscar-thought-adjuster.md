@@ -1,7 +1,7 @@
 ---
 title: "Méditer et prier"
 menu_title: ""
-description: "Méditer et prier"
+description: "Ajusteur de Pensée, reçu par Oscar : « Ajusteur de Pensée : Une simple introspection – consacrer un peu de temps à réfléchir à votre situation dans la vie … »"
 date: 2022-06-01 06:00:01+00:279
 draft: False
 hidden: True

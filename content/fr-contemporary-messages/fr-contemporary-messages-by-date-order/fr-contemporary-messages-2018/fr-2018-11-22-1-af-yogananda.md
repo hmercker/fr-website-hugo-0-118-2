@@ -1,7 +1,7 @@
 ---
 title: "Yogananda décrit son voyage à travers les Sphères"
 menu_title: ""
-description: "Yogananda décrit son voyage à travers les Sphères"
+description: "Yogananda, reçu par Al Fike : « J’ai nourri et vénéré ces pensées dans mon esprit, mais aussi dans mon cœur. J’aimais tendrement Dieu et je ressentais Son … »"
 date: 2022-06-01 06:00:01+00:574
 draft: False
 hidden: True

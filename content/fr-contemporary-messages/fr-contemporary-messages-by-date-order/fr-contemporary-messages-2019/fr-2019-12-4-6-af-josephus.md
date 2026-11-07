@@ -1,7 +1,7 @@
 ---
 title: "Q&R : Comment se connecter à d’autres cultures et religions ?"
 menu_title: ""
-description: "Q&R : Comment se connecter à d’autres cultures et religions ?"
+description: "Flavius Josèphe, reçu par Al Fike : « Nous travaillons avec de nombreuses âmes différentes, partout dans le monde. Vous avez remarqué que beaucoup de ceux … »"
 date: 2022-06-01 06:00:01+00:947
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Vous avez toute l’éternité pour apprendre les merveilles de la création de Dieu"
 menu_title: ""
-description: "Vous avez toute l’éternité pour apprendre les merveilles de la création de Dieu"
+description: "Copernic, reçu par Al Fike : « Les mystères de l’univers sont à la portée de toute âme qui cherche à se développer et à grandir dans l’Amour. »"
 date: 2022-06-01 06:00:01+00:847
 draft: False
 hidden: True

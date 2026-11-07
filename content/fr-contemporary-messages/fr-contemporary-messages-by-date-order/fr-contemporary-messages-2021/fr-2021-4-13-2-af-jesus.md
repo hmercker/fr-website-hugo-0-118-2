@@ -1,7 +1,7 @@
 ---
 title: "Leçon 2 : Les Changements de la Terre"
 menu_title: ""
-description: "Leçon 2 : Les Changements de la Terre"
+description: "Jésus, reçu par Al Fike : « Pour certains, pour ceux qui sont impliqués dans l’astrologie et d’autres sujets connexes, il existe une croyance selon … »"
 date: 2022-06-01 06:00:01+00:1468
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Je vous donne ma fille"
 menu_title: ""
-description: "Je vous donne ma fille"
+description: "Eloïse, reçu par Elizabeth Mack : « J’ai apprécié faire partie de ce groupe cette semaine. J’ai particulièrement apprécié aider ma fille dans sa progression. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

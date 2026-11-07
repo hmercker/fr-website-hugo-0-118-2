@@ -1,7 +1,7 @@
 ---
 title: "Un roi anglais est maintenant heureux"
 menu_title: ""
-description: "Un roi anglais est maintenant heureux"
+description: "Roi George Ier, reçu par FAB : « Je n'ai jamais vu ni expérimenté cela sur terre, et je n'ai jamais observé de bonheur particulier chez mes compatriotes … »"
 date: 2022-06-01 06:00:01+00:180
 draft: False
 hidden: True

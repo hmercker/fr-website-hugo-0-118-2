@@ -1,7 +1,7 @@
 ---
 title: "Dieu peut voir, entendre et connaître quelles sont les pensées de l’homme"
 menu_title: ""
-description: "Dieu peut voir, entendre et connaître quelles sont les pensées de l’homme"
+description: "St Étienne, reçu par James Padgett : « Je ne veux dire qu’un mot. Au moment de mon martyre, j’ai vu les cieux ouverts et les esprits des justes rendus … »"
 date: 2022-06-01 06:00:01+00:61
 draft: False
 hidden: True

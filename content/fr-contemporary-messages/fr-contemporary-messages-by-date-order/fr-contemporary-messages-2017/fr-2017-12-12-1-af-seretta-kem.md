@@ -1,7 +1,7 @@
 ---
 title: "L'harmonie et l'amour entre vous sont la clé"
 menu_title: ""
-description: "L'harmonie et l'amour entre vous sont la clé"
+description: "Seretta Kem, reçu par Al Fike : « Je souhaite utiliser l'exemple de cet instrument pour vous instruire sur les voies de la médiumnité physique qui est ce … »"
 date: 2022-06-01 06:00:01+00:269
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Nous vous tricotons ensemble d'âme à âme"
 menu_title: ""
-description: "Nous vous tricotons ensemble d'âme à âme"
+description: "Seretta Kem, reçu par Al Fike : « Nous continuons à vous tricoter ensemble d’âme à âme. En persistant dans vos efforts de prière commune, vous ouvrez des … »"
 date: 2022-06-01 06:00:01+00:1138
 draft: False
 hidden: True

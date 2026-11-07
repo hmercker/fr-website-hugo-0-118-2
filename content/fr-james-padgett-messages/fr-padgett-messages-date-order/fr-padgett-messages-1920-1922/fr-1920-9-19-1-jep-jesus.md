@@ -1,7 +1,7 @@
 ---
 title: "Les choses matérielles pour lesquelles les hommes prient sont exaucées par Dieu par l’intermédiaire des esprits"
 menu_title: ""
-description: "Les choses matérielles pour lesquelles les hommes prient sont exaucées par Dieu par l’intermédiaire des esprits"
+description: "Jésus, reçu par James Padgett : « Permettez-moi de dire quelques mots, ce soir, alors que je remarque que vous avez été déçu par le sermon que le … »"
 date: 2022-06-01 06:00:01+00:68
 draft: False
 hidden: True

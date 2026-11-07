@@ -1,7 +1,7 @@
 ---
 title: "Un petit mot d’Hélène Padgett"
 menu_title: ""
-description: "Un petit mot d’Hélène Padgett"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon chéri, tu es fatigué et tu ne dois plus écrire maintenant. Je dirai cependant que les esprits qui … »"
 date: 2022-06-01 06:00:01+00:20
 draft: False
 hidden: True

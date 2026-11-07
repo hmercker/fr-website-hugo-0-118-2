@@ -1,7 +1,7 @@
 ---
 title: "La grand-mère de M. Padgett écrit que la Nouvelle Naissance est le flot de l’Esprit de Dieu dans l’âme"
 menu_title: ""
-description: "La grand-mère de M. Padgett écrit que la Nouvelle Naissance est le flot de l’Esprit de Dieu dans l’âme"
+description: "Anne Rollins, reçu par James Padgett : « Il est le seul mental et esprit qui enseigne à tous les autres esprits, que la vérité est la seule chose qui peut … »"
 date: 2022-06-01 06:00:01+00:10
 draft: False
 hidden: True

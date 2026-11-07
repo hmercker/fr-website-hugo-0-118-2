@@ -1,7 +1,7 @@
 ---
 title: "Décrit son apparence et son âme"
 menu_title: ""
-description: "Décrit son apparence et son âme"
+description: "Orion, reçu par Albert Fike : « Vous parlez de moi et vous m’attirez dans votre cercle. J’ai de grands yeux et un nez court, des lèvres petites mais charnues. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

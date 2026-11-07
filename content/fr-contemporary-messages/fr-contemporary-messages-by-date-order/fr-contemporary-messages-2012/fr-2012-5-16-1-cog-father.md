@@ -1,7 +1,7 @@
 ---
 title: "Je ne t’ai jamais rejeté"
 menu_title: ""
-description: "Je ne t’ai jamais rejeté"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Mon enfant bien-aimé, je ne t’ai jamais rejeté. Je ne t’ai jamais abandonné. »"
 date: 2022-06-01 06:00:01+00:258
 draft: False
 hidden: True

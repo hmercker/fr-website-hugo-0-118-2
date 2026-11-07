@@ -1,7 +1,7 @@
 ---
 title: "Le but est que tu ressentes Mon Amour"
 menu_title: ""
-description: "Le but est que tu ressentes Mon Amour"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Tu as eu l’impression d’avoir vécu un miracle. Hier, un grand changement a eu lieu dans ton état émotionnel. »"
 date: 2022-06-01 06:00:01+00:286
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Soyez une lumière dans le monde"
 menu_title: ""
-description: "Soyez une lumière dans le monde"
+description: "Keea atta Kem, reçu par Albert Fike : « Car lorsque vous êtes capable d’être une lumière dans le monde, vous devenez l’agent de Dieu pour disperser les … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Être vulnérable avec Dieu pour guérir les blessures de l'âme"
 menu_title: ""
-description: "Être vulnérable avec Dieu pour guérir les blessures de l'âme"
+description: "Fleur de Lotus, reçu par Maureen Cardoso : « Je vous rejoins dans votre cercle alors que vous vous ouvrez à la Bénédiction de l’Amour Divin ; en vous … »"
 date: 2022-06-01 06:00:01+00:801
 draft: False
 hidden: True

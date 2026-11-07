@@ -1,7 +1,7 @@
 ---
 title: "Assistance parmi les esprits dans le monde des esprits"
 menu_title: ""
-description: "Assistance parmi les esprits dans le monde des esprits"
+description: "Jésus, reçu par Révérend Dave Lampron : « Aujourd’hui, je souhaite aborder un sujet relatif à la phase de croissance et de développement dont j’ai parlé … »"
 date: 2022-06-01 06:00:01+00:25
 draft: False
 hidden: True

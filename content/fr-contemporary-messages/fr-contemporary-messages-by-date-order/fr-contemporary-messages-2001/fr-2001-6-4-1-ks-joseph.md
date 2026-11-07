@@ -1,7 +1,7 @@
 ---
 title: "Suivre les conseils"
 menu_title: ""
-description: "Suivre les conseils"
+description: "Joseph, reçu par Kathryn Stokes : « J’ai l’impression que l’un de nos esprits gardiens souhaite nous délivrer un message, même si je n’ai pas posé de … »"
 date: 2022-06-01 06:00:01+00:12
 draft: False
 hidden: True

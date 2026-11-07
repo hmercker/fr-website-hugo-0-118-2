@@ -1,7 +1,7 @@
 ---
 title: "De nombreux anges, esprits brillants et amis stellaires sont là pour aider à la transformation du monde"
 menu_title: ""
-description: "De nombreux anges, esprits brillants et amis stellaires sont là pour aider à la transformation du monde"
+description: "Orion, reçu par Al Fike : « Vous êtes ainsi aidés à vous élever dans la lumière, aidés à surmonter ces conditions, situations et expressions … »"
 date: 2023-09-01 06:00:01+00:12
 draft: False
 hidden: True

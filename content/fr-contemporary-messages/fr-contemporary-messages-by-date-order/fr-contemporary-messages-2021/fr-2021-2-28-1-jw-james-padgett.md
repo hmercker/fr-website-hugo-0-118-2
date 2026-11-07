@@ -1,7 +1,7 @@
 ---
 title: "Guide pour la planification du groupe d'étude : Un peu de théâtralité fait la différence"
 menu_title: ""
-description: "Guide pour la planification du groupe d'étude : Un peu de théâtralité fait la différence"
+description: "James Padgett, reçu par Jimbeau Walsh : « J’ai déjà fait plus que quelques suggestions par l’intermédiaire de mon cher frère Al Fike et j’ajouterais ceci … »"
 date: 2022-06-01 06:00:01+00:1424
 draft: False
 hidden: True

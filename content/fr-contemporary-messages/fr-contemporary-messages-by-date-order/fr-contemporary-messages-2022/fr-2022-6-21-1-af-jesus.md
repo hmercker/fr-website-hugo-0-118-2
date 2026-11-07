@@ -1,7 +1,7 @@
 ---
 title: "Leçon 1 : Jésus annonce une nouvelle série de leçons sur les changements terrestres et leur impact sur nous"
 menu_title: ""
-description: "Leçon 1 : Jésus annonce une nouvelle série de leçons sur les changements terrestres et leur impact sur nous"
+description: "Jésus, reçu par Al Fike : « Il y a une grande curiosité sur la façon dont ce que vous appelez les changements terrestres peuvent avoir lieu et ce que cela … »"
 date: 2022-06-01 06:00:01+00:115
 draft: False
 hidden: True

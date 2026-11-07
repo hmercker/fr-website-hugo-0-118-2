@@ -1,7 +1,7 @@
 ---
 title: "Un esprit qui souffre intensément vient vers M. Padgett pour lui demander de l’aider à retrouver son âme perdue"
 menu_title: ""
-description: "Un esprit qui souffre intensément vient vers M. Padgett pour lui demander de l’aider à retrouver son âme perdue"
+description: "Charles G Groveneur, reçu par James Padgett : « Que ne donnerais-je pas pour l’avoir à nouveau, et pouvoir ainsi recevoir l’amour dont vous parlez ? »"
 date: 2022-06-01 06:00:01+00:56
 draft: False
 hidden: True

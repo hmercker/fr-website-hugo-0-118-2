@@ -1,7 +1,7 @@
 ---
 title: "La joie et la foi de Jésus"
 menu_title: ""
-description: "La joie et la foi de Jésus"
+description: "Jésus, reçu par FAB : « Ma relation avec Dieu était si forte qu'elle éclipsait toutes les préoccupations de la nature humaine. »"
 date: 2022-06-01 06:00:01+00:87
 draft: False
 hidden: True

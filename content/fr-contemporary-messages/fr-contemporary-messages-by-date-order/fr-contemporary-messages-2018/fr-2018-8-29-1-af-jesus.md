@@ -1,7 +1,7 @@
 ---
 title: "Jésus, je suis avec vous"
 menu_title: ""
-description: "Jésus, je suis avec vous"
+description: "Jésus, reçu par Al Fike : « Dieu est avec vous, âmes bien-aimées. Suivez-moi jusqu’à l’union avec Dieu et je vous montrerai le chemin. »"
 date: 2022-06-01 06:00:01+00:459
 draft: False
 hidden: True

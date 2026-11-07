@@ -1,7 +1,7 @@
 ---
 title: "Comment marcher sur le Chemin Divin"
 menu_title: ""
-description: "Comment marcher sur le Chemin Divin"
+description: "Marie, reçu par Al Fike : « Ce merveilleux Don qui est donné à chaque âme qui aspire à ce qu’il entre en elle et y réside pour toute l’éternité, ce grand … »"
 date: 2022-06-01 06:00:01+00:199
 draft: False
 hidden: True

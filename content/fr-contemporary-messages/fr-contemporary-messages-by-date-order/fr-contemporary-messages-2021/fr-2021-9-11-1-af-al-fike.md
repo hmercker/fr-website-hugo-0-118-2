@@ -1,7 +1,7 @@
 ---
 title: "Compte rendu d'Al sur son expérience dans la chambre noire"
 menu_title: ""
-description: "Compte rendu d'Al sur son expérience dans la chambre noire"
+description: "Al Fike, reçu par Al Fike : « Après quelques jours d’expériences assez banales, je me suis en quelque sorte rattrapé aujourd’hui. »"
 date: 2022-06-01 06:00:01+00:1636
 draft: False
 hidden: True

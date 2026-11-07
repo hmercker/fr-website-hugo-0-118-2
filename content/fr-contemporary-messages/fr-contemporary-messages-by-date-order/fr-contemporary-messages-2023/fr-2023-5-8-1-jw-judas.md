@@ -1,7 +1,7 @@
 ---
 title: "L'âme est intemporelle"
 menu_title: ""
-description: "L'âme est intemporelle"
+description: "Judas, reçu par Jimbeau Walsh : « J’ai fait comprendre à mon cher frère aujourd’hui que je souhaitais parler du temps et de sa pertinence, ou peut-être … »"
 date: 2023-09-01 06:00:01+00:19
 draft: False
 hidden: True

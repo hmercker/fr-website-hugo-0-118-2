@@ -1,7 +1,7 @@
 ---
 title: "Acceptez et accueillez les changements à venir, alors que Dieu rétablit l’harmonie sur Terre"
 menu_title: ""
-description: "Acceptez et accueillez les changements à venir, alors que Dieu rétablit l’harmonie sur Terre"
+description: "Michael Collier, reçu par Albert Fike : « Je te remercie, chère fille, pour ta prière sage et magnifique. En effet, la Terre change, la vie change, et je … »"
 date: 2026-10-28 06:00:01+00:01
 draft: False
 hidden: True

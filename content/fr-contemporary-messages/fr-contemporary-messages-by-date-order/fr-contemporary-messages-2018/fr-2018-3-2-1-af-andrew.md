@@ -1,7 +1,7 @@
 ---
 title: "Laissez l'âme s'exprimer"
 menu_title: ""
-description: "Laissez l'âme s'exprimer"
+description: "André, reçu par Al Fike : « Tout d’abord, vous devez reconnaître que toute guidance ou communication des anges que vous pouvez recevoir, tout ce qui … »"
 date: 2022-06-01 06:00:01+00:336
 draft: False
 hidden: True

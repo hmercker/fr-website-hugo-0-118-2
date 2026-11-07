@@ -1,7 +1,7 @@
 ---
 title: "Chaque âme ici présente porte la Lumière de l’Amour de Dieu : Jésus inaugure la retraite de Johnson City"
 menu_title: ""
-description: "Chaque âme ici présente porte la Lumière de l’Amour de Dieu : Jésus inaugure la retraite de Johnson City"
+description: "Jésus, reçu par Albert Fike : « Je vous exhorte à vous concentrer sur vos prières et sur vos moments partagés, à échanger, à vous soutenir et à vous aimer … »"
 date: 2026-09-30 06:00:01+00:01
 draft: False
 hidden: True

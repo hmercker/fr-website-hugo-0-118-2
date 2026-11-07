@@ -1,7 +1,7 @@
 ---
 title: "La situation politique en 26 AD – Publius Pontius Pilatus"
 menu_title: ""
-description: "La situation politique en 26 AD – Publius Pontius Pilatus"
+description: "Judas, reçu par H : « Tu es déjà fatigué de ces « thèmes politiques du premier siècle. » Mais je veux clarifier les conditions régnant dans l’Empire … »"
 date: 2022-06-01 06:00:01+00:43
 draft: False
 hidden: True

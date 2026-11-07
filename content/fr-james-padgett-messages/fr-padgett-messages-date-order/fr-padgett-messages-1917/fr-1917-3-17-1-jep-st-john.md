@@ -1,7 +1,7 @@
 ---
 title: "Jean discute de l’égalité des sexes"
 menu_title: ""
-description: "Jean discute de l’égalité des sexes"
+description: "St Jean, reçu par James Padgett : « J’ai écouté votre conversation de ce soir et j’ai été intéressé par certaines choses qui ont été dites quant à … »"
 date: 2022-06-01 06:00:01+00:89
 draft: False
 hidden: True

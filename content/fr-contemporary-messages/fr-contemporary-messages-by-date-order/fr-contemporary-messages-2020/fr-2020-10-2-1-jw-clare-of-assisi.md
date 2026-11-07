@@ -1,7 +1,7 @@
 ---
 title: "Ce n'est pas compliqué"
 menu_title: ""
-description: "Ce n'est pas compliqué"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Je souhaite que vous considériez ce sentiment d’Amour, la Présence du Créateur, et cette paix qui vient dans … »"
 date: 2022-06-01 06:00:01+00:1263
 draft: False
 hidden: True

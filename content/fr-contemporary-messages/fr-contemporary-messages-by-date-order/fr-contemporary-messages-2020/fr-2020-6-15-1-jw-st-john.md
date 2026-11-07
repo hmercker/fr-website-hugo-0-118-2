@@ -1,7 +1,7 @@
 ---
 title: "Dieu est Amour"
 menu_title: ""
-description: "Dieu est Amour"
+description: "St Jean, reçu par Jimbeau Walsh : « Ce cadeau du Père Céleste dont le maître nous a donné la Vérité alors qu’il était sur terre, il continue à l’enseigner … »"
 date: 2022-06-01 06:00:01+00:1139
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Martin Luther, le réformateur, est très soucieux que les Vérités, qu’il connaît maintenant, soient connues par ses adeptes"
 menu_title: ""
-description: "Martin Luther, le réformateur, est très soucieux que les Vérités, qu’il connaît maintenant, soient connues par ses adeptes"
+description: "Martin Luther, reçu par James Padgett : « Martin Luther, l’ancien Moine et Réformateur. Je désire continuer mon message, si cela vous est agréable. »"
 date: 2022-06-01 06:00:01+00:232
 draft: False
 hidden: True

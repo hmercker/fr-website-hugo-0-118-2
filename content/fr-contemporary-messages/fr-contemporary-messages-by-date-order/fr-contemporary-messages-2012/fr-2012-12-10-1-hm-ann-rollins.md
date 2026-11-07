@@ -1,7 +1,7 @@
 ---
 title: "Sur la Foi"
 menu_title: ""
-description: "Sur la Foi"
+description: "Anne Rollins, reçu par Helge Mercker : « Ma chère, très chère sœur, tu es en effet aimée, laisse couler tes larmes, les larmes de l’amour, car tu nous … »"
 date: 2022-06-01 06:00:01+00:304
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Son enseignement et expérience lors de vie terrestre. N’a pas obtenu l’Amour Divin avant la venue de Jésus à la terre"
 menu_title: ""
-description: "Son enseignement et expérience lors de vie terrestre. N’a pas obtenu l’Amour Divin avant la venue de Jésus à la terre"
+description: "Samuel, reçu par James Padgett : « Samuel, le prophète de Dieu de l’Ancien Testament. »"
 date: 2022-06-01 06:00:01+00:149
 draft: False
 hidden: True

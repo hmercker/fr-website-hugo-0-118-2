@@ -1,7 +1,7 @@
 ---
 title: "Keea-atta Kem se présente - Cercle de prière en ligne"
 menu_title: ""
-description: "Keea-atta Kem se présente - Cercle de prière en ligne"
+description: "Keea Atta Kem, reçu par Al Fike : « Je souhaite la bienvenue à chacune d’entre vous, âmes bien-aimées, dans ce cercle de prière et d’amour. »"
 date: 2022-06-01 06:00:01+00:526
 draft: False
 hidden: True

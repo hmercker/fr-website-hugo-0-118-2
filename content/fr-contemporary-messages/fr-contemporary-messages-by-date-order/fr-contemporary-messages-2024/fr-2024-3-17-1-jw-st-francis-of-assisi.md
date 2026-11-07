@@ -1,7 +1,7 @@
 ---
 title: "Nourrir d'amour les âmes affamées"
 menu_title: ""
-description: "Nourrir d'amour les âmes affamées"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Je remercie mon frère, mon frère aîné, Jean, pour son beau message et pour ce privilège de m’adresser à … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

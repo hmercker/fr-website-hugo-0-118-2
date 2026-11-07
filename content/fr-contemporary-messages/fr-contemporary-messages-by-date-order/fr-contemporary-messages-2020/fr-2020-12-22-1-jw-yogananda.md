@@ -1,7 +1,7 @@
 ---
 title: "Célébration de la naissance de Jésus"
 menu_title: ""
-description: "Célébration de la naissance de Jésus"
+description: "Yogananda, reçu par Jimbeau Walsh : « Ce grand cadeau, ce cadeau de Noël en présence de Dieu. Ce chemin n’est pas compliqué. »"
 date: 2022-06-01 06:00:01+00:1353
 draft: False
 hidden: True

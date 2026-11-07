@@ -1,7 +1,7 @@
 ---
 title: "Apportez la lumière au monde"
 menu_title: ""
-description: "Apportez la lumière au monde"
+description: "Jésus, reçu par Jesper Sorensen : « Je dis que c’est un cercle magnifique. Vous êtes tous des âmes précieuses et vous sentez la lumière et les liens grandir. »"
 date: 2022-06-01 06:00:01+00:467
 draft: False
 hidden: True

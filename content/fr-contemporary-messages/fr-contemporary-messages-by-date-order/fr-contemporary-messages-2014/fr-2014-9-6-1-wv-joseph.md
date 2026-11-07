@@ -1,7 +1,7 @@
 ---
 title: "Où sont mes propres limites ?"
 menu_title: ""
-description: "Où sont mes propres limites ?"
+description: "Joseph, reçu par WV : « C’est un plaisir d’être à nouveau parmi vous. Des choses comme : « Où sont mes propres limites ? », « Comment prendre les bonnes … »"
 date: 2022-06-01 06:00:01+00:107
 draft: False
 hidden: True

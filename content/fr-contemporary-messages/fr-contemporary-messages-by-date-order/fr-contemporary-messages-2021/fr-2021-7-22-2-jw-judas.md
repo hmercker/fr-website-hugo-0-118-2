@@ -1,7 +1,7 @@
 ---
 title: "La prière est la réponse à tous les problèmes"
 menu_title: ""
-description: "La prière est la réponse à tous les problèmes"
+description: "Judas, reçu par Jimbeau Walsh : « Car vous avez tous entendu les termes : « La malédiction de Judas » ou « Prêtre de Judas ». »"
 date: 2022-06-01 06:00:01+00:1579
 draft: False
 hidden: True

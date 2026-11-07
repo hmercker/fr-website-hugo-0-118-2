@@ -1,7 +1,7 @@
 ---
 title: "Scot, un vieil ami demande de l’aide"
 menu_title: ""
-description: "Scot, un vieil ami demande de l’aide"
+description: "Scott, reçu par James Padgett : « Je sais maintenant ce que signifie la mort et comment nous sommes punis pour les actes de la vie terrestre, et je subis … »"
 date: 2022-06-01 06:00:01+00:49
 draft: False
 hidden: True

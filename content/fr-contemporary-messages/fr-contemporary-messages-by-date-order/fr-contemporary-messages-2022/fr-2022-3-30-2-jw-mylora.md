@@ -1,7 +1,7 @@
 ---
 title: "Bénédictions"
 menu_title: ""
-description: "Bénédictions"
+description: "Mylora, reçu par Jimbeau Walsh : « Le monde a besoin de lumières comme vous. Je vous encourage à être une lumière dans le monde, à être un véritable canal … »"
 date: 2022-06-01 06:00:01+00:58
 draft: False
 hidden: True

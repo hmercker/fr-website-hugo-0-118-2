@@ -1,7 +1,7 @@
 ---
 title: "Encourage l'intégration de la retraite"
 menu_title: ""
-description: "Encourage l'intégration de la retraite"
+description: "Seretta Kem, reçu par Albert Fike : « Maintenant que vous êtes installés dans vos routines quotidiennes et que vous intégrez et contemplez les expériences … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

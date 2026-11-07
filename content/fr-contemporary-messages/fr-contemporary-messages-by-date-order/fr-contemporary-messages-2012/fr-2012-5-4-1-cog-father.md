@@ -1,7 +1,7 @@
 ---
 title: "Viens t’asseoir avec Moi"
 menu_title: ""
-description: "Viens t’asseoir avec Moi"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Laisse-moi te prendre dans Mes bras. Tu es fatigué et épuisé et pourtant tu viens t’asseoir avec Moi. »"
 date: 2022-06-01 06:00:01+00:251
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Les Samaritains, troisième partie"
 menu_title: ""
-description: "Les Samaritains, troisième partie"
+description: "Judas, reçu par H : « Maintenant, mon cher frère, comme je te l’ai promis, je vais t’expliquer, en quelques mots, la religion des Samaritains ou « … »"
 date: 2022-06-01 06:00:01+00:63
 draft: False
 hidden: True

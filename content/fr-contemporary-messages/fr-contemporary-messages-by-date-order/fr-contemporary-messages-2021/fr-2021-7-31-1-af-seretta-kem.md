@@ -1,7 +1,7 @@
 ---
 title: "Satisfaits de nos progrès"
 menu_title: ""
-description: "Satisfaits de nos progrès"
+description: "Seretta Kem, reçu par Al Fike : « Il est bon de voir que la paix règne parmi les enfants. Quel cadeau c’est pour nous, dans le Royaume Céleste, de … »"
 date: 2022-06-01 06:00:01+00:1586
 draft: False
 hidden: True

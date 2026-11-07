@@ -1,7 +1,7 @@
 ---
 title: "Une bénédiction apaisante pour soulager la douleur"
 menu_title: ""
-description: "Une bénédiction apaisante pour soulager la douleur"
+description: "André, reçu par Albert Fike : « Le monde s’ouvre à vous tous, car le monde réclame la lumière, le réconfort, l’amour, la guérison, la bénédiction … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La résurrection qui est commune à chacun, qu’il soit saint ou pécheur"
 menu_title: ""
-description: "La résurrection qui est commune à chacun, qu’il soit saint ou pécheur"
+description: "Paul de Tarse, reçu par James Padgett : « Je vous ai déjà écrit sur mes écrits présumés tels qu’ils sont contenus dans la Bible et, que, comme je l’ai dit … »"
 date: 2022-06-01 06:00:01+00:128
 draft: False
 hidden: True

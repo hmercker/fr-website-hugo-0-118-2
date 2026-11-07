@@ -1,7 +1,7 @@
 ---
 title: "Vous ne pouvez pas vous tromper avec l'Amour Divin"
 menu_title: ""
-description: "Vous ne pouvez pas vous tromper avec l'Amour Divin"
+description: "Inconnu, reçu par Kathryn Stokes : « Lorsque vous vous préparez à recevoir un message, nous sommes plus nombreux à nous rassembler pour projeter l'amour … »"
 date: 2022-06-01 06:00:01+00:42
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Lutter contre les défis de ce monde"
 menu_title: ""
-description: "Lutter contre les défis de ce monde"
+description: "André, reçu par Al Fike : « Beaucoup d’entre vous luttent avec les conditions de ce monde. Beaucoup d’entre vous se sentent seuls, et se voient comme … »"
 date: 2022-06-01 06:00:01+00:86
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La Création Unique des Archanges et le Rôle des Anges Célestes"
 menu_title: ""
-description: "La Création Unique des Archanges et le Rôle des Anges Célestes"
+description: "Shelayis, reçu par Albert Fike : « Vous ne me connaissez pas, mais je vous connais. Je me sens très proche de vous. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

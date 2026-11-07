@@ -1,7 +1,7 @@
 ---
 title: "Le Voile"
 menu_title: ""
-description: "Le Voile"
+description: "Jean Hugues, reçu par Elizabeth Mack : « Je souhaite vous parler du voile et de la séparation qu'il établit entre ceux d'entre vous qui sont incarnés et … »"
 date: 2026-01-31 16:00:01+00:01
 draft: False
 hidden: True

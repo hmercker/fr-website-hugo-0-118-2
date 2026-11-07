@@ -1,7 +1,7 @@
 ---
 title: "Saint François dans le monde des esprits"
 menu_title: ""
-description: "Saint François dans le monde des esprits"
+description: "Joseph (AT), reçu par FAB : « Nous passons maintenant du génie créateur à la sainteté. Dans ce message, je vais parler de Saint François d’Assise. »"
 date: 2022-06-01 06:00:01+00:100
 draft: False
 hidden: True

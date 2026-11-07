@@ -1,7 +1,7 @@
 ---
 title: "L'Amour de Dieu au sein de vos âmes émane de vous et apporte aux autres la lumière et la paix"
 menu_title: ""
-description: "L'Amour de Dieu au sein de vos âmes émane de vous et apporte aux autres la lumière et la paix"
+description: "Marie Madeleine : « Cela me fait plaisir de vous voir rassemblés et de savoir que vous avez le désir de servir Dieu. »"
 date: 2022-06-01 06:00:01+00:121
 draft: False
 hidden: True

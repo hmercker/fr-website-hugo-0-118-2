@@ -1,7 +1,7 @@
 ---
 title: "Comment unifier des croyances diverses ?"
 menu_title: ""
-description: "Comment unifier des croyances diverses ?"
+description: "Augustin, reçu par Al Fike : « Cette âme chère et bien-aimée est un membre du Royaume Céleste et un merveilleux enseignant et guérisseur et nous sommes … »"
 date: 2022-06-01 06:00:01+00:613
 draft: False
 hidden: True

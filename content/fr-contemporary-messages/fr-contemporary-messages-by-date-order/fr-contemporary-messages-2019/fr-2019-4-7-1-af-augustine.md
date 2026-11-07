@@ -1,7 +1,7 @@
 ---
 title: "Se laisser utiliser par Dieu"
 menu_title: ""
-description: "Se laisser utiliser par Dieu"
+description: "Augustin, reçu par Al Fike : « Comme l'influence des Anges Célestes vous affecte tous, n'est-ce pas ? Il y a une touche du Divin qui s'infiltre sur la … »"
 date: 2022-06-01 06:00:01+00:698
 draft: False
 hidden: True

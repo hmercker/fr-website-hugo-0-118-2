@@ -1,7 +1,7 @@
 ---
 title: "Permettre l'Amour "
 menu_title: ""
-description: "Permettre l'Amour "
+description: "Judas, reçu par Jimbeau Walsh : « Une réalité que vous pouvez voir est que même ce cher frère n’a pas tout compris à cent pour cent comme vous pouvez le … »"
 date: 2022-06-01 06:00:01+00:1132
 draft: False
 hidden: True

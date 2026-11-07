@@ -1,7 +1,7 @@
 ---
 title: "Vous aspirez à être en communion avec Dieu"
 menu_title: ""
-description: "Vous aspirez à être en communion avec Dieu"
+description: "Seretta Kem, reçu par Al Fike : « Tout comme vos âmes ont reçu l'Amour, vous avez reçu ces bénédictions, et nous vous avons servis. »"
 date: 2026-10-12 06:00:01+00:84
 draft: False
 hidden: True

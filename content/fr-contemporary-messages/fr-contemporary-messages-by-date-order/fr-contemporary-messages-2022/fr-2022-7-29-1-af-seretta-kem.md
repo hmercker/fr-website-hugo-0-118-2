@@ -1,7 +1,7 @@
 ---
 title: "Guérir avec les couleurs de l'arc-en-ciel"
 menu_title: ""
-description: "Guérir avec les couleurs de l'arc-en-ciel"
+description: "Seretta Kem, reçu par Al Fike : « Tant de mots, tant de spéculations, et ainsi, en tant qu’êtres humains, vous avez un grand désir de catégoriser et de … »"
 date: 2022-06-01 06:00:01+00:145
 draft: False
 hidden: True

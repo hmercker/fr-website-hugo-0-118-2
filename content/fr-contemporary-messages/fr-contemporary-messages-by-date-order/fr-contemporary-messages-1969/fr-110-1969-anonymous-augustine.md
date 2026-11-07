@@ -1,7 +1,7 @@
 ---
 title: "Fais Ton chemin, Seigneur"
 menu_title: ""
-description: "Fais Ton chemin, Seigneur"
+description: "Augustin : « Une fois de plus, nous nous sommes réunis dans cette petite salle de classe, et c'est si merveilleux de vous voir tous si heureux et si bien. »"
 date: 2022-06-01 06:00:01+00:75
 draft: False
 hidden: True

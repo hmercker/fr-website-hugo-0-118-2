@@ -1,7 +1,7 @@
 ---
 title: "L'amour peut guérir la douleur de l'humanité"
 menu_title: ""
-description: "L'amour peut guérir la douleur de l'humanité"
+description: "Sigmund Freud, reçu par Al Fike : « Oh combien je me suis trompé dans mes estimations de l'humanité. Comment j'ai essayé de disséquer les personnalités … »"
 date: 2022-06-01 06:00:01+00:219
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Qu'est-ce qui vous attend dans le monde des esprits !"
 menu_title: ""
-description: "Qu'est-ce qui vous attend dans le monde des esprits !"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Mes très chers, vous êtes une église existant dans une réalité à la fois sur le plan terrestre et au-dessus. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

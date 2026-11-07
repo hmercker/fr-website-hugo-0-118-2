@@ -1,7 +1,7 @@
 ---
 title: "La situation politique en 26 AD – Lucius Aelius Sejanus"
 menu_title: ""
-description: "La situation politique en 26 AD – Lucius Aelius Sejanus"
+description: "Judas, reçu par H : « Pendant le règne de Tibère, quelque chose d’unique s’est produit : Deux personnes ont occupé, conjointement, pendant un an, la … »"
 date: 2022-06-01 06:00:01+00:42
 draft: False
 hidden: True

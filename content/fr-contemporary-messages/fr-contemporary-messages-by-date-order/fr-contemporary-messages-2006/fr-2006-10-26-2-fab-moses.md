@@ -1,7 +1,7 @@
 ---
 title: "La mort de Moïse et son expérience de l’au-delà"
 menu_title: ""
-description: "La mort de Moïse et son expérience de l’au-delà"
+description: "Moïse, reçu par FAB : « Je savais, comme les gens le savent généralement, que mon heure était venue, et j’ai choisi de monter seul sur une montagne pour … »"
 date: 2022-06-01 06:00:01+00:64
 draft: False
 hidden: True

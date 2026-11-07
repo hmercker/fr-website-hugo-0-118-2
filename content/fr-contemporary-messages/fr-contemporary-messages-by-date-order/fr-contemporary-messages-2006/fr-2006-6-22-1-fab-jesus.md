@@ -1,7 +1,7 @@
 ---
 title: "Jésus commente les messages de James Padgett"
 menu_title: ""
-description: "Jésus commente les messages de James Padgett"
+description: "Jésus, reçu par FAB : « Vous vous interrogez sur le langage strident des messages de James Padgett. Eh bien, notre but avec M. »"
 date: 2022-06-01 06:00:01+00:26
 draft: False
 hidden: True

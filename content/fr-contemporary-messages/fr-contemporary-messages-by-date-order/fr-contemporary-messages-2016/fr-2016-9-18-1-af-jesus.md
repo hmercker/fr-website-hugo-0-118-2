@@ -1,7 +1,7 @@
 ---
 title: "Je vous conduirai sur le chemin"
 menu_title: ""
-description: "Je vous conduirai sur le chemin"
+description: "Jésus, reçu par Al Fike : « Les vents du changement soufflent dans vos âmes, alors que l’Amour du Père coule à l’intérieur, il doit y avoir un changement … »"
 date: 2022-06-01 06:00:01+00:252
 draft: False
 hidden: True

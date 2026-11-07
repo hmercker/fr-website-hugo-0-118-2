@@ -1,7 +1,7 @@
 ---
 title: "Vos prières apportent une plus grande lumière au monde, Marie ajoute ses prières"
 menu_title: ""
-description: "Vos prières apportent une plus grande lumière au monde, Marie ajoute ses prières"
+description: "Jésus et Marie, reçu par Albert Fike : « Je vous exhorte tous à sonder vos cœurs, à aller au plus profond de vous-même et à rechercher les motivations et … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Q&R : Prière et vérité"
 menu_title: ""
-description: "Q&R : Prière et vérité"
+description: "Confucius, reçu par Al Fike : « Vous souhaitez savoir comment les anges du ciel prient ! Vous ne pourriez pas comprendre ce qu’est notre expérience de la … »"
 date: 2022-06-01 06:00:01+00:777
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes reconnus par Dieu"
 menu_title: ""
-description: "Vous êtes reconnus par Dieu"
+description: "Anne, reçu par Elizabeth Mack : « Vous êtes reconnues par Dieu. Vous possédez peut-être cet Amour et le manifestez de manières que beaucoup ignorent, mais … »"
 date: 2026-01-30 16:00:01+00:01
 draft: False
 hidden: True

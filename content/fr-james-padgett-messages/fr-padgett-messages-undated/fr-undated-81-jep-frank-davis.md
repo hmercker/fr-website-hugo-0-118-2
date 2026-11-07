@@ -1,7 +1,7 @@
 ---
 title: "Le copain d’enfance de M. Padgett exprime sa gratitude pour l’aide reçue"
 menu_title: ""
-description: "Le copain d’enfance de M. Padgett exprime sa gratitude pour l’aide reçue"
+description: "Frank Davis, reçu par James Padgett : « J’ai agi selon tes conseils et j’ai prié le Père pour Son Amour et, après un long moment, la foi m’est venue, cet … »"
 date: 2022-06-01 06:00:01+00:155
 draft: False
 hidden: True

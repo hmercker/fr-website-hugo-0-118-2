@@ -1,7 +1,7 @@
 ---
 title: "Les Anges soutiennent notre choix pour la Voix Directe"
 menu_title: ""
-description: "Les Anges soutiennent notre choix pour la Voix Directe"
+description: "Seretta Kem, reçu par Al Fike : « Nous avons attendu que vous arriviez à ce point de compréhension et de connaissance de la profondeur de l’engagement … »"
 date: 2022-06-01 06:00:01+00:29
 draft: False
 hidden: True

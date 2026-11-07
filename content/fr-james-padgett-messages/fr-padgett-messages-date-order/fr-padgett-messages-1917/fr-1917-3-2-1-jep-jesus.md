@@ -1,7 +1,7 @@
 ---
 title: "L’âme – ce qu’elle est et ce qu’elle n’est pas"
 menu_title: ""
-description: "L’âme – ce qu’elle est et ce qu’elle n’est pas"
+description: "Jésus, reçu par James Padgett : « Eh bien, le sujet est d’une importance immense et difficile à expliquer, parce qu’il n’y a rien sur la terre, connu de … »"
 date: 2022-06-01 06:00:01+00:72
 draft: False
 hidden: True

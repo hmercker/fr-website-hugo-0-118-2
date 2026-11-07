@@ -1,7 +1,7 @@
 ---
 title: "L’architecte de la Grande Pyramide en Égypte"
 menu_title: ""
-description: "L’architecte de la Grande Pyramide en Égypte"
+description: "Anaxylabis, reçu par James Padgett : « Laissez-moi vous parler de la grande pyramide de Gizeh. Je veux le faire en détail, car j’en ai été le concepteur … »"
 date: 2022-06-01 06:00:01+00:159
 draft: False
 hidden: True

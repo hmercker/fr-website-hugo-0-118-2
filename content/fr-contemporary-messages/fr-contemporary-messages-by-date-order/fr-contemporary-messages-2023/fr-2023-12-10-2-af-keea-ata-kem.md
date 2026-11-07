@@ -1,7 +1,7 @@
 ---
 title: "Avec les bénédictions de Jésus. Encourage les expressions de nos âmes"
 menu_title: ""
-description: "Avec les bénédictions de Jésus. Encourage les expressions de nos âmes"
+description: "Keea Atta Kem, reçu par Albert Fike : « À de nombreuses reprises, j’ai été proche. Aujourd’hui, je souhaite parler de la vitalité de l’âme. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

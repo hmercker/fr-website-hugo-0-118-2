@@ -1,7 +1,7 @@
 ---
 title: "Retraite spirituelle - Hawaii"
 menu_title: ""
-description: "Retraite spirituelle - Hawaii"
+description: "Sam, reçu par FAB : « Au fur et à mesure que votre voyage à Hawaï se poursuivra, vous comprendrez mieux comment nous fonctionnons. »"
 date: 2022-06-01 06:00:01+00:21
 draft: False
 hidden: True

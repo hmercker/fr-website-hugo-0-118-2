@@ -1,7 +1,7 @@
 ---
 title: "De petits choix peuvent apporter de grands changements"
 menu_title: ""
-description: "De petits choix peuvent apporter de grands changements"
+description: "Orion, reçu par Albert Fike : « Que les bénédictions de l'Amour du Père continuent d'affluer dans vos âmes, car elles sont la source de grands changements … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

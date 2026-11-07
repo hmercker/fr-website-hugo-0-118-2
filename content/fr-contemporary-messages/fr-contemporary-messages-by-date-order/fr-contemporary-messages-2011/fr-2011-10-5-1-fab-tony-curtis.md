@@ -1,7 +1,7 @@
 ---
 title: "Le point de vue d’une star de cinéma dans le monde des esprits"
 menu_title: ""
-description: "Le point de vue d’une star de cinéma dans le monde des esprits"
+description: "Tony Curtis, reçu par FAB : « Ce monde des esprits en a certainement fini avec la confusion entre Tony Curtis et Bernie Schwartz [son vrai nom]. »"
 date: 2022-06-01 06:00:01+00:200
 draft: False
 hidden: True

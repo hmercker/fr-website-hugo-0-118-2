@@ -1,7 +1,7 @@
 ---
 title: "Avancez avec Volonté et Amour dans vos missions"
 menu_title: ""
-description: "Avancez avec Volonté et Amour dans vos missions"
+description: "Jean le Bien Aimé, reçu par Elizabeth Mack : « Nous, les anges Célestes, venons en masse aujourd'hui pour vous apporter les bénédictions que vous pouvez … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

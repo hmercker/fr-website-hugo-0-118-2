@@ -1,7 +1,7 @@
 ---
 title: "La famille Kennedy"
 menu_title: ""
-description: "La famille Kennedy"
+description: "Robert Kennedy, reçu par FAB : « Il est évident, pour quiconque connaît ma vie, que j'ai été dominé par mon père et mes frères, et cela a rendu … »"
 date: 2022-06-01 06:00:01+00:93
 draft: False
 hidden: True

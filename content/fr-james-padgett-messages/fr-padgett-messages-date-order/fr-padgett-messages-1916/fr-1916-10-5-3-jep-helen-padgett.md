@@ -1,7 +1,7 @@
 ---
 title: "Hélène Padgett confirme que Luc a écrit"
 menu_title: ""
-description: "Hélène Padgett confirme que Luc a écrit"
+description: "Hélène Padgett, reçu par James Padgett : « Je vois que tu as douté de l’identité du dernier auteur en raison de son annonce d’un fait aussi important … »"
 date: 2022-06-01 06:00:01+00:289
 draft: False
 hidden: True

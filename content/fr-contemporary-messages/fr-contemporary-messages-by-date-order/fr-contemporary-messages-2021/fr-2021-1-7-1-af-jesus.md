@@ -1,7 +1,7 @@
 ---
 title: "Leçon 15 : Le pouvoir de l’amour"
 menu_title: ""
-description: "Leçon 15 : Le pouvoir de l’amour"
+description: "Jésus, reçu par Al Fike : « Ma prière est que vos âmes s’éveillent à ces vérités, que vous en veniez à reconnaître de cet endroit, au plus profond de … »"
 date: 2022-06-01 06:00:01+00:1369
 draft: False
 hidden: True

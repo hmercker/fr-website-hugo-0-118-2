@@ -1,7 +1,7 @@
 ---
 title: "Armes différentes - 2"
 menu_title: ""
-description: "Armes différentes - 2"
+description: "Jésus, reçu par FAB : « Permets-moi de développer ma canalisation \"Armes Différentes\" du 13 Mai 2010. Bien entendu, le contrôle politique et militaire est … »"
 date: 2022-06-01 06:00:01+00:134
 draft: False
 hidden: True

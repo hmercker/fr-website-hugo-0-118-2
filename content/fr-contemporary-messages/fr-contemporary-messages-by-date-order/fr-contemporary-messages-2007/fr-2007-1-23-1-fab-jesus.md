@@ -1,7 +1,7 @@
 ---
 title: "L'Amérique et la vérité spirituelle"
 menu_title: ""
-description: "L'Amérique et la vérité spirituelle"
+description: "Jésus, reçu par FAB : « Et pourtant, n'oubliez pas qu'elle a donné au monde le concept et l'idée de la liberté comme forme de gouvernement. »"
 date: 2022-06-01 06:00:01+00:98
 draft: False
 hidden: True

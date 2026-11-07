@@ -1,7 +1,7 @@
 ---
 title: "Reconnaissez vos dons pour permettre à Dieu de travailler à travers vous"
 menu_title: ""
-description: "Reconnaissez vos dons pour permettre à Dieu de travailler à travers vous"
+description: "St Matthieu, reçu par Al Fike : « Alors que vous étiez assis en cercle dans ce Cercle de Lumière, nous avons été diligents dans nos efforts pour vous … »"
 date: 2022-06-01 06:00:01+00:948
 draft: False
 hidden: True

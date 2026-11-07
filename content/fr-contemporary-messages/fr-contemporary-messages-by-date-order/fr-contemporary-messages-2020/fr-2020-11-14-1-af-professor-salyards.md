@@ -1,7 +1,7 @@
 ---
 title: "Célébration du progrès pour l'Université de l'âme"
 menu_title: ""
-description: "Célébration du progrès pour l'Université de l'âme"
+description: "Professeur Salyards, reçu par Al Fike : « Quelle belle leçon que de voir comment Dieu rassemblera les âmes individuelles pour créer quelque chose de … »"
 date: 2022-06-01 06:00:01+00:1314
 draft: False
 hidden: True

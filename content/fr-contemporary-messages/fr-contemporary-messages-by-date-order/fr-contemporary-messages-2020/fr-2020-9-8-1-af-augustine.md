@@ -1,7 +1,7 @@
 ---
 title: "Discernement de votre âme"
 menu_title: ""
-description: "Discernement de votre âme"
+description: "Augustin, reçu par Al Fike : « Le discernement de l’âme est une faculté importante à exercer dans vos vies alors que vous commencez à grandir dans vos … »"
 date: 2022-06-01 06:00:01+00:1247
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Se présente à Pierre et Claire ainsi que son objectif sur Terre, questions et réponses"
 menu_title: ""
-description: "Se présente à Pierre et Claire ainsi que son objectif sur Terre, questions et réponses"
+description: "Orion, reçu par Albert Fike : « Je serai bref parce que notre cher et bien-aimé ami Matthieu a dit beaucoup de choses sur lequelles nous devons méditer. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

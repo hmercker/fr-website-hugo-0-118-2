@@ -1,7 +1,7 @@
 ---
 title: "Armes différentes"
 menu_title: ""
-description: "Armes différentes"
+description: "Jésus, reçu par FAB : « Ce que vous et vos compagnons mortels devez comprendre, c'est que les armes que nous utilisons sont entièrement différentes de … »"
 date: 2022-06-01 06:00:01+00:126
 draft: False
 hidden: True

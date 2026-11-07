@@ -1,7 +1,7 @@
 ---
 title: "Désire l’harmonie, la lumière, l’amour et la joie pour tous dans son pays : Guernesey"
 menu_title: ""
-description: "Désire l’harmonie, la lumière, l’amour et la joie pour tous dans son pays : Guernesey"
+description: "Reine Victoria, reçu par Al Fike : « Je fus autrefois la reine d’Angleterre. Moi aussi, j’ai grand intérêt pour ce pays et le monde, pour voir que tous … »"
 date: 2022-06-01 06:00:01+00:93
 draft: False
 hidden: True

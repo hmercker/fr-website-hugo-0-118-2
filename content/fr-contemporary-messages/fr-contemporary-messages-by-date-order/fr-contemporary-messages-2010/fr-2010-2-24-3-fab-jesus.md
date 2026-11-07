@@ -1,7 +1,7 @@
 ---
 title: "Sur l'abondance matérielle - 5"
 menu_title: ""
-description: "Sur l'abondance matérielle - 5"
+description: "Jésus, reçu par FAB : « Dimanche dernier, vous avez entendu un sermon de Sheila Gautreaux-Lee au temple Unity. Elle a dit que l'univers est infiniment … »"
 date: 2022-06-01 06:00:01+00:119
 draft: False
 hidden: True

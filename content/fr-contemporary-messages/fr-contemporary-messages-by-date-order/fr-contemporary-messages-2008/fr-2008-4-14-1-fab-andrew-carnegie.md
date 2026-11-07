@@ -1,7 +1,7 @@
 ---
 title: "La souffrance d'un industriel"
 menu_title: ""
-description: "La souffrance d'un industriel"
+description: "Andrew Carnegie, reçu par FAB : « Mais cela n'a pas pu effacer les souffrances qui ont résulté de mes activités, qui ne m'ont apporté que du chagrin. »"
 date: 2022-06-01 06:00:01+00:47
 draft: False
 hidden: True

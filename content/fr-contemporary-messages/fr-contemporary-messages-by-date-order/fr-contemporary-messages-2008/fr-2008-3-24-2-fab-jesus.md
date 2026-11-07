@@ -1,7 +1,7 @@
 ---
 title: "La sagesse ancienne et la sagesse moderne sont toutes deux nécessaires"
 menu_title: ""
-description: "La sagesse ancienne et la sagesse moderne sont toutes deux nécessaires"
+description: "Jésus, reçu par FAB : « Il est vrai que l'humanité a besoin de réactiver ses anciennes traditions de moralité et de spiritualité là où elles sont vraies … »"
 date: 2022-06-01 06:00:01+00:44
 draft: False
 hidden: True

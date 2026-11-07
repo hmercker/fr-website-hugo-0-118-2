@@ -1,7 +1,7 @@
 ---
 title: "L'Amour de Dieu coule à travers vous pour le monde entier"
 menu_title: ""
-description: "L'Amour de Dieu coule à travers vous pour le monde entier"
+description: "St Jean : « Vous avez lu mes évangiles de l'amour et j'ai beaucoup parlé de ce sujet. Car l'amour est la réponse à tous les problèmes de la Terre et aussi … »"
 date: 2022-06-01 06:00:01+00:08
 draft: False
 hidden: True

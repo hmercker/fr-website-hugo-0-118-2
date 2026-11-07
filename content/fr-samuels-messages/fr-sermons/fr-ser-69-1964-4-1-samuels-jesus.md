@@ -1,7 +1,7 @@
 ---
 title: "69ème Sermon – Le Troisième Isaïe définit son style d’après celui du Second Isaïe"
 menu_title: ""
-description: "69ème Sermon – Le Troisième Isaïe définit son style d’après celui du Second Isaïe"
+description: "Jésus, reçu par Dr Samuels : « La marche vers Jérusalem, dans les jours du Deuxième Isaïe, ne s’est pas déroulée comme le prophète l’aurait voulu : une … »"
 date: 2022-06-01 06:00:01+00:122
 draft: False
 hidden: True

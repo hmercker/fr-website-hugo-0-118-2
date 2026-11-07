@@ -1,7 +1,7 @@
 ---
 title: "Ne gaspillez pas ces opportunités"
 menu_title: ""
-description: "Ne gaspillez pas ces opportunités"
+description: "Confucius, reçu par Al Fike : « Soyez innocents comme un enfant. Soyez aimants les uns envers les autres, et sachez, comme l’a dit notre cher frère, que … »"
 date: 2022-06-01 06:00:01+00:13
 draft: False
 hidden: True

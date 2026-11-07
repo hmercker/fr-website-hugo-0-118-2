@@ -1,7 +1,7 @@
 ---
 title: "Salutations de Faith (Atelier de la médiumnité 2020)"
 menu_title: ""
-description: "Salutations de Faith (Atelier de la médiumnité 2020)"
+description: "Faith, reçu par Helge Mercker : « Je n’ai pas communiqué depuis longtemps et je souhaite faire connaître ma présence comme tu souhaites écrire nos paroles. »"
 date: 2022-06-01 06:00:01+00:1089
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Shakespeare - Adolescence - 2"
 menu_title: ""
-description: "Shakespeare - Adolescence - 2"
+description: "William Shakespeare, reçu par FAB : « J'ai dit, dans ma canalisation du 20 Août, que \"les circonstances [à Rufford Hall] n'étaient pas très rigoureuses … »"
 date: 2022-06-01 06:00:01+00:153
 draft: False
 hidden: True

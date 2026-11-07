@@ -1,7 +1,7 @@
 ---
 title: "Devenir l'Amour grâce à l'Amour Divin"
 menu_title: ""
-description: "Devenir l'Amour grâce à l'Amour Divin"
+description: "Fleur de Lotus, reçu par Maureen Cardoso : « Quel bonheur de venir être avec vous de cette manière, en utilisant cet instrument pour partager mon amour … »"
 date: 2023-09-15 06:00:01+00:01
 draft: False
 hidden: True

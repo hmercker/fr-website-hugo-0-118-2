@@ -1,7 +1,7 @@
 ---
 title: "Une âme en quête d'Amour Divin apporte un soutien Céleste"
 menu_title: ""
-description: "Une âme en quête d'Amour Divin apporte un soutien Céleste"
+description: "Alec Gaunt, reçu par Maureen Cardoso : « Si bon de t’écouter partager, mon cher fils, ton voyage et être proche de l’esprit, partager la façon de … »"
 date: 2022-06-01 06:00:01+00:455
 draft: False
 hidden: True

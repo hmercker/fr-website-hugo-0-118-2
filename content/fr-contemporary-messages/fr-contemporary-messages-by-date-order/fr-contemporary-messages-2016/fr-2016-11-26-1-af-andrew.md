@@ -1,7 +1,7 @@
 ---
 title: "Être un canal de l’Amour de Dieu"
 menu_title: ""
-description: "Être un canal de l’Amour de Dieu"
+description: "André, reçu par Al Fike : « Pour apporter l’amour et la lumière, être un canal de la volonté de Dieu dans cet endroit et lorsque vous vous déplacez et … »"
 date: 2022-06-01 06:00:01+00:266
 draft: False
 hidden: True

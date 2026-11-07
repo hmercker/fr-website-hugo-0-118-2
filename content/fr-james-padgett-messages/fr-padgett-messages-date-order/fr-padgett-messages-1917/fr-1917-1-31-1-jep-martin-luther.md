@@ -1,7 +1,7 @@
 ---
 title: "Luther nie l’efficacité de l’eucharistie pour sauver l’homme. La Bible est pleine de contradictions et d’erreurs"
 menu_title: ""
-description: "Luther nie l’efficacité de l’eucharistie pour sauver l’homme. La Bible est pleine de contradictions et d’erreurs"
+description: "Martin Luther, reçu par James Padgett : « Eh bien, nous allons arranger ça, et tout ce que nous désirons, c’est que vous vous mettiez en condition. »"
 date: 2022-06-01 06:00:01+00:35
 draft: False
 hidden: True

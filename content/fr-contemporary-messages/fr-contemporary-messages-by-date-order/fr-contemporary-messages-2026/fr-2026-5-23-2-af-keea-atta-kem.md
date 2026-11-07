@@ -1,7 +1,7 @@
 ---
 title: "Comment cette bénédiction d’amour crée une prise de conscience de votre véritable soi"
 menu_title: ""
-description: "Comment cette bénédiction d’amour crée une prise de conscience de votre véritable soi"
+description: "Keea Atta Kem, reçu par Al Fike : « Que les bénédictions de l’Amour du Père soient avec vous. Ce changement s’amorce au sein de votre âme, qui s’éveille … »"
 date: 2026-10-28 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Conseils pour l'Université de l'âme"
 menu_title: ""
-description: "Conseils pour l'Université de l'âme"
+description: "Professeur Salyards, reçu par Al Fike : « Vous allez explorer de nouveaux paradigmes de pensée et d'approche. Vous serez guidé dans la mise en œuvre de … »"
 date: 2022-06-01 06:00:01+00:1306
 draft: False
 hidden: True

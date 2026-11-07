@@ -1,7 +1,7 @@
 ---
 title: "Esprit qui a entendu les enseignements de Jésus quand il était sur terre"
 menu_title: ""
-description: "Esprit qui a entendu les enseignements de Jésus quand il était sur terre"
+description: "Elameros, reçu par James Padgett : « Je ne fus pas un de ses disciples ou un croyant en ses enseignements, car j’étais un disciple de Platon et de Socrate. »"
 date: 2022-06-01 06:00:01+00:30
 draft: False
 hidden: True

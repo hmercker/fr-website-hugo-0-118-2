@@ -1,7 +1,7 @@
 ---
 title: "Un esprit écrit une très belle lettre d’amour à son âme sœur"
 menu_title: ""
-description: "Un esprit écrit une très belle lettre d’amour à son âme sœur"
+description: "Mme Horner, reçu par James Padgett : « Permettez-moi de ne dire que quelques mots, car j’ai tellement hâte d’écrire quelques lignes, et ce depuis un … »"
 date: 2022-06-01 06:00:01+00:193
 draft: False
 hidden: True

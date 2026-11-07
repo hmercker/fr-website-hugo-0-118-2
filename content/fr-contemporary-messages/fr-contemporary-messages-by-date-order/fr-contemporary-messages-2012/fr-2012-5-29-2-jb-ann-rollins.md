@@ -1,7 +1,7 @@
 ---
 title: "Les changements sont à votre portée"
 menu_title: ""
-description: "Les changements sont à votre portée"
+description: "Anne Rollins, reçu par Jospeh B. : « Il est vrai que des changements sont en cours sur vous et votre monde ; vous et d’autres personnes dans le monde ont … »"
 date: 2022-06-01 06:00:01+00:261
 draft: False
 hidden: True

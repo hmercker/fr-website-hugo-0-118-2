@@ -1,7 +1,7 @@
 ---
 title: "Jésus n’a jamais été éduqué dans les sagesses de l’Inde ou de Égypte ou de la Perse - il fut enseigné par le Père et les Anges de Dieu"
 menu_title: ""
-description: "Jésus n’a jamais été éduqué dans les sagesses de l’Inde ou de Égypte ou de la Perse - il fut enseigné par le Père et les Anges de Dieu"
+description: "St Jacques, reçu par James Padgett : « Je n’écrirai pas longtemps ce soir, mais je prie le Père de vous bénir et de faire grandir votre foi. »"
 date: 2022-06-01 06:00:01+00:96
 draft: False
 hidden: True

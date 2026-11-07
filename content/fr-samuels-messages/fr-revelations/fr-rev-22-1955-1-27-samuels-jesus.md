@@ -1,7 +1,7 @@
 ---
 title: "22ème Révélation : Comment les écrits d’Osée ont aidé Jésus à comprendre la nouvelle alliance entre Dieu et l’humanité"
 menu_title: ""
-description: "22ème Révélation : Comment les écrits d’Osée ont aidé Jésus à comprendre la nouvelle alliance entre Dieu et l’humanité"
+description: "Jésus, reçu par Dr Samuels : « Dans mon dernier message, j’ai parlé du prophète Osée et j’ai montré qu’il parlait principalement de l’Amour lequel a deux … »"
 date: 2022-06-01 06:00:01+00:22
 draft: False
 hidden: True

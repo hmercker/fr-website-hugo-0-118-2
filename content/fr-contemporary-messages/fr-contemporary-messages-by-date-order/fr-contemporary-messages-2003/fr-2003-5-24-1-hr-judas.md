@@ -1,7 +1,7 @@
 ---
 title: "Contenants de pensée"
 menu_title: ""
-description: "Contenants de pensée"
+description: "Judas, reçu par H : « Sais-tu ce que sont des « contenants de pensées » ? Dans certains messages de James Padgett, il est mentionné que les pensées sont … »"
 date: 2022-06-01 06:00:01+00:48
 draft: False
 hidden: True

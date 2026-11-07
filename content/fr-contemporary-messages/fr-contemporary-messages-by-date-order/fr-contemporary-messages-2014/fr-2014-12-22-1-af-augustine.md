@@ -1,7 +1,7 @@
 ---
 title: "Il est bien des oreilles qui ne veulent pas entendre, et pourtant, leurs âmes ressentiront l'appel retentissant à venir vers Dieu de cette manière"
 menu_title: ""
-description: "Il est bien des oreilles qui ne veulent pas entendre, et pourtant, leurs âmes ressentiront l'appel retentissant à venir vers Dieu de cette manière"
+description: "Augustin, reçu par Al Fike : « Je souhaite prier avec vous et m'entretenir avec vous. Ce sont les aspirations de vos âmes qui vous rassemblent  … »"
 date: 2026-10-12 06:00:01+00:84
 draft: False
 hidden: True

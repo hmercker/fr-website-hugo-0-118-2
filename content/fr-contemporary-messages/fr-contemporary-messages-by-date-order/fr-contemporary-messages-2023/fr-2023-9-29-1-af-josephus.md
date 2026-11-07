@@ -1,7 +1,7 @@
 ---
 title: "Promesses de bénédictions à Laurelville"
 menu_title: ""
-description: "Promesses de bénédictions à Laurelville"
+description: "Flavius Josèphe, reçu par Elizabeth Mack : « Que les bénédictions de Dieu soient sur vous. Je souhaite vous parler aujourd’hui d’une loi dans l’Univers … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

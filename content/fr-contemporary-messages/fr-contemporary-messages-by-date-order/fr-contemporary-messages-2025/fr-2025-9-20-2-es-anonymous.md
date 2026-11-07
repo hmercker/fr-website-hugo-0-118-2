@@ -1,7 +1,7 @@
 ---
 title: "La Nouvelle Naissance"
 menu_title: ""
-description: "La Nouvelle Naissance"
+description: "Anonyme, reçu par Emmanuel Sternitsky : « Cette Nouvelle Naissance qui ouvre les portes de l'âme s'obtient après un effort et un travail, les prières. »"
 date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True

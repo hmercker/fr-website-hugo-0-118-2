@@ -1,7 +1,7 @@
 ---
 title: "Qu'est-ce que la vérité ?"
 menu_title: ""
-description: "Qu'est-ce que la vérité ?"
+description: "James Padgett, reçu par Al Fike : « Je me suis rapproché de ce cher instrument car il a pensé à moi et à mon travail. Au cours des derniers jours, il y a … »"
 date: 2022-06-01 06:00:01+00:790
 draft: False
 hidden: True

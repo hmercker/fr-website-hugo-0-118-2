@@ -1,7 +1,7 @@
 ---
 title: "Diffuseurs de lumière dans un monde en plein chaos"
 menu_title: ""
-description: "Diffuseurs de lumière dans un monde en plein chaos"
+description: "Yogananda, reçu par Al Fike : « L’amour est l’instrument de changement le plus puissant de l’univers. Qu’il s’agisse de l’amour naturel que vous portez en … »"
 date: 2026-06-26 16:00:01+00:01
 draft: False
 hidden: True

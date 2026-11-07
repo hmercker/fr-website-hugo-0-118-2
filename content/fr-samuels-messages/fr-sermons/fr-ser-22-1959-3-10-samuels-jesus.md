@@ -1,7 +1,7 @@
 ---
 title: "22ème Sermon – Les conception de David sur l’au-delà"
 menu_title: ""
-description: "22ème Sermon – Les conception de David sur l’au-delà"
+description: "Jésus, reçu par Dr Samuels : « Dans mon dernier sermon j’ai indiqué brièvement que, dans certains de ses Psaumes, David regrettait vraiment que la justice … »"
 date: 2022-06-01 06:00:01+00:75
 draft: False
 hidden: True

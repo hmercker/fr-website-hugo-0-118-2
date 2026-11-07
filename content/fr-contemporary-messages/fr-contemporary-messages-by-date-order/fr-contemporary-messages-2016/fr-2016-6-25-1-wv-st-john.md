@@ -1,7 +1,7 @@
 ---
 title: "La différence entre l’ego et l’âme"
 menu_title: ""
-description: "La différence entre l’ego et l’âme"
+description: "St Jean, reçu par WV : « Je m’appelle Jean, mein name ist Johannes. La plupart d’entre vous ne connaissent pas la différence entre « l’ego » et « l’âme ». »"
 date: 2022-06-01 06:00:01+00:216
 draft: False
 hidden: True

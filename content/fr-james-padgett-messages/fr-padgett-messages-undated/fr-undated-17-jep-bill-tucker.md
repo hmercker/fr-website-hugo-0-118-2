@@ -1,7 +1,7 @@
 ---
 title: "Tucker prétend avoir été mauvais sur terre, essaie de sortir de l’obscurité"
 menu_title: ""
-description: "Tucker prétend avoir été mauvais sur terre, essaie de sortir de l’obscurité"
+description: "Bill Tucker, reçu par James Padgett : « Permettez-moi d’écrire un peu, car j’ai besoin d’aide. Je souffre parce que j’ai été un homme mauvais lorsque … »"
 date: 2022-06-01 06:00:01+00:91
 draft: False
 hidden: True

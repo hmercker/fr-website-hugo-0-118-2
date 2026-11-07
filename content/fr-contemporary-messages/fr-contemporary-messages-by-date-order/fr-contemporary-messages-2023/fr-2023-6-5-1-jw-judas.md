@@ -1,7 +1,7 @@
 ---
 title: "La gratitude dans le corps et l'esprit"
 menu_title: ""
-description: "La gratitude dans le corps et l'esprit"
+description: "Judas, reçu par Jimbeau Walsh : « La nécessité de la prière a été abondamment évoquée. La vraie prière du cœur, de l’âme, produit de vrais résultats. »"
 date: 2023-09-01 06:00:01+00:35
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Cercle de Bénédictions à Running Springs, Californie"
 menu_title: ""
-description: "Cercle de Bénédictions à Running Springs, Californie"
+description: "Jésus, reçu par Albert Fike : « Dans cette quête, dans vos aspirations et vos prières, surgit la Lumière du Toucher Divin, la Lumière qui est paix … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

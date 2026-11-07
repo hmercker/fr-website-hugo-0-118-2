@@ -1,7 +1,7 @@
 ---
 title: "Élie se présente à M. Padgett et prend les dispositions nécessaires pour écrire et figurer dans le Livre des Vérités"
 menu_title: ""
-description: "Élie se présente à M. Padgett et prend les dispositions nécessaires pour écrire et figurer dans le Livre des Vérités"
+description: "Élie, reçu par James Padgett : « Je comprends que vous êtes fatigué ce soir et je n’écrirai pas plus. Je voudrais seulement dire que lorsque l’occasion se … »"
 date: 2022-06-01 06:00:01+00:192
 draft: False
 hidden: True

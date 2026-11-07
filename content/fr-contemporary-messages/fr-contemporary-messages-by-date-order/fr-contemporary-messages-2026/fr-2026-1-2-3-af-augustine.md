@@ -1,7 +1,7 @@
 ---
 title: "Une leçon sur les multiples facettes de notre rôle d'instrumentalistes"
 menu_title: ""
-description: "Une leçon sur les multiples facettes de notre rôle d'instrumentalistes"
+description: "Augustin, reçu par Albert Fike : « Que vos âmes s’ouvrent pleinement à l’Amour de Dieu, ce grand Élixir de l’âme offert gratuitement par Dieu et qui … »"
 date: 2026-03-15 06:00:00+00:00
 draft: False
 hidden: True

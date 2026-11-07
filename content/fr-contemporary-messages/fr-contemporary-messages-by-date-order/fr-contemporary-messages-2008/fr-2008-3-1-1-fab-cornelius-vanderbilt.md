@@ -1,7 +1,7 @@
 ---
 title: "Un industriel américain est perdu"
 menu_title: ""
-description: "Un industriel américain est perdu"
+description: "Cornelius Vanderbilt, reçu par FAB : « Qu'est-ce que je peux dire ? Ma vie ici a été une pure horreur. »"
 date: 2022-06-01 06:00:01+00:28
 draft: False
 hidden: True

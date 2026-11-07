@@ -1,7 +1,7 @@
 ---
 title: "Hélène informe M. Padgett sur les conditions de vie d’un médium qu’il a visité, sur les conseils d’un ami, pour connaître le genre de travail qu’ils faisaient au nom du Royaume"
 menu_title: ""
-description: "Hélène informe M. Padgett sur les conditions de vie d’un médium qu’il a visité, sur les conseils d’un ami, pour connaître le genre de travail qu’ils faisaient au nom du Royaume"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cœur, nous avons été quelque peu déçus ce soir de ne pas avoir l’occasion d’écrire comme nous … »"
 date: 2022-06-01 06:00:01+00:133
 draft: False
 hidden: True

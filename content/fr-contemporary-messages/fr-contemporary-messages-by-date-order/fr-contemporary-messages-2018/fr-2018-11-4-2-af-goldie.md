@@ -1,7 +1,7 @@
 ---
 title: "Le cadeau de Goldie"
 menu_title: ""
-description: "Le cadeau de Goldie"
+description: "Goldie, reçu par Al Fike : « Dieu vous fournit toujours un ange pour éclairer votre chemin, pour vous assister et vous réconforter sur votre chemin, et … »"
 date: 2022-06-01 06:00:01+00:552
 draft: False
 hidden: True

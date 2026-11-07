@@ -1,7 +1,7 @@
 ---
 title: "Prière à Dieu et conseils pour servir d'instrument à Dieu"
 menu_title: ""
-description: "Prière à Dieu et conseils pour servir d'instrument à Dieu"
+description: "Faith Nyquist, reçu par Albert Fike : « Je tiens à remercier cet instrument de me permettre de m'exprimer ainsi. Mon ministère sur Terre n'est pas encore … »"
 date: 2026-10-04 06:00:01+00:01
 draft: False
 hidden: True

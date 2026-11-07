@@ -1,7 +1,7 @@
 ---
 title: "Il vous sera donné ce dont vous aurez besoin pour servir"
 menu_title: ""
-description: "Il vous sera donné ce dont vous aurez besoin pour servir"
+description: "Seretta Kem, reçu par Al Fike : « Je vous encourage et je vous dis que ce voyage à venir pour rencontrer vos frères et sœurs est important, bien qu’il … »"
 date: 2023-09-01 06:00:01+00:02
 draft: False
 hidden: True

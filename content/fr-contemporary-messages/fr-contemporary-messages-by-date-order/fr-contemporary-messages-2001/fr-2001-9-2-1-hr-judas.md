@@ -1,7 +1,7 @@
 ---
 title: "Les créatures Célestes perdent-elles leur individualité ?"
 menu_title: ""
-description: "Les créatures Célestes perdent-elles leur individualité ?"
+description: "Judas, reçu par H : « C’est un énorme plaisir de pouvoir parler avec toi de nouveau. Dans tes études des messages, tu as toujours trouvé des questions … »"
 date: 2022-06-01 06:00:01+00:35
 draft: False
 hidden: True

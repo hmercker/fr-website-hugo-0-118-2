@@ -1,7 +1,7 @@
 ---
 title: "Bénédiction suite au message de Flavius Josèphe"
 menu_title: ""
-description: "Bénédiction suite au message de Flavius Josèphe"
+description: "Jésus, reçu par Albert Fike : « Et puissiez-vous vous installer dans la grâce de Dieu, ouvrant vos âmes à sa touche d’amour. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

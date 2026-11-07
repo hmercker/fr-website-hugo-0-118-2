@@ -1,7 +1,7 @@
 ---
 title: "Jean affirme qu’Aman et Amon, les premiers parents, ont communiqué à travers M. Padgett"
 menu_title: ""
-description: "Jean affirme qu’Aman et Amon, les premiers parents, ont communiqué à travers M. Padgett"
+description: "St Jean, reçu par James Padgett : « Je veux simplement dire ce soir que vous devez bientôt vous préparer à recevoir des messages que le Maître et d’autres … »"
 date: 2022-06-01 06:00:01+00:222
 draft: False
 hidden: True

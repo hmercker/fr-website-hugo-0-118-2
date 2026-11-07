@@ -1,7 +1,7 @@
 ---
 title: "Les difficultés de Karl Marx"
 menu_title: ""
-description: "Les difficultés de Karl Marx"
+description: "Karl Marx, reçu par FAB : « Vous venez de terminer la biographie de ma vie par Francis Wheen. J’ai donné à la vie tout ce que je pouvais, sans rien retenir. »"
 date: 2022-06-01 06:00:01+00:48
 draft: False
 hidden: True

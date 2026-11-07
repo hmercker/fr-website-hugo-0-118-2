@@ -1,7 +1,7 @@
 ---
 title: "Il est important de mener une vie spirituelle"
 menu_title: ""
-description: "Il est important de mener une vie spirituelle"
+description: "Augustin, reçu par Al Fike : « Toutes les réalités de la Terre ne font plus partie de moi, et toutes les réalités du Ciel font vraiment partie de moi, où … »"
 date: 2022-06-01 06:00:01+00:1007
 draft: False
 hidden: True

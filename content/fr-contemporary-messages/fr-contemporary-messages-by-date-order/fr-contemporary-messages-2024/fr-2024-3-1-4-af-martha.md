@@ -1,7 +1,7 @@
 ---
 title: "Prière d'ouverture Konda Coast"
 menu_title: ""
-description: "Prière d'ouverture Konda Coast"
+description: "Martha, reçu par Albert Fike : « Vous continuez à attirer les anges, les douces bénédictions de Dieu sur votre âme, vous éveillant et vous guérissant. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

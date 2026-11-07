@@ -1,7 +1,7 @@
 ---
 title: "Un dirigeant Israélien complète son message précédent"
 menu_title: ""
-description: "Un dirigeant Israélien complète son message précédent"
+description: "David Ben-Gurion, reçu par FAB : « Tout d'abord, laissez-moi vous dire que vous avez reçu cette canalisation avec précision. J'ai beaucoup souffert à … »"
 date: 2022-06-01 06:00:01+00:137
 draft: False
 hidden: True

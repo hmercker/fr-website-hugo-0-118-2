@@ -1,7 +1,7 @@
 ---
 title: "Ouvrez votre âme pour recevoir les abondantes bénédictions de Dieu"
 menu_title: ""
-description: "Ouvrez votre âme pour recevoir les abondantes bénédictions de Dieu"
+description: "Faith Nyquist, reçu par Al Fike : « Car Dieu désire que vous soyez en harmonie avec Lui, non pas en vous imposant une contrainte ou une pression, mais en … »"
 date: 2026-05-28 16:00:01+00:01
 draft: False
 hidden: True

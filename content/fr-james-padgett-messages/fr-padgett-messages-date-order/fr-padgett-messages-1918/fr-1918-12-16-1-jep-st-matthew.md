@@ -1,7 +1,7 @@
 ---
 title: "Matthieu : le Salut que Jésus a enseigné"
 menu_title: ""
-description: "Matthieu : le Salut que Jésus a enseigné"
+description: "St Matthieu, reçu par James Padgett : « Je voudrais écrire quelques lignes ce soir car j’ai envie de vous parler d’une vérité qui me paraît importante … »"
 date: 2022-06-01 06:00:01+00:74
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La guérison"
 menu_title: ""
-description: "La guérison"
+description: "Luc, reçu par Jimbeau Walsh : « Je remercie mon frère d'avoir transmis mon message à la jeune femme, mais je souhaite m'adresser à ce groupe au sujet de … »"
 date: 2026-10-12 06:00:01+00:01
 draft: False
 hidden: True

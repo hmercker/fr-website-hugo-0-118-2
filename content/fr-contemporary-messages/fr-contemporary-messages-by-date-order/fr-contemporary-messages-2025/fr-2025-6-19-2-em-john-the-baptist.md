@@ -1,7 +1,7 @@
 ---
 title: "La Nouvelle Voie"
 menu_title: ""
-description: "La Nouvelle Voie"
+description: "Jean Baptiste, reçu par Elizabeth Mack : « La discipline fait partie intégrante de cette vie sur Terre : discipliner ses pensées, discipliner ses actions … »"
 date: 2026-01-30 16:00:01+00:01
 draft: False
 hidden: True

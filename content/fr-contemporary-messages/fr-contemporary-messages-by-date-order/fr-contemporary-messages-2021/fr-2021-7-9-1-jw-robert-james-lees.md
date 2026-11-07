@@ -1,7 +1,7 @@
 ---
 title: "Et si un ange venait dans votre maison"
 menu_title: ""
-description: "Et si un ange venait dans votre maison"
+description: "Robert James Lees, reçu par Jimbeau Walsh : « J’ai écouté votre discussion d’aujourd’hui et toutes ses considérations en réfléchissant à ce que j’ai reçu . »"
 date: 2022-06-01 06:00:01+00:1568
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Discute des qualités de la lumière"
 menu_title: ""
-description: "Discute des qualités de la lumière"
+description: "Yogananda, reçu par Al Fike : « Le voyage vers la lumière est un voyage qui est entrepris par chaque individu à sa manière, sà on propre moment, dans sa … »"
 date: 2023-09-01 06:00:01+00:19
 draft: False
 hidden: True

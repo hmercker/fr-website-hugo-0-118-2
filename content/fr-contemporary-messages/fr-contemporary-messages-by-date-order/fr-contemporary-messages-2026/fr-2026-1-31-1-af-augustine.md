@@ -1,7 +1,7 @@
 ---
 title: "Le seul obstacle à la vérité réside en vous"
 menu_title: ""
-description: "Le seul obstacle à la vérité réside en vous"
+description: "Augustin, reçu par Albert Fike : « En vous résident les doutes, les peurs et le jugement. En vous réside le besoin de contrôle et le désir d’être … »"
 date: 2026-04-03 16:00:01+00:01
 draft: False
 hidden: True

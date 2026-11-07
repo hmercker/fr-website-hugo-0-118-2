@@ -1,7 +1,7 @@
 ---
 title: "Ceci est votre mandat"
 menu_title: ""
-description: "Ceci est votre mandat"
+description: "Professeur Salyards, reçu par Al Fike : « C’est ce que vous devez faire lorsque vous rassemblez des gens, accepter les différences, les embrasser dans … »"
 date: 2022-06-01 06:00:01+00:180
 draft: False
 hidden: True

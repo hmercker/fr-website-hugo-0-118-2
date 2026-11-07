@@ -1,7 +1,7 @@
 ---
 title: "Les scientifiques du monde de l'Esprit souhaitent contribuer aux efforts de la Voix Directe"
 menu_title: ""
-description: "Les scientifiques du monde de l'Esprit souhaitent contribuer aux efforts de la Voix Directe"
+description: "Thomas Alva Edison, reçu par Al Fike : « Même les scientifiques sont autorisés dans ces royaumes. J'ai beaucoup appris dans le monde de l'esprit et je … »"
 date: 2022-06-01 06:00:01+00:177
 draft: False
 hidden: True

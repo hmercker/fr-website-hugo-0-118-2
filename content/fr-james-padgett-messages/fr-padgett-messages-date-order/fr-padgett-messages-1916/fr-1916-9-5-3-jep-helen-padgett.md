@@ -1,7 +1,7 @@
 ---
 title: "Hélène confirme ce que Constantin et Luc ont écrit"
 menu_title: ""
-description: "Hélène confirme ce que Constantin et Luc ont écrit"
+description: "Hélène Padgett, reçu par James Padgett : « Bien, mon cher, tu as eu un message un peu inhabituel ce soir, ou plutôt, je pourrais dire, inattendu. »"
 date: 2022-06-01 06:00:01+00:270
 draft: False
 hidden: True

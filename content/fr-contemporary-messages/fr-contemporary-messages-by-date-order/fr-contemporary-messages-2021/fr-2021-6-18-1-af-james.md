@@ -1,7 +1,7 @@
 ---
 title: "Votre voyage vers les Cieux Célestes est raccourci par la prière pour l'Amour Divin"
 menu_title: ""
-description: "Votre voyage vers les Cieux Célestes est raccourci par la prière pour l'Amour Divin"
+description: "Jacques, reçu par Al Fike : « La route vers le Ciel n’est pas aussi longue que vous pourriez le penser. Bien que le Ciel semble très éloigné de ce plan … »"
 date: 2022-06-01 06:00:01+00:1545
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Utilisez le pouvoir de la prière"
 menu_title: ""
-description: "Utilisez le pouvoir de la prière"
+description: "St Matthieu, reçu par Al Fike : « Et alors que le grand changement arrive sur votre monde, cette souffrance semble s’intensifier car tout ce qui n’est pas … »"
 date: 2022-06-01 06:00:01+00:1385
 draft: False
 hidden: True

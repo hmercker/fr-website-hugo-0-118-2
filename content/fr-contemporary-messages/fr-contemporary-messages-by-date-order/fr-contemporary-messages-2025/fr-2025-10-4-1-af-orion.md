@@ -1,7 +1,7 @@
 ---
 title: "Il y a beaucoup à faire"
 menu_title: ""
-description: "Il y a beaucoup à faire"
+description: "Orion, reçu par Albert Fike : « Beaucoup à faire dans le recalibrage, l’ajustement de vos perceptions conscientes, de vos pensées et de vos attitudes. »"
 date: 2025-11-10 06:00:01+00:01
 draft: False
 hidden: True

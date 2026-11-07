@@ -1,7 +1,7 @@
 ---
 title: "Une salutation"
 menu_title: ""
-description: "Une salutation"
+description: "Martin Luther, reçu par Helge Mercker : « Compte sur la guidance de Dieu et tout ira bien. Ne te laisse pas ballotter par tes pensées, mais sois en … »"
 date: 2022-06-01 06:00:01+00:1123
 draft: False
 hidden: True

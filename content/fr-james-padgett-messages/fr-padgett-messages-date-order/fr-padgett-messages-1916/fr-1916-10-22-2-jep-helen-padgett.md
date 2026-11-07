@@ -1,7 +1,7 @@
 ---
 title: "Hélène était également présente et a entendu le sermon du ministre orthodoxe"
 menu_title: ""
-description: "Hélène était également présente et a entendu le sermon du ministre orthodoxe"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, je vois que tu as beaucoup apprécié la soirée et que, dans l’ensemble, tu as été satisfait … »"
 date: 2022-06-01 06:00:01+00:304
 draft: False
 hidden: True

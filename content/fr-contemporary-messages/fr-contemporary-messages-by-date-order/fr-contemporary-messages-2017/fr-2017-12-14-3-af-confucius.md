@@ -1,7 +1,7 @@
 ---
 title: "Veillée de prière"
 menu_title: ""
-description: "Veillée de prière"
+description: "Confucius, reçu par Al Fike : « Les anges sont avec vous ce soir, tout près de vous. Gardez vos prières à Dieu, intenses et constantes. »"
 date: 2022-06-01 06:00:01+00:275
 draft: False
 hidden: True

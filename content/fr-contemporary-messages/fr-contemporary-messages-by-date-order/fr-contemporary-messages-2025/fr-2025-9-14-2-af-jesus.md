@@ -1,7 +1,7 @@
 ---
 title: "Nous serons toujours avec vous"
 menu_title: ""
-description: "Nous serons toujours avec vous"
+description: "Jésus, reçu par Al Fike : « Alors que vous entretenez cette flamme, je vous exhorte à continuer à rechercher davantage cette grande bénédiction. »"
 date: 2025-11-10 06:00:01+00:01
 draft: False
 hidden: True

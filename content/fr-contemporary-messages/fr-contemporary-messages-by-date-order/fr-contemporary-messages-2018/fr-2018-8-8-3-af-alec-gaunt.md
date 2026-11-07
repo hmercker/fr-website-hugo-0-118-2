@@ -1,7 +1,7 @@
 ---
 title: "Conseils personnels pour la retraite de médiumnité de l'Amour Divin"
 menu_title: ""
-description: "Conseils personnels pour la retraite de médiumnité de l'Amour Divin"
+description: "Alec Gaunt, reçu par Al Fike : « Elle a raison de penser que je ferai partie de ce projet, tout comme le cher et bel ange Faith et beaucoup d’autres. »"
 date: 2022-06-01 06:00:01+00:443
 draft: False
 hidden: True

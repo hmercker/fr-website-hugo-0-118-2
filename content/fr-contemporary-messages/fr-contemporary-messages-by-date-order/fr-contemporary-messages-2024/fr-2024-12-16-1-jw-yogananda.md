@@ -1,7 +1,7 @@
 ---
 title: "Parlez à Dieu"
 menu_title: ""
-description: "Parlez à Dieu"
+description: "Yogananda, reçu par Jimbeau Walsh : « J’ai promis à mon frère que je viendrais ce soir parce que je souhaitais partager une certaine vérité avec ce beau … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

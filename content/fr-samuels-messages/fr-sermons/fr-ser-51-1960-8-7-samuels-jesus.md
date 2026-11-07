@@ -1,7 +1,7 @@
 ---
 title: "51ème Sermon – Jérémie et la nouvelle Alliance"
 menu_title: ""
-description: "51ème Sermon – Jérémie et la nouvelle Alliance"
+description: "Jésus, reçu par Dr Samuels : « Ainsi Jérémie a estimé qu’une nouvelle alliance entre ces captifs à Babylone était en gestation, dans laquelle cette … »"
 date: 2022-06-01 06:00:01+00:104
 draft: False
 hidden: True

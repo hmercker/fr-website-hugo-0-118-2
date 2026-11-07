@@ -1,7 +1,7 @@
 ---
 title: "Visez le plus haut"
 menu_title: ""
-description: "Visez le plus haut"
+description: "Charlie Chaplin, reçu par Jimbeau Walsh : « Les films, la musique, la danse, les histoires, la poésie et les photographies ont tous le pouvoir de changer … »"
 date: 2022-06-01 06:00:01+00:1397
 draft: False
 hidden: True

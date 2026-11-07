@@ -1,7 +1,7 @@
 ---
 title: "Confirme que le Maître a communiqué à travers M. Padgett"
 menu_title: ""
-description: "Confirme que le Maître a communiqué à travers M. Padgett"
+description: "St Georges, reçu par James Padgett : « Je fus un guerrier, pas un saint. Cependant, bien que je n’aie jamais été un saint, j’avais une mentalité … »"
 date: 2022-06-01 06:00:01+00:154
 draft: False
 hidden: True

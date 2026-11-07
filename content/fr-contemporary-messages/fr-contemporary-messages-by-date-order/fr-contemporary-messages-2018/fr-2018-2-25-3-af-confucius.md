@@ -1,7 +1,7 @@
 ---
 title: "Chercher la lumière dans un monde en mutation"
 menu_title: ""
-description: "Chercher la lumière dans un monde en mutation"
+description: "Confucius, reçu par Al Fike : « Le monde va connaître un grand bouleversement et un grand changement et ceux d’entre vous qui se sentent obligés de se … »"
 date: 2022-06-01 06:00:01+00:333
 draft: False
 hidden: True

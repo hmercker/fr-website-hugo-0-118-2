@@ -1,7 +1,7 @@
 ---
 title: "Leçons sur le pardon et la compassion"
 menu_title: ""
-description: "Leçons sur le pardon et la compassion"
+description: "St Luc, reçu par Al Fike : « Comme vous le savez, le monde est truffé de difficultés, de conditions créées par l’humanité depuis de très nombreux milliers … »"
 date: 2022-06-01 06:00:01+00:296
 draft: False
 hidden: True

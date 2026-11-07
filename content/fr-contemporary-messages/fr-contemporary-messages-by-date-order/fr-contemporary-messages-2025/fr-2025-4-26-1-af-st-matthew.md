@@ -1,7 +1,7 @@
 ---
 title: "Confirme que Jésus bénit chacun des membres du cercle"
 menu_title: ""
-description: "Confirme que Jésus bénit chacun des membres du cercle"
+description: "St Matthieu, reçu par Albert Fike : « Il bénit chacun d’entre vous et il est heureux que vous soyez ensemble, cherchant à vous soutenir les uns les autres … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Bismarck n’est pas d’accord avec ce que Lafayette vient d’écrire sur l’empereur Allemand, mais prétend que la guerre lui a été imposée et a bien sûr fait une mauvaise prédiction quant à son issue"
 menu_title: ""
-description: "Bismarck n’est pas d’accord avec ce que Lafayette vient d’écrire sur l’empereur Allemand, mais prétend que la guerre lui a été imposée et a bien sûr fait une mauvaise prédiction quant à son issue"
+description: "Otto von Bismarck, reçu par James Padgett : « Laissez-moi vous dire un mot. J’ai vu ce que Lafayette a écrit et je ne suis pas d’accord avec lui sur les … »"
 date: 2022-06-01 06:00:01+00:166
 draft: False
 hidden: True

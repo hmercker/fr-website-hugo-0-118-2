@@ -1,7 +1,7 @@
 ---
 title: "L’âme incarnée, par Jésus"
 menu_title: ""
-description: "L’âme incarnée, par Jésus"
+description: "Jésus, reçu par James Padgett : « Vous avez peut-être observé, lors de vos études des différentes théories de la création de l’homme, que la question … »"
 date: 2022-06-01 06:00:01+00:51
 draft: False
 hidden: True

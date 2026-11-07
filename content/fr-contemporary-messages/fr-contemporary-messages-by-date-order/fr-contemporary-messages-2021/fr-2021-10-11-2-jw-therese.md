@@ -1,7 +1,7 @@
 ---
 title: "Chaque prière crée un sanctuaire invisible (Cercle de Prière de Gibsons)"
 menu_title: ""
-description: "Chaque prière crée un sanctuaire invisible (Cercle de Prière de Gibsons)"
+description: "Thérèse de Lisieux, reçu par Jimbeau Walsh : « Je ne souhaite dire que quelques mots. Que vos prières vous conduisent à un destin indestructible. »"
 date: 2022-06-01 06:00:01+00:1676
 draft: False
 hidden: True

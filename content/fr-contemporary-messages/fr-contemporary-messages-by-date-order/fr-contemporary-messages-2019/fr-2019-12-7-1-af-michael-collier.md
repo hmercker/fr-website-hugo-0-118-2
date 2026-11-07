@@ -1,7 +1,7 @@
 ---
 title: "Les besoins du monde requièrent votre service et votre engagement"
 menu_title: ""
-description: "Les besoins du monde requièrent votre service et votre engagement"
+description: "Michaël Collier, reçu par Al Fike : « Je reviens pour vous parler de votre travail consistant à apporter les vérités de l'Amour du Père au monde. »"
 date: 2022-06-01 06:00:01+00:954
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Dieu ouvre la porte à la communication d’en haut"
 menu_title: ""
-description: "Dieu ouvre la porte à la communication d’en haut"
+description: "André, reçu par Albert Fike : « Comme Dieu est merveilleux d’ouvrir ces portes de communication et de bénédictions. Pourtant, Dieu tend la main à chacun … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Jésus est le Christ de Dieu"
 menu_title: ""
-description: "Jésus est le Christ de Dieu"
+description: "Anne Rollins, reçu par James Padgett : « Le Christ n’est pas seulement un Esprit du Père, mais il est aussi celui que Dieu a donné à Jésus lorsqu’il l’a … »"
 date: 2022-06-01 06:00:01+00:130
 draft: False
 hidden: True

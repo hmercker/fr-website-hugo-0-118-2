@@ -1,7 +1,7 @@
 ---
 title: "Heureuse que Perry ait écrit"
 menu_title: ""
-description: "Heureuse que Perry ait écrit"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, chéri, je vois tu n’es pas vraiment, ce soir, en état d’écrire très longtemps. Je ne dirai que … »"
 date: 2022-06-01 06:00:01+00:34
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Je veux que vous rejoigniez les cœurs et que vous sentiez notre connexion"
 menu_title: ""
-description: "Je veux que vous rejoigniez les cœurs et que vous sentiez notre connexion"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Tu ne peux pas marcher avec la foule. Ma guidance est disponible pour tous. »"
 date: 2022-06-01 06:00:01+00:17
 draft: False
 hidden: True

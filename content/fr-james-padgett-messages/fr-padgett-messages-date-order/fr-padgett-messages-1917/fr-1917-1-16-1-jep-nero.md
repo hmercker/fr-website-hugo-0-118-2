@@ -1,7 +1,7 @@
 ---
 title: "Néron raconte son expérience dans les enfers et l’aide de son âme-soeur"
 menu_title: ""
-description: "Néron raconte son expérience dans les enfers et l’aide de son âme-soeur"
+description: "Néron, reçu par James Padgett : « Mes souffrances furent au-delà de toute description, j’étais le plus déshonoré des mortels, et j’étais presque adoré par … »"
 date: 2022-06-01 06:00:01+00:23
 draft: False
 hidden: True

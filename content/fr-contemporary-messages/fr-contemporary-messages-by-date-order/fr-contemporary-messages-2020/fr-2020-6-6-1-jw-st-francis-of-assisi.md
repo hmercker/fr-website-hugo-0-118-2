@@ -1,7 +1,7 @@
 ---
 title: "Le chemin de l'Amour de Dieu"
 menu_title: ""
-description: "Le chemin de l'Amour de Dieu"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Lorsque ma vie est devenue simple, tout a été découvert en grâce pour mon âme et pour mes frères et sœurs … »"
 date: 2022-06-01 06:00:01+00:1127
 draft: False
 hidden: True

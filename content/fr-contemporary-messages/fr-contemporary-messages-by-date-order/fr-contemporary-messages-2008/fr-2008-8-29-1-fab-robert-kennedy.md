@@ -1,7 +1,7 @@
 ---
 title: "Guidance divine d'un Kennedy"
 menu_title: ""
-description: "Guidance divine d'un Kennedy"
+description: "Robert Kennedy, reçu par FAB : « Quand je regarde en arrière sur ma vie terrestre, je ne peux m'empêcher de penser qu'un moteur divin m'a conduit et a … »"
 date: 2022-06-01 06:00:01+00:97
 draft: False
 hidden: True

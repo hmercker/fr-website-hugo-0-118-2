@@ -1,7 +1,7 @@
 ---
 title: "Votre cheminement vers Dieu et vers votre âme est amplifié grâce aux efforts de vos amis Célestes"
 menu_title: ""
-description: "Votre cheminement vers Dieu et vers votre âme est amplifié grâce aux efforts de vos amis Célestes"
+description: "Confucius, reçu par Al Fike : « Que la puissance de l’Amour du Père vous transforme, comme il est prévu qu’elle le fasse. Que la puissance de l’Amour du … »"
 date: 2026-10-28 06:00:01+00:01
 draft: False
 hidden: True

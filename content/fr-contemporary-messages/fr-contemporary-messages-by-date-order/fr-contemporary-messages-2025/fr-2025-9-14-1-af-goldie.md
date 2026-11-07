@@ -1,7 +1,7 @@
 ---
 title: "Vous défiez les conditions de ce monde par le rire et la joie"
 menu_title: ""
-description: "Vous défiez les conditions de ce monde par le rire et la joie"
+description: "Goldie, reçu par Al Fike : « Lorsque vous riez, vous surmontez la tristesse de ce monde. Vous avez le désir de défier les conditions de ce monde. »"
 date: 2025-11-10 06:00:01+00:01
 draft: False
 hidden: True

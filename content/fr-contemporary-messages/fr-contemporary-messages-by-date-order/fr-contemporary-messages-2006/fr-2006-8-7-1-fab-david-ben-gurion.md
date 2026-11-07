@@ -1,7 +1,7 @@
 ---
 title: "Le conflit Israelo-Palestinien"
 menu_title: ""
-description: "Le conflit Israelo-Palestinien"
+description: "David Ben-Gurion, reçu par FAB : « Vous connaissez bien mon nom. J’ai fait ce que j’ai pu pour servir les intérêts de l’État Juif moderne d’Israël. »"
 date: 2022-06-01 06:00:01+00:36
 draft: False
 hidden: True

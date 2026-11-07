@@ -1,7 +1,7 @@
 ---
 title: "Vos âmes chantent à la lumière de l'amour de Dieu"
 menu_title: ""
-description: "Vos âmes chantent à la lumière de l'amour de Dieu"
+description: "Seretta Kem, reçu par Al Fike : « Je veux vous donner des instructions car nous entrons dans une nouvelle phase de notre développement ensemble. »"
 date: 2022-06-01 06:00:01+00:180
 draft: False
 hidden: True

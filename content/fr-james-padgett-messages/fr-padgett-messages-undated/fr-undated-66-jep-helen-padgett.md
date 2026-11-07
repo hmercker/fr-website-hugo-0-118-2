@@ -1,7 +1,7 @@
 ---
 title: "Hélène est très heureuse de la conversation entre Dr Stone et M. Padgett"
 menu_title: ""
-description: "Hélène est très heureuse de la conversation entre Dr Stone et M. Padgett"
+description: "Hélène Padgett, reçu par James Padgett : « Je ne te retiendrai pas longtemps ce soir, car tu es fatigué et tu dois aller te coucher. Mais je tiens à dire … »"
 date: 2022-06-01 06:00:01+00:140
 draft: False
 hidden: True

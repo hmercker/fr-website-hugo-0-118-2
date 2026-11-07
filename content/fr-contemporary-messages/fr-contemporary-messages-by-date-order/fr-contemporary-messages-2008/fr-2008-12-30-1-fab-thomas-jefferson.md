@@ -1,7 +1,7 @@
 ---
 title: "Thomas Jefferson et son pays"
 menu_title: ""
-description: "Thomas Jefferson et son pays"
+description: "Thomas Jefferson, reçu par FAB : « Je sais que vous étiez incrédule tout à l'heure lorsque vous avez lu ma canalisation du 1er Janvier 2008 où je vous ai … »"
 date: 2022-06-01 06:00:01+00:140
 draft: False
 hidden: True

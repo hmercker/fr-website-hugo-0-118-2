@@ -1,7 +1,7 @@
 ---
 title: "Le monde va ainsi, l'Église Catholique va ainsi, une variété d'âmes, certaines claires et d'autres sombres"
 menu_title: ""
-description: "Le monde va ainsi, l'Église Catholique va ainsi, une variété d'âmes, certaines claires et d'autres sombres"
+description: "Augustin, reçu par Al Fike : « Je vois que vous vous êtes une fois de plus rassemblées dans la Lumière et que l’unité entre vous grandit, sentant que vous … »"
 date: 2022-06-01 06:00:01+00:937
 draft: False
 hidden: True

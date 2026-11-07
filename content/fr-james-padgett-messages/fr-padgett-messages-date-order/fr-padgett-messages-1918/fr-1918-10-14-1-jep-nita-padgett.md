@@ -1,7 +1,7 @@
 ---
 title: "Première communication de la fille de M. Padgett, Nita, connue aussi sous le nom de « Bébé » qui explique son progrès vers la troisième sphère"
 menu_title: ""
-description: "Première communication de la fille de M. Padgett, Nita, connue aussi sous le nom de « Bébé » qui explique son progrès vers la troisième sphère"
+description: "Nita Padgett, reçu par James Padgett : « Laisse-moi écrire une ligne. J’ai tellement envie de te raconter en détail ce que j’ai vécu, mais comme c’est ma … »"
 date: 2022-06-01 06:00:01+00:57
 draft: False
 hidden: True

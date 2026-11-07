@@ -1,7 +1,7 @@
 ---
 title: "Désire démontrer la puissance de l'Amour de Dieu à tous"
 menu_title: ""
-description: "Désire démontrer la puissance de l'Amour de Dieu à tous"
+description: "Jésus, reçu par Albert Fike : « Que l’Esprit Saint vous comble de son amour en abondance. Puissiez-vous connaître cette bénédiction, cette lumière sur … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

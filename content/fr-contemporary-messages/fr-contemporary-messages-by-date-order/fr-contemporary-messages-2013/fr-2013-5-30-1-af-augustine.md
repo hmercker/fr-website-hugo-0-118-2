@@ -1,7 +1,7 @@
 ---
 title: "La transformation de l’âme"
 menu_title: ""
-description: "La transformation de l’âme"
+description: "Augustin, reçu par Albert Fike : « Mes chers enfants, c’est Augustin. Vous ne réalisez pas la puissance de cet Amour, ni sa capacité à transformer ce qui … »"
 date: 2026-10-16 06:00:01+00:09
 draft: False
 hidden: True

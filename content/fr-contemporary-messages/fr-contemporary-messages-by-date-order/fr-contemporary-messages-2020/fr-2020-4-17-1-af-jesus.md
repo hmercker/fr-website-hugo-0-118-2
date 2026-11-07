@@ -1,7 +1,7 @@
 ---
 title: "Cherchez et ce sera à vous "
 menu_title: ""
-description: "Cherchez et ce sera à vous "
+description: "Jésus, reçu par Al Fike : « Je tiens à saluer ce bel instrument pour ses efforts visant à faire avancer la Vérité de l’âme. »"
 date: 2022-06-01 06:00:01+00:1062
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Luc, l’ange gardien de M. Eugène Morgan parle de son grand travail parmi les sombres esprits Catholiques"
 menu_title: ""
-description: "Luc, l’ange gardien de M. Eugène Morgan parle de son grand travail parmi les sombres esprits Catholiques"
+description: "St Luc, reçu par James Padgett : « Je veux profiter de l’occasion pour écrire en présence de cette chère personne dont j’ai la charge (Eugène Morgan). »"
 date: 2022-06-01 06:00:01+00:129
 draft: False
 hidden: True

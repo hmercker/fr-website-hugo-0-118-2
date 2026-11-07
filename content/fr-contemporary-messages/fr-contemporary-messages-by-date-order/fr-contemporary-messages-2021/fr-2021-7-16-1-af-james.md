@@ -1,7 +1,7 @@
 ---
 title: "Le seul moyen d’obtenir la lumière et la protection est de s’aligner avec Dieu"
 menu_title: ""
-description: "Le seul moyen d’obtenir la lumière et la protection est de s’aligner avec Dieu"
+description: "Jacques, reçu par Al Fike : « C’est un endroit qui est profondément en désaccord avec Dieu. Même mon frère, Jésus, a lutté lorsqu’il a marché sur la … »"
 date: 2022-06-01 06:00:01+00:1573
 draft: False
 hidden: True

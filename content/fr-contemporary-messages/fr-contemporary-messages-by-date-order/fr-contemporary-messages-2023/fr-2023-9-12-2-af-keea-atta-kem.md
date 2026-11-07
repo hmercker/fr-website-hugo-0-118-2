@@ -1,7 +1,7 @@
 ---
 title: "La chaîne  de l'Amour"
 menu_title: ""
-description: "La chaîne  de l'Amour"
+description: "Keea Atta Kem, reçu par Albert Fike : « Que l’Amour Divin continue de relier chacun de vous à Dieu. Quel cadeau précieux chacun de vous est dans ce monde. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

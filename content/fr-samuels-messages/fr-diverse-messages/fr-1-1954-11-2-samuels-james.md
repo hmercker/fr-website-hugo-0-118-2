@@ -1,7 +1,7 @@
 ---
 title: "Les principautés de l’air"
 menu_title: ""
-description: "Les principautés de l’air"
+description: "Jacques, reçu par Dr Samuels : « C’est la première fois que je vous écris, bien que j’ai été, très souvent, présent, lorsque que Jésus et les autres … »"
 date: 2022-06-01 06:00:01+00:01
 draft: False
 hidden: True

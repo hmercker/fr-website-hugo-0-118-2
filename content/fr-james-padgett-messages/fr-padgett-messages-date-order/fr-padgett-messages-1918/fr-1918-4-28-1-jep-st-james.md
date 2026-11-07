@@ -1,7 +1,7 @@
 ---
 title: "Parle de sa visite à l’église avec M. Padgett"
 menu_title: ""
-description: "Parle de sa visite à l’église avec M. Padgett"
+description: "St Jacques, reçu par James Padgett : « J’étais avec vous ce soir, à l’église, j’ai écouté le sermon du prédicateur et je sens qu’il a mal utilisé cette … »"
 date: 2022-06-01 06:00:01+00:35
 draft: False
 hidden: True

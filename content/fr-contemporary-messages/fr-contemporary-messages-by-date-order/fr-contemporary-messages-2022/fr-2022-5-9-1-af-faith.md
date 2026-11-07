@@ -1,7 +1,7 @@
 ---
 title: "Nous servons Dieu ensemble"
 menu_title: ""
-description: "Nous servons Dieu ensemble"
+description: "Faith, reçu par Al Fike : « Je continue à servir Dieu, tout comme vous, mes amis. Et nous servirons Dieu ensemble, quels que soient le lieu, l’endroit et … »"
 date: 2022-06-01 06:00:01+00:81
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Il n'y a pas un cheveu entre vous et Dieu"
 menu_title: ""
-description: "Il n'y a pas un cheveu entre vous et Dieu"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Que l’Amour de Dieu nous accompagne. C’est le temps de chanter des louanges au Seigneur. »"
 date: 2025-12-21 16:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Instructions concernant les temps morts"
 menu_title: ""
-description: "Instructions concernant les temps morts"
+description: "Seretta Kem, reçu par Al Fike : « Nous continuerons à faire certaines procédures sur vos corps, votre corps spirituel pendant que vous priez en ce temps mort. »"
 date: 2022-06-01 06:00:01+00:186
 draft: False
 hidden: True

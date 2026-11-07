@@ -1,7 +1,7 @@
 ---
 title: "Edition du deuxième volume des messages"
 menu_title: ""
-description: "Edition du deuxième volume des messages"
+description: "James Padgett, reçu par Kathryn Stokes : « Padgett a établi un rapport avec moi avant que je ne finisse d’écrire ma prière. La différence entre l’écriture … »"
 date: 2022-06-01 06:00:01+00:42
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Marcher dans la lumière"
 menu_title: ""
-description: "Marcher dans la lumière"
+description: "André, reçu par Al Fike : « Vous portez chacun une lumière, une lumière dans le monde, un monde qui a besoin de lumière. »"
 date: 2022-06-01 06:00:01+00:505
 draft: False
 hidden: True

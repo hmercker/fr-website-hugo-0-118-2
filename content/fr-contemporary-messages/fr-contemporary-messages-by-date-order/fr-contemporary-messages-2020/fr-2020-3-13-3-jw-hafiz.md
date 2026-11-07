@@ -1,7 +1,7 @@
 ---
 title: "Un rayon de lumière"
 menu_title: ""
-description: "Un rayon de lumière"
+description: "Hafiz, reçu par Jimbeau Walsh : « Cette connexion est facilitée par l’amour et provoquée par chacun qui recherche cet amour dans la chasse spirituelle où … »"
 date: 2022-06-01 06:00:01+00:1027
 draft: False
 hidden: True

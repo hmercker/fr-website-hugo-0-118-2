@@ -1,7 +1,7 @@
 ---
 title: "Les portails de lumière assistent le travail de guérison"
 menu_title: ""
-description: "Les portails de lumière assistent le travail de guérison"
+description: "Keea Atta Kem, reçu par Maureen Cardoso : « C’est un don précieux que Dieu a placé dans vos âmes et que vous désirez développer pour servir votre Père … »"
 date: 2022-06-01 06:00:01+00:1391
 draft: False
 hidden: True

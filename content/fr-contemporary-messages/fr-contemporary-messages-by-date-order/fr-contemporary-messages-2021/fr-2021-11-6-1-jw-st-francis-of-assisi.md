@@ -1,7 +1,7 @@
 ---
 title: "Le plan des amis et de la famille de Dieu"
 menu_title: ""
-description: "Le plan des amis et de la famille de Dieu"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Quelles que soient les richesses que vous avez possédées dans le monde matériel, sachez qu’elles ne vous … »"
 date: 2022-06-01 06:00:01+00:1707
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Les pièges de la médiumnité"
 menu_title: ""
-description: "Les pièges de la médiumnité"
+description: "Augustin, reçu par Al Fike : « Ah les pièges de la médiumnité, ils sont grands et nombreux. Pourtant, ce service particulier apporte avec lui une mesure … »"
 date: 2022-06-01 06:00:01+00:1408
 draft: False
 hidden: True

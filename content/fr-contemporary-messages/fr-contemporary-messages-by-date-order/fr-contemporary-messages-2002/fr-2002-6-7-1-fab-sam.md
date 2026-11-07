@@ -1,7 +1,7 @@
 ---
 title: "Retraite spirituelle - Hawaii_2"
 menu_title: ""
-description: "Retraite spirituelle - Hawaii_2"
+description: "Sam, reçu par FAB : « Il y a actuellement une grande détresse dans votre monde. Cette détresse n'est que temporaire, et c'est parce que s'il y a une … »"
 date: 2022-06-01 06:00:01+00:22
 draft: False
 hidden: True

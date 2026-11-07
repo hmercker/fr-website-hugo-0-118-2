@@ -1,7 +1,7 @@
 ---
 title: "Nous oblige à être des lumières dans le monde"
 menu_title: ""
-description: "Nous oblige à être des lumières dans le monde"
+description: "Jésus, reçu par Albert Fike : « … faites-le ensemble, âmes bien-aimées. La puissance de cet amour est le plus grand cadeau qui puisse être fait à un … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

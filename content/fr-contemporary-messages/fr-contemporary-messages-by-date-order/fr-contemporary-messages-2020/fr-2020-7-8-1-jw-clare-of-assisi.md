@@ -1,7 +1,7 @@
 ---
 title: "Confiance et Foi"
 menu_title: ""
-description: "Confiance et Foi"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Je sais que dans les messages que le frère (HR) a reçu de Judas, il y a de merveilleux aperçus sur ce qu'est … »"
 date: 2022-06-01 06:00:01+00:1179
 draft: False
 hidden: True

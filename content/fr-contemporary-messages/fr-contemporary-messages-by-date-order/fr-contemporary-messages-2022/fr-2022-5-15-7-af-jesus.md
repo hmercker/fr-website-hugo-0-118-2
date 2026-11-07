@@ -1,7 +1,7 @@
 ---
 title: "Retraite de bénédictions à Guernesey"
 menu_title: ""
-description: "Retraite de bénédictions à Guernesey"
+description: "Jésus, reçu par Al Fike : « Lien vers les messages des années 2022 Lien vers la liste des messages contemporains classées par année »"
 date: 2022-06-01 06:00:01+00:95
 draft: False
 hidden: True

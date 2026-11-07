@@ -1,7 +1,7 @@
 ---
 title: "Nous devons apprendre à ne pas construire de barrières"
 menu_title: ""
-description: "Nous devons apprendre à ne pas construire de barrières"
+description: "Abdulla : « Il n'y a pas de barrières dans la vie mes amis. Les barrières que nous trouvons dans la vie sont celles que nous construisons pour nous-mêmes. »"
 date: 2022-06-01 06:00:01+00:156
 draft: False
 hidden: True

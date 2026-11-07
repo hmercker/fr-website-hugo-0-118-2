@@ -1,7 +1,7 @@
 ---
 title: "Anne Rollins écrit de nouveau sur le Royaume de Jésus fermé pour tous ceux qui n’ont pas reçu l’Amour Divin du Père"
 menu_title: ""
-description: "Anne Rollins écrit de nouveau sur le Royaume de Jésus fermé pour tous ceux qui n’ont pas reçu l’Amour Divin du Père"
+description: "Anne Rollins, reçu par James Padgett : « Le Royaume de Jésus sera un Royaume où seuls vivront ceux qui croiront en ses enseignements de vérité et qui … »"
 date: 2022-06-01 06:00:01+00:12
 draft: False
 hidden: True

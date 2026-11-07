@@ -1,7 +1,7 @@
 ---
 title: "Soyez Amour"
 menu_title: ""
-description: "Soyez Amour"
+description: "Marie, reçu par Al Fike : « Là où il y a de l’amour, il y a de l’espoir. Là où il y a de l’amour, il y a une élévation. »"
 date: 2022-06-01 06:00:01+00:1238
 draft: False
 hidden: True

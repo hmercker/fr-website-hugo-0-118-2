@@ -1,7 +1,7 @@
 ---
 title: "Le retrait de l'Amour Divin et sa réaffectation"
 menu_title: ""
-description: "Le retrait de l'Amour Divin et sa réaffectation"
+description: "Jésus, reçu par FAB : « Vous vous êtes toujours demandé pourquoi Dieu a retiré complètement le privilège de l'Amour Divin jusqu'à ma venue ? »"
 date: 2022-06-01 06:00:01+00:104
 draft: False
 hidden: True

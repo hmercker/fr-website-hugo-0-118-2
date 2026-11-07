@@ -1,7 +1,7 @@
 ---
 title: "L’expérience d’Hélène Padgett essayant de montrer le chemin de l’Amour de Dieu à un esprit"
 menu_title: ""
-description: "L’expérience d’Hélène Padgett essayant de montrer le chemin de l’Amour de Dieu à un esprit"
+description: "Hélène Padgett, reçu par James Padgett : « Je veux te parler de l’expérience que j’ai eue, il y a peu de temps, lorsque j’ai essayé de montrer à un esprit … »"
 date: 2022-06-01 06:00:01+00:33
 draft: False
 hidden: True

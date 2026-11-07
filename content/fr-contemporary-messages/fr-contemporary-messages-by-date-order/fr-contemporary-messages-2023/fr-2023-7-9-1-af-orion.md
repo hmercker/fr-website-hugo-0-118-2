@@ -1,7 +1,7 @@
 ---
 title: "Des êtres de lumière venus d'autres planètes nous aident sur Terre"
 menu_title: ""
-description: "Des êtres de lumière venus d'autres planètes nous aident sur Terre"
+description: "Orion, reçu par Albert Fike : « En effet, certains d’entre nous venant d’autres planètes sont avec vous. Mon âme est remplie de ce cadeau. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

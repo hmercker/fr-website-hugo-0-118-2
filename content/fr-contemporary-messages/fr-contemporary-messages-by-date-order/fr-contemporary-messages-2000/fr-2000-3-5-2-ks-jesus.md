@@ -1,7 +1,7 @@
 ---
 title: "Marchant sur l’eau"
 menu_title: ""
-description: "Marchant sur l’eau"
+description: "Jésus, reçu par Kathryn Stokes : « Mais, dans le cas présent, où j’avais embarqué dans une petite barque dans le but de rattraper mes disciples, qui … »"
 date: 2022-06-01 06:00:01+00:03
 draft: False
 hidden: True

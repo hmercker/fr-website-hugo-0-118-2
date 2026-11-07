@@ -1,7 +1,7 @@
 ---
 title: "L'Éclosion de la Joie au Cœur de l'Âme"
 menu_title: ""
-description: "L'Éclosion de la Joie au Cœur de l'Âme"
+description: "Goldie, reçu par Al Fike : « Du cœur de l’âme, ce cœur qui sait que même ces jours sur Terre sont comptés et limités, que le voyage de l’âme se poursuit … »"
 date: 2026-05-24 16:00:01+00:01
 draft: False
 hidden: True

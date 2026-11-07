@@ -1,7 +1,7 @@
 ---
 title: "L’amour doit devenir la monnaie de l’humanité"
 menu_title: ""
-description: "L’amour doit devenir la monnaie de l’humanité"
+description: "Jésus, reçu par Al Fike : « Vous êtes tous mes frères et sœurs qui marchent dans ce monde en cherchant à maintenir la lumière, l’amour et la vérité. »"
 date: 2022-06-01 06:00:01+00:978
 draft: False
 hidden: True

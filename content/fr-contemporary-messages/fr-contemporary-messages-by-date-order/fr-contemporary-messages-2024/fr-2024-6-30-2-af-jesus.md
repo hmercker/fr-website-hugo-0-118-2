@@ -1,7 +1,7 @@
 ---
 title: "Jésus encourage Cliff"
 menu_title: ""
-description: "Jésus encourage Cliff"
+description: "Jésus, reçu par Albert Fike : « Puisse l’esprit de Dieu toucher profondément chacune de vos âmes afin que vous puissiez connaître un grand afflux de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

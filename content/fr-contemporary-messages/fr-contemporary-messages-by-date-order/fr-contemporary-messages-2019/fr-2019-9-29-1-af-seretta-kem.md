@@ -1,7 +1,7 @@
 ---
 title: "Réveiller nos âmes pour faire face aux changements à venir sur la Terre"
 menu_title: ""
-description: "Réveiller nos âmes pour faire face aux changements à venir sur la Terre"
+description: "Seretta Kem, reçu par Al Fike : « Bien que souvent, dans votre mental, vous n’en voyez pas les résultats, nous, en esprit, le voyons clairement. »"
 date: 2022-06-01 06:00:01+00:866
 draft: False
 hidden: True

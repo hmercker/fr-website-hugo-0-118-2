@@ -1,7 +1,7 @@
 ---
 title: "La porte de la vérité s'ouvre avec l'Amour de Dieu"
 menu_title: ""
-description: "La porte de la vérité s'ouvre avec l'Amour de Dieu"
+description: "André, reçu par Al Fike : « Que votre âme aspire toujours plus intensément à ce don. Puissiez-vous apprendre à connaître vos propres âmes comme des … »"
 date: 2022-06-01 06:00:01+00:634
 draft: False
 hidden: True

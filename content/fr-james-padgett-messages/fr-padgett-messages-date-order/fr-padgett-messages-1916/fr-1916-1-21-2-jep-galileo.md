@@ -1,7 +1,7 @@
 ---
 title: "Galilée écrit sur ses études de l’Univers matériel"
 menu_title: ""
-description: "Galilée écrit sur ses études de l’Univers matériel"
+description: "Galilée, reçu par James Padgett : « Lors de ma vie terrestre, j’ai pensé que mon invention du télescope était une chose merveilleuse et qu’elle allait … »"
 date: 2022-06-01 06:00:01+00:134
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Se rassembler en tant que communauté"
 menu_title: ""
-description: "Se rassembler en tant que communauté"
+description: "Nicodème, reçu par Al Fike : « Je souhaite répondre à ces préoccupations concernant l’avenir. Je sais que vous avez eu connaissance d’informations … »"
 date: 2022-06-01 06:00:01+00:963
 draft: False
 hidden: True

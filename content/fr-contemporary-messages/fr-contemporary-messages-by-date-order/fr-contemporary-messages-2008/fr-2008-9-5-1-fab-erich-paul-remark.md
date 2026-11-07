@@ -1,7 +1,7 @@
 ---
 title: "Un auteur Allemand trouve la confirmation"
 menu_title: ""
-description: "Un auteur Allemand trouve la confirmation"
+description: "Erich Paul Remarque, reçu par FAB : « Je fus heureux d'avoir laissé derrière moi mon roman [Tout le calme sur le front occidental]. »"
 date: 2022-06-01 06:00:01+00:103
 draft: False
 hidden: True

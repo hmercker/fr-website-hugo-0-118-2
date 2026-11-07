@@ -1,7 +1,7 @@
 ---
 title: "J'ai rencontré Jésus sur Terre et continue de répandre la vérité de l'Amour de Dieu"
 menu_title: ""
-description: "J'ai rencontré Jésus sur Terre et continue de répandre la vérité de l'Amour de Dieu"
+description: "St Barthélémy, reçu par Albert Fike : « J’ai eu l’expérience d’un Africain vivant au temps de Jésus. J’ai voyagé et rencontré le Maître alors qu’il était … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

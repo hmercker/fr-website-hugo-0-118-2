@@ -1,7 +1,7 @@
 ---
 title: "L'Amérique et la vérité spirituelle - 2"
 menu_title: ""
-description: "L'Amérique et la vérité spirituelle - 2"
+description: "Jésus, reçu par FAB : « Permettez-moi de compléter mon message. Nous, les Anges Célestes, nous ne sommes certainement pas naïfs. »"
 date: 2022-06-01 06:00:01+00:168
 draft: False
 hidden: True

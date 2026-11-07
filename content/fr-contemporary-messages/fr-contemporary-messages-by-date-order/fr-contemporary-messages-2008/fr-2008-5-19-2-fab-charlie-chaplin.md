@@ -1,7 +1,7 @@
 ---
 title: "Les films et l'absence de temps dans l'au-delà"
 menu_title: ""
-description: "Les films et l'absence de temps dans l'au-delà"
+description: "Charlie Chaplin, reçu par FAB : « Comme tout est différent ! Aucune des contraintes de la vie terrestre n'existe ici, à la seule exception des contraintes … »"
 date: 2022-06-01 06:00:01+00:63
 draft: False
 hidden: True

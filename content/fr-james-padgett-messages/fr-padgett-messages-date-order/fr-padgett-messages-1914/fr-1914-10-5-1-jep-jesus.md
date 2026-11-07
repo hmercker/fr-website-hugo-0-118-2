@@ -1,7 +1,7 @@
 ---
 title: "Un premier message de Jésus pour permettre à M. Padgett d’acquérir une condition spirituelle avant que les vérités importantes ne soient écrites"
 menu_title: ""
-description: "Un premier message de Jésus pour permettre à M. Padgett d’acquérir une condition spirituelle avant que les vérités importantes ne soient écrites"
+description: "Jésus, reçu par James Padgett : « Vous ne devez pas être trop anxieux afin que je puisse expliquer tous les mystères de la création de Dieu. »"
 date: 2022-06-01 06:00:01+00:21
 draft: False
 hidden: True

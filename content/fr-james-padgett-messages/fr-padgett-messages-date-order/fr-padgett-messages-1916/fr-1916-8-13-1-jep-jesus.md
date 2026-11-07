@@ -1,7 +1,7 @@
 ---
 title: "Jésus ne viendra jamais comme le Prince Michael pour établir son Royaume"
 menu_title: ""
-description: "Jésus ne viendra jamais comme le Prince Michael pour établir son Royaume"
+description: "Jésus, reçu par James Padgett : « J’étais avec vous ce soir et j’ai entendu l’allocution du prédicateur (Elder Daniels) et l’explication de la cause de la … »"
 date: 2022-06-01 06:00:01+00:262
 draft: False
 hidden: True

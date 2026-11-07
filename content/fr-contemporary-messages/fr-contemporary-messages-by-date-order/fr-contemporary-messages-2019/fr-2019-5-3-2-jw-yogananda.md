@@ -1,7 +1,7 @@
 ---
 title: "Débarrassez-vous de vos distractions"
 menu_title: ""
-description: "Débarrassez-vous de vos distractions"
+description: "Yogananda, reçu par Jimbeau Walsh : « Cher ami de mon âme, frère bien-aimé sur le chemin de l’Amour de Dieu, c’est ma joie d’être avec toi dans cette … »"
 date: 2022-06-01 06:00:01+00:722
 draft: False
 hidden: True

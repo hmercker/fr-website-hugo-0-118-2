@@ -1,7 +1,7 @@
 ---
 title: "Progressez à travers les Sphères et Laurelville"
 menu_title: ""
-description: "Progressez à travers les Sphères et Laurelville"
+description: "Joseph Babinky, reçu par Brian Holmes : « C’est ton ami spirituel, Joseph Babinsky. Cela fait un moment que nous n’avons pas parlé et j’aimerais que cela … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

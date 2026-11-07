@@ -1,7 +1,7 @@
 ---
 title: "Les lois spirituelles de la prière et de l'activation"
 menu_title: ""
-description: "Les lois spirituelles de la prière et de l'activation"
+description: "Keea Atta Kem, reçu par Maureen Cardoso : « J’aimerais partager un message qui se rapporte à certaines des lois spirituelles dont vous allez discuter dans … »"
 date: 2022-06-01 06:00:01+00:1103
 draft: False
 hidden: True

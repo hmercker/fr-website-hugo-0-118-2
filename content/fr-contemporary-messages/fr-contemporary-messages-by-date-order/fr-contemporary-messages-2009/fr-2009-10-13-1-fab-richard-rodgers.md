@@ -1,7 +1,7 @@
 ---
 title: "Les expériences de Richard Rodgers"
 menu_title: ""
-description: "Les expériences de Richard Rodgers"
+description: "Richard Rodgers, reçu par FAB : « Vous êtres arrivé à la fin de la lecture de ma biographie [par Meryle Secrest], et vos yeux sont maintenant ouverts sur … »"
 date: 2022-06-01 06:00:01+00:89
 draft: False
 hidden: True

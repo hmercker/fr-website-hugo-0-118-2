@@ -2,8 +2,7 @@
 title: "Les plaisirs physiques sont bons
 "
 menu_title: ""
-description: "Les plaisirs physiques sont bons
-"
+description: "Jésus, reçu par FAB : « Maintenant que vous avez une certaine perspective objective de ce qui s'est passé à l'heure du café, vous vous rendez compte que … »"
 date: 2022-06-01 06:00:01+00:34
 draft: False
 hidden: True

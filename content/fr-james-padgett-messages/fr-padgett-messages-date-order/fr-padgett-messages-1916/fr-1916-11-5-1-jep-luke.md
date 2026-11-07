@@ -1,7 +1,7 @@
 ---
 title: "Le mystère de la Divinité. Trois en un est un mythe. Il n’y a aucun mystère que les hommes ne devraient pas connaître"
 menu_title: ""
-description: "Le mystère de la Divinité. Trois en un est un mythe. Il n’y a aucun mystère que les hommes ne devraient pas connaître"
+description: "St Luc, reçu par James Padgett : « Je sais que les orthodoxes croient généralement qu’il est une partie de la Divinité et le classent ainsi en considérant … »"
 date: 2022-06-01 06:00:01+00:322
 draft: False
 hidden: True

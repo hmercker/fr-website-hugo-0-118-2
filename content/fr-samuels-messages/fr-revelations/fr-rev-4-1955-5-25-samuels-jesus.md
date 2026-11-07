@@ -1,7 +1,7 @@
 ---
 title: "4ème Révélation : Jésus annonce Sa Messianité"
 menu_title: ""
-description: "4ème Révélation : Jésus annonce Sa Messianité"
+description: "Jésus, reçu par Dr Samuels : « La discussion que vous avez eue avec le Docteur, au sujet de mon sermon dans la synagogue de Nazareth, fut très importante … »"
 date: 2022-06-01 06:00:01+00:04
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Envoyer de l’Amour à Dieu est une communion spéciale"
 menu_title: ""
-description: "Envoyer de l’Amour à Dieu est une communion spéciale "
+description: "George Stokes, reçu par Elizabeth Mack : « Car Dieu entend vos prières, élève vos âmes, les ouvre. Bienheureux êtes-vous les enfants. »"
 date: 2022-06-01 06:00:01+00:220
 draft: False
 hidden: True

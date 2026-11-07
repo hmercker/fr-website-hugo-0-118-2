@@ -1,7 +1,7 @@
 ---
 title: "Dans la gratitude et l'Amour de Dieu"
 menu_title: ""
-description: "Dans la gratitude et l'Amour de Dieu"
+description: "Révérend George Vale Owen, reçu par Jimbeau Walsh : « Et pourtant, même à ce moment-là, je pouvais voir la gloire, je pouvais ressentir l’Amour. »"
 date: 2022-06-01 06:00:01+00:1216
 draft: False
 hidden: True

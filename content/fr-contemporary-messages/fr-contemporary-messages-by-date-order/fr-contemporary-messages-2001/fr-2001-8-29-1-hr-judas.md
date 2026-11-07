@@ -1,7 +1,7 @@
 ---
 title: "Communications avec des esprits Célestes ou non"
 menu_title: ""
-description: "Communications avec des esprits Célestes ou non"
+description: "Judas, reçu par H : « Après notre rencontre hier dans la matinée, je n’ai pas communiqué avec toi. Tu n’as pas non plus reçu d’impressions de ma part. »"
 date: 2022-06-01 06:00:01+00:31
 draft: False
 hidden: True

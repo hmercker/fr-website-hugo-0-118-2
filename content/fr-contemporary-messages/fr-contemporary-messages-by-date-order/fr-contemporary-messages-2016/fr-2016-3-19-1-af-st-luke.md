@@ -1,7 +1,7 @@
 ---
 title: "Le pouvoir de la prière"
 menu_title: ""
-description: "Le pouvoir de la prière"
+description: "St Luc, reçu par Al Fike : « Dieu met en elles le désir, la pensée de venir et d’aider par amour. Et, ma chère fille, tes prières étaient ferventes et ont … »"
 date: 2022-06-01 06:00:01+00:178
 draft: False
 hidden: True

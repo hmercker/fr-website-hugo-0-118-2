@@ -1,7 +1,7 @@
 ---
 title: "Les dons de la connaissance de la vérité de l'Amour de Dieu"
 menu_title: ""
-description: "Les dons de la connaissance de la vérité de l'Amour de Dieu"
+description: "Augustin, reçu par Al Fike : « Le cadeau de l'Amour du Père est en grande abondance au milieu de vous par vos prières et vos désirs apportant cet Amour … »"
 date: 2022-06-01 06:00:01+00:117
 draft: False
 hidden: True

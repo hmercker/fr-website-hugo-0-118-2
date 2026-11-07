@@ -1,7 +1,7 @@
 ---
 title: "Permettez à Dieu de vous utiliser comme Son canal d’Amour"
 menu_title: ""
-description: "Permettez à Dieu de vous utiliser comme Son canal d’Amour"
+description: "André, reçu par Al Fike : « Nous sommes très satisfaits de ces deux instruments qui ont voyagé loin et ont été un instrument et un canal pour toucher de … »"
 date: 2022-06-01 06:00:01+00:38
 draft: False
 hidden: True

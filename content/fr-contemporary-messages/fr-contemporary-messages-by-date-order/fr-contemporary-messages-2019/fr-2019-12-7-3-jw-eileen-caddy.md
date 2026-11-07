@@ -1,7 +1,7 @@
 ---
 title: "Vous aurez la victoire"
 menu_title: ""
-description: "Vous aurez la victoire"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « Vous saviez que j’étais ici, n’est-ce pas ? Ooh, merci d’avoir lu cette belle prière que j’ai reçue. »"
 date: 2022-06-01 06:00:01+00:956
 draft: False
 hidden: True

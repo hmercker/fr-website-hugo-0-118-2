@@ -1,7 +1,7 @@
 ---
 title: "Le voyage d’amour de Barbara"
 menu_title: ""
-description: "Le voyage d’amour de Barbara"
+description: "Barbara Davies, reçu par Albert Fike : « J’ai gagné mes ailes, pour ainsi dire. Sur Terre, j’ai traversé de nombreuses épreuves et tribulations, mais à … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

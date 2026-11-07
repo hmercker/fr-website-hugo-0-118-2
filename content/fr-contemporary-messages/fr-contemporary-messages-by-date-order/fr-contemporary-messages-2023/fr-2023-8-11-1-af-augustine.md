@@ -1,7 +1,7 @@
 ---
 title: "Marchez dans la vraie réalité de Dieu"
 menu_title: ""
-description: "Marchez dans la vraie réalité de Dieu"
+description: "Augustin, reçu par Albert Fike : « Vous êtes soumis à de nombreuses idées et conditions conscientes que vous avez absorbées depuis le début de votre … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

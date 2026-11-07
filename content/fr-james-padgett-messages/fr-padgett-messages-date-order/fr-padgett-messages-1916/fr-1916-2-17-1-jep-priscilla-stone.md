@@ -1,7 +1,7 @@
 ---
 title: "La mère du Dr Stone considère le travail de M. Padgett et de son fils très important et mentionne le grand amour du maître pour eux deux"
 menu_title: ""
-description: "La mère du Dr Stone considère le travail de M. Padgett et de son fils très important et mentionne le grand amour du maître pour eux deux"
+description: "Priscilla Stone, reçu par James Padgett : « Lui, je le sais, a beaucoup de l’Amour du Père dans son âme et cela le rapproche beaucoup plus de moi et me … »"
 date: 2022-06-01 06:00:01+00:147
 draft: False
 hidden: True

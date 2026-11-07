@@ -1,7 +1,7 @@
 ---
 title: "Reconnaissez les nombreuses étapes du Chemin Divin"
 menu_title: ""
-description: "Reconnaissez les nombreuses étapes du Chemin Divin"
+description: "André, reçu par Albert Fike : « Le voyage de croissance de l'âme grâce à l'Amour de Dieu est infini. Vous entamez ce périple dès le début de votre … »"
 date: 2026-10-04 06:00:01+00:01
 draft: False
 hidden: True

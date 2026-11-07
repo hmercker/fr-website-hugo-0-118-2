@@ -1,7 +1,7 @@
 ---
 title: "Affirmant que Jésus a écrit"
 menu_title: ""
-description: "Affirmant que Jésus a écrit"
+description: "Anne Rollins, reçu par James Padgett : « N’était-il pas beau et grand ? Tu es certainement très apprécié et je m’émerveille du grand Amour qui peut être … »"
 date: 2022-06-01 06:00:01+00:49
 draft: False
 hidden: True

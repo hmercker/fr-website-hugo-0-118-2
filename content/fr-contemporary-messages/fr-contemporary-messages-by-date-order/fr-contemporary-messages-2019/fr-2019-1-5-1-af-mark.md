@@ -1,7 +1,7 @@
 ---
 title: "Apporter la bénédiction de l'Amour divin à ce sanctuaire"
 menu_title: ""
-description: "Apporter la bénédiction de l'Amour divin à ce sanctuaire"
+description: "Marc, reçu par Al Fike : « Vous ressentez les bénédictions de l’Amour de Dieu parmi vous en ce moment. Il est familier à beaucoup d’entre vous. »"
 date: 2022-06-01 06:00:01+00:597
 draft: False
 hidden: True

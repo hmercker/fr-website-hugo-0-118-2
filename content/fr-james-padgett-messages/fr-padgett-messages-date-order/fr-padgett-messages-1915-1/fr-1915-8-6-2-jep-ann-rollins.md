@@ -1,7 +1,7 @@
 ---
 title: "Anne Rollins,la grand-mère de M. Padgett parle des nombreuses raisons pour lesquelles de si nombreux esprits élevés ont écrit sur l’Amour Divin"
 menu_title: ""
-description: "Anne Rollins,la grand-mère de M. Padgett parle des nombreuses raisons pour lesquelles de si nombreux esprits élevés ont écrit sur l’Amour Divin"
+description: "Anne Rollins, reçu par James Padgett : « Eh bien, mon cher fils, j’attendais de venir depuis un certain temps, mais comme tu as eu tant d’esprits de … »"
 date: 2022-06-01 06:00:01+00:175
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La clarté viendra à vous"
 menu_title: ""
-description: "La clarté viendra à vous"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « Je ne souhaite pas perturber cette belle prière, mais confirmer ce que notre frère Yogananda et notre frère Luc … »"
 date: 2022-06-01 06:00:01+00:883
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Clôture de la Retraite de Poughkeepsie"
 menu_title: ""
-description: "Clôture de la Retraite de Poughkeepsie"
+description: "Augustin, reçu par Elizabeth Mack : « Car vous avez touché de nombreuses vies, de nombreuses âmes, et d’autres viendront. Votre œuvre n’est pas encore … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Dieu murmure à nos âmes pour qu’il puisse travailler à travers nous"
 menu_title: ""
-description: "Dieu murmure à nos âmes pour qu’il puisse travailler à travers nous"
+description: "St Jean, reçu par Al Fike : « Dieu murmure à votre oreille la vérité. Chacun de vous, à l’intérieur de vos âmes, écoute les vues de Dieu alors qu’Il vous … »"
 date: 2022-06-01 06:00:01+00:100
 draft: False
 hidden: True

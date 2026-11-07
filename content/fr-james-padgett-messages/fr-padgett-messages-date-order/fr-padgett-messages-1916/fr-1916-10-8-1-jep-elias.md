@@ -1,7 +1,7 @@
 ---
 title: "Élie écrit qu’il est le prophète de la Transfiguration qui s’est réellement produite"
 menu_title: ""
-description: "Élie écrit qu’il est le prophète de la Transfiguration qui s’est réellement produite"
+description: "Élie, reçu par James Padgett : « Je veux simplement vous dire que je désire vous écrire un message et que j’aurai plaisir à le faire dès que cela conviendra. »"
 date: 2022-06-01 06:00:01+00:290
 draft: False
 hidden: True

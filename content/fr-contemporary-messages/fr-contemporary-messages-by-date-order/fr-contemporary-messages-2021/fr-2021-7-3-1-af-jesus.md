@@ -1,7 +1,7 @@
 ---
 title: "Se concentrer sur ce qui est nécessaire"
 menu_title: ""
-description: "Se concentrer sur ce qui est nécessaire"
+description: "Jésus, reçu par Al Fike : « Votre travail est important, âmes bien-aimées. Lorsque vous vous asseyez et priez comme vous le faites, vous vous réunissez … »"
 date: 2022-06-01 06:00:01+00:1562
 draft: False
 hidden: True

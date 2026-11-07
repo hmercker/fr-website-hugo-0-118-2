@@ -1,7 +1,7 @@
 ---
 title: "Hélène a renoncé à une partie de son message pour permettre à l’âme-sœur du Dr Stone, Mary Kennedy, d’exprimer son amour et son bonheur vis à vis du travail qu’il accomplissait avec les esprits obscurs"
 menu_title: ""
-description: "Hélène a renoncé à une partie de son message pour permettre à l’âme-sœur du Dr Stone, Mary Kennedy, d’exprimer son amour et son bonheur vis à vis du travail qu’il accomplissait avec les esprits obscurs"
+description: "Hélène Padgett, reçu par James Padgett : « Beaucoup d’esprits l’accompagnent dans ses sérieux entretiens avec les mortels sur les vérités du monde des … »"
 date: 2022-06-01 06:00:01+00:75
 draft: False
 hidden: True

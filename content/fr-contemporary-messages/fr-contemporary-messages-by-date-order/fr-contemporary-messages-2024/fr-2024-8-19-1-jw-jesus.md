@@ -1,7 +1,7 @@
 ---
 title: "Cause et effet, temporel et spirituel"
 menu_title: ""
-description: "Cause et effet, temporel et spirituel"
+description: "Jésus, reçu par Jimbeau walsh : « Que l’esprit de l’Amour de Dieu soit avec vous. Que Sa sainte présence remplisse vos âmes et apporte la lumière de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

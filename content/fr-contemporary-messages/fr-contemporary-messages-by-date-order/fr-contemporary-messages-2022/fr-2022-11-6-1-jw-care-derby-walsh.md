@@ -1,7 +1,7 @@
 ---
 title: "Faites connaitre les intentions de votre âme au monde entier"
 menu_title: ""
-description: "Faites connaitre les intentions de votre âme au monde entier"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Je me décrivais parfois sur terre comme une guerrière de la prière, car c’était les armes que j’avais pour … »"
 date: 2022-06-01 06:00:01+00:206
 draft: False
 hidden: True

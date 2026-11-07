@@ -1,7 +1,7 @@
 ---
 title: "Appel à devenir les agents de changement de Dieu par l'Amour Divin"
 menu_title: ""
-description: "Appel à devenir les agents de changement de Dieu par l'Amour Divin"
+description: "Jésus, reçu par Albert Fike : « Merci, ma sœur bien-aimée. Tes prières sont sincères et s'élèvent vers Dieu. »"
 date: 2026-10-04 06:00:01+00:01
 draft: False
 hidden: True

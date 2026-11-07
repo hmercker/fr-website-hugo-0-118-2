@@ -1,7 +1,7 @@
 ---
 title: "Jean – Affirmant que Jésus avait montré sa gloire, sa puissance et autorité en écrivant à travers M. Padgett, et les merveilleuses bénédictions et foi qui pourront venir vers lui"
 menu_title: ""
-description: "Jean – Affirmant que Jésus avait montré sa gloire, sa puissance et autorité en écrivant à travers M. Padgett, et les merveilleuses bénédictions et foi qui pourront venir vers lui"
+description: "St Jean, reçu par James Padgett : « Vous ne devez pas douter qu’il vous a écrit comme vous l’avez reçu, et qu’il vous a choisi pour être son disciple pour … »"
 date: 2022-06-01 06:00:01+00:278
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Préoccupations terrestres et spirituelles"
 menu_title: ""
-description: "Préoccupations terrestres et spirituelles"
+description: "Jésus, reçu par FAB : « J'ai dit que mon Royaume n'est pas de ce monde, et je continue à l'enseigner. Mais la politique et l'économie SONT de ce monde. »"
 date: 2022-06-01 06:00:01+00:155
 draft: False
 hidden: True

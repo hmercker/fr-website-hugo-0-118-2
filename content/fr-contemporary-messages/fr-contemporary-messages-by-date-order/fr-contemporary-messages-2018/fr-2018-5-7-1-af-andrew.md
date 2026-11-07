@@ -1,7 +1,7 @@
 ---
 title: "L'Amour de Dieu n'est qu'à une prière de distance"
 menu_title: ""
-description: "L'Amour de Dieu n'est qu'à une prière de distance"
+description: "André, reçu par Al Fike : « Que la paix du Père soit un manteau sur vous et que Son Amour se déverse dans vos âmes, Son Amour infini toujours disponible … »"
 date: 2022-06-01 06:00:01+00:385
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Sur les Pères fondateurs"
 menu_title: ""
-description: "Sur les Pères fondateurs"
+description: "Benjamin Franklin, reçu par FAB : « Permettez-moi de vous donner mon avis sur ce que David Korten a dit de nous, les pères fondateurs. »"
 date: 2022-06-01 06:00:01+00:105
 draft: False
 hidden: True

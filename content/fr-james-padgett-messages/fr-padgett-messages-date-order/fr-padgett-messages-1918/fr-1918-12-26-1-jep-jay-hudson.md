@@ -1,7 +1,7 @@
 ---
 title: "Les vérités qu’un auteur a apprises depuis son passage à la vie spirituelle"
 menu_title: ""
-description: "Les vérités qu’un auteur a apprises depuis son passage à la vie spirituelle"
+description: "Jay Hudson, reçu par James Padgett : « Laissez-moi vous dire un mot. Vous ne faites pas preuve de sagesse en lisant ce livre, « Démonstration scientifique … »"
 date: 2022-06-01 06:00:01+00:76
 draft: False
 hidden: True

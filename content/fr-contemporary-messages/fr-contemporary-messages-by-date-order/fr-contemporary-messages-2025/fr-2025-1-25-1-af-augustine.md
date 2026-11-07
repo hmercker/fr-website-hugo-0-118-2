@@ -1,7 +1,7 @@
 ---
 title: "Ouverture de la Retraite Starpoint"
 menu_title: ""
-description: "Ouverture de la Retraite Starpoint"
+description: "Augustin, reçu par Albert Fike : « Que Dieu touche votre âme profondément. J’ai dépassé les limites de cette époque sur Terre, il y a tant d’années. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

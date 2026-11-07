@@ -1,7 +1,7 @@
 ---
 title: "La Voie Antique"
 menu_title: ""
-description: "La Voie Antique"
+description: "Gilgamesh, reçu par RL : « Si seulement chaque personne pourrait réserver un peu de temps chaque jour pour balayer leur cour. »"
 date: 2022-06-01 06:00:01+00:10
 draft: False
 hidden: True

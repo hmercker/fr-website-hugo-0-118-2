@@ -1,7 +1,7 @@
 ---
 title: "Confirmation par St Barnabé que M. Padgett est choisi par le Maître"
 menu_title: ""
-description: "Confirmation par St Barnabé que M. Padgett est choisi par le Maître"
+description: "St Barnabé, reçu par James Padgett : « Permettez-moi de compléter ce que Saint Étienne a écrit. Je n’ai pas seulement été le collaborateur de Paul à … »"
 date: 2022-06-01 06:00:01+00:137
 draft: False
 hidden: True

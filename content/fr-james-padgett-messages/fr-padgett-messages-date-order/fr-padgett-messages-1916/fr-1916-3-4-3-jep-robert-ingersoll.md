@@ -1,7 +1,7 @@
 ---
 title: "Robert Ingersoll est remerciant envers la grand-mère de James Padgett pour l’aide qu’elle lui a fournie pour sa progression"
 menu_title: ""
-description: "Robert Ingersoll est remerciant envers la grand-mère de James Padgett pour l’aide qu’elle lui a fournie pour sa progression"
+description: "Robert Ingersoll, reçu par James Padgett : « Je voudrais terminer mon message ce soir si cela vous convient. Eh bien, vu les circonstances, je ne pense … »"
 date: 2022-06-01 06:00:01+00:159
 draft: False
 hidden: True

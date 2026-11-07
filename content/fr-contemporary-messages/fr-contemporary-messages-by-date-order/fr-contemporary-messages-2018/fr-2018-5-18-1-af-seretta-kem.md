@@ -1,7 +1,7 @@
 ---
 title: "Réponse aux messages vocaux directs historiques"
 menu_title: ""
-description: "Réponse aux messages vocaux directs historiques"
+description: "Seretta Kem, reçu par Al Fike : « Je vois que vous avez quelques questions concernant certains des messages qui datent du groupe précédent qui s’est … »"
 date: 2022-06-01 06:00:01+00:394
 draft: False
 hidden: True

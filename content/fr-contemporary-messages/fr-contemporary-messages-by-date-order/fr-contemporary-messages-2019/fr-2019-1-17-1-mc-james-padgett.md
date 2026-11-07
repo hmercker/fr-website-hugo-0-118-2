@@ -1,7 +1,7 @@
 ---
 title: "L’expérience de recevoir l’Amour Divin se fait par la perception"
 menu_title: ""
-description: "L’expérience de recevoir l’Amour Divin se fait par la perception"
+description: "James Padgett, reçu par Maureen Cardoso : « Je m’appelle James Padgett. Je voudrais féliciter la chère âme pour avoir partagé avec vous ces mots qui vous … »"
 date: 2022-06-01 06:00:01+00:605
 draft: False
 hidden: True

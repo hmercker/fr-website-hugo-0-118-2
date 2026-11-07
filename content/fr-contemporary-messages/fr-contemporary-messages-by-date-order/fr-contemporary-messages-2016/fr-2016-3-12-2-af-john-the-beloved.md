@@ -1,7 +1,7 @@
 ---
 title: "La touche de Dieu dans le monde"
 menu_title: ""
-description: "La touche de Dieu dans le monde"
+description: "Jean le bien-aimé, reçu par Al Fike : « Ainsi, vous voyez comment Dieu travaille dans vos vies. À chaque instant, il touche votre vie, il ouvre le chemin … »"
 date: 2022-06-01 06:00:01+00:173
 draft: False
 hidden: True

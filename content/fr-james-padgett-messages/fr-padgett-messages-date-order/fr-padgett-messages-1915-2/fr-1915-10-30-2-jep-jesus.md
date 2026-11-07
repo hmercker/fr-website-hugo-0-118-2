@@ -1,7 +1,7 @@
 ---
 title: "Jésus dit que Eugène Morgan est un homme très spirituel"
 menu_title: ""
-description: "Jésus dit que Eugène Morgan est un homme très spirituel"
+description: "Jésus, reçu par James Padgett : « Il est naturellement un homme spirituel, et les longues années de sa vie solitaire ont été remplies de pensées et … »"
 date: 2022-06-01 06:00:01+00:30
 draft: False
 hidden: True

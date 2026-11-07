@@ -1,7 +1,7 @@
 ---
 title: "La Confédération iroquoise - 2"
 menu_title: ""
-description: "La Confédération iroquoise - 2"
+description: "Benjamin Franklin, reçu par FAB : « J'ai le regret de dire que, bien que certains d'entre nous, les pères fondateurs, connaissaient l'existence de la … »"
 date: 2022-06-01 06:00:01+00:126
 draft: False
 hidden: True

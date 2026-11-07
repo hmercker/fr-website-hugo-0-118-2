@@ -1,7 +1,7 @@
 ---
 title: "Destinée et libre arbitre - Partie 2"
 menu_title: ""
-description: "Destinée et libre arbitre - Partie 2"
+description: "Augustin, reçu par Al Fike : « Je souhaite poursuivre mon discours sur le libre arbitre par rapport au destin, car je souhaite ajouter quelques éléments à … »"
 date: 2022-06-01 06:00:01+00:709
 draft: False
 hidden: True

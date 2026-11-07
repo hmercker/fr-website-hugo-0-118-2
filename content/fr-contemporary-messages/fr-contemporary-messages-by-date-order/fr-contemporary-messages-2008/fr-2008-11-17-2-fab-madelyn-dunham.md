@@ -1,7 +1,7 @@
 ---
 title: "La fierté et la joie de la grand-mère de Barack Obama"
 menu_title: ""
-description: "La fierté et la joie de la grand-mère de Barack Obama"
+description: "Madelyn Dunham, reçu par FAB : « Je n'ai pas été surprise par de nombreuses choses que j'ai récemment vécues ici. J'ai observé la victoire de mon … »"
 date: 2022-06-01 06:00:01+00:132
 draft: False
 hidden: True

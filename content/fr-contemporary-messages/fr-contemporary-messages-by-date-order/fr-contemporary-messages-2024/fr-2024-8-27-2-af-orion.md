@@ -1,7 +1,7 @@
 ---
 title: "Continue de nous encourager à la conscience de l'âme"
 menu_title: ""
-description: "Continue de nous encourager à la conscience de l'âme"
+description: "Orion, reçu par Albert Fike : « Je veux parler des choix que l’on fait à chaque instant de chaque jour, de ce que vous aimez faire avec votre esprit et … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

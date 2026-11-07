@@ -1,7 +1,7 @@
 ---
 title: "Dieu pourvoit à tout ce dont vous avez besoin"
 menu_title: ""
-description: "Dieu pourvoit à tout ce dont vous avez besoin"
+description: "Augustin, reçu par Al Fike : « Âmes bien-aimées, c’est votre enseignant Augustin. Chacun d’entre vous a eu des difficultés à un moment donné de sa vie … »"
 date: 2022-06-01 06:00:01+00:919
 draft: False
 hidden: True

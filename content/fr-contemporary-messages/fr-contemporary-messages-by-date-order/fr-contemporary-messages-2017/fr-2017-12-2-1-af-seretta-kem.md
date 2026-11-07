@@ -1,7 +1,7 @@
 ---
 title: "Laissez tomber l'intolérance"
 menu_title: ""
-description: "Laissez tomber l'intolérance"
+description: "Seretta Kem, reçu par Al Fike : « Aah, vous êtes tous si différents, des personnalités si uniques, exprimany tant de caractéristiques façonnées par vos … »"
 date: 2022-06-01 06:00:01+00:249
 draft: False
 hidden: True

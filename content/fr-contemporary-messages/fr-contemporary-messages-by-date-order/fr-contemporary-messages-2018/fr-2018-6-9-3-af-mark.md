@@ -1,7 +1,7 @@
 ---
 title: "Guidance et bénédictions - Retraite F.U.S.C."
 menu_title: ""
-description: "Guidance et bénédictions - Retraite F.U.S.C."
+description: "Marc, reçu par Al Fike : « Je vous le dis, les mains de Dieu reposent sur votre église. Elle est en sécurité et elle est protégée par les soins et la … »"
 date: 2022-06-01 06:00:01+00:410
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Si vous aviez une croyance pour vous porter"
 menu_title: ""
-description: "Si vous aviez une croyance pour vous porter"
+description: "Thomas Merton, reçu par Jimbeau Walsh : « J’ai suivi le chemin de l’amour lorsque j’étais sur terre parce que j’avais découvert la seule chose dans … »"
 date: 2022-06-01 06:00:01+00:1117
 draft: False
 hidden: True

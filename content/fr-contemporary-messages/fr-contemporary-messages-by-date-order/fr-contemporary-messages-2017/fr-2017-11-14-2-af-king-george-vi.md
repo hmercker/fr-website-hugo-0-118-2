@@ -1,7 +1,7 @@
 ---
 title: "Continuez"
 menu_title: ""
-description: "Continuez"
+description: "Roi George VI, reçu par Al Fike : « Moi aussi, je souhaite m'avancer et apporter un message de paix et de vérité au monde. Il y a beaucoup de personnes … »"
 date: 2022-06-01 06:00:01+00:199
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Clarification"
 menu_title: ""
-description: "Clarification"
+description: "Jésus, reçu par FAB : « Laisse-moi clarifier les choses pour vous. Vous avez besoin d’une perspective plus large. »"
 date: 2022-06-01 06:00:01+00:101
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "53ème Révélation : Dieu n’est pas un Dieu Père – Mère"
 menu_title: ""
-description: "53ème Révélation : Dieu n’est pas un Dieu Père – Mère"
+description: "Jésus, reçu par Dr Samuels : « Je me rends compte qu’il fait très chaud, et que votre désir de recevoir des messages du monde des esprits a, en … »"
 date: 2022-06-01 06:00:01+00:53
 draft: False
 hidden: True

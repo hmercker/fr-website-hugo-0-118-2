@@ -1,7 +1,7 @@
 ---
 title: "Jean le Baptiste est maintenant l’annonciateur du Maître, comme il était sur terre"
 menu_title: ""
-description: "Jean le Baptiste est maintenant l’annonciateur du Maître, comme il était sur terre"
+description: "Jean le Baptiste, reçu par James Padgett : « Je fais cela afin que vous puissiez croire et ne pas mettre en doute les messages que vous recevez. »"
 date: 2022-06-01 06:00:01+00:186
 draft: False
 hidden: True

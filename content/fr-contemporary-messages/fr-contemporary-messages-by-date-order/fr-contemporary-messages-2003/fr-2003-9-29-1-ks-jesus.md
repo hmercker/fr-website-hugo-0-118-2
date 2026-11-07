@@ -1,7 +1,7 @@
 ---
 title: "La vitesse de l’Amour"
 menu_title: ""
-description: "La vitesse de l’Amour"
+description: "Jésus, reçu par Kathryn Stokes : « J’avais l’habitude de « sentir » la présence de mon ange gardien lorsque j’écrivais et que les « m » « hésitaient » au … »"
 date: 2022-06-01 06:00:01+00:30
 draft: False
 hidden: True

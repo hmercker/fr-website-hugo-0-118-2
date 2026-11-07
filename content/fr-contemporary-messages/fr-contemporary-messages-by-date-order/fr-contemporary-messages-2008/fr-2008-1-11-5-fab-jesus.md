@@ -1,7 +1,7 @@
 ---
 title: "Guerre et paix et le plan de Dieu Partie 5"
 menu_title: ""
-description: "Guerre et paix et le plan de Dieu Partie 5"
+description: "Jésus, reçu par FAB : « Vous continuez à manquer de clarté sur le sujet de la guerre et du plan de Dieu, alors laissez-moi canaliser un autre message sur … »"
 date: 2022-06-01 06:00:01+00:08
 draft: False
 hidden: True

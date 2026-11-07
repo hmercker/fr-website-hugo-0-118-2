@@ -1,7 +1,7 @@
 ---
 title: "L'Amour de Dieu conduit à la  transformation"
 menu_title: ""
-description: "L'Amour de Dieu conduit à la  transformation"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Beaucoup a été dit au sujet des changements terrestres à venir, sur les événements qui se produisent sur la … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

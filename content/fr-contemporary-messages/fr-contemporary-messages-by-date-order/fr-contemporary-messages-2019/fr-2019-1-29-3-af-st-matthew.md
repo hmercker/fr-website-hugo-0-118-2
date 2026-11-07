@@ -1,7 +1,7 @@
 ---
 title: "Dieu a besoin de nous pour apporter la Vérité"
 menu_title: ""
-description: "Dieu a besoin de nous pour apporter la Vérité"
+description: "St Matthieu, reçu par Al Fike : « Il a besoin de vos prières. Il a besoin de votre volonté d’avancer dans la Lumière, de grandir dans Son Amour, de vous … »"
 date: 2022-07-10 06:25:48+00:80
 draft: False
 hidden: True

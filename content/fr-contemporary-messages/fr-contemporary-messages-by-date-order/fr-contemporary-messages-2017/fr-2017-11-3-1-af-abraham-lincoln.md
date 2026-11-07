@@ -1,7 +1,7 @@
 ---
 title: "Une grande soif dans mon pays"
 menu_title: ""
-description: "Une grande soif dans mon pays"
+description: "Abraham Lincoln, reçu par Al Fike : « Je me sens qualifié pour parler à mon peuple d'Amérique pour lequel j'ai une profonde préoccupation et je souhaite … »"
 date: 2022-06-01 06:00:01+00:175
 draft: False
 hidden: True

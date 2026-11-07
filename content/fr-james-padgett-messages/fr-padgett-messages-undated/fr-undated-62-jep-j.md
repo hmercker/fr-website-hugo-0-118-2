@@ -1,7 +1,7 @@
 ---
 title: "Un esprit qui a découvert qu’il n’avait pas développé son âme lorsqu’il est passé dans le monde spirituel"
 menu_title: ""
-description: "Un esprit qui a découvert qu’il n’avait pas développé son âme lorsqu’il est passé dans le monde spirituel"
+description: "J, reçu par James Padgett : « J’ai besoin d’aide, et vous allez m’aider, n’est-ce pas ? Ne dites pas que vous ne pouvez pas. »"
 date: 2022-06-01 06:00:01+00:136
 draft: False
 hidden: True

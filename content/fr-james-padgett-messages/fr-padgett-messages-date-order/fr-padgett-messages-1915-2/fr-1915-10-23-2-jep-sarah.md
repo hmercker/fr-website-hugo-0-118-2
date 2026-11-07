@@ -1,7 +1,7 @@
 ---
 title: "Sarah est maintenant chrétienne"
 menu_title: ""
-description: "Sarah est maintenant chrétienne"
+description: "Sarah, reçu par James Padgett : « Eh bien, quand il est dit que j’ai envoyé Agar dans le désert, ou permis qu’elle soit envoyée dans le désert pour y … »"
 date: 2022-06-01 06:00:01+00:14
 draft: False
 hidden: True

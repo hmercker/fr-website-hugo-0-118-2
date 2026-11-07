@@ -1,7 +1,7 @@
 ---
 title: "Priez sans cesse"
 menu_title: ""
-description: "Priez sans cesse"
+description: "St Luc, reçu par reçu par Jimbeau Walsh : « Mes chers frères et sœurs, je viens. Je souhaite saluer le magnifique message sur la prière , son importance … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

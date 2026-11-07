@@ -1,7 +1,7 @@
 ---
 title: "Le Sermon sur le vingt-troisième Psaume"
 menu_title: ""
-description: "Le Sermon sur le vingt-troisième Psaume"
+description: "Jésus, reçu par Dr Samuels : « Comme je l’ai dit antérieurement, mes enseignements dans la synagogue de Nazareth et dans d’autres endroits en Galilée … »"
 date: 2022-06-01 06:00:01+00:03
 draft: False
 hidden: True

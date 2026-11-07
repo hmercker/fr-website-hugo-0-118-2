@@ -1,7 +1,7 @@
 ---
 title: "La vérité sur Job"
 menu_title: ""
-description: "La vérité sur Job"
+description: "Jésus, reçu par FAB : « Vous avez lu que j'ai dit, à travers la médiumnité de Daniel Samuels, «... mais il [Habacuc] a interrogé et s'est plaint et a … »"
 date: 2022-06-01 06:00:01+00:115
 draft: False
 hidden: True

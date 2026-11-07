@@ -1,7 +1,7 @@
 ---
 title: "Corrobore le message de Saint Luc sur le péché impardonnable"
 menu_title: ""
-description: "Corrobore le message de Saint Luc sur le péché impardonnable"
+description: "Chas Latham, reçu par James Padgett : « En effet, beaucoup d’hommes qui, sur terre, ont nié Dieu et l’Esprit Saint, ont, depuis leur venue dans le monde … »"
 date: 2022-06-01 06:00:01+00:32
 draft: False
 hidden: True

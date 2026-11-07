@@ -1,7 +1,7 @@
 ---
 title: "Confirme les écrits de Daniel et Samuel"
 menu_title: ""
-description: "Confirme les écrits de Daniel et Samuel"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon chéri, tu dois t’arrêter pour ce soir. Tu es fatigué et cela fera du mal d’écrire plus. »"
 date: 2022-06-01 06:00:01+00:150
 draft: False
 hidden: True

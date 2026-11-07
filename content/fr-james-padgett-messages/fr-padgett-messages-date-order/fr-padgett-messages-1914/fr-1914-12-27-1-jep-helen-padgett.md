@@ -1,7 +1,7 @@
 ---
 title: "Conseille à M. Padgett de tourner toutes ses pensées vers Dieu et Son Amour et il réalisera bientôt que seul Son Amour est nécessaire pour devenir un homme très spirituel"
 menu_title: ""
-description: "Conseille à M. Padgett de tourner toutes ses pensées vers Dieu et Son Amour et il réalisera bientôt que seul Son Amour est nécessaire pour devenir un homme très spirituel"
+description: "Hélène Padgett, reçu par James Padgett : « Laissez-moi te dire que tu es très près du royaume, comme le dit ta grand-mère, car tu as une foi qui te … »"
 date: 2022-06-01 06:00:01+00:51
 draft: False
 hidden: True

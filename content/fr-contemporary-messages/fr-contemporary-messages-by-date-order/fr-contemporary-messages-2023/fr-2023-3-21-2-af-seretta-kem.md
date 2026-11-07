@@ -1,7 +1,7 @@
 ---
 title: "Trouver l'équilibre"
 menu_title: ""
-description: "Trouver l'équilibre"
+description: "Seretta Kem, reçu par Al Fike : « Être dans un état d’harmonie et d’équilibre dans ce monde matériel qui est le vôtre est en effet une chose difficile. »"
 date: 2023-09-01 06:00:01+00:101
 draft: False
 hidden: True

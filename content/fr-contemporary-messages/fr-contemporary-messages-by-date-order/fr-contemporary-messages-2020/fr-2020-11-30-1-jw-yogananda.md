@@ -1,7 +1,7 @@
 ---
 title: "Le chemin du cœur"
 menu_title: ""
-description: "Le chemin du cœur"
+description: "Yogananda, reçu par Jimbeau Walsh : « Cet amour qui imprègne l’Univers et qui est le vôtre pour le désir et transforme chaque âme, cet amour qui vous a … »"
 date: 2022-06-01 06:00:01+00:1331
 draft: False
 hidden: True

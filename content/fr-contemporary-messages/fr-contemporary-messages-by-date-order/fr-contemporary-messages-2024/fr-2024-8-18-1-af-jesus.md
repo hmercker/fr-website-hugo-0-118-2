@@ -1,7 +1,7 @@
 ---
 title: "Le cadeau extraordinaire de Dieu"
 menu_title: ""
-description: "Le cadeau extraordinaire de Dieu"
+description: "Jésus, reçu par Albert Fike : « La puissance de l’Amour de Dieu est impressionnante en profondeur, en ampleur, en puissance et en gloire. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

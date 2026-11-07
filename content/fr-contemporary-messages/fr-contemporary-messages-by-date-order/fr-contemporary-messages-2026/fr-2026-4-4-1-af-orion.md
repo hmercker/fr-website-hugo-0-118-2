@@ -1,7 +1,7 @@
 ---
 title: "Le Don d’un Monde Nouveau dans l’Amour de Dieu"
 menu_title: ""
-description: "Le Don d’un Monde Nouveau dans l’Amour de Dieu"
+description: "Orion, reçu par Al Fike : « Âmes bien-aimées, la puissance de ce grand Amour grandit en vous. Je reviens vous encourager sur ce chemin, ce chemin si … »"
 date: 2026-05-28 16:00:01+00:01
 draft: False
 hidden: True

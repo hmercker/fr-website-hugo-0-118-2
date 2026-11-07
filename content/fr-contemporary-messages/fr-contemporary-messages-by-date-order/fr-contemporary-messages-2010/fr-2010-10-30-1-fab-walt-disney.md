@@ -1,7 +1,7 @@
 ---
 title: "Walt Disney et La grève de ses studios"
 menu_title: ""
-description: "Walt Disney et La grève de ses studios"
+description: "Walt Disney, reçu par FAB : « Ce furent de puissantes influences dans mon enfance, et j'ai vraiment aimé mon père. Ce fut un lien très fort, et c'était … »"
 date: 2022-06-01 06:00:01+00:168
 draft: False
 hidden: True

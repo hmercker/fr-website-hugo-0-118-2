@@ -1,7 +1,7 @@
 ---
 title: "Priez avec ferveur, priez souvent, priez sans cesse, à chaque souffle"
 menu_title: ""
-description: "Priez avec ferveur, priez souvent, priez sans cesse, à chaque souffle"
+description: "Isaïe, reçu par Albert Fike : « Vous êtes sur le point d’entreprendre vos voyages. Certains d’entre vous ont mis de côté leurs peurs et ont accepté … »"
 date: 2026-10-21 06:00:01+00:09
 draft: False
 hidden: True

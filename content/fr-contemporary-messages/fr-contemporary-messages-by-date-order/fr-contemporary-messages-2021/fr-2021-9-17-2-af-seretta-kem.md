@@ -1,7 +1,7 @@
 ---
 title: "L’activité de guérison est une grande bénédiction (Retraite Voix Directe 2021)"
 menu_title: ""
-description: "L’activité de guérison est une grande bénédiction (Retraite Voix Directe 2021)"
+description: "Seretta Kem, reçu par Al Fike : « Nous sommes engagés dans le processus de nettoyage de nombreuses toxines, blocages, aspects sombres des énergies en vous. »"
 date: 2022-06-01 06:00:01+00:1649
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Frères dans l'Amour de Dieu"
 menu_title: ""
-description: "Frères dans l'Amour de Dieu"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Chers frères, y a-t-il quelque chose de plus précieux qu’un véritable ami dans l’Amour de Dieu sur cette Terre ? »"
 date: 2022-06-01 06:00:01+00:1155
 draft: False
 hidden: True

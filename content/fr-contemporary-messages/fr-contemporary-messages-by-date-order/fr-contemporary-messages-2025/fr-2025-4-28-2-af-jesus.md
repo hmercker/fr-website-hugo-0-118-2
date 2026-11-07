@@ -1,7 +1,7 @@
 ---
 title: "Nous devons rester proches et en harmonie pour accomplir le plan et le dessein de Dieu pour nous"
 menu_title: ""
-description: "Nous devons rester proches et en harmonie pour accomplir le plan et le dessein de Dieu pour nous "
+description: "Jésus, reçu par Albert Fike : « J’espère vraiment que vous me voyez comme tel, comme votre frère et certainement comme votre ami. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

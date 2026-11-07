@@ -1,7 +1,7 @@
 ---
 title: "Le moment éternel"
 menu_title: ""
-description: "Le moment éternel"
+description: "Jésus, reçu par Amada Reza : « Bien que le récit de ma vie dans la Bible ne soit pas, historiquement, des plus précis, il me situe dans le temps, d'où la … »"
 date: 2022-06-01 06:00:01+00:22
 draft: False
 hidden: True

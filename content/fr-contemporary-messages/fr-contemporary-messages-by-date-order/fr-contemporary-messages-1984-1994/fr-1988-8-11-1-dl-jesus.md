@@ -1,7 +1,7 @@
 ---
 title: "La vérité et le voyage vers la perfection"
 menu_title: ""
-description: "La vérité et le voyage vers la perfection"
+description: "Jésus, reçu par Révérend Dave Lampron : « Le changement, comme vous le savez et comme on vous l’a dit, est la loi éternelle. Mais les vérités spirituelles … »"
 date: 2022-06-01 06:00:01+00:36
 draft: False
 hidden: True

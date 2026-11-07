@@ -1,7 +1,7 @@
 ---
 title: "La puissance de l'Amour Divin"
 menu_title: ""
-description: "La puissance de l'Amour Divin"
+description: "Augustin, reçu par Albert Fike : « Sur le plan terrestre et dans vos cultures particulières, ce que vous appelez le monde occidental, les individus … »"
 date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True

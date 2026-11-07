@@ -1,7 +1,7 @@
 ---
 title: "Désir d'avoir des anges et des guides avec vous"
 menu_title: ""
-description: "Désir d'avoir des anges et des guides avec vous"
+description: "Faith Nyquist, reçu par Maureen Cardoso : « Nous désirons que vous nous considériez comme vos amis et que vous ayez une amitié avec vous, un peu comme … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

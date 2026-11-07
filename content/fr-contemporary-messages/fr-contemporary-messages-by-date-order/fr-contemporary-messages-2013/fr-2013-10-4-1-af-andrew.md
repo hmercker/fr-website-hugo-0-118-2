@@ -1,7 +1,7 @@
 ---
 title: "Sachez que vous marchez dans la Lumière"
 menu_title: ""
-description: "Sachez que vous marchez dans la Lumière"
+description: "André, reçu par Albert Fike : « Vous ne marchez pas seuls, mes enfants ; vous marchez sous la garde de Dieu, et Sa main repose sur chacun de vous. »"
 date: 2026-10-21 06:00:01+00:09
 draft: False
 hidden: True

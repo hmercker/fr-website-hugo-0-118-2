@@ -1,7 +1,7 @@
 ---
 title: "Que ce treillis de lumière se renforce et grandisse"
 menu_title: ""
-description: "Que ce treillis de lumière se renforce et grandisse"
+description: "André, reçu par Al Fike : « Chacun d’entre vous a un ange présent avec lui et chacun d’entre vous a été connecté avec un cordon de lumière tissé dans ce … »"
 date: 2022-06-01 06:00:01+00:604
 draft: False
 hidden: True

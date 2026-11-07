@@ -1,7 +1,7 @@
 ---
 title: "2ème Sermon – l’échec du Christianisme à prêcher l’Amour du Père"
 menu_title: ""
-description: "2ème Sermon – l’échec du Christianisme à prêcher l’Amour du Père"
+description: "Jésus, reçu par Dr Samuels : « J’attendais de pouvoir vous écrire un autre sermon sur l’Amour du Père et sur Son désir que l’humanité reçoive son amour et … »"
 date: 2022-06-01 06:00:01+00:55
 draft: False
 hidden: True

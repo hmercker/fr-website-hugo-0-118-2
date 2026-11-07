@@ -1,7 +1,7 @@
 ---
 title: "Leçon 7 : La nature de notre âme en croissance"
 menu_title: ""
-description: "Leçon 7 : La nature de notre âme en croissance"
+description: "Jésus, reçu par Al Fike : « Je souhaite partager mes perceptions sur ce qu’est la conscience Divine comparée à la conscience de l’esprit matériel et aux … »"
 date: 2022-06-01 06:00:01+00:127
 draft: False
 hidden: True

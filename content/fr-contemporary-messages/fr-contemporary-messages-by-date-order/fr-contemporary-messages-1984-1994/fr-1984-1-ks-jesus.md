@@ -1,7 +1,7 @@
 ---
 title: "Au sujet de la prière"
 menu_title: ""
-description: "Au sujet de la prière"
+description: "Jésus, reçu par Kathryn Stokes : « N’oubliez pas de prier pour le Grand Amour de Dieu, et sachez qu’Il entend vos prières lorsqu’elles sont offertes … »"
 date: 2022-06-01 06:00:01+00:04
 draft: False
 hidden: True

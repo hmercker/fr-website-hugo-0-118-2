@@ -1,7 +1,7 @@
 ---
 title: "Encouragements pour Alfredo"
 menu_title: ""
-description: "Encouragements pour Alfredo"
+description: "Lorenzo, reçu par Alfredo : « Maintenant tu as déjà commencé une nouvelle période qui se manifeste en toi. Dieu a entendu tes prières, et celles-ci ont … »"
 date: 2022-06-01 06:00:01+00:28
 draft: False
 hidden: True

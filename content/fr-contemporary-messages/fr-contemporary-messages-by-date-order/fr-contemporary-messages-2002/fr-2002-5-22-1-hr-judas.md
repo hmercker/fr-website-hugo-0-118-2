@@ -1,7 +1,7 @@
 ---
 title: "Les femmes autour de Jésus"
 menu_title: ""
-description: "Les femmes autour de Jésus"
+description: "Judas, reçu par H : « Mon cher frère, tu te souviens de ce que je t’ai dit il y a déjà plusieurs jours, que Jésus a prêché aux païens de la Décapole, sans … »"
 date: 2022-06-01 06:00:01+00:72
 draft: False
 hidden: True

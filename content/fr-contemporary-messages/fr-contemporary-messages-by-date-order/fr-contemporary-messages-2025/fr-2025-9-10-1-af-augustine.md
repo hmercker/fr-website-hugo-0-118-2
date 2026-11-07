@@ -1,7 +1,7 @@
 ---
 title: "Dieu souhaite qu'un Centre de Lumière soit établi ici"
 menu_title: ""
-description: "Dieu souhaite qu'un Centre de Lumière soit établi ici"
+description: "Augustin, reçu par Al Fike : « Que les bénédictions du Père soient avec vous, mes âmes bien-aimées. Dieu souhaite qu’un Centre de Lumière soit établi dans … »"
 date: 2025-11-10 06:00:01+00:01
 draft: False
 hidden: True

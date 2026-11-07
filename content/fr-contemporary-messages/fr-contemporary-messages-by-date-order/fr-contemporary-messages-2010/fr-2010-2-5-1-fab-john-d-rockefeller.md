@@ -1,7 +1,7 @@
 ---
 title: "La vie de John D. Rockefeller Senior"
 menu_title: ""
-description: "La vie de John D. Rockefeller Senior"
+description: "John D Rockefeller, reçu par FAB : « Je sais que vous ne connaissez pas très bien la façon dont les gens comme moi ont vécu leur vie. »"
 date: 2022-06-01 06:00:01+00:113
 draft: False
 hidden: True

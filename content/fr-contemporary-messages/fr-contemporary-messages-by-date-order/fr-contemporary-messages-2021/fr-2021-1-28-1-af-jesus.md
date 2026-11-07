@@ -1,7 +1,7 @@
 ---
 title: "Leçon 18 : L’avenir de l’humanité est fixé dans le plan de Dieu"
 menu_title: ""
-description: "Leçon 18 : L’avenir de l’humanité est fixé dans le plan de Dieu"
+description: "Jésus, reçu par Al Fike : « Je continue à avoir un grand amour et à me concentrer sur ceux du plan de la Terre, car ce plan est une étape cruciale pour … »"
 date: 2022-06-01 06:00:01+00:1399
 draft: False
 hidden: True

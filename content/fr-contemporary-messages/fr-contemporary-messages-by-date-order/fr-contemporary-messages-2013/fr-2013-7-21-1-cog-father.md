@@ -1,7 +1,7 @@
 ---
 title: "Ton cœur est le lieu où repose Mon Amour"
 menu_title: ""
-description: "Ton cœur est le lieu où repose Mon Amour"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Mon Amour est partout où l’on peut le trouver, en tout temps. Mon Amour est libre et ne peut être détenu, ni … »"
 date: 2022-06-01 06:00:01+00:62
 draft: False
 hidden: True

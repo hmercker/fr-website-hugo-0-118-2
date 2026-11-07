@@ -1,7 +1,7 @@
 ---
 title: "Sur le manque de spiritualité"
 menu_title: ""
-description: "Sur le manque de spiritualité"
+description: "St Jean, reçu par Alfredo : « Il y a tant de choses que j’ai à te dire et à t’enseigner. Mais pourtant, tu n’es pas encore prêt à les accepter complètement. »"
 date: 2022-06-01 06:00:01+00:37
 draft: False
 hidden: True

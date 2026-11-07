@@ -1,7 +1,7 @@
 ---
 title: "Élevez vos dons grâce à l'Amour Divin"
 menu_title: ""
-description: "Élevez vos dons grâce à l'Amour Divin"
+description: "Seretta Kem, reçu par Al Fike : « Certains d’entre vous me connaissent bien tandis que d’autres ne me connaissent pas. J’ai vécu en Égypte il y a … »"
 date: 2022-06-01 06:00:01+00:454
 draft: False
 hidden: True

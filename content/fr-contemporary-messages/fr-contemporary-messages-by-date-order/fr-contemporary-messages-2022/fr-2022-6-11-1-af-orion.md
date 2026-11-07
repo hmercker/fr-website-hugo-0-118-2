@@ -1,7 +1,7 @@
 ---
 title: "L’humanité continue de résister à l’amour et aux énergies de guérison de Dieu"
 menu_title: ""
-description: "L’humanité continue de résister à l’amour et aux énergies de guérison de Dieu"
+description: "Orion, reçu par Al Fike : « La pression augmente, mes amis. Dieu supplie Ses enfants de changer, de répondre à Ses bénédictions et aux énergies qui sont … »"
 date: 2022-06-01 06:00:01+00:108
 draft: False
 hidden: True

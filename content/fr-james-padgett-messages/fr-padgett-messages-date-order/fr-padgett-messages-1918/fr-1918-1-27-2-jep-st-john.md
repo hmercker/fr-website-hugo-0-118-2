@@ -1,7 +1,7 @@
 ---
 title: "Jean espérait terminer un message important, mais l’état d’âme de M. Padgett ne l’a pas permis"
 menu_title: ""
-description: "Jean espérait terminer un message important, mais l’état d’âme de M. Padgett ne l’a pas permis"
+description: "St Jean, reçu par James Padgett : « Il semble que vous ne soyez pas enclin à recevoir mes messages comme vous l’avez été à un moment donné, bien que vous … »"
 date: 2022-06-01 06:00:01+00:11
 draft: False
 hidden: True

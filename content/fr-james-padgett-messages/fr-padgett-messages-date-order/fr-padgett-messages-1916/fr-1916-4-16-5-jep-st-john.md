@@ -1,7 +1,7 @@
 ---
 title: "Jean affirme que Marie la mère de Jésus a écrit"
 menu_title: ""
-description: "Jean affirme que Marie la mère de Jésus a écrit"
+description: "St Jean, reçu par James Padgett : « Très bientôt il viendra et continuera les messages, et vous ne serez pas déçu. Je n’écrirai pas plus ce soir car vous … »"
 date: 2022-06-01 06:00:01+00:206
 draft: False
 hidden: True

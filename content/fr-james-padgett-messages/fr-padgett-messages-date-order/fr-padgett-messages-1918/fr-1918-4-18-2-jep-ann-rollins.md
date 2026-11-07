@@ -1,7 +1,7 @@
 ---
 title: "Anne Rollins confirme ce que le Maître a dit et l’encourage dans son travail"
 menu_title: ""
-description: "Anne Rollins confirme ce que le Maître a dit et l’encourage dans son travail"
+description: "Anne Rollins, reçu par James Padgett : « Permet-moi de dire que j’ai entendu ce que le Maître a dit et que je me joins à lui pour te conseiller de … »"
 date: 2022-06-01 06:00:01+00:31
 draft: False
 hidden: True

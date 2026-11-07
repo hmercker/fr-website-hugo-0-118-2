@@ -1,7 +1,7 @@
 ---
 title: "Ne vous cachez pas de vos sentiments ; permettez plutôt à Dieu de remplacer la disharmonie par Son Amour"
 menu_title: ""
-description: "Ne vous cachez pas de vos sentiments ; permettez plutôt à Dieu de remplacer la disharmonie par Son Amour"
+description: "Augustin, reçu par Albert Fike : « C’est votre enseignant, Augustin. Puisse votre âme s’ouvrir comme les ailes d’un papillon, se déployant largement pour … »"
 date: 2026-10-04 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Abel partage ses expériences"
 menu_title: ""
-description: "Abel partage ses expériences"
+description: "Abel, reçu par FAB : « Je n'étais pas le bon fils obéissant décrit dans la Bible. J'ai eu ma part de négativité, car mes parents, n'ayant aucune … »"
 date: 2022-06-01 06:00:01+00:105
 draft: False
 hidden: True

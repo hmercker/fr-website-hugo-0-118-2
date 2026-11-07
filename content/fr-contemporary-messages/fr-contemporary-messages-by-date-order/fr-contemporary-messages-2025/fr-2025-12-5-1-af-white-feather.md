@@ -1,7 +1,7 @@
 ---
 title: "Respect de la Création Divine et appel à aimer la Terre"
 menu_title: ""
-description: "Respect de la Création Divine et appel à aimer la Terre"
+description: "Plume Blanche, reçu par Albert Fike : « Que la présence divine vous enveloppe, que Sa douce voix résonne à votre oreille, que Son amour vous enveloppe … »"
 date: 2026-02-21 16:00:01+00:01
 draft: False
 hidden: True

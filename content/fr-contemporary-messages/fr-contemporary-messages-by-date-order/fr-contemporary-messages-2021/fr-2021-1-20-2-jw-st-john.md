@@ -1,7 +1,7 @@
 ---
 title: "Répandre l’Amour par tous les moyens disponibles"
 menu_title: ""
-description: "Répandre l’Amour par tous les moyens disponibles"
+description: "St Jean, reçu par Jimbeau Walsh : « Alors que vous lisez ces mots qui ont été donnés à James Padgett par moi-même et par d’autres, plus particulièrement … »"
 date: 2022-06-01 06:00:01+00:1389
 draft: False
 hidden: True

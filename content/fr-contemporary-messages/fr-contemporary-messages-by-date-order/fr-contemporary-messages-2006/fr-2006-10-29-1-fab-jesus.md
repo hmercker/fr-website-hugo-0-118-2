@@ -1,7 +1,7 @@
 ---
 title: "L'environnement"
 menu_title: ""
-description: "L'environnement"
+description: "Jésus, reçu par FAB : « De toute évidence, il ne peut y avoir de paix sur la Terre, ni d'harmonie sur la Terre, si l'environnement a été érodé au point de … »"
 date: 2022-06-01 06:00:01+00:65
 draft: False
 hidden: True

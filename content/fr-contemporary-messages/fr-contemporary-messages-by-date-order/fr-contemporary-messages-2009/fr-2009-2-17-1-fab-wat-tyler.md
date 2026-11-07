@@ -1,7 +1,7 @@
 ---
 title: "La négativité à la guerre - 3"
 menu_title: ""
-description: "La négativité à la guerre - 3"
+description: "Wat Tyler, reçu par FAB : « Wat Tyler s'est également exprimé dans les messages suivants : ↩ Auteur | Titre du message | Date du message ---|---|--- Wat … »"
 date: 2022-06-01 06:00:01+00:23
 draft: False
 hidden: True

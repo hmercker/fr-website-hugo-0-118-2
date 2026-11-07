@@ -1,7 +1,7 @@
 ---
 title: "L’amour est notre cause"
 menu_title: ""
-description: "L’amour est notre cause"
+description: "Marie & Jean, reçu par CC : « Nous venons à toi en réponse à tes désirs. Dieu répond toujours à tes prières lorsqu’elles sont sincères. »"
 date: 2022-06-01 06:00:01+00:57
 draft: False
 hidden: True

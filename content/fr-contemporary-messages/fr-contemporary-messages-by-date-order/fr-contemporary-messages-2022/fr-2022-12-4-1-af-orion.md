@@ -1,7 +1,7 @@
 ---
 title: "Commentaire sur le développement de l'âme"
 menu_title: ""
-description: "Commentaire sur le développement de l'âme"
+description: "Orion, reçu par Al Fike : « C’est un si beau monde, un monde bleu, le monde que Dieu a créé comme un creuset pour que chacune de Ses précieuses âmes y … »"
 date: 2022-06-01 06:00:01+00:220
 draft: False
 hidden: True

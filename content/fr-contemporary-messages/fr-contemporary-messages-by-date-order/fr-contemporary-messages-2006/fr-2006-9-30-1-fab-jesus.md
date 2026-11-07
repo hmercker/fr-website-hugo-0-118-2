@@ -1,7 +1,7 @@
 ---
 title: "Jésus et le Talmud - Chronologie"
 menu_title: ""
-description: "Jésus et le Talmud - Chronologie"
+description: "Jésus, reçu par FAB : « Je souhaite répondre à votre préoccupation concernant la chronologie du Talmud par rapport à ma vie terrestre. »"
 date: 2022-06-01 06:00:01+00:49
 draft: False
 hidden: True

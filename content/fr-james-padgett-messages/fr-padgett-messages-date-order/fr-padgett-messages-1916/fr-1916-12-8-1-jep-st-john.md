@@ -1,7 +1,7 @@
 ---
 title: "Description de la 3ème sphère"
 menu_title: ""
-description: "Description de la 3ème sphère"
+description: "St Jean, reçu par James Padgett : « Je désire terminer mes commentaires sur le sermon du prédicateur (Dr. Message du 19 Novembre 1916. »"
 date: 2022-06-01 06:00:01+00:09
 draft: False
 hidden: True

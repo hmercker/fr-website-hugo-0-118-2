@@ -1,7 +1,7 @@
 ---
 title: "Et de sa mère"
 menu_title: ""
-description: "Et de sa mère"
+description: "Anne Padgett, reçu par James Padgett : « C’était le Christ qui parlait. Il est ton ami et ton sauveur. »"
 date: 2022-06-01 06:00:01+00:17
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Communistes"
 menu_title: ""
-description: "Communistes"
+description: "Pablo Neruda, reçu par FAB : « Le facteur le plus important est ce qu’il y a dans le cœur d’une personne. Si un mortel a des convictions et des … »"
 date: 2022-06-01 06:00:01+00:35
 draft: False
 hidden: True

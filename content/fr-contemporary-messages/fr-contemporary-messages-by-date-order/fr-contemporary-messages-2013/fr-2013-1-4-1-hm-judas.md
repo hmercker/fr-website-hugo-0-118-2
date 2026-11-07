@@ -1,7 +1,7 @@
 ---
 title: "Conseils personnels"
 menu_title: ""
-description: "Conseils personnels"
+description: "Judas, reçu par Helge Mercker : « Reconnais que tu es la force exécutante pour réaliser ta volonté et tes désirs. Aspire à ce que cela soit en accord avec … »"
 date: 2022-06-01 06:00:01+00:03
 draft: False
 hidden: True

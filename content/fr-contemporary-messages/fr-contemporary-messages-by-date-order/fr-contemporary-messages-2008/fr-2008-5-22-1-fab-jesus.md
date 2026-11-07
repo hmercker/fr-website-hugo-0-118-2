@@ -1,7 +1,7 @@
 ---
 title: "Un point de vue réaliste"
 menu_title: ""
-description: "Un point de vue réaliste"
+description: "Jésus, reçu par FAB : « Nous n'avons pas une vision simpliste des problèmes du monde. Lorsque nous, et des esprits de même sensibilité, avons canalisé que … »"
 date: 2022-06-01 06:00:01+00:66
 draft: False
 hidden: True

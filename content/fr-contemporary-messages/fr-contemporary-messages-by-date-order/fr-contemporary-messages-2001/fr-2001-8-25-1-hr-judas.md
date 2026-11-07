@@ -1,7 +1,7 @@
 ---
 title: "Sens caché des paraboles de Jésus"
 menu_title: ""
-description: "Sens caché des paraboles de Jésus"
+description: "Judas, reçu par H : « Nous avons une grande complicité. Et je vois que tu as été très impressionné par un article écrit par John Dominic Crossan, que tu … »"
 date: 2022-06-01 06:00:01+00:27
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Hélène Padgett explique le sabbath et pour M. Padgett de ne pas considérer sérieusement le pamphlet qu’il lisait car c’est une croyance adventiste"
 menu_title: ""
-description: "Hélène Padgett explique le sabbath et pour M. Padgett de ne pas considérer sérieusement le pamphlet qu’il lisait car c’est une croyance adventiste"
+description: "Hélène Padgett, reçu par James Padgett : « Je t’ai fait signe, je voulais simplement te dire que j’ai lu avec toi le tract, et je veux te dire que ce … »"
 date: 2022-06-01 06:00:01+00:57
 draft: False
 hidden: True

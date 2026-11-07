@@ -1,7 +1,7 @@
 ---
 title: "Une description de l’âme et de sa nature durable"
 menu_title: ""
-description: "Une description de l’âme et de sa nature durable"
+description: "Frère Mandus Nyquist, reçu par Al Fike : « Et dans ce monde, beaucoup, beaucoup d’individus cherchent à nourrir leur mental (intellect), cherchent à … »"
 date: 2022-06-01 06:00:01+00:227
 draft: False
 hidden: True

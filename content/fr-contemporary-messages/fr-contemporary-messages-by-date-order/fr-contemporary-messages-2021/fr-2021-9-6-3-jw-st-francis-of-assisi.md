@@ -1,7 +1,7 @@
 ---
 title: "Bénis soient les enfants"
 menu_title: ""
-description: "Bénis soient les enfants"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Il est facile d’avoir de l’empathie pour les petits parce que vous pouvez sentir leur innocence, leur … »"
 date: 2022-06-01 06:00:01+00:1624
 draft: False
 hidden: True

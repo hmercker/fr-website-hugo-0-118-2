@@ -1,7 +1,7 @@
 ---
 title: "Matthieu fera partie du groupe de M. Padgett"
 menu_title: ""
-description: "Matthieu fera partie du groupe de M. Padgett"
+description: "St Matthieu, reçu par James Padgett : « Moi aussi je ferai partie de votre groupe ; et vous aurez un groupe qui sera si puissant qu’aucune opposition ne … »"
 date: 2022-06-01 06:00:01+00:144
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le voile est levé pour la retraite de Trinidade "
 menu_title: ""
-description: "Le voile est levé pour la retraite de Trinidade "
+description: "Jésus, reçu par Al Fike : « Le voile de la condition humaine est en train de se lever sur vous en ce moment même. Puissiez-vous ressentir et connaître le … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

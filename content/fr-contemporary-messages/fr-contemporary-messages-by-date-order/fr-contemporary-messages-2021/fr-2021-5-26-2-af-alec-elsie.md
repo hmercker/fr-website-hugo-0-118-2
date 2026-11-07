@@ -1,7 +1,7 @@
 ---
 title: "Bénédictions de mentors qui sont des âmes sœurs"
 menu_title: ""
-description: "Bénédictions de mentors qui sont des âmes sœurs"
+description: "Alec & Elsie, reçu par Al Fike : « C’est notre souhait profond que cette vérité de l’Amour de Dieu continue à éveiller de nombreuses âmes sur votre terre. »"
 date: 2022-06-01 06:00:01+00:1516
 draft: False
 hidden: True

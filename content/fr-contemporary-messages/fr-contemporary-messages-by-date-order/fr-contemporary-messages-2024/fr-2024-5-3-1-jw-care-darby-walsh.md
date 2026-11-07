@@ -1,7 +1,7 @@
 ---
 title: "La transformation de l’âme dans l’Amour de Dieu est réelle"
 menu_title: ""
-description: "La transformation de l’âme dans l’Amour de Dieu est réelle"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Et comme mon bien-aimé l’a écrit, en ma présence et avec un peu d’aide de ma part : « Dans un moment comme … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

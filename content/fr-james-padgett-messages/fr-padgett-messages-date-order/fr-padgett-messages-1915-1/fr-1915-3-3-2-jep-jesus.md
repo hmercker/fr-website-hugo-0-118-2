@@ -1,7 +1,7 @@
 ---
 title: "Dieu est un Dieu d’Amour et aucun homme ne peut venir à lui, à moins de recevoir l’Amour du Père dans son âme. Le temps viendra où le privilège d’obtenir l’Amour Divin sera retiré de l’humanité"
 menu_title: ""
-description: "Dieu est un Dieu d’Amour et aucun homme ne peut venir à lui, à moins de recevoir l’Amour du Père dans son âme. Le temps viendra où le privilège d’obtenir l’Amour Divin sera retiré de l’humanité"
+description: "Jésus, reçu par James Padgett : « Vous êtes en meilleure condition ce soir, je vais donc continuer mes messages. Dieu est un Dieu d’Amour, et nul homme ne … »"
 date: 2022-06-01 06:00:01+00:26
 draft: False
 hidden: True

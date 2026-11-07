@@ -1,7 +1,7 @@
 ---
 title: "Un lieu sacré"
 menu_title: ""
-description: "Un lieu sacré"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Un lieu non seulement d’apprentissage des vérités mais un lieu sacré où vous pouvez tout donner à Dieu sans … »"
 date: 2022-06-01 06:00:01+00:1500
 draft: False
 hidden: True

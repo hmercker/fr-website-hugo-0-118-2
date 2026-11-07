@@ -1,7 +1,7 @@
 ---
 title: "Élévation au-delà de la conscience de l'esprit matériel"
 menu_title: ""
-description: "Élévation au-delà de la conscience de l'esprit matériel"
+description: "Orion, reçu par Albert Fike : « Oh, comme l’esprit matériel est vénéré dans votre monde, en particulier en Occident ! Cette vénération a commencé il y a … »"
 date: 2025-07-15 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Priez ensemble"
 menu_title: ""
-description: "Priez ensemble"
+description: "André, reçu par Al Fike : « …et de reconnaître l’amour qui est en vous. Et cet amour a coulé dans vos âmes, mes enfants. »"
 date: 2022-06-01 06:00:01+00:82
 draft: False
 hidden: True

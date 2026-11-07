@@ -1,7 +1,7 @@
 ---
 title: "La Nature de la Réalité"
 menu_title: ""
-description: "La Nature de la Réalité"
+description: "Orion, reçu par Al Fike : « Je souhaite aborder la nature de la réalité. On parle beaucoup du changement de réalité qui se profile sur votre planète. »"
 date: 2026-05-28 16:00:01+00:01
 draft: False
 hidden: True

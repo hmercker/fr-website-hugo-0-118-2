@@ -1,7 +1,7 @@
 ---
 title: "Les expériences de Napoléon"
 menu_title: ""
-description: "Les expériences de Napoléon"
+description: "Napoléon, reçu par FAB : « J’ai lu avec vous le récit de ma vie et de mon caractère par les Durant [l’Époque de Napoléon], et je dois dire qu’ils … »"
 date: 2022-06-01 06:00:01+00:30
 draft: False
 hidden: True

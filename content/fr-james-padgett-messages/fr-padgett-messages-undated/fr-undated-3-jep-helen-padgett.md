@@ -1,7 +1,7 @@
 ---
 title: "Comme il est merveilleux de posséder l’Amour Divin"
 menu_title: ""
-description: "Comme il est merveilleux de posséder l’Amour Divin"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien mon cher Ned, je vois que tu es très heureux ce soir et je me joins à ton bonheur, car la source de … »"
 date: 2022-06-01 06:00:01+00:77
 draft: False
 hidden: True

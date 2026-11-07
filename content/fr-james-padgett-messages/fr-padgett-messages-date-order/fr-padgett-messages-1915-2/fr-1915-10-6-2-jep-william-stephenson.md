@@ -1,7 +1,7 @@
 ---
 title: "Est-ce qu’un homme peut vivre et aimer et aller dans le néant ? La réponses est non ! Ainsi parle William T. Stephenson"
 menu_title: ""
-description: "Est-ce qu’un homme peut vivre et aimer et aller dans le néant ? La réponses est non ! Ainsi parle William T. Stephenson"
+description: "William Stephenson, reçu par James Padgett : « J’étais anglais et je vivais à Liverpool. Le sujet de mon message sera : « Un homme peut-il vivre et aimer … »"
 date: 2022-06-01 06:00:01+00:300
 draft: False
 hidden: True

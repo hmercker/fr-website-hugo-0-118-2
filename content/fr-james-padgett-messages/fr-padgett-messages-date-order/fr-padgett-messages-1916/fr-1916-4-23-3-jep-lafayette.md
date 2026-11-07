@@ -1,7 +1,7 @@
 ---
 title: "Relate son changement d’attitude envers les allemands"
 menu_title: ""
-description: "Relate son changement d’attitude envers les allemands"
+description: "Lafayette, reçu par James Padgett : « J’étais impatient depuis quelque temps de vous écrire à nouveau et de vous faire part des résultats des conseils que … »"
 date: 2022-06-01 06:00:01+00:215
 draft: False
 hidden: True

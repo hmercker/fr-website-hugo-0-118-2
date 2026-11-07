@@ -1,7 +1,7 @@
 ---
 title: "Être en harmonie est de la plus haute importance pour être un instrument de Dieu"
 menu_title: ""
-description: "Être en harmonie est de la plus haute importance pour être un instrument de Dieu"
+description: "Augustin, reçu par Al Fike : « Vos propos expriment si bien le dilemme humain. D’une part, votre esprit est tellement curieux et désireux de recevoir des … »"
 date: 2022-06-01 06:00:01+00:980
 draft: False
 hidden: True

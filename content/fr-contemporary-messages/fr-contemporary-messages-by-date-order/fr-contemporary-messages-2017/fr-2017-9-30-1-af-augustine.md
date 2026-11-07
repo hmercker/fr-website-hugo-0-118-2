@@ -1,7 +1,7 @@
 ---
 title: "Quelques discussions sur la médiumnité"
 menu_title: ""
-description: "Quelques discussions sur la médiumnité"
+description: "Augustin, reçu par Al Fike : « Il est souvent difficile de discerner le nom de ces individus, de ces anges qui viennent. Nous allons l'aider à être clair … »"
 date: 2022-06-01 06:00:01+00:127
 draft: False
 hidden: True

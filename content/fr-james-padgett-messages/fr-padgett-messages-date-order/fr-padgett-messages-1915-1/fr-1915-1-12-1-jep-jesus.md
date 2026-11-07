@@ -1,7 +1,7 @@
 ---
 title: "Message personnel de Jésus à M. Padgett"
 menu_title: ""
-description: "Message personnel de Jésus à M. Padgett"
+description: "Jésus, reçu par James Padgett : « Vous êtes mon ami et mon disciple. Vous êtes en moi pour l’éternité. »"
 date: 2022-06-01 06:00:01+00:08
 draft: False
 hidden: True

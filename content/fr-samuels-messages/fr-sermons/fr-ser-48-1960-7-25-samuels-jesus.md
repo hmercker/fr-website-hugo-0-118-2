@@ -1,7 +1,7 @@
 ---
 title: "48ème Sermon – Baruch et le livre du prophète"
 menu_title: ""
-description: "48ème Sermon – Baruch et le livre du prophète"
+description: "Jésus, reçu par Dr Samuels : « Dans l’année de la défaite de l’Égypte à Carchemish, en 605 av J.-C., lorsque Jojakim s’est rendu compte que son nouveau … »"
 date: 2022-06-01 06:00:01+00:101
 draft: False
 hidden: True

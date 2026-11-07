@@ -1,7 +1,7 @@
 ---
 title: "Ne gaspillez pas les bénédictions que vous recevez"
 menu_title: ""
-description: "Ne gaspillez pas les bénédictions que vous recevez"
+description: "Confucius, reçu par Al Fike : « Oh, je vois que les beaux oiseaux se sont réunis une fois de plus pour chanter leurs louanges à Dieu. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

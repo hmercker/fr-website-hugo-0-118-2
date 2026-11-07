@@ -1,7 +1,7 @@
 ---
 title: "Hélène décrit sa maison dans les Sphères Célestes"
 menu_title: ""
-description: "Hélène décrit sa maison dans les Sphères Célestes"
+description: "Hélène Padgett, reçu par James Padgett : « Je vais maintenant t’écrire au sujet de ma maison, comme je l’ai promis, et tu ne dois pas penser que je ne … »"
 date: 2022-06-01 06:00:01+00:31
 draft: False
 hidden: True

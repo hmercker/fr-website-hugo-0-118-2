@@ -1,7 +1,7 @@
 ---
 title: "La conscience des intentions : ce qui sous-tend les pensées, les paroles et les actions"
 menu_title: ""
-description: "La conscience des intentions : ce qui sous-tend les pensées, les paroles et les actions"
+description: "Keea Atta Kem, reçu par Maureen Cardoso : « Prenons un instant pour libérer nos aspirations et les confier à Dieu ; permettons à la partie la plus … »"
 date: 2026-10-04 06:00:01+00:01
 draft: False
 hidden: True

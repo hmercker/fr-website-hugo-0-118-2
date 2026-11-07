@@ -1,7 +1,7 @@
 ---
 title: "Edward Sovellard un esprit sombre recherche également l’aide de M. Padgett pour sortir des ténèbres"
 menu_title: ""
-description: "Edward Sovellard un esprit sombre recherche également l’aide de M. Padgett pour sortir des ténèbres"
+description: "Edward Sovellard, reçu par James Padgett : « Laissez-moi juste écrire une ligne, car j’ai besoin de vos prières tout comme le dernier esprit a dit qu’il … »"
 date: 2022-06-01 06:00:01+00:142
 draft: False
 hidden: True

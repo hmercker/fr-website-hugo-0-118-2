@@ -1,7 +1,7 @@
 ---
 title: "Détectives de l'âme"
 menu_title: ""
-description: "Détectives de l'âme"
+description: "Arthur Conan Doyle, reçu par Jimbeau Walsh : « J'aimerais parler du travail d'enquête. Comme vous le savez peut-être, mon personnage principal cherchait … »"
 date: 2026-10-12 06:00:01+00:01
 draft: False
 hidden: True

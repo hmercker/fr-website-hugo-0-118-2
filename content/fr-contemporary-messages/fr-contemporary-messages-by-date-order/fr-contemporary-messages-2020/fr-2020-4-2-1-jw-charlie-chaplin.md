@@ -1,7 +1,7 @@
 ---
 title: "Permettez à ce qui se trouve dans votre âme d'être révélé dans la Lumière"
 menu_title: ""
-description: "Permettez à ce qui se trouve dans votre âme d'être révélé dans la Lumière"
+description: "Charlie Chaplin, reçu par Jimbeau Walsh : « Vous me connaissez peut-être comme Charlie Chaplin ou peut-être pas. Bien que pour certains, quitter leur … »"
 date: 2022-06-01 06:00:01+00:1047
 draft: False
 hidden: True

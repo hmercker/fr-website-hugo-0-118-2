@@ -1,7 +1,7 @@
 ---
 title: "Parler de collaboration à propos de la Voix Directe"
 menu_title: ""
-description: "Parler de collaboration à propos de la Voix Directe"
+description: "Seretta Kem & Jésus, reçu par Al Fike : « Nous avons été très satisfaits de la présentation de cet instrument lors de la réunion de ce jour et nous … »"
 date: 2022-06-01 06:00:01+00:196
 draft: False
 hidden: True

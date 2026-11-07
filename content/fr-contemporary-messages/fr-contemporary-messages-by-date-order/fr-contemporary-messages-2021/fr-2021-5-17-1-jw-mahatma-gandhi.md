@@ -1,7 +1,7 @@
 ---
 title: "Paix et Amour"
 menu_title: ""
-description: "Paix et Amour"
+description: "Mahatma Gandhi, reçu par Jimbeau Walsh : « Il y a tant de gens dans le monde qui s’accrochent au principe « œil pour œil et dent pour dent », qui … »"
 date: 2022-06-01 06:00:01+00:1507
 draft: False
 hidden: True

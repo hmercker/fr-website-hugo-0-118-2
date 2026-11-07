@@ -1,7 +1,7 @@
 ---
 title: "Se préparer aux changements terrestres"
 menu_title: ""
-description: "Se préparer aux changements terrestres"
+description: "St Augustin, reçu par Albert Fike : « Je souhaite remercier la chère fille en ce jour de remerciements. En effet, vous pourriez être surpris qu’il y ait … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

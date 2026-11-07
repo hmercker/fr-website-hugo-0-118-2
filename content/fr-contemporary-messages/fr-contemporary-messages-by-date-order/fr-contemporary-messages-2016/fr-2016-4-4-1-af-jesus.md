@@ -1,7 +1,7 @@
 ---
 title: "Il y a une route plus élevée de service - une qui reconnaît un batteur différent"
 menu_title: ""
-description: "Il y a une route plus élevée de service - une qui reconnaît un batteur différent"
+description: "Jésus, reçu par Al Fike : « J’ai vu la Lumière grandir en vous, en chacun de vous brûle cette lanterne, cette lanterne de Vérité et d’Amour. »"
 date: 2022-06-01 06:00:01+00:190
 draft: False
 hidden: True

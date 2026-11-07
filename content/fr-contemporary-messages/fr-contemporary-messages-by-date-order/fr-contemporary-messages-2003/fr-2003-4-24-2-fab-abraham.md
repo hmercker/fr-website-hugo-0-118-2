@@ -1,7 +1,7 @@
 ---
 title: "Abraham a toujours été proche de Dieu"
 menu_title: ""
-description: "Abraham a toujours été proche de Dieu"
+description: "Abraham, reçu par FAB : « J’ai appris beaucoup de choses dans ce monde de l’esprit. La sainteté de ce que j’ai vécu est la pensée que je souhaite exprimer. »"
 date: 2022-06-01 06:00:01+00:41
 draft: False
 hidden: True

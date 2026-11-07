@@ -1,7 +1,7 @@
 ---
 title: "Joe Shellington, un ami de M. Padgett reçut de l’aide pour sortir des ténèbres"
 menu_title: ""
-description: "Joe Shellington, un ami de M. Padgett reçut de l’aide pour sortir des ténèbres"
+description: "Joe Shellington, reçu par James Padgett : « J’ai attendu longtemps pour t’écrire mais, comme ton groupe ne voulait pas consentir à ce que je t’écrive … »"
 date: 2022-06-01 06:00:01+00:107
 draft: False
 hidden: True

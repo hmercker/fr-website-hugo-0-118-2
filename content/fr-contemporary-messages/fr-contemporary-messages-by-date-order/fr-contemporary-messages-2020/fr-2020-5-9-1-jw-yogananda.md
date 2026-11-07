@@ -1,7 +1,7 @@
 ---
 title: "Avancer dans le monde avec Amour"
 menu_title: ""
-description: "Avancer dans le monde avec Amour"
+description: "Yogananda, reçu par Jimbeau Walsh : « Les dons que chaque âme peut recevoir deviennent une bénédiction pour le monde lorsqu’elle est amoureuse. »"
 date: 2022-06-01 06:00:01+00:1094
 draft: False
 hidden: True

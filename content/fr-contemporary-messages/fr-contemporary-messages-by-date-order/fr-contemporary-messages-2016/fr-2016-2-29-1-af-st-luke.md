@@ -1,7 +1,7 @@
 ---
 title: "Combattre l’obscurité des conditions de la Terre"
 menu_title: ""
-description: "Combattre l’obscurité des conditions de la Terre"
+description: "St Luc, reçu par Al Fike : « Bénédictions à vous, mes chers, âmes bien-aimées, enfants du Père Céleste, dont les âmes sont ouvertes à ce que notre Père … »"
 date: 2022-06-01 06:00:01+00:164
 draft: False
 hidden: True

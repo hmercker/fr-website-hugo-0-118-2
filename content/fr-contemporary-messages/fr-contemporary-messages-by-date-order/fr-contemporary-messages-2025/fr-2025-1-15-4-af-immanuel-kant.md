@@ -1,7 +1,7 @@
 ---
 title: "Le père de la philosophie moderne souhaite corriger l'héritage qu'il a laissé au siècle des Lumières"
 menu_title: ""
-description: "Le père de la philosophie moderne souhaite corriger l'héritage qu'il a laissé au siècle des Lumières"
+description: "Emmanuel Kant, reçu par Albert Fike : « Je m’appelle Emmanuel Kant. Je pense que vous serez surpris que je vienne vous parler, étant donné ma réputation … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

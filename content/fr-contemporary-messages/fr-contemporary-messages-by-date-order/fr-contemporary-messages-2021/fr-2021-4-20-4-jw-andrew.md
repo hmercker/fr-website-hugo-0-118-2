@@ -1,7 +1,7 @@
 ---
 title: "Les Bénédictions de Dieu"
 menu_title: ""
-description: "Les Bénédictions de Dieu"
+description: "André, reçu par Jimbeau Walsh : « Vos prières ont été entendues, âmes bien-aimées. Nous rassemblons chacun d’entre vous, nous vous rassemblons dans ce … »"
 date: 2022-06-01 06:00:01+00:1479
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Jésus dit : Très souvent des esprits sont présents qui écoutent ceux de la terre lorsqu’ils lisent les vérités spirituelles"
 menu_title: ""
-description: "Jésus dit : Très souvent des esprits sont présents qui écoutent ceux de la terre lorsqu’ils lisent les vérités spirituelles"
+description: "Jésus, reçu par James Padgett : « J’ai été intéressé par votre lecture des messages et vos désirs ce soir et je sais qu’ils feront beaucoup de bien à ceux … »"
 date: 2022-06-01 06:00:01+00:263
 draft: False
 hidden: True

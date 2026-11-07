@@ -1,7 +1,7 @@
 ---
 title: "Providence Divine"
 menu_title: ""
-description: "Providence Divine"
+description: "Benjamin Franklin, reçu par FAB : « Lorsque nous, pères fondateurs, avons signé la Déclaration d'indépendance, nos destins semblaient incertains. »"
 date: 2022-06-01 06:00:01+00:51
 draft: False
 hidden: True

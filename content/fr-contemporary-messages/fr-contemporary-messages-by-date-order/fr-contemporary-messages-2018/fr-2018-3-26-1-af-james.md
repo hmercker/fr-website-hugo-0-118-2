@@ -1,7 +1,7 @@
 ---
 title: "Devenez le vent du changement"
 menu_title: ""
-description: "Devenez le vent du changement"
+description: "Jacques, reçu par Al Fike : « Bénédictions à ceux qui sont mûrs dans ce monde et à ceux qui viennent de commencer dans leur voyage sur ce monde. »"
 date: 2022-06-01 06:00:01+00:372
 draft: False
 hidden: True

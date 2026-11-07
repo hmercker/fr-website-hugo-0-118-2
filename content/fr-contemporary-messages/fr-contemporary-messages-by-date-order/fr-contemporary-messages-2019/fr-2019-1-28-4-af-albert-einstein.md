@@ -1,7 +1,7 @@
 ---
 title: "Comment pouvons-nous aider à approcher les scientifiques ? "
 menu_title: ""
-description: "Comment pouvons-nous aider à approcher les scientifiques ? "
+description: "Albert Einstein, reçu par Al Fike : « Et je vous demande, combien d’opportunités y a-t-il dans votre monde pour communiquer avec les mortels ? »"
 date: 2022-06-01 06:00:01+00:625
 draft: False
 hidden: True

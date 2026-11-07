@@ -1,7 +1,7 @@
 ---
 title: "St Paul explique son épine dans le corps, son expérience sur le chemin de Damas"
 menu_title: ""
-description: "St Paul explique son épine dans le corps, son expérience sur le chemin de Damas"
+description: "St Paul, reçu par James Padgett : « Saul de Tarse, maintenant Paul de près de Damas. J’ai écrit une grande partie des épîtres qui sont contenues dans la … »"
 date: 2022-06-01 06:00:01+00:113
 draft: False
 hidden: True

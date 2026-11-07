@@ -1,7 +1,7 @@
 ---
 title: "Mme Padgett qui a localisé l’âme sœur du Juge Syrick est heureuse qu’elle soit capable d’écrire ce soir"
 menu_title: ""
-description: "Mme Padgett qui a localisé l’âme sœur du Juge Syrick est heureuse qu’elle soit capable d’écrire ce soir"
+description: "Hélène Padgett, reçu par James Padgett : « Chéri, tu viens de recevoir une lettre de Rose, qui attend de t’écrire depuis si longtemps, et qui est si … »"
 date: 2022-06-01 06:00:01+00:158
 draft: False
 hidden: True

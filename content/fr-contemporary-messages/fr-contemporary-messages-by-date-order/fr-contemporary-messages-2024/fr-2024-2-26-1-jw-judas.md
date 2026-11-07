@@ -1,7 +1,7 @@
 ---
 title: "La journée du Héros"
 menu_title: ""
-description: "La journée du Héros"
+description: "Judas, reçu par Jimbeau Walsh : « A cause des vérités contenues dans ce voyage, lesquelles restent toujours valables aujourd'hui, il conserve son … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

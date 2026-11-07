@@ -1,7 +1,7 @@
 ---
 title: "Les changements terrestres à venir auront leurs effets"
 menu_title: ""
-description: "Les changements terrestres à venir auront leurs effets"
+description: "Orion, reçu par Albert Fike : « Nous vous remercions de votre présence, âmes bien-aimées. Votre dévouement et votre constance sont notés. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

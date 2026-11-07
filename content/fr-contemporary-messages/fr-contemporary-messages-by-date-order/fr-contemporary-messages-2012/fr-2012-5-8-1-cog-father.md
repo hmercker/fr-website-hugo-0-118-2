@@ -1,7 +1,7 @@
 ---
 title: "Une âme peut-elle mourir ?"
 menu_title: ""
-description: "Une âme peut-elle mourir ?"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Une âme peut-elle mourir ? Mon cher enfant, ce matin, tu as réfléchi à la question de savoir si une âme peut … »"
 date: 2022-06-01 06:00:01+00:254
 draft: False
 hidden: True

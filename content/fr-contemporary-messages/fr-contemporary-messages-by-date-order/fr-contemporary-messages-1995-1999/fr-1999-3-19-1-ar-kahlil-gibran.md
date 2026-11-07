@@ -1,7 +1,7 @@
 ---
 title: "Poésie"
 menu_title: ""
-description: "Poésie"
+description: "Kahlil Gibran, reçu par Amada Reza : « La magie de l’amour lie l’âme aux forces du ciel et de la terre, le lien qui unit toutes les réalités vivantes. »"
 date: 2022-06-01 06:00:01+00:16
 draft: False
 hidden: True

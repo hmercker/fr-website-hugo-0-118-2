@@ -1,7 +1,7 @@
 ---
 title: "Danser autour de la négativité"
 menu_title: ""
-description: "Danser autour de la négativité"
+description: "Charlie Chaplin, reçu par Jimbeau Walsh : « Je souhaite partager quelques petites choses. Si vous vous souvenez bien, j'avais une façon particulière de … »"
 date: 2022-06-01 06:00:01+00:889
 draft: False
 hidden: True

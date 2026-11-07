@@ -1,7 +1,7 @@
 ---
 title: "Bénédiction pour le groupe de développement de la Barbade"
 menu_title: ""
-description: "Bénédiction pour le groupe de développement de la Barbade"
+description: "Jésus, reçu par Albert Fike : « (Jésus met Al Fike debout et l’amène au centre de la pièce). En continuant à construire la lumière ensemble, vous attirez … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

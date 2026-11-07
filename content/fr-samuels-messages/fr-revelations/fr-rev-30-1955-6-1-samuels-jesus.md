@@ -1,7 +1,7 @@
 ---
 title: "30ème Révélation : Le Sermon sur la Montagne et les Béatitudes"
 menu_title: ""
-description: "30ème Révélation : Le Sermon sur la Montagne et les Béatitudes"
+description: "Jésus, reçu par Dr Samuels : « Ces sermons, bien sûr, n’ont pas été donnés en une seule fois, à un moment donné, tel que cela est rapporté dans … »"
 date: 2022-06-01 06:00:01+00:30
 draft: False
 hidden: True

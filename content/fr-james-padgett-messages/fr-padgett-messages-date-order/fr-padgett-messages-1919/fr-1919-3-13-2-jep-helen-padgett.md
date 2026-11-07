@@ -1,7 +1,7 @@
 ---
 title: "Hélène commente le message d’Abraham Lincoln sur les progrès de l’homme dans son amour naturel"
 menu_title: ""
-description: "Hélène commente le message d’Abraham Lincoln sur les progrès de l’homme dans son amour naturel"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, tu as reçu ce soir une communication de Lincoln, qui pense qu’il est préférable de t’écrire … »"
 date: 2022-06-01 06:00:01+00:14
 draft: False
 hidden: True

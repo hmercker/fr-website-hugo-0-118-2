@@ -1,7 +1,7 @@
 ---
 title: "La compassion comme expression de l'amour de soi et des autres"
 menu_title: ""
-description: "La compassion comme expression de l'amour de soi et des autres"
+description: "Martin Luther, reçu par Al Fike : « Les voies des hommes dans ce monde n’incluent pas, dans une large mesure, la compassion pour les autres. à cause de la … »"
 date: 2022-06-01 06:00:01+00:539
 draft: False
 hidden: True

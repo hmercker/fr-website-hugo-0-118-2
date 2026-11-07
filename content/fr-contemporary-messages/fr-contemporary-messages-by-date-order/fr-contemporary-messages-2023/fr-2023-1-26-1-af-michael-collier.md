@@ -1,7 +1,7 @@
 ---
 title: "Notre rôle dans le plan de Dieu"
 menu_title: ""
-description: "Notre rôle dans le plan de Dieu"
+description: "Michael Collier, reçu par Al Fike : « Je reviens, Michael Collier. Tout d’abord, je souhaite mentionner que votre chère fille est ici, debout au milieu de … »"
 date: 2022-06-01 06:00:01+00:17
 draft: False
 hidden: True

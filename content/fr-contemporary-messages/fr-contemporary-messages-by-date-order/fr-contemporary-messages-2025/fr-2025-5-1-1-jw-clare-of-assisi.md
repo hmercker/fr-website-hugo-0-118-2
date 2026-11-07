@@ -1,7 +1,7 @@
 ---
 title: "Utilisez vos mots avec sagesse et seulement si nécessaire"
 menu_title: ""
-description: "Utilisez vos mots avec sagesse et seulement si nécessaire"
+description: "Claire d'Assise, reçu par reçu par Jimbeau Walsh : « Mon groupe de sœurs, surnommées « les Pauvres Sœurs », parce que nous avions fait vœu de pauvreté … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

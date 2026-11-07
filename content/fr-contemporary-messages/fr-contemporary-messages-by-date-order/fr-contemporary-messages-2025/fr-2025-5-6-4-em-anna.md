@@ -1,7 +1,7 @@
 ---
 title: "Laissez briller votre lumière"
 menu_title: ""
-description: "Laissez briller votre lumière"
+description: "Anne, reçu par Elizabeth Mack : « Laissez briller votre lumière. Laissez l’Amour du Père entrer dans vos âmes. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

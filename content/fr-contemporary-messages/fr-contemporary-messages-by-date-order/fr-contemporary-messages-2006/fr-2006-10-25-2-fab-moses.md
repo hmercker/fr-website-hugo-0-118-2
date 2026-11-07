@@ -1,7 +1,7 @@
 ---
 title: "Moïse le rêveur"
 menu_title: ""
-description: "Moïse le rêveur"
+description: "Moïse, reçu par FAB : « Laisse-moi vous assurer qu’aucune des choses qui vous inquiètent ne se produira. En plus d’avoir un puissant désir de savoir … »"
 date: 2022-06-01 06:00:01+00:61
 draft: False
 hidden: True

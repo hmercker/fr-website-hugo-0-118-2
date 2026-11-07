@@ -1,7 +1,7 @@
 ---
 title: "De nombreux amis stellaires dans l'univers sont là pour vous aider"
 menu_title: ""
-description: "De nombreux amis stellaires dans l'univers sont là pour vous aider"
+description: "Christine, reçu par Albert Fike : « Paix et bénédictions à vous, âmes bien-aimées. J’ai un teint bleu, magnifique, avec une peau claire. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

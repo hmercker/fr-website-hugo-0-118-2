@@ -1,7 +1,7 @@
 ---
 title: "Luc commente le message « Il est difficile d’apprendre, en enfer, sur les choses célestes. »"
 menu_title: ""
-description: "Luc commente le message « Il est difficile d’apprendre, en enfer, sur les choses célestes. »"
+description: "St Luc, reçu par James Padgett : « Je veux écrire quelques lignes sur un sujet qui peut être intéressant pour vous deux. Vous avez remarqué l’expression … »"
 date: 2022-06-01 06:00:01+00:11
 draft: False
 hidden: True

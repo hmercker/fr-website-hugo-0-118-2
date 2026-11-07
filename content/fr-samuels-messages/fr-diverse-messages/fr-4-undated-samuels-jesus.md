@@ -1,7 +1,7 @@
 ---
 title: "Les fonctions du sacerdoce Hébreu"
 menu_title: ""
-description: "Les fonctions du sacerdoce Hébreu"
+description: "Jésus, reçu par Dr Samuels : « Mais il n’était pas dans mon intention de détruire le système en vigueur ou de lui nuire. Il avait été construit à travers … »"
 date: 2022-06-01 06:00:01+00:04
 draft: False
 hidden: True

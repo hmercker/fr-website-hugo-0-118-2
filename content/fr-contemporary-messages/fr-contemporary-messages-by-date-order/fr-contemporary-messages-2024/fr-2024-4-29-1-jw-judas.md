@@ -1,7 +1,7 @@
 ---
 title: "Venez au banquet de la vérité"
 menu_title: ""
-description: "Venez au banquet de la vérité"
+description: "Judas, reçu par Jimbeau Walsh : « Nombreux sont ceux qui souhaitent se manifester ce soir et je vais donc commencer. Dans ce cercle d'amour, sous la … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L'importance de développer la nature d'Amour"
 menu_title: ""
-description: "L'importance de développer la nature d'Amour"
+description: "Jésus, reçu par Kathryn Stokes : « Comme vous le savez, l’humanité est généralement extrêmement déséquilibrée entre sa nature spirituelle et sa nature … »"
 date: 2022-06-01 06:00:01+00:41
 draft: False
 hidden: True

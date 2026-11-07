@@ -1,7 +1,7 @@
 ---
 title: "A propos de la foi"
 menu_title: ""
-description: "A propos de la foi"
+description: "Seretta Kem, reçu par Helge Mercker : « Puisque je t’ai apporté les mots « reconnaître la grandeur de la foi », je voudrais aborder ce sujet. »"
 date: 2022-06-01 06:00:01+00:1144
 draft: False
 hidden: True

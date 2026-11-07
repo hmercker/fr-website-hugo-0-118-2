@@ -1,7 +1,7 @@
 ---
 title: "La prière ouvre des portails de bénédictions pour le monde"
 menu_title: ""
-description: "La prière ouvre des portails de bénédictions pour le monde"
+description: "André, reçu par Al Fike : « Que le Père réveille nos âmes. Alors que vous continuez à tendre la main à Dieu et à lui demander de vous toucher, de toucher … »"
 date: 2022-06-01 06:00:01+00:17
 draft: False
 hidden: True

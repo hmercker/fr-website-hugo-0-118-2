@@ -1,7 +1,7 @@
 ---
 title: "Soyez joyeux, soyez confiants, soyez courageux et soyez humbles"
 menu_title: ""
-description: "Soyez joyeux, soyez confiants, soyez courageux et soyez humbles"
+description: "Confucius, reçu par Albert Fike : « Beaucoup d'entre vous œuvrent inlassablement dans la lumière et apportent réconfort et amour à tant de personnes dans … »"
 date: 2026-10-21 06:00:01+00:09
 draft: False
 hidden: True

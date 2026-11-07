@@ -1,7 +1,7 @@
 ---
 title: "Divorce, les douze apôtres et les douze tribus d’Israël"
 menu_title: ""
-description: "Divorce, les douze apôtres et les douze tribus d’Israël"
+description: "Judas, reçu par H : « La raison est que je ne suis pas seul ici, certains de mes compagnons sont avec nous, et bien évidemment, tu as reçu une série … »"
 date: 2022-06-01 06:00:01+00:53
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Beaucoup de choses vous attendent"
 menu_title: ""
-description: "Beaucoup de choses vous attendent"
+description: "Seretta Kem, reçu par Al Fike : « Je te salue, ma fille (L), qui est venue partager cette bénédiction et cette prière. Car la distance ne signifie rien à … »"
 date: 2022-06-01 06:00:01+00:103
 draft: False
 hidden: True

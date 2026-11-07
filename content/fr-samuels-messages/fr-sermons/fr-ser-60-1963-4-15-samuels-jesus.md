@@ -1,7 +1,7 @@
 ---
 title: "60ème Sermon – La double vision des prophéties d’Ézéchiel"
 menu_title: ""
-description: "60ème Sermon – La double vision des prophéties d’Ézéchiel"
+description: "Jésus, reçu par Dr Samuels : « Une des raisons pourquoi laquelle Ézéchiel était concerné par le sacerdoce et sa fonction était sa connaissance que les … »"
 date: 2022-06-01 06:00:01+00:113
 draft: False
 hidden: True

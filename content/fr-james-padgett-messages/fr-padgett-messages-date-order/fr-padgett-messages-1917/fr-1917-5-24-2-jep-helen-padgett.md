@@ -1,7 +1,7 @@
 ---
 title: "Hélène – Affirmant que Jacques a écrit sur les faiblesses de l’esprit humain et les qualités morales"
 menu_title: ""
-description: "Hélène – Affirmant que Jacques a écrit sur les faiblesses de l’esprit humain et les qualités morales"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, tu as passé une soirée très agréable, tout comme nous qui avons écouté ta conversation, et … »"
 date: 2022-06-01 06:00:01+00:137
 draft: False
 hidden: True

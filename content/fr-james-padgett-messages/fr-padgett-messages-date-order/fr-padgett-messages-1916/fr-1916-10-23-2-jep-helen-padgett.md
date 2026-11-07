@@ -1,7 +1,7 @@
 ---
 title: "Hélène Padgett explique à M Padgett qu’il a le pouvoir d’empêcher les mauvais esprits d’écrire comme Jésus l’a juste expliqué"
 menu_title: ""
-description: "Hélène Padgett explique à M Padgett qu’il a le pouvoir d’empêcher les mauvais esprits d’écrire comme Jésus l’a juste expliqué"
+description: "Hélène Padgett, reçu par James Padgett : « Chéri, les esprits des ténèbres sont très impatients d’écrire ce soir, et il est quelque peu difficile de les … »"
 date: 2022-06-01 06:00:01+00:306
 draft: False
 hidden: True

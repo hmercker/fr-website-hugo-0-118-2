@@ -1,7 +1,7 @@
 ---
 title: "Une intervention sur les péchés des parents"
 menu_title: ""
-description: "Une intervention sur les péchés des parents"
+description: "St Luc, reçu par Al Fike : « Je tiens à vous assurer ma fille que les anges Célestes ne s’offusquent pas et ne se sentent pas jugés par les mortels. »"
 date: 2022-06-01 06:00:01+00:377
 draft: False
 hidden: True

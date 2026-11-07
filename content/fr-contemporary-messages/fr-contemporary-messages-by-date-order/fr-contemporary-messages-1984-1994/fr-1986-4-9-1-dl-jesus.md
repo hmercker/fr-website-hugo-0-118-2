@@ -1,7 +1,7 @@
 ---
 title: "Premier message à Dave Lamprom"
 menu_title: ""
-description: "Premier message à Dave Lamprom"
+description: "Jésus, reçu par Révérend Dave Lampron : « Et je tiens à vous dire que vous avez la capacité d’être un bon médium si vous pratiquez régulièrement. »"
 date: 2022-06-01 06:00:01+00:08
 draft: False
 hidden: True

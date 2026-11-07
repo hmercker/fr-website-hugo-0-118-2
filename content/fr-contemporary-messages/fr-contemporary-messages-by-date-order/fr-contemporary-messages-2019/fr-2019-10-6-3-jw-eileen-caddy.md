@@ -1,7 +1,7 @@
 ---
 title: "Soutenir les portails de lumière dans le monde"
 menu_title: ""
-description: "Soutenir les portails de lumière dans le monde"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « Nous sommes attirés vers vous pour vous aider, car nous ressentons les désirs de vos âmes et nous pouvons voir la … »"
 date: 2022-06-01 06:00:01+00:872
 draft: False
 hidden: True

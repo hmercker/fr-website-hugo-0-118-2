@@ -1,7 +1,7 @@
 ---
 title: "La Confiance"
 menu_title: ""
-description: "La Confiance"
+description: "Jésus (Yeshua ben Yosef), reçu par Jane Gartshore : « C’est une assurance que bien que le but du plan de Dieu pour ce monde ne soit pas apparent quand on … »"
 date: 2022-06-01 06:00:01+00:1181
 draft: False
 hidden: True

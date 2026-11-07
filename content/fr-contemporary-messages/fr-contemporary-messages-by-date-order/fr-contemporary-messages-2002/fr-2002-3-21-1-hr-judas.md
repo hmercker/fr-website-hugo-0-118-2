@@ -1,7 +1,7 @@
 ---
 title: "La situation politique en 26 AD – Tiberius Claudius Nero"
 menu_title: ""
-description: "La situation politique en 26 AD – Tiberius Claudius Nero"
+description: "Judas, reçu par H : « Mon cher frère, conformément à ce que j’ai mentionné la dernière fois, aujourd’hui, nous allons mettre l’accent sur le grand … »"
 date: 2022-06-01 06:00:01+00:41
 draft: False
 hidden: True

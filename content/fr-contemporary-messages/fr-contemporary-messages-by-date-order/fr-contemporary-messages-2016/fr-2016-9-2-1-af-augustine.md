@@ -1,7 +1,7 @@
 ---
 title: "L’amour naturel et l’Amour Divin"
 menu_title: ""
-description: "L’amour naturel et l’Amour Divin"
+description: "Augustin, reçu par Al Fike : « Âmes précieuses, vous avez eu une conversation importante entre vous, provoquée par la visite d’une belle âme qui a exprimé … »"
 date: 2022-06-01 06:00:01+00:230
 draft: False
 hidden: True

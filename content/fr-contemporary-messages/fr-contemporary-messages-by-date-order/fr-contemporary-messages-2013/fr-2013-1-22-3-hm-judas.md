@@ -1,7 +1,7 @@
 ---
 title: "Quelques conseils personnels"
 menu_title: ""
-description: "Quelques conseils personnels"
+description: "Judas, reçu par Helge Mercker : « En ce qui concerne la bonne pratique de l’écriture, il suffit de s’asseoir quand tu te sens le plus à l’aise et ouverte. »"
 date: 2022-06-01 06:00:01+00:19
 draft: False
 hidden: True

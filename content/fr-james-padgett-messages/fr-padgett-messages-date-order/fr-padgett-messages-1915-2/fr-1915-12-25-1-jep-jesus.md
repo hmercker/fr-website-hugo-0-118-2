@@ -1,7 +1,7 @@
 ---
 title: "Jésus n’est pas Dieu, mais un frère aîné. Le péché n’a aucune existence sauf s’il est créé par l’humanité, l’homme doit alors payer les pénalités"
 menu_title: ""
-description: "Jésus n’est pas Dieu, mais un frère aîné. Le péché n’a aucune existence sauf s’il est créé par l’humanité, l’homme doit alors payer les pénalités"
+description: "Jésus, reçu par James Padgett : « Aujourd’hui, les gens de votre pays ont célébré ce qu’ils pensent être mon anniversaire, et ils m’ont aussi adoré comme … »"
 date: 2022-06-01 06:00:01+00:101
 draft: False
 hidden: True

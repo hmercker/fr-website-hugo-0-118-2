@@ -1,7 +1,7 @@
 ---
 title: "Bienvenue à H et encouragements pour le groupe des 7"
 menu_title: ""
-description: "Bienvenue à H et encouragements pour le groupe des 7"
+description: "Martin Luther, reçu par Al Fike : « Ma fille bien-aimée, tu continues à marcher dans la foi et à servir dans l'amour dans ce monde. »"
 date: 2022-06-01 06:00:01+00:486
 draft: False
 hidden: True

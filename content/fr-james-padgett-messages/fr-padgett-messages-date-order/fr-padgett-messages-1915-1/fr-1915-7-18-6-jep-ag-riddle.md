@@ -1,7 +1,7 @@
 ---
 title: "Confirmation par A.G Riddle que le Maître et les Apôtres ont communiqué"
 menu_title: ""
-description: "Confirmation par A.G Riddle que le Maître et les Apôtres ont communiqué"
+description: "Albert Riddle, reçu par James Padgett : « Padgett, un tel témoignage aurait permis d'établir devant le tribunal tout ce que nous aurions pu affirmer, vous … »"
 date: 2022-06-01 06:00:01+00:135
 draft: False
 hidden: True

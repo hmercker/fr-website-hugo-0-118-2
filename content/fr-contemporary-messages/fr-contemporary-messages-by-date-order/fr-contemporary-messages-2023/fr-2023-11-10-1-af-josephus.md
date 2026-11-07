@@ -1,7 +1,7 @@
 ---
 title: "Des vêtements sont tissés pour chacun de nous"
 menu_title: ""
-description: "Des vêtements sont tissés pour chacun de nous"
+description: "Flavius Josèphe, reçu par Albert Fike : « Dieu confectionne pour chacun de vous un vêtement différent qui n’est pas tissé de fils et de moyens matériels … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

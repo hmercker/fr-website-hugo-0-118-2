@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes toujours avec vous pour veiller à votre développement"
 menu_title: ""
-description: "Nous sommes toujours avec vous pour veiller à votre développement"
+description: "Orion, reçu par Al Fike : « Il y a toujours un but et une importance à vos prières ensemble en ce moment, alors que nous renforçions et ouvrions le … »"
 date: 2022-06-01 06:00:01+00:97
 draft: False
 hidden: True

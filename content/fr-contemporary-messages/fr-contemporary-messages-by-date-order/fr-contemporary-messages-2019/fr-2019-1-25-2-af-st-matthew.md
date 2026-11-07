@@ -1,7 +1,7 @@
 ---
 title: "Quel est le désir de votre âme en termes de Vérité"
 menu_title: ""
-description: "Quel est le désir de votre âme en termes de Vérité"
+description: "St Matthieu, reçu par Al Fike : « Je vous souhaite la bienvenue, chère fille (L), dans ce cercle et à vous tous qui avez l’intention de vous réunir dans … »"
 date: 2022-06-01 06:00:01+00:612
 draft: False
 hidden: True

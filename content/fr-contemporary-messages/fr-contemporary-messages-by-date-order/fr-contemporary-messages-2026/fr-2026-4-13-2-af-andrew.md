@@ -1,7 +1,7 @@
 ---
 title: "Qu’est-ce qui vous empêche d’accomplir la mission de votre âme ?"
 menu_title: ""
-description: "Qu’est-ce qui vous empêche d’accomplir la mission de votre âme ?"
+description: "André, reçu par Al Fike : « Oh, il y a tant de choses dans le monde qui empêchent les bénédictions de Dieu d’atteindre chaque âme qui l’habite. »"
 date: 2026-05-28 16:00:01+00:01
 draft: False
 hidden: True

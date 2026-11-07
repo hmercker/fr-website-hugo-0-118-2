@@ -1,7 +1,7 @@
 ---
 title: "Tendre l'autre joue - 2"
 menu_title: ""
-description: "Tendre l'autre joue - 2"
+description: "Jésus, reçu par FAB : « Permets-moi d'ajouter à ma canalisation du 27 mars 2007 concernant le fait de tendre l'autre joue. »"
 date: 2022-06-01 06:00:01+00:155
 draft: False
 hidden: True

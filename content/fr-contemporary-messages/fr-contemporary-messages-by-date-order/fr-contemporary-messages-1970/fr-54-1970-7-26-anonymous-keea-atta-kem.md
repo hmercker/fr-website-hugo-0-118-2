@@ -1,7 +1,7 @@
 ---
 title: "Effet curatif des couleurs"
 menu_title: ""
-description: "Effet curatif des couleurs"
+description: "Keea Atta Kem : « C’est une si grande joie pour moi de pouvoir venir vous parler, d’être avec vous et de ressentir le grand amour et l’affection qui sont ici. »"
 date: 2022-06-01 06:00:01+00:122
 draft: False
 hidden: True

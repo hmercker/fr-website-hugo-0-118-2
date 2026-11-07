@@ -1,7 +1,7 @@
 ---
 title: "Comment être avec Dieu ?"
 menu_title: ""
-description: "Comment être avec Dieu ?"
+description: "Alec Gaunt, reçu par Al Fike : « J’ai travaillé avec beaucoup d’entre vous qui êtes ici. Âmes bien-aimées, ne sentez-vous pas ces eaux vives se déverser … »"
 date: 2022-06-01 06:00:01+00:09
 draft: False
 hidden: True

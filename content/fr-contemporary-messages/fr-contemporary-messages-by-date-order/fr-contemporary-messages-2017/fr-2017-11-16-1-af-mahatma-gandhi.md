@@ -1,7 +1,7 @@
 ---
 title: "Soyez forts dans l'amour, car les autres ont besoin de vous dans ce monde"
 menu_title: ""
-description: "Soyez forts dans l'amour, car les autres ont besoin de vous dans ce monde"
+description: "Mahatma Gandhi, reçu par Al Fike : « Puissions-nous en effet travailler tous ensemble à ces fins. Puissions-nous en effet réussir dans cette entreprise … »"
 date: 2022-06-01 06:00:01+00:206
 draft: False
 hidden: True

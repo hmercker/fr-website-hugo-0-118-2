@@ -1,7 +1,7 @@
 ---
 title: "Explique que l'Esprit travaille sur notre système nerveux central et nos synapses cérébrales pour une communication plus claire"
 menu_title: ""
-description: "Explique que l'Esprit travaille sur notre système nerveux central et nos synapses cérébrales pour une communication plus claire"
+description: "Seretta Kem, reçu par Maureen Cardodo : « Alors, mes amis, je vous encourage à persévérer dans vos prières lorsque vous êtes ensemble. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

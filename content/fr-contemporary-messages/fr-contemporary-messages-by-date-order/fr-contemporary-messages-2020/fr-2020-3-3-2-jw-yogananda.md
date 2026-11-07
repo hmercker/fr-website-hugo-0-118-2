@@ -1,7 +1,7 @@
 ---
 title: "Ne désespérez pas"
 menu_title: ""
-description: "Ne désespérez pas"
+description: "Yogananda, reçu par Jimbeau Walsh : « Je vois qu’il y a un certain poids sur vous tous aujourd’hui, car vous voyez tant de changements se produire dans ce … »"
 date: 2022-06-01 06:00:01+00:1011
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Jésus commente le message de Henry James"
 menu_title: ""
-description: "Jésus commente le message de Henry James"
+description: "Jésus, reçu par FAB : « Techniquement, cette phrase est incorrecte Mais si vous lisez attentivement ces messages, vous réaliserez qu’ils ne nient pas … »"
 date: 2022-06-01 06:00:01+00:25
 draft: False
 hidden: True

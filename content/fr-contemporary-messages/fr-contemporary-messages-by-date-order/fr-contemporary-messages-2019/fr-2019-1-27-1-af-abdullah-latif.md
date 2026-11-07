@@ -1,7 +1,7 @@
 ---
 title: "L’humanité a le pouvoir de créer sa propre réalité"
 menu_title: ""
-description: "L’humanité a le pouvoir de créer sa propre réalité"
+description: "Abdullah Latif, reçu par Al Fike : « Je fus autrefois un philosophe, un mathématicien, et j’avais un rang élevé dans le royaume dans lequel je vivais sur … »"
 date: 2022-06-01 06:00:01+00:618
 draft: False
 hidden: True

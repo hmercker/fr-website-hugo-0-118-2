@@ -1,7 +1,7 @@
 ---
 title: "Préparatifs de nos rassemblements de prière"
 menu_title: ""
-description: "Préparatifs de nos rassemblements de prière"
+description: "Keea Atta Kem, reçu par Al Fike : « Nous avons préparé ce lieu, nous avons préparé ceux qui viennent, nous vous avons tous préparés pour un temps de … »"
 date: 2022-06-01 06:00:01+00:11
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L'unicité avec Dieu et les Soufis"
 menu_title: ""
-description: "L'unicité avec Dieu et les Soufis"
+description: "Jésus, reçu par FAB : « Laissez-moi commenter ce qui vous laisse perplexe depuis longtemps. Vous lisez des articles sur les Soufis et leur doctrine de la … »"
 date: 2022-06-01 06:00:01+00:16
 draft: False
 hidden: True

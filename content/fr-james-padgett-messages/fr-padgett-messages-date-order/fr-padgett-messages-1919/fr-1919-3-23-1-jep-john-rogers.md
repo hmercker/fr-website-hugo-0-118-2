@@ -1,7 +1,7 @@
 ---
 title: "Rodgers cherche de l’aide et fut attiré vers M. Padgett lors de sa participation à la séance spirite"
 menu_title: ""
-description: "Rodgers cherche de l’aide et fut attiré vers M. Padgett lors de sa participation à la séance spirite"
+description: "John Rogers, reçu par James Padgett : « Laissez-moi écrire une ligne, John D. J’étais avec vous à la réunion et j’ai vu que vous êtes médiumnique, et j’ai … »"
 date: 2022-06-01 06:00:01+00:16
 draft: False
 hidden: True

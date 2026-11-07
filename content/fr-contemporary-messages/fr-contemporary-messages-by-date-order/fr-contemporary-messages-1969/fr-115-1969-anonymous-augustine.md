@@ -1,7 +1,7 @@
 ---
 title: "Un avertissement des choses à venir"
 menu_title: ""
-description: "Un avertissement des choses à venir"
+description: "Augustin : « Je vous salue depuis l'Esprit mes enfants. Nous sommes très heureux des progrès réalisés par ce groupe au cours de l'année écoulée. »"
 date: 2022-06-01 06:00:01+00:80
 draft: False
 hidden: True

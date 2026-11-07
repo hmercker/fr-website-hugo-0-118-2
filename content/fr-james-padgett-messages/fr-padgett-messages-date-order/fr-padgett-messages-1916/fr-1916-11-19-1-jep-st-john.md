@@ -1,7 +1,7 @@
 ---
 title: "Personne ne souffrira en enfer pour l’éternité – tous progresseront"
 menu_title: ""
-description: "Personne ne souffrira en enfer pour l’éternité – tous progresseront"
+description: "St Jean, reçu par James Padgett : « J’étais avec vous, ce soir, et j’ai entendu le sermon sur l’enfer, et j’ai regretté que le prédicateur (Dr Ratcliff) … »"
 date: 2022-06-01 06:00:01+00:329
 draft: False
 hidden: True

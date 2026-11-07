@@ -1,7 +1,7 @@
 ---
 title: "Il vous suffit de demander pour recevoir"
 menu_title: ""
-description: "Il vous suffit de demander pour recevoir"
+description: "Augustin, reçu par Albert Fike : « En cela, vous êtes tous magnifiques, mes enfants ; en cela, vous aspirez tous à la lumière ; en cela, vos âmes désirent … »"
 date: 2026-10-21 06:00:01+00:09
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Shakespeare - sa méthode de création"
 menu_title: ""
-description: "Shakespeare - sa méthode de création"
+description: "William Shakespeare, reçu par FAB : « J'ai dit dans ma canalisation du 24 Janvier 2003, « Il y eut de nombreux acteurs clés dans ma vie. »"
 date: 2022-06-01 06:00:01+00:149
 draft: False
 hidden: True

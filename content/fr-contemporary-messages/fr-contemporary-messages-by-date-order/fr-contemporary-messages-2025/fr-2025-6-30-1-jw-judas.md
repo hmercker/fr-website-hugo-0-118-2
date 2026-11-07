@@ -1,7 +1,7 @@
 ---
 title: "Comprendre la vérité et la devenir"
 menu_title: ""
-description: "Comprendre la vérité et la devenir"
+description: "Judas, reçu par reçu par Jimbeau Walsh : « Chers frères et sœurs en Christ, vous avez parcouru un long chemin sur le chemin du cœur, sur le chemin de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

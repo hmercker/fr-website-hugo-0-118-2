@@ -1,7 +1,7 @@
 ---
 title: "C'est votre destin de mettre vos dons en avant pour l'humanité"
 menu_title: ""
-description: "C'est votre destin de mettre vos dons en avant pour l'humanité"
+description: "Élie, reçu par Al Fike : « En effet, je vois un spectacle rare devant moi, deux prophètes ensemble, deux âmes douées ensemble en discussion et en prière. »"
 date: 2022-06-01 06:00:01+00:651
 draft: False
 hidden: True

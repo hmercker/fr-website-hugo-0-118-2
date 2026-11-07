@@ -1,7 +1,7 @@
 ---
 title: "Ce que l’homme devrait savoir afin d’éprouver les esprits"
 menu_title: ""
-description: "Ce que l’homme devrait savoir afin d’éprouver les esprits"
+description: "Martin Luther, reçu par James Padgett : « L’expiation par le sang est fausse et trompeuse, et elle a fait beaucoup de mal aux vérités de Dieu et à l’humanité. »"
 date: 2022-06-01 06:00:01+00:09
 draft: False
 hidden: True

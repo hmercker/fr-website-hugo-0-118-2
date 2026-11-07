@@ -1,7 +1,7 @@
 ---
 title: "La loi de l'Amour Divin"
 menu_title: ""
-description: "La loi de l'Amour Divin"
+description: "Moïse, reçu par Elizabeth Mack : « Nous savons que la loi d'Amour de Dieu, l'Amour Divin, est au sommet de toutes ces autres lois et lorsque vous priez … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "S'envoler vers votre Père Céleste"
 menu_title: ""
-description: "S'envoler vers votre Père Céleste"
+description: "Confucius, reçu par Al Fike : « Oh précieux petits oiseaux, prenez votre envol dans l’amour, envolez-vous vers votre Père Céleste et apportez un peu de … »"
 date: 2022-06-01 06:00:01+00:192
 draft: False
 hidden: True

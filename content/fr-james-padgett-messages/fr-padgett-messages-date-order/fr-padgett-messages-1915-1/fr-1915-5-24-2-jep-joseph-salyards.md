@@ -1,7 +1,7 @@
 ---
 title: "Confirme les écrits de Jésus"
 menu_title: ""
-description: "Confirme les écrits de Jésus"
+description: "Professeur Salyards, reçu par James Padgett : « Je voudrais vous donner un autre message, si vous vous sentez enclin à l’écrire. C’était le Maître, vous … »"
 date: 2022-06-01 06:00:01+00:87
 draft: False
 hidden: True

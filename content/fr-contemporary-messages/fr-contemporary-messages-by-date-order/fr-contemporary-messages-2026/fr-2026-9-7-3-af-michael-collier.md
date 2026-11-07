@@ -1,7 +1,7 @@
 ---
 title: "Questions-réponses avec Michael Collier"
 menu_title: ""
-description: "Questions-réponses avec Michael Collier"
+description: "Michael Collier, reçu par Albert Fike : « Bien que, là où je réside, l’Angleterre n’existe pas. Il s’agit d’une communauté merveilleuse et ininterrompue … »"
 date: 2026-11-05 06:00:01+00:01
 draft: False
 hidden: True

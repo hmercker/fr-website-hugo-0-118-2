@@ -1,7 +1,7 @@
 ---
 title: "La prière, la meilleure préparation"
 menu_title: ""
-description: "La prière, la meilleure préparation"
+description: "Joseph, reçu par Kathryn Stokes : « Comme tu le sais, les enfants de Dieu sont soumis à l’action de Ses lois parfaites, qui ont été mises en œuvre pour … »"
 date: 2022-06-01 06:00:01+00:54
 draft: False
 hidden: True

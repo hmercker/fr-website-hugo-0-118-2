@@ -1,7 +1,7 @@
 ---
 title: "Saleeba commente la gloire de Jésus tel qu’elle l’a vu l’autre soir"
 menu_title: ""
-description: "Saleeba commente la gloire de Jésus tel qu’elle l’a vu l’autre soir"
+description: "Saleeba, reçu par James Padgett : « Je veux vous dire que j’ai été témoin l’autre soir de la merveilleuse démonstration par Jésus de sa grande puissance … »"
 date: 2022-06-01 06:00:01+00:289
 draft: False
 hidden: True

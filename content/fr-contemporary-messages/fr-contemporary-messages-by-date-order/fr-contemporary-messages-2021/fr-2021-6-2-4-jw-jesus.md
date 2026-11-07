@@ -1,7 +1,7 @@
 ---
 title: "Comment je vous aime"
 menu_title: ""
-description: "Comment je vous aime"
+description: "Jésus, reçu par Jimbeau Walsh : « Je marche dans l’amour, je parle dans l’amour, je chante dans l’amour, je guéris dans l’Amour de Dieu. »"
 date: 2022-06-01 06:00:01+00:1528
 draft: False
 hidden: True

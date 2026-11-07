@@ -1,7 +1,7 @@
 ---
 title: "Pourquoi les hommes doivent croire qu’il est le vrai Jésus et pourquoi il écrit à travers M. Padgett"
 menu_title: ""
-description: "Pourquoi les hommes doivent croire qu’il est le vrai Jésus et pourquoi il écrit à travers M. Padgett"
+description: "Jésus, reçu par James Padgett : « Je tiens à vous dire ce soir que vous êtes dans une bien meilleure condition spirituelle et je désire donc écrire un … »"
 date: 2022-06-01 06:00:01+00:105
 draft: False
 hidden: True

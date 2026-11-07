@@ -1,7 +1,7 @@
 ---
 title: "La Nouvelle  Naissance"
 menu_title: ""
-description: "La Nouvelle  Naissance"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Lorsque le Maître a parlé de la Nouvelle Naissance, cela a été interprété à tort comme signifiant une … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

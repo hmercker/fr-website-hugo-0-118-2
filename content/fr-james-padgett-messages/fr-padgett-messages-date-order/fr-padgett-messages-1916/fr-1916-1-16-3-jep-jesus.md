@@ -1,7 +1,7 @@
 ---
 title: "Confirmation par Jésus que Saint Paul a écrit sur la résurrection"
 menu_title: ""
-description: "Confirmation par Jésus que Saint Paul a écrit sur la résurrection"
+description: "Jésus, reçu par James Padgett : « Le sujet évoqué par Paul est indispensable aux croyances de l’homme, et est relatif à la question de la résurrection sur … »"
 date: 2022-06-01 06:00:01+00:129
 draft: False
 hidden: True

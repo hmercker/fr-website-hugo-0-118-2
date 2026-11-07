@@ -1,7 +1,7 @@
 ---
 title: "Gérer le legs d'une église"
 menu_title: ""
-description: "Gérer le legs d'une église"
+description: "Jésus, reçu par Révérend Dave Lampron : « Dans les affaires de ce genre - car il pourrait y avoir des cas similaires à l'avenir où de l'argent ou d'autres … »"
 date: 2022-06-01 06:00:01+00:45
 draft: False
 hidden: True

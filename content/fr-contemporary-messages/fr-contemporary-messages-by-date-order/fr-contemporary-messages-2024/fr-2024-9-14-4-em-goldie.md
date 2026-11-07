@@ -1,7 +1,7 @@
 ---
 title: "Souvenez-vous des tout-petits"
 menu_title: ""
-description: "Souvenez-vous des tout-petits"
+description: "Goldie, reçu par Elizabeth Mack : « Lors de vos voyages, si vous rencontrez l’un d’entre nous, surtout un tout-petit, aimez-le. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

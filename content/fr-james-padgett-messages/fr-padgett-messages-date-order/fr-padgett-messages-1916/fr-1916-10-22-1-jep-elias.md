@@ -1,7 +1,7 @@
 ---
 title: "Élie décrit les sentiments de la congrégation d’un pasteur orthodoxe, dont le sermon fut une illumination spirituelle et qui était perçu comme un vrai spiritualiste"
 menu_title: ""
-description: "Élie décrit les sentiments de la congrégation d’un pasteur orthodoxe, dont le sermon fut une illumination spirituelle et qui était perçu comme un vrai spiritualiste"
+description: "Élie, reçu par James Padgett : « Ce soir, à l’église, il y avait beaucoup d’esprits présents et, comme le prédicateur l’a dit, « chaque particule de … »"
 date: 2022-06-01 06:00:01+00:303
 draft: False
 hidden: True

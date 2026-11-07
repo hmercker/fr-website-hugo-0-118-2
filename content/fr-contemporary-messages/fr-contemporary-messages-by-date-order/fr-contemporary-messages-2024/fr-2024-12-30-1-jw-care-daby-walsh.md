@@ -1,7 +1,7 @@
 ---
 title: "Rendre le spirituel banal"
 menu_title: ""
-description: "Rendre le spirituel banal"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Être immobile, recevoir, rester dans le désir de votre âme au milieu des distractions du monde requiert votre … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

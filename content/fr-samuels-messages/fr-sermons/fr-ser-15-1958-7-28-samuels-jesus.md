@@ -1,7 +1,7 @@
 ---
 title: "15ème Sermon – La patience du roi David"
 menu_title: ""
-description: "15ème Sermon – La patience du roi David"
+description: "Jésus, reçu par Dr Samuels : « Les sermons que je vous communique sur David, le roi, sont importants parce qu’ils montrent aux lecteurs que la guerre et … »"
 date: 2022-06-01 06:00:01+00:68
 draft: False
 hidden: True

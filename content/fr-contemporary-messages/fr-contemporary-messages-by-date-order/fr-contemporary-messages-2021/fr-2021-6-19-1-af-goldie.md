@@ -1,7 +1,7 @@
 ---
 title: "Tout est entre les mains de Dieu"
 menu_title: ""
-description: "Tout est entre les mains de Dieu"
+description: "Goldie, reçu par Al Fike : « En effet, tout ce qui apporte de la joie, j’aime, j’aime beaucoup. C’est ce que vous devez faire, mes amis, c’est ce que vous … »"
 date: 2022-06-01 06:00:01+00:1547
 draft: False
 hidden: True

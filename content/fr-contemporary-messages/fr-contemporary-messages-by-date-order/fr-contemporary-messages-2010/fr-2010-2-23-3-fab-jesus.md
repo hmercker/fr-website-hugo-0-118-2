@@ -1,7 +1,7 @@
 ---
 title: "Sur l'abondance matérielle - 2"
 menu_title: ""
-description: "Sur l'abondance matérielle - 2"
+description: "Jésus, reçu par FAB : « Je veux poursuivre ma discussion sur l'abondance matérielle, car c'est un sujet qui touche directement les mortels. »"
 date: 2022-06-01 06:00:01+00:116
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Pensées d'un Kennedy"
 menu_title: ""
-description: "Pensées d'un Kennedy"
+description: "Robert Kennedy, reçu par FAB : « Je souhaite te dire quelques mots ce soir, alors que notre famille accueille dans ce monde l'un des nôtres. [Son frère … »"
 date: 2022-06-01 06:00:01+00:78
 draft: False
 hidden: True

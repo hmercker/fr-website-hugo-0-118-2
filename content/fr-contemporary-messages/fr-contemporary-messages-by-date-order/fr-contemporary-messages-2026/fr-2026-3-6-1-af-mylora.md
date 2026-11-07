@@ -1,7 +1,7 @@
 ---
 title: "Éveil comme le jardin au printemps"
 menu_title: ""
-description: "Éveil comme le jardin au printemps"
+description: "Mylora, reçu par Al Fike : « N’est-ce pas merveilleux de voir la vie jaillir de la Terre, de voir la beauté de la création s’animer autour de vous et de … »"
 date: 2026-05-24 16:00:01+00:01
 draft: False
 hidden: True

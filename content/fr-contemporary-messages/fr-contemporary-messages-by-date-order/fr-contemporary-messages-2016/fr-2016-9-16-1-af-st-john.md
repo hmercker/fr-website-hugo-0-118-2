@@ -1,7 +1,7 @@
 ---
 title: "Allez-vous marcher avec Dieu ?"
 menu_title: ""
-description: "Allez-vous marcher avec Dieu ?"
+description: "St Jean, reçu par Al Fike : « Le monde a un grand besoin de changement. Le monde souffre du manque d’amour dans l’humanité. »"
 date: 2022-06-01 06:00:01+00:251
 draft: False
 hidden: True

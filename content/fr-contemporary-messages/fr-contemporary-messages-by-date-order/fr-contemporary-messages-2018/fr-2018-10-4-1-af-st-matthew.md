@@ -1,7 +1,7 @@
 ---
 title: "Se mettre à nu devant Dieu dans la joie"
 menu_title: ""
-description: "Se mettre à nu devant Dieu dans la joie"
+description: "St Matthieu, reçu par Al Fike : « Tout comme vous avez entraîné vos corps, vous devez entraîner vos âmes pour faire ce qui est nécessaire afin d’être … »"
 date: 2022-06-01 06:00:01+00:497
 draft: False
 hidden: True

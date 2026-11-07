@@ -1,7 +1,7 @@
 ---
 title: "Mes paroles montrent que j'ai toujours pointé vers Dieu"
 menu_title: ""
-description: "Mes paroles montrent que j'ai toujours pointé vers Dieu"
+description: "Yogananda, reçu par Jimbeau Walsh : « Lorsque j’étais sur Terre, j’avais de nombreux étudiants qui m’étaient dévoués et qui l’étaient à l’égard de mon … »"
 date: 2022-06-01 06:00:01+00:867
 draft: False
 hidden: True

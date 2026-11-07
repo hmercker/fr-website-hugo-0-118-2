@@ -1,7 +1,7 @@
 ---
 title: "Qualités de l'âme"
 menu_title: ""
-description: "Qualités de l'âme"
+description: "Amon, reçu par Jimbeau Walsh : « Lorsque Aman et moi vivions il y a tant de siècles dans le paradis de la nouvelle terre, dans la sécurité et la beauté du … »"
 date: 2022-06-01 06:00:01+00:44
 draft: False
 hidden: True

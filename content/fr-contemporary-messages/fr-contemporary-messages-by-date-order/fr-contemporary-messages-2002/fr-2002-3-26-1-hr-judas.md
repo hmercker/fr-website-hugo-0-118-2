@@ -1,7 +1,7 @@
 ---
 title: "La situation politique en 26 AD – Publius Pontius Pilatus suite"
 menu_title: ""
-description: "La situation politique en 26 AD – Publius Pontius Pilatus suite"
+description: "Judas, reçu par H : « J’ai parlé dans mon dernier message, des antécédents familiaux de Pilate, et comment Séjan l’envoya en Judée comme préfet, dans … »"
 date: 2022-06-01 06:00:01+00:44
 draft: False
 hidden: True

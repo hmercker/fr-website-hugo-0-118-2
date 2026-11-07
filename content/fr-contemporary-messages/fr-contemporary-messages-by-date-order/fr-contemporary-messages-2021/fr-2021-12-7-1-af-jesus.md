@@ -1,7 +1,7 @@
 ---
 title: "Vient pour nous soutenir en harmonie dans nos efforts individuels"
 menu_title: ""
-description: "Vient pour nous soutenir en harmonie dans nos efforts individuels"
+description: "Jésus, reçu par Al Fike : « Âmes bien-aimées, je viens. Je m’efforce de vous aider dans les efforts que vous déployez. »"
 date: 2022-06-01 06:00:01+00:1726
 draft: False
 hidden: True

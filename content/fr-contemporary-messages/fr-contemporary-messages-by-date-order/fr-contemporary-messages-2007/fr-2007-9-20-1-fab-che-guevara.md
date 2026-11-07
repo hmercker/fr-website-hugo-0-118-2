@@ -1,7 +1,7 @@
 ---
 title: "La souffrance d’un révolutionnaire"
 menu_title: ""
-description: "La souffrance d’un révolutionnaire"
+description: "Che Guevara, reçu par FAB : « Je sais que vous vous êtes intéressé à ma vie. Je vois maintenant la folie de ce que j’ai fait. »"
 date: 2022-06-01 06:00:01+00:162
 draft: False
 hidden: True

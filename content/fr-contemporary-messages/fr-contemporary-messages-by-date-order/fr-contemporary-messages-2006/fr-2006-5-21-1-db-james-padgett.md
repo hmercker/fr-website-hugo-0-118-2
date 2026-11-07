@@ -1,7 +1,7 @@
 ---
 title: "Le deuxième avènement"
 menu_title: ""
-description: "Le deuxième avènement"
+description: "James Padgett, reçu par DB : « Nombreux sont ceux qui voudraient contester et discréditer ce travail que Jésus et moi avons accompli avec succès, car il … »"
 date: 2022-06-01 06:00:01+00:16
 draft: False
 hidden: True

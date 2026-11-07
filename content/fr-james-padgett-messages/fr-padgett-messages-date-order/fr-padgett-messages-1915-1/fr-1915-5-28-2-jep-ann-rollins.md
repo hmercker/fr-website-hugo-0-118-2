@@ -1,7 +1,7 @@
 ---
 title: "Anne Rollins corrobore ce que Jésus a écrit sur l’immortalité"
 menu_title: ""
-description: "Anne Rollins corrobore ce que Jésus a écrit sur l’immortalité"
+description: "Anne Rollins, reçu par James Padgett : « Eh bien, mon fils, le discours du Maître était merveilleux. Jamais auparavant il n’avait expliqué aux mortels les … »"
 date: 2022-06-01 06:00:01+00:92
 draft: False
 hidden: True

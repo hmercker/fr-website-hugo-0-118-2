@@ -1,7 +1,7 @@
 ---
 title: "La Famille Kennedy"
 menu_title: ""
-description: "La Famille Kennedy"
+description: "Rose Kennedy, reçu par FAB : « Et cependant, de nombreuses tragédies se sont produites. Il n’est pas vrai que ma famille était maudite. »"
 date: 2022-06-01 06:00:01+00:107
 draft: False
 hidden: True

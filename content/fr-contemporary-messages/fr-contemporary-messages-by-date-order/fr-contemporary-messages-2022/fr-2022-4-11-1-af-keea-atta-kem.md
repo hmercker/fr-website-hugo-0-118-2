@@ -1,7 +1,7 @@
 ---
 title: "Bénédictions"
 menu_title: ""
-description: "Bénédictions"
+description: "Keea Atta Kem, reçu par Al Fike : « J’apporte à chacun d’entre vous une bénédiction de guérison, une élévation de lumière, afin que vous ressentiez une … »"
 date: 2022-06-01 06:00:01+00:63
 draft: False
 hidden: True

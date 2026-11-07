@@ -1,7 +1,7 @@
 ---
 title: " Priez Dieu de racheter votre âme"
 menu_title: ""
-description: " Priez Dieu de racheter votre âme"
+description: "Élie, reçu par Albert Fike : « S’il y a une raison de prier, âmes bien-aimées et intrépides, c’est pour racheter votre âme, pour établir et ouvrir la voie … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

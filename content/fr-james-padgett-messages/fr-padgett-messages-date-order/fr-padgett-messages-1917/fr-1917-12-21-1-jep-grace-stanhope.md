@@ -1,7 +1,7 @@
 ---
 title: "Une mère partage son expérience après son décès survenu juste après la naissance de son bébé"
 menu_title: ""
-description: "Une mère partage son expérience après son décès survenu juste après la naissance de son bébé"
+description: "Grace Stanhope, reçu par James Padgett : « La mort est venue dans la chambre nuptiale. Elle est venue voir la jeune mère alors qu’elle sentait pour la … »"
 date: 2022-06-01 06:00:01+00:196
 draft: False
 hidden: True

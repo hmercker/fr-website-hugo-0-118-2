@@ -1,7 +1,7 @@
 ---
 title: "Vous bénéficiez d’un soutien immense"
 menu_title: ""
-description: "Vous bénéficiez d’un soutien immense"
+description: "Orion, reçu par Albert Fike : « Le fonctionnement de l’univers est souvent mal compris, voire totalement ignoré par l’humanité, occulté par un esprit si … »"
 date: 2026-10-28 06:00:01+00:01
 draft: False
 hidden: True

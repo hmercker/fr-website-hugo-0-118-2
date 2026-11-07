@@ -1,7 +1,7 @@
 ---
 title: "Guerre et paix et le plan de Dieu Partie 4"
 menu_title: ""
-description: "Guerre et paix et le plan de Dieu Partie 4"
+description: "Jésus, reçu par FAB : « Permettez-moi de commenter ma canalisation. Vous avez été troublé lorsque j’ai semblé laisser entendre que Dieu avait pris parti … »"
 date: 2022-06-01 06:00:01+00:188
 draft: False
 hidden: True

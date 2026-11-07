@@ -1,7 +1,7 @@
 ---
 title: "Hélène a écrit que Perry prie pour l’Amour Divin et commence à réaliser le grand amour que sa mère a pour lui"
 menu_title: ""
-description: "Hélène a écrit que Perry prie pour l’Amour Divin et commence à réaliser le grand amour que sa mère a pour lui"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, chéri, tu as passé une nuit merveilleuse et si, comme tu le dis, tu pouvais voir la scène qui … »"
 date: 2022-06-01 06:00:01+00:77
 draft: False
 hidden: True

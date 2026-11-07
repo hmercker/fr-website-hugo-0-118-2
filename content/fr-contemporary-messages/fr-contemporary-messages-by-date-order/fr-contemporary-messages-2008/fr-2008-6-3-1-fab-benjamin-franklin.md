@@ -1,7 +1,7 @@
 ---
 title: "La réalité des Pères fondateurs"
 menu_title: ""
-description: "La réalité des Pères fondateurs"
+description: "Benjamin Franklin, reçu par FAB : « Là, nos détracteurs ont raison. Mais nous nous considérions comme éclairés et qualifiés pour gouverner. »"
 date: 2022-06-01 06:00:01+00:69
 draft: False
 hidden: True

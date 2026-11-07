@@ -1,7 +1,7 @@
 ---
 title: "Les réflexions affectueuses de Seretta Kem"
 menu_title: ""
-description: "Les réflexions affectueuses de Seretta Kem"
+description: "Seretta Kem, reçu par Al Fike : « Avec tout ce qui s’est passé dans vos cercles, vos conversations, vos efforts et vos célébrations, tout a été d’amour … »"
 date: 2022-06-01 06:00:01+00:547
 draft: False
 hidden: True

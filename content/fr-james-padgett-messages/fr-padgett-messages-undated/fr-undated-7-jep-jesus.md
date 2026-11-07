@@ -1,7 +1,7 @@
 ---
 title: "Est soucieux d’expliquer la vérité et de corriger la contrevérité telle qu’elle est connue"
 menu_title: ""
-description: "Est soucieux d’expliquer la vérité et de corriger la contrevérité telle qu’elle est connue"
+description: "Jésus, reçu par James Padgett : « Permettez-moi d’écrire juste une ligne, puisque j’ai été avec vous pendant que vous lisiez et j’ai vu que vous pensiez … »"
 date: 2022-06-01 06:00:01+00:81
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Libérer la volonté propre et embrasser la Volonté parfaite de Dieu"
 menu_title: ""
-description: "Libérer la volonté propre et embrasser la Volonté parfaite de Dieu"
+description: "Jacques, reçu par Al Fike : « Ah, vous vous sentez découragés, n’est-ce pas, lorsque ces plans bien conçus que vous faites ne se réalisent pas, lorsque … »"
 date: 2022-06-01 06:00:01+00:23
 draft: False
 hidden: True

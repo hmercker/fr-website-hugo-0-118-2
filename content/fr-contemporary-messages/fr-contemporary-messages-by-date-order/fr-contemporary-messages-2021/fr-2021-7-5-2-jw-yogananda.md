@@ -1,7 +1,7 @@
 ---
 title: "Transcender tout est le don de l'amour de Dieu"
 menu_title: ""
-description: "Transcender tout est le don de l'amour de Dieu"
+description: "Yogananda, reçu par Jimbeau Walsh : « Beaucoup d’attention a été accordée récemment dans votre monde à des êtres venant d’autres parties de la galaxie, de … »"
 date: 2022-06-01 06:00:01+00:1566
 draft: False
 hidden: True

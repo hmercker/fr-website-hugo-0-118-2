@@ -1,7 +1,7 @@
 ---
 title: "Dans l'étreinte de l'amour de Dieu"
 menu_title: ""
-description: "Dans l'étreinte de l'amour de Dieu"
+description: "Hafiz, reçu par Jimbeau Walsh : « Alors que le monde tourne et que les planètes tournent, vous pouvez vous reposer dans la magnificence de la création en … »"
 date: 2022-06-01 06:00:01+00:1338
 draft: False
 hidden: True

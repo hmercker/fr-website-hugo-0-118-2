@@ -1,7 +1,7 @@
 ---
 title: "L’influence de notre cheminement sur nos proches dans le monde spirituel"
 menu_title: ""
-description: "L’influence de notre cheminement sur nos proches dans le monde spirituel"
+description: "Melvina, reçu par Maureen Cardoso : « Que la bénédiction de l’Amour de Dieu emplisse vos âmes. Car nous avons cela en commun : nous cherchons tous, avec … »"
 date: 2026-11-05 06:00:01+00:01
 draft: False
 hidden: True

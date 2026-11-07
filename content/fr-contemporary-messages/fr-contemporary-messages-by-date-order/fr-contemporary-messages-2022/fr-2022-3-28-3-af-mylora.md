@@ -1,7 +1,7 @@
 ---
 title: "Un pas de plus au service des autres"
 menu_title: ""
-description: "Un pas de plus au service des autres"
+description: "Mylora, reçu par Al Fike : « Âmes bien-aimées, vous pouvez tous être de grands canaux de lumière dans votre vie, dans ce monde. »"
 date: 2026-05-21 06:00:01+00:56
 draft: False
 hidden: True

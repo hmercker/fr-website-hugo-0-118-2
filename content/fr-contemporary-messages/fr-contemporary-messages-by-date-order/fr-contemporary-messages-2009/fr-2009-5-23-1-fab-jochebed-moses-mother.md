@@ -1,7 +1,7 @@
 ---
 title: "Expérience de la mère de Moïse"
 menu_title: ""
-description: "Expérience de la mère de Moïse"
+description: "Jochebed, la mère de Moïse, reçu par FAB : « Je n'étais pas la tante de mon mari Amram, comme le dit la Bible Exode 6:20. Et mon père était effectivement … »"
 date: 2022-06-01 06:00:01+00:45
 draft: False
 hidden: True

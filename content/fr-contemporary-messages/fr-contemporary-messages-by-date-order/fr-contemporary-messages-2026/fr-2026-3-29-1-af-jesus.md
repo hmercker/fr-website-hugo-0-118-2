@@ -1,7 +1,7 @@
 ---
 title: "Le moment est venu : Avancez comme une lumière dans le monde"
 menu_title: ""
-description: "Le moment est venu : Avancez comme une lumière dans le monde"
+description: "Jésus, reçu par Al Fike : « Merci, mon frère bien-aimé. Car plus vous priez ensemble, plus vous ajoutez à la lumière dont le monde a tant besoin. »"
 date: 2026-05-28 16:00:01+00:01
 draft: False
 hidden: True

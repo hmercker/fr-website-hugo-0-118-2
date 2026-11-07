@@ -1,7 +1,7 @@
 ---
 title: "Bénédictions"
 menu_title: ""
-description: "Bénédictions"
+description: "Jésus, reçu par Barbara Davies : « Chacun d’entre vous a une mission profonde. Et vous aurez de nombreux anges pour vous ouvrir la voie divine. »"
 date: 2026-10-21 06:00:01+00:09
 draft: False
 hidden: True

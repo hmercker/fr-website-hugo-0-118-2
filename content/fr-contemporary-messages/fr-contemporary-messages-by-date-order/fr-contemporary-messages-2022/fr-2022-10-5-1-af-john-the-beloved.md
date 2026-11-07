@@ -1,7 +1,7 @@
 ---
 title: "Nos chemins seront marqués par le nombre d'âmes que nous toucherons"
 menu_title: ""
-description: "Nos chemins seront marqués par le nombre d'âmes que nous toucherons"
+description: "Jean le Bien Aimé, reçu par Al Fike : « Vous me connaissez sous le nom de Jean le Bien-Aimé. Pour que vous puissiez entrer plus pleinement en Sa présence … »"
 date: 2022-06-01 06:00:01+00:190
 draft: False
 hidden: True

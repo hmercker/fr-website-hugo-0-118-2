@@ -1,7 +1,7 @@
 ---
 title: "Prévoyez la Voix Directe"
 menu_title: ""
-description: "Prévoyez la Voix Directe"
+description: "Keea Atta Kem & Augustin : « Ce soir, nous vous apportons la lumière et vous conditionnons, vous préparant à être de véritables instruments de Dieu. »"
 date: 2022-06-01 06:00:01+00:88
 draft: False
 hidden: True

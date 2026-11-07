@@ -1,7 +1,7 @@
 ---
 title: "Lâcher prise pour s'épanouir"
 menu_title: ""
-description: "Lâcher prise pour s'épanouir"
+description: "André, reçu par Kathryn Stokes : « Et, comme tu le sais, c'est toi qui dois activer ta foi dans le pouvoir de ta bonté, et ta capacité à entrer en contact … »"
 date: 2022-06-01 06:00:01+00:19
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Conseils de discernement"
 menu_title: ""
-description: "Conseils de discernement"
+description: "Augustin, reçu par Al Fike : « Âmes bien-aimées, c’est votre enseignant Augustin. Le mental ne cessera jamais de remettre en question les âmes … »"
 date: 2022-06-01 06:00:01+00:1426
 draft: False
 hidden: True

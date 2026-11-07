@@ -1,7 +1,7 @@
 ---
 title: "Le mental et l'âme"
 menu_title: ""
-description: "Le mental et l'âme"
+description: "Yogananda, reçu par Jimbeau Walsh : « Je souhaite parler des questions relatives au mental et à l'âme pour ceux et à ceux qui trouvent difficile de calmer … »"
 date: 2022-06-01 06:00:01+00:797
 draft: False
 hidden: True

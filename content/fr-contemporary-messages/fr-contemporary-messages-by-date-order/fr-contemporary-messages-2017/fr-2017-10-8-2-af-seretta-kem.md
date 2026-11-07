@@ -1,7 +1,7 @@
 ---
 title: "Conseils sur le régime alimentaire pour la Voix Directe"
 menu_title: ""
-description: "Conseils sur le régime alimentaire pour la Voix Directe"
+description: "Seretta Kem, reçu par Al Fike : « Je vous suggère qu'à partir de maintenant et jusqu'à ce que vous vous rencontriez, vous fassiez un effort pour garder … »"
 date: 2022-06-01 06:00:01+00:134
 draft: False
 hidden: True

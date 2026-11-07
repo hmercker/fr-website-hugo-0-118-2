@@ -1,7 +1,7 @@
 ---
 title: "Méfiez-vous de vos peurs et affrontez vos barrières"
 menu_title: ""
-description: "Méfiez-vous de vos peurs et affrontez vos barrières"
+description: "Orion, reçu par Al Fike : « Ne voyez-vous pas que vos recherches et votre progression spirituelles sont accélérées et qu’elles suivent une trajectoire … »"
 date: 2023-09-01 06:00:01+00:38
 draft: False
 hidden: True

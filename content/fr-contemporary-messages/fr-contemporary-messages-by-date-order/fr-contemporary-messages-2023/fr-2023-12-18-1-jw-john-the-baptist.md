@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes l'accomplissement de la mission du Maître sur la Terre"
 menu_title: ""
-description: "Vous êtes l'accomplissement de la mission du Maître sur la Terre"
+description: "Jean Baptiste, reçu par Jimbeau Walsh : « Ceux d’entre vous qui connaissent ma vie de précurseur de la mission de Jésus, où j’ai prêché le jeûne et la … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

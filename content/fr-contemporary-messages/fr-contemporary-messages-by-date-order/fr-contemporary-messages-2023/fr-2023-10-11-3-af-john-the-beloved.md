@@ -1,7 +1,7 @@
 ---
 title: "La route que vous vous apprêtez à emprunter englobera le monde"
 menu_title: ""
-description: "La route que vous vous apprêtez à emprunter englobera le monde"
+description: "Jean le Bien Aimé, reçu par Albert Fike : « Je souhaite simplement confirmer et compléter ce message de notre frère bien-aimé, Maître du Royaume Céleste. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

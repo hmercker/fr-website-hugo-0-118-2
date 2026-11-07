@@ -1,7 +1,7 @@
 ---
 title: "Laissez-vous envelopper par la paix qui dépasse toute compréhension"
 menu_title: ""
-description: "Laissez-vous envelopper par la paix qui dépasse toute compréhension"
+description: "Augustin, reçu par Al Fike : « Que les bénédictions du Père et de Son Amour continuent à se déverser dans vos âmes. Lorsque je parle de la bénédiction de … »"
 date: 2022-06-01 06:00:01+00:1085
 draft: False
 hidden: True

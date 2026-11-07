@@ -1,7 +1,7 @@
 ---
 title: "L’Amour Divin crée un lien avec le Père"
 menu_title: ""
-description: "L’Amour Divin crée un lien avec le Père"
+description: "Augustin, reçu par Al Fike : « Tant de personnes dans ce monde dérivent et n’ont pas d’ancrage, lequel leur apporterait une direction et une compréhension … »"
 date: 2022-06-01 06:00:01+00:258
 draft: False
 hidden: True

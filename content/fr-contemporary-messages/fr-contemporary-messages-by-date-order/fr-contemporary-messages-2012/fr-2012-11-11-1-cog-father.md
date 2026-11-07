@@ -1,7 +1,7 @@
 ---
 title: "Accepte l’amour pour faire grandir ton amour"
 menu_title: ""
-description: "Accepte l’amour pour faire grandir ton amour"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Mon cher enfant, je connais tes doutes. Je sais que tes pensées te jouent des tours et qu’elles interfèrent … »"
 date: 2022-06-01 06:00:01+00:296
 draft: False
 hidden: True

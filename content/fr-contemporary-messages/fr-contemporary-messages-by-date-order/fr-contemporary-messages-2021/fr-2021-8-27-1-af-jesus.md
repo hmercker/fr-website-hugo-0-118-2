@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes tous élevés ensemble"
 menu_title: ""
-description: "Nous sommes tous élevés ensemble"
+description: "Jésus, reçu par Al Fike : « Âmes précieuses et bien-aimées, je viens. Chacun d’entre vous cherche des solutions aux dilemmes de sa vie. »"
 date: 2022-06-01 06:00:01+00:1613
 draft: False
 hidden: True

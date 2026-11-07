@@ -1,7 +1,7 @@
 ---
 title: "Les expériences d’un Nazi dans le monde des esprits"
 menu_title: ""
-description: "Les expériences d’un Nazi dans le monde des esprits"
+description: "Heinrich Himmler, reçu par FAB : « Vous venez de lire « à Adolf Hitler, Volume II, John Toland » que j’ai fait preuve de gentillesse à l’égard de … »"
 date: 2022-06-01 06:00:01+00:199
 draft: False
 hidden: True

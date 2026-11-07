@@ -1,7 +1,7 @@
 ---
 title: "Prenez un engagement profond pour aspirer à l'Amour de Dieu"
 menu_title: ""
-description: "Prenez un engagement profond pour aspirer à l'Amour de Dieu"
+description: "St Jean, reçu par Al Fike : « Certains d’entre vous me connaissent bien, d’autres non, mais je vous connais tous très bien, tout comme de nombreux anges … »"
 date: 2022-06-01 06:00:01+00:1068
 draft: False
 hidden: True

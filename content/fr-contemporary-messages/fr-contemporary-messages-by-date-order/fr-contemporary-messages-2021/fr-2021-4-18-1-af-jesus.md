@@ -1,7 +1,7 @@
 ---
 title: "Le toucher puissant de Dieu"
 menu_title: ""
-description: "Le toucher puissant de Dieu"
+description: "Jésus, reçu par Al Fike : « Ne sentez-vous pas cette grâce sur vous, âmes bien-aimées, ce toucher puissant de Dieu ? Sachez que cela vous appartient toujours. »"
 date: 2022-06-01 06:00:01+00:1473
 draft: False
 hidden: True

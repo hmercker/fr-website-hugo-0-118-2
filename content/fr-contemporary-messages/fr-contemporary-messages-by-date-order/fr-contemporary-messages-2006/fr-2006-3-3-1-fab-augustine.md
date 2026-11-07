@@ -1,7 +1,7 @@
 ---
 title: "Les plaisirs physiques"
 menu_title: ""
-description: "Les plaisirs physiques"
+description: "Augustin, reçu par FAB : « Je souhaite aborder la question des appétits physiques, car cela doit être clarifié dans votre esprit et dans l'esprit des … »"
 date: 2022-06-01 06:00:01+00:04
 draft: False
 hidden: True

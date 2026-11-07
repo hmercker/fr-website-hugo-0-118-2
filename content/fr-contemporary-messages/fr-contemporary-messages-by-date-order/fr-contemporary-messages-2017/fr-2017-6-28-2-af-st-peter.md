@@ -1,7 +1,7 @@
 ---
 title: "La lumière et l’Amour de Dieu"
 menu_title: ""
-description: "La lumière et l’Amour de Dieu"
+description: "St Pierre, reçu par Al Fike : « L’amour de Dieu vous entoure en ce moment. Je vous exhorte à le boire profondément en vous. »"
 date: 2022-06-01 06:00:01+00:56
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Leçon 15 : L’expansion de la conscience de l’âme avec l’Amour Divin"
 menu_title: ""
-description: "Leçon 15 : L’expansion de la conscience de l’âme avec l’Amour Divin"
+description: "Jésus, reçu par Al Fike : « Qu’elle soit dans le monde matériel ou dans le monde spirituel, chaque âme est profondément aimée par Dieu. »"
 date: 2022-06-01 06:00:01+00:144
 draft: False
 hidden: True

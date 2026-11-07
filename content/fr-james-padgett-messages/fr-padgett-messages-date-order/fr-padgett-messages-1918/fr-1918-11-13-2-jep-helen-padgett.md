@@ -1,7 +1,7 @@
 ---
 title: "Hélène – affirmant que Saint Étienne a écrit sur le sens de l’Amour Divin"
 menu_title: ""
-description: "Hélène – affirmant que Saint Étienne a écrit sur le sens de l’Amour Divin"
+description: "Hélène Padgett, reçu par James Padgett : « Il reviendra bientôt et terminera, car il est très impatient de le faire. C’est Étienne qui a écrit et c’est un … »"
 date: 2022-06-01 06:00:01+00:64
 draft: False
 hidden: True

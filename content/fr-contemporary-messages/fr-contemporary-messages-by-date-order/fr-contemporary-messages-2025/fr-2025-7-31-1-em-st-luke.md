@@ -1,7 +1,7 @@
 ---
 title: "Prière pour les autres"
 menu_title: ""
-description: "Prière pour les autres"
+description: "St Luc, reçu par Elizabeth Mack : « Que la Terre et ses habitants soient bénis. De grandes guérisons se produisent sur cette planète et dans les âmes de … »"
 date: 2026-01-31 16:00:01+00:01
 draft: False
 hidden: True

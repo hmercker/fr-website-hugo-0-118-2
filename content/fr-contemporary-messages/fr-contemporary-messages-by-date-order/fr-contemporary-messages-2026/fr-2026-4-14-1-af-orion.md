@@ -1,7 +1,7 @@
 ---
 title: "Orion décrit la dimension reliant toutes les âmes de l'univers"
 menu_title: ""
-description: "Orion décrit la dimension reliant toutes les âmes de l'univers"
+description: "Orion, reçu par Al Fike : « Je suppose que vous souhaitiez que je me manifeste et que je m'adresse à vous aujourd'hui, compte tenu du sujet de votre … »"
 date: 2026-09-22 16:00:01+00:01
 draft: False
 hidden: True

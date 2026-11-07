@@ -1,7 +1,7 @@
 ---
 title: "Le point de vue de Franklin Roosevelt"
 menu_title: ""
-description: "Le point de vue de Franklin Roosevelt"
+description: "Franklin D Roosevelt, reçu par FAB : « Vous venez de terminer la lecture du livre d’Antony C. Sutton de 1975, « Wall Street et FDR ». »"
 date: 2022-06-01 06:00:01+00:181
 draft: False
 hidden: True

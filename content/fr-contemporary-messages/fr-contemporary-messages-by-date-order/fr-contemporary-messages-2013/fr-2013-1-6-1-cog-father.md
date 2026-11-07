@@ -1,7 +1,7 @@
 ---
 title: "Reviens vers moi"
 menu_title: ""
-description: "Reviens vers moi"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Reviens à moi, cher enfant. Laisse tomber tes distractions et plonge dans l’amour éternel avec moi. »"
 date: 2022-06-01 06:00:01+00:06
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Qu’arrive-t-il aux personnes qui ne prient pas pour l’Amour de Dieu ?"
 menu_title: ""
-description: "Qu’arrive-t-il aux personnes qui ne prient pas pour l’Amour de Dieu ?"
+description: "Joseph le jeune, reçu par RL : « Joseph : Après la mort, leur destin peut les mener dans des directions très diverses. Ils peuvent emprunter toutes sortes … »"
 date: 2022-06-01 06:00:01+00:18
 draft: False
 hidden: True

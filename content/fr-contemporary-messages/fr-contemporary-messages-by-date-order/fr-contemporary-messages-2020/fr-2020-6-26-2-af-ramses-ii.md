@@ -1,7 +1,7 @@
 ---
 title: "Apprenez à connaître l’humilité et la joie qui accompagnent le service"
 menu_title: ""
-description: "Apprenez à connaître l’humilité et la joie qui accompagnent le service"
+description: "Ramsès II, reçu par Al Fike : « Lorsque je marchais sur la Terre, j’étais un homme de grand privilège. En fait, j’étais considéré comme divin dans mon … »"
 date: 2022-06-01 06:00:01+00:1158
 draft: False
 hidden: True

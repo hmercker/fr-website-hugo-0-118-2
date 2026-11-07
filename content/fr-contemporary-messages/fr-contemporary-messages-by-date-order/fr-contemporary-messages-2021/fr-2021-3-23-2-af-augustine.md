@@ -1,7 +1,7 @@
 ---
 title: "La vérité se découvre à travers votre âme et non votre esprit"
 menu_title: ""
-description: "La vérité se découvre à travers votre âme et non votre esprit"
+description: "Augustin, reçu par Al Fike : « Les nombreuses religions de ce monde contribuent à réconforter le mental en apportant des idées, des concepts et des … »"
 date: 2022-06-01 06:00:01+00:1450
 draft: False
 hidden: True

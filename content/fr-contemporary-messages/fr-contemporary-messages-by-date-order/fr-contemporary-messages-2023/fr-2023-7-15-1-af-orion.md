@@ -1,7 +1,7 @@
 ---
 title: "Soyez une lumière dans le monde"
 menu_title: ""
-description: "Soyez une lumière dans le monde"
+description: "Orion, reçu par Albert Fike : « Chacun de vous trouve sa voie à travers les chemins enchevêtrés et tortueux de la vie, envoyant tous ses défis, toutes ses … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

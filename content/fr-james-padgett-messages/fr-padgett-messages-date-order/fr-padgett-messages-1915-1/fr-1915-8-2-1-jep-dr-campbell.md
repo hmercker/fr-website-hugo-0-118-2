@@ -1,7 +1,7 @@
 ---
 title: "Le Dr Campbell prescrit des traitements et un régime alimentaire pour James Padgett"
 menu_title: ""
-description: "Le Dr Campbell prescrit des traitements et un régime alimentaire pour James Padgett"
+description: "Dr Campbell, reçu par James Padgett : « Campbell qui s’intéresse à votre bien-être depuis quelque temps. Je vois que vous avez besoin de mon attention en … »"
 date: 2022-06-01 06:00:01+00:167
 draft: False
 hidden: True

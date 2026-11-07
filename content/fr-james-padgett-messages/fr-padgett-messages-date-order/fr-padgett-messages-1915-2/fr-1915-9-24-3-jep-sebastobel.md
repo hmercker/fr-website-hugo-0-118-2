@@ -1,7 +1,7 @@
 ---
 title: "Un esprit ancien décide de rechercher l’Amour Divin, qu’il apprend être la cause de la beauté et de l’éclat d’Hélène Padgett, un Esprit Céleste"
 menu_title: ""
-description: "Un esprit ancien décide de rechercher l’Amour Divin, qu’il apprend être la cause de la beauté et de l’éclat d’Hélène Padgett, un Esprit Céleste"
+description: "Sebastobel, reçu par James Padgett : « Je vis dans la sphère la plus élevée où l’intellect règne en maître (La sixième sphère. (J.P.G.)) et où les esprits … »"
 date: 2022-06-01 06:00:01+00:268
 draft: False
 hidden: True

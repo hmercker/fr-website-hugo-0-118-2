@@ -1,7 +1,7 @@
 ---
 title: "Le plan de Dieu pour le salut de l'humanité et la Voix Directe"
 menu_title: ""
-description: "Le plan de Dieu pour le salut de l'humanité et la Voix Directe"
+description: "Seretta Kem, reçu par Al Fike : « Vous avez été très surpris de l’intérêt de vos frères et soeurs pour le don de ce que vous appelez la Voix Directe. »"
 date: 2022-06-01 06:00:01+00:1137
 draft: False
 hidden: True

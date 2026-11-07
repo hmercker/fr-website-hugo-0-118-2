@@ -1,7 +1,7 @@
 ---
 title: "Bouclez votre ceinture"
 menu_title: ""
-description: "Bouclez votre ceinture"
+description: "Salomon, reçu par CC : « Prends les choses à bras le corps. Les moments sont courts, insignifiants à l’échelle de l’éternité. »"
 date: 2022-06-01 06:00:01+00:55
 draft: False
 hidden: True

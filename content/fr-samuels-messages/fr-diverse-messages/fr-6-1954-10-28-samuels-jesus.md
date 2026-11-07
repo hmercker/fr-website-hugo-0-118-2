@@ -1,7 +1,7 @@
 ---
 title: "Le Dr Samuels est devenu un véritable enfant du Père"
 menu_title: ""
-description: "Le Dr Samuels est devenu un véritable enfant du Père"
+description: "Jésus, reçu par Dr Samuels : « Seulement vous devez savoir cela ne signifie pas, qu’automatiquement, vous êtes sans péché ou erreur, mais que vous avez … »"
 date: 2022-06-01 06:00:01+00:06
 draft: False
 hidden: True

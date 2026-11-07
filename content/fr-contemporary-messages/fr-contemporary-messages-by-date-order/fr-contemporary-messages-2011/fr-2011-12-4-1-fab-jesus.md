@@ -1,7 +1,7 @@
 ---
 title: "Mémoire des rêves"
 menu_title: ""
-description: "Mémoire des rêves"
+description: "Jésus, reçu par FAB : « Il veut savoir ce qu’il en est des souvenirs des rêves, et si nous nous en souvenons dans le monde des esprits. »"
 date: 2022-06-01 06:00:01+00:211
 draft: False
 hidden: True

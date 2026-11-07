@@ -1,7 +1,7 @@
 ---
 title: "L'Amour de Dieu est le catalyseur"
 menu_title: ""
-description: "L'Amour de Dieu est le catalyseur"
+description: "Confucius, reçu par Helge Mercker : « Je partage mon amour avec toi et t’apporte guérison et réconfort alors que tu es engagée dans une profonde réflexion … »"
 date: 2022-06-01 06:00:01+00:1119
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Maison d’Hélène Padgett au niveau de la troisième sphère"
 menu_title: ""
-description: "Maison d’Hélène Padgett au niveau de la troisième sphère"
+description: "Hélène Padgett, reçu par James Padgett : « Elle est faite de marbre blanc et elle est entourée par des pelouses, des fleurs et des arbres d’espèces diverses. »"
 date: 2022-06-01 06:00:01+00:29
 draft: False
 hidden: True

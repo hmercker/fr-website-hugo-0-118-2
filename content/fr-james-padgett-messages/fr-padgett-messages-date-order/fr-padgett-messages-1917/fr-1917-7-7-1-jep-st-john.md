@@ -1,7 +1,7 @@
 ---
 title: "Révèle que le fait de permettre aux esprits inférieurs de prendre le contrôle de lui l’a déprimé à tel point qu’il a perdu foi dans les Esprits Célestes"
 menu_title: ""
-description: "Révèle que le fait de permettre aux esprits inférieurs de prendre le contrôle de lui l’a déprimé à tel point qu’il a perdu foi dans les Esprits Célestes"
+description: "St Jean, reçu par James Padgett : « Vous avez été très déprimé ces derniers jours, en grande partie parce que vous avez permis aux mauvaises influences … »"
 date: 2022-06-01 06:00:01+00:162
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La Merveille de l'Éveil de l'Âme et l'Importance de l'Expiation"
 menu_title: ""
-description: "La Merveille de l'Éveil de l'Âme et l'Importance de l'Expiation"
+description: "Thomas d'Aquin, reçu par Al Fike : « Bienvenue, mes frères et sœurs, dans ce Cercle de Lumière. Un processus qui reste obscur pour beaucoup d'entre vous … »"
 date: 2026-05-21 06:00:01+00:67
 draft: False
 hidden: True

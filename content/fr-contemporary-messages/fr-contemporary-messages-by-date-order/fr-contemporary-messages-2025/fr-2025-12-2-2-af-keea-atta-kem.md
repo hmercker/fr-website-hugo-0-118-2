@@ -1,7 +1,7 @@
 ---
 title: "Honorez votre identité dans la Création Divine"
 menu_title: ""
-description: "Honorez votre identité dans la Création Divine"
+description: "Keea atta Kem, reçu par Albert Fike : « Quelle grâce d’être unis par ce lien d’amour, connectés de cette manière ! Que le plan de Dieu qui a ouvert les … »"
 date: 2026-02-21 16:00:01+00:01
 draft: False
 hidden: True

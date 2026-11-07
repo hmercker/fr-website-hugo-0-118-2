@@ -1,7 +1,7 @@
 ---
 title: "Accepter la diversité que Dieu a créée"
 menu_title: ""
-description: "Accepter la diversité que Dieu a créée"
+description: "Yogananda, reçu par Al Fike : « Le monde entier peut être envoûté par la condition de la beauté et de l’Amour. N’est-ce pas la Volonté de Dieu ? »"
 date: 2022-06-01 06:00:01+00:27
 draft: False
 hidden: True

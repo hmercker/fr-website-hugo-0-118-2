@@ -1,7 +1,7 @@
 ---
 title: "La bénédiction d’un bouclier de lumière"
 menu_title: ""
-description: "La bénédiction d’un bouclier de lumière"
+description: "Jésus, reçu par Al Fike : « Je souhaite vous dire, que vous avez chacun reçu une bénédiction unique, une bénédiction d’un bouclier de Lumière. »"
 date: 2022-06-01 06:00:01+00:404
 draft: False
 hidden: True

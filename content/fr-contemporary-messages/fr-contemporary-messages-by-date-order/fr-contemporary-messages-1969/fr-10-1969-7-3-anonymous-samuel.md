@@ -1,7 +1,7 @@
 ---
 title: "Explication sur l'immortalité"
 menu_title: ""
-description: "Explication sur l'immortalité"
+description: "Samuel : « Je souhaite seulement compléter un peu l'exposé de Sœur Maria. Je voulais ajouter que cet Amour Divin dont elle parle, qui coule dans l'âme des … »"
 date: 2022-06-01 06:00:01+00:10
 draft: False
 hidden: True

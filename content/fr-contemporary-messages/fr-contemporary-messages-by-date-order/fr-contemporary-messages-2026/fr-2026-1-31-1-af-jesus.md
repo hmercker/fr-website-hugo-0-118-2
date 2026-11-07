@@ -1,7 +1,7 @@
 ---
 title: "Je suis le Premier Fils de Dieu, transformé par Son Amour en un ange"
 menu_title: ""
-description: "Je suis le Premier Fils de Dieu, transformé par Son Amour en un ange"
+description: "Jésus, reçu par Albert Fike : « En effet, le don de Son Amour, cette grâce rédemptrice de Dieu, vous transformera, vous guérira et vous conduira sur un … »"
 date: 2026-04-03 16:00:01+00:01
 draft: False
 hidden: True

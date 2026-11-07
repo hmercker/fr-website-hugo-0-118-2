@@ -1,7 +1,7 @@
 ---
 title: "Transmet sa profonde compassion et son engagement"
 menu_title: ""
-description: "Transmet sa profonde compassion et son engagement"
+description: "Orion, reçu par Al Fike : « Je souhaite parler davantage des différences entre la conscience de l’âme et la conscience du mental matériel. »"
 date: 2023-09-01 06:00:01+00:89
 draft: False
 hidden: True

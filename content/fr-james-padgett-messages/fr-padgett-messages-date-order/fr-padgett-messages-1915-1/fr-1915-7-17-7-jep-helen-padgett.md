@@ -1,7 +1,7 @@
 ---
 title: "Confirmation par Hélène"
 menu_title: ""
-description: "Confirmation par Hélène"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon chéri, tu as reçu ce soir de merveilleux messages d’esprits merveilleux et je sais à peine quoi dire. »"
 date: 2022-06-01 06:00:01+00:134
 draft: False
 hidden: True

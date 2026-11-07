@@ -1,7 +1,7 @@
 ---
 title: "Alignez vos esprits et vos âmes"
 menu_title: ""
-description: "Alignez vos esprits et vos âmes"
+description: "Confucius, reçu par Al Fike : « Mes magnifiques petits oiseaux, comme vous aimez vous rassembler. Comme vous êtes impatients de poursuivre votre voyage et … »"
 date: 2022-06-01 06:00:01+00:298
 draft: False
 hidden: True

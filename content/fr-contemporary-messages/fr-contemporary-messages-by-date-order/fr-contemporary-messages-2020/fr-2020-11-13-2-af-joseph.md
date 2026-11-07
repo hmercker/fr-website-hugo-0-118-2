@@ -1,7 +1,7 @@
 ---
 title: "Connaître les dons et les bénédictions des anges"
 menu_title: ""
-description: "Connaître les dons et les bénédictions des anges"
+description: "Joseph, reçu par Al Fike : « Nous faisons de grands efforts pour vous élever, pour vous amener à la lumière, pour vous protéger, pour vous guider et vous … »"
 date: 2022-06-01 06:00:01+00:1313
 draft: False
 hidden: True

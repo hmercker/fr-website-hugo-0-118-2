@@ -1,7 +1,7 @@
 ---
 title: "Honorer la terre merre qui nous aime tant"
 menu_title: ""
-description: "Honorer la terre merre qui nous aime tant"
+description: "Mylora, reçu par Al Fike : « Lorsque cette harmonie est brisée et n’est pas en équilibre, alors il y a un besoin de guérison. »"
 date: 2022-06-01 06:00:01+00:170
 draft: False
 hidden: True

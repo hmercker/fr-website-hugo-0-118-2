@@ -1,7 +1,7 @@
 ---
 title: "Servir tous dans l'Amour Divin et l'amour naturel, et s'entraider au sein de la communauté"
 menu_title: ""
-description: "Servir tous dans l'Amour Divin et l'amour naturel, et s'entraider au sein de la communauté"
+description: "Judas, reçu par reçu par Jimbeau Walsh : « Frères et sœurs, que l’Amour de Dieu soit sur nous. Il y a beaucoup à dire sur la guérison, qui est une forme … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

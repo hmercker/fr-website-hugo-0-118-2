@@ -1,7 +1,7 @@
 ---
 title: "L’amour est la vraie monnaie de la vie"
 menu_title: ""
-description: "L’amour est la vraie monnaie de la vie"
+description: "St François d'Assise, reçu par Al Fike : « Car l’Amour est la grande force unificatrice de l’univers. L’Amour est l’essence de l’existence de Dieu. »"
 date: 2022-06-01 06:00:01+00:219
 draft: False
 hidden: True

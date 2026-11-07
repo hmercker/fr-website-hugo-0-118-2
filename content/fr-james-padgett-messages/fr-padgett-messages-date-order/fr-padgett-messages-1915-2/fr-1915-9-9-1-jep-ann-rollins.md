@@ -1,7 +1,7 @@
 ---
 title: "Anne Rollins répond aux questions de M. Padgett sur le baptême"
 menu_title: ""
-description: "Anne Rollins répond aux questions de M. Padgett sur le baptême"
+description: "Anne Rollins, reçu par James Padgett : « Tout ce que je sais de l’origine du Livre de l’Apocalypse est ce que j’ai entendu de la part de Jean (Saint … »"
 date: 2022-06-01 06:00:01+00:239
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le travail se poursuivra ensemble"
 menu_title: ""
-description: "Le travail se poursuivra ensemble"
+description: "Orion et Jésus, reçu par Albert Fike : « Orion : Mes amis, le travail en cours a suffisamment progressé. Il reste encore beaucoup à faire, mais votre … »"
 date: 2025-12-12 16:00:01+00:01
 draft: False
 hidden: True

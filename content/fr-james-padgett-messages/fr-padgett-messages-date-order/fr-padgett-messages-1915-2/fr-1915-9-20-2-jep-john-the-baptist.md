@@ -1,7 +1,7 @@
 ---
 title: "Jean-Baptiste écrit qu’il n’y a aucun doute parmi les Esprits Célestes que Jésus a choisi M. Padgett pour faire le travail de communication entre la terre et le monde spirituel"
 menu_title: ""
-description: "Jean-Baptiste écrit qu’il n’y a aucun doute parmi les Esprits Célestes que Jésus a choisi M. Padgett pour faire le travail de communication entre la terre et le monde spirituel"
+description: "Jean le Baptiste, reçu par James Padgett : « Je n’écrirai pas longtemps, je souhaite simplement dire que vous devez continuer à avoir la foi et à prier. »"
 date: 2022-06-01 06:00:01+00:257
 draft: False
 hidden: True

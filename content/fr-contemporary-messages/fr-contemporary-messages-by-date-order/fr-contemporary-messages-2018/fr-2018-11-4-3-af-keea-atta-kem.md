@@ -1,7 +1,7 @@
 ---
 title: "L'Amour de Dieu nourrira votre âme"
 menu_title: ""
-description: "L'Amour de Dieu nourrira votre âme"
+description: "Keea Atta Kem, reçu par Al Fike : « Nourrissez cet endroit profond en vous. Cherchez le baume apaisant de l’Amour de Dieu pour vos âmes et apportez cette … »"
 date: 2022-06-01 06:00:01+00:553
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Médiumnité et la valeur des messages"
 menu_title: ""
-description: "Médiumnité et la valeur des messages"
+description: "Judas, reçu par H : « Mon cher H , ne t’inquiète pas. Ces derniers temps tu as beaucoup parlé dans ton groupe Latin sur la médiumnité. »"
 date: 2022-06-01 06:00:01+00:58
 draft: False
 hidden: True

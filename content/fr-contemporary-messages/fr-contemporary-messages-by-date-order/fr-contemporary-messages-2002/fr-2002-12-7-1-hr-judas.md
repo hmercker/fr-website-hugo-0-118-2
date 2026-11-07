@@ -1,7 +1,7 @@
 ---
 title: "Passage dans l’au-delà"
 menu_title: ""
-description: "Passage dans l’au-delà"
+description: "Judas, reçu par H : « En fin d’après-midi, le 6 décembre 2002, la mère de l’époux d’une de mes belles-sœurs est décédée subitement d’une crise cardiaque. »"
 date: 2022-06-01 06:00:01+00:96
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Hélène Padgett est désolée de ne pouvoir permettre à un ancien ami de M. Padgett d’écrire mais est heureuse avec la lettre de Jésus pour lui et pour sa mère"
 menu_title: ""
-description: "Hélène Padgett est désolée de ne pouvoir permettre à un ancien ami de M. Padgett d’écrire mais est heureuse avec la lettre de Jésus pour lui et pour sa mère"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, il y avait un esprit qui était très impatient d’écrire et j’étais disposé à le laisser faire, mais … »"
 date: 2022-06-01 06:00:01+00:59
 draft: False
 hidden: True

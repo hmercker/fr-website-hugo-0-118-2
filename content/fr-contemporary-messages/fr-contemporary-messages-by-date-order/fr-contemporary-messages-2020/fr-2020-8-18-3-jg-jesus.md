@@ -1,7 +1,7 @@
 ---
 title: "L’Amour"
 menu_title: ""
-description: "L’Amour"
+description: "Jésus (Yeshua ben Yosef), reçu par Jane Gartshore : « Notre sujet ce soir est l’Amour. Il y a beaucoup de choses que je peux dire à ce sujet, mais je … »"
 date: 2022-06-01 06:00:01+00:1222
 draft: False
 hidden: True

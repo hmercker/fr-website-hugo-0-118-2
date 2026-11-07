@@ -1,7 +1,7 @@
 ---
 title: "Ceci est notre déclaration pour vous"
 menu_title: ""
-description: "Ceci est notre déclaration pour vous"
+description: "Professeur Salyards, reçu par Al Fike : « Mes amis, nous ne vous laisserons pas tomber. Nous ne nous détournerons pas. »"
 date: 2022-06-01 06:00:01+00:1383
 draft: False
 hidden: True

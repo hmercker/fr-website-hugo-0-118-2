@@ -1,7 +1,7 @@
 ---
 title: "La mère de M. Padgett parle de son Âme-sœur et de l’amour qu’elle a pour son fils"
 menu_title: ""
-description: "La mère de M. Padgett parle de son Âme-sœur et de l’amour qu’elle a pour son fils"
+description: "Anne Padgett, reçu par James Padgett : « Tu es le meilleur fils du monde. Non, il est dans la sphère inférieure, mais il sera bientôt avec moi. »"
 date: 2022-06-01 06:00:01+00:11
 draft: False
 hidden: True

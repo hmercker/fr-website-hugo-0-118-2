@@ -1,7 +1,7 @@
 ---
 title: "William B. Cornelies était également présent durant la conversation au sujet de l’Amour Divin et de la transformation de l’Âme dans ce qui est appelé l’Essence du Père"
 menu_title: ""
-description: "William B. Cornelies était également présent durant la conversation au sujet de l’Amour Divin et de la transformation de l’Âme dans ce qui est appelé l’Essence du Père"
+description: "William Cornelies, reçu par James Padgett : « Laissez-moi écrire et vous dire que j’ai écouté votre conversation de ce soir, et que j’ai été très … »"
 date: 2022-06-01 06:00:01+00:33
 draft: False
 hidden: True

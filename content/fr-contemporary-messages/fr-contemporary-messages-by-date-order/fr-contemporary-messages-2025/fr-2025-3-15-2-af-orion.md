@@ -1,7 +1,7 @@
 ---
 title: "L'Amour Divin Apporte l'Unité dans la Diversité"
 menu_title: ""
-description: "L'Amour Divin Apporte l'Unité dans la Diversité"
+description: "Orion, reçu par Orion : « Que les bénédictions de ce grand Amour de Dieu soient vôtres, qu’elles continuent à remplir votre âme d’Amour abondant, vous … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

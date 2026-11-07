@@ -1,7 +1,7 @@
 ---
 title: "Hélène confirme l’écrivain inconnu"
 menu_title: ""
-description: "Hélène confirme l’écrivain inconnu"
+description: "Hélène Padgett, reçu par James Padgett : « Je vois que tu es très fatigué et je ne dois pas longuement écrire ce soir. L’esprit qui t’a écrit a été déçu … »"
 date: 2022-06-01 06:00:01+00:151
 draft: False
 hidden: True

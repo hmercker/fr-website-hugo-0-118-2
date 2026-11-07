@@ -1,7 +1,7 @@
 ---
 title: "Ce qu'il y a dans le cœur"
 menu_title: ""
-description: "Ce qu'il y a dans le cœur"
+description: "Jésus, reçu par FAB : « Et si un cœur contient au moins une partie de l'Amour Divin, là réside l'esprit du Christ. »"
 date: 2022-06-01 06:00:01+00:73
 draft: False
 hidden: True

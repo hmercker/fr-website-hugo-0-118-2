@@ -1,7 +1,7 @@
 ---
 title: "Lâche prise sur tes vieilles croyances"
 menu_title: ""
-description: "Lâche prise sur tes vieilles croyances"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « J’aime beaucoup nos petites séances matinales. Nous allons continuer à partir d’hier où nous avons parlé de … »"
 date: 2022-06-01 06:00:01+00:250
 draft: False
 hidden: True

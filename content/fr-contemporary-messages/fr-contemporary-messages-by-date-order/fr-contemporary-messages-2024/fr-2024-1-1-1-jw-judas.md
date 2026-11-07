@@ -1,7 +1,7 @@
 ---
 title: "Les avantages du silence"
 menu_title: ""
-description: "Les avantages du silence"
+description: "Judas, reçu par Jimbeau Walsh : « Il y a beaucoup à dire sur les bienfaits du silence. Car c’est en silence que nous parlons à vos âmes et le langage de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

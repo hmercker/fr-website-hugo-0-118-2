@@ -1,7 +1,7 @@
 ---
 title: "Je souhaite apporter ma musique à l'humanité"
 menu_title: ""
-description: "Je souhaite apporter ma musique à l'humanité"
+description: "Frédéric Chopin, reçu par Al Fike : « Je souhaite moi aussi apporter ma musique à l'humanité. J'ai beaucoup plus de compositions que je pourrais exprimer … »"
 date: 2022-06-01 06:00:01+00:226
 draft: False
 hidden: True

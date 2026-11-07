@@ -1,7 +1,7 @@
 ---
 title: "Jésus voulait que M. Padgett et le Dr Stone sachent qu’il était présent durant leur conversation sur les choses spirituelles"
 menu_title: ""
-description: "Jésus voulait que M. Padgett et le Dr Stone sachent qu’il était présent durant leur conversation sur les choses spirituelles"
+description: "Jésus, reçu par James Padgett : « Permettez-moi d’écrire quelques lignes, de voir que vous êtes en meilleure condition ce soir et de sentir que vous … »"
 date: 2022-06-01 06:00:01+00:67
 draft: False
 hidden: True

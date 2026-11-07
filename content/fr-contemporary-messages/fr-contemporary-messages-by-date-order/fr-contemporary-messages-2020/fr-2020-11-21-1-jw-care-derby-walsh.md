@@ -1,7 +1,7 @@
 ---
 title: "Levez-vous et Brillez!"
 menu_title: ""
-description: "Levez-vous et Brillez!"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Lorsque vous vous réveillez le matin en état de gratitude et que vous dites : « Merci mon Dieu pour un autre … »"
 date: 2022-06-01 06:00:01+00:1321
 draft: False
 hidden: True

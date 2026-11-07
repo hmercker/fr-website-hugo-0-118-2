@@ -1,7 +1,7 @@
 ---
 title: "La Vérité Divine doit être déclarée à toute l’humanité"
 menu_title: ""
-description: "La Vérité Divine doit être déclarée à toute l’humanité"
+description: "Jésus, reçu par James Padgett : « Si vous persévérez dans ces pensées et désirs, vous nous permettrez bientôt d’établir la relation souhaitée qui nous … »"
 date: 2022-06-01 06:00:01+00:59
 draft: False
 hidden: True

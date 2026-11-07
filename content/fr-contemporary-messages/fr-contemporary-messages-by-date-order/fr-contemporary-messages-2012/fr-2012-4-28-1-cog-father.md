@@ -1,7 +1,7 @@
 ---
 title: "Comment corriger un péché ?"
 menu_title: ""
-description: "Comment corriger un péché ?"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Mon enfant bien-aimé, comment corriger un péché ? Comme je te l’ai dit hier, tu dois d’abord reconnaître que … »"
 date: 2022-06-01 06:00:01+00:247
 draft: False
 hidden: True

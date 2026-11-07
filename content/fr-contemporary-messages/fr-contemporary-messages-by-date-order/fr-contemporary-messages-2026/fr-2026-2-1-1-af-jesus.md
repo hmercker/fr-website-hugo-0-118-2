@@ -1,7 +1,7 @@
 ---
 title: "Vos prières ont illuminé Trinité-et-Tobago"
 menu_title: ""
-description: "Vos prières ont illuminé Trinité-et-Tobago"
+description: "Jésus, reçu par Albert Fike : « Je me réjouis de votre présence et de votre prière commune. La force et la beauté de vos prières, les aspirations … »"
 date: 2026-04-03 16:00:01+00:01
 draft: False
 hidden: True

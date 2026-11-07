@@ -1,7 +1,7 @@
 ---
 title: "La progression d'Aristote, et l'âme"
 menu_title: ""
-description: "La progression d'Aristote, et l'âme"
+description: "Aristote, reçu par FAB : « J'habite les Cieux Célestes, et beaucoup de choses qui étaient des spéculations confuses sur terre sont devenues des … »"
 date: 2022-06-01 06:00:01+00:39
 draft: False
 hidden: True

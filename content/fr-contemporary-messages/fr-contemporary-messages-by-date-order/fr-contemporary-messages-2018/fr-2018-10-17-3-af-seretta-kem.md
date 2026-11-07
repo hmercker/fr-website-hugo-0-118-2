@@ -1,7 +1,7 @@
 ---
 title: "Les anges approfondissent leur relation"
 menu_title: ""
-description: "Les anges approfondissent leur relation"
+description: "Seretta Kem, reçu par Al Fike : « Cela va changer les conditions dans vos cercles. Vous ressentirez davantage et vivrez plus d’expériences ensemble. »"
 date: 2022-06-01 06:00:01+00:521
 draft: False
 hidden: True

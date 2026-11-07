@@ -1,7 +1,7 @@
 ---
 title: "Jean le Baptiste prend le temps d’écrire pour un esprit qui a oublié son nom"
 menu_title: ""
-description: "Jean le Baptiste prend le temps d’écrire pour un esprit qui a oublié son nom"
+description: "Jean le Baptiste, reçu par James Padgett : « L’esprit qui a essayé d’écrire ne pouvait pas se souvenir d e son nom, et il est allé dans la sphère … »"
 date: 2022-06-01 06:00:01+00:35
 draft: False
 hidden: True

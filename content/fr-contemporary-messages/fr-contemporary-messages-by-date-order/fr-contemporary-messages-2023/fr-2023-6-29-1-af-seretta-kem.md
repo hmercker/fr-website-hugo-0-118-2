@@ -1,7 +1,7 @@
 ---
 title: "La transformation continue dans l'Amour de Dieu"
 menu_title: ""
-description: "La transformation continue dans l'Amour de Dieu"
+description: "Seretta Kem, reçu par Al Fike : « Que l’Amour de Dieu vous entoure, vous infuse et vous élève. Nous continuons à travailler ensemble pour nos objectifs … »"
 date: 2023-09-01 06:00:01+00:46
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Les opportunités abondent pour vous"
 menu_title: ""
-description: "Les opportunités abondent pour vous"
+description: "Augustin, reçu par Albert Fike : « Chacun de vous a un but profond dans sa vie. En vous réunissant aujourd’hui, vous affirmez la destinée et le but qui … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

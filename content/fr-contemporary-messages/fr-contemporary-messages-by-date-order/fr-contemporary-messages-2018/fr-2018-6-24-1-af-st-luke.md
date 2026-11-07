@@ -1,7 +1,7 @@
 ---
 title: "Rechercher l'humilité et la compassion pour soi et pour les autres"
 menu_title: ""
-description: "Rechercher l'humilité et la compassion pour soi et pour les autres"
+description: "St Luc, reçu par Al Fike : « Tu as posé quelques questions, chère fille, des questions pour lesquelles tu désires avoir des réponses et une compréhension … »"
 date: 2022-06-01 06:00:01+00:418
 draft: False
 hidden: True

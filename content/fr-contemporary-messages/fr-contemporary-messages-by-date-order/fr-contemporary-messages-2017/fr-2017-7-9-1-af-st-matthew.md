@@ -1,7 +1,7 @@
 ---
 title: "Guides individuels pour la Voix Directe"
 menu_title: ""
-description: "Guides individuels pour la Voix Directe"
+description: "St Matthieu, reçu par Al Fike : « Je ferai partie de ceux qui travaillent étroitement avec vous dans la préparation et l'exécution de ce don. »"
 date: 2022-06-01 06:00:01+00:60
 draft: False
 hidden: True

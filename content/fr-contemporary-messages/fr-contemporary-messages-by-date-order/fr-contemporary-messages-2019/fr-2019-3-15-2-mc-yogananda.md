@@ -1,7 +1,7 @@
 ---
 title: "Nous avons besoin de vous et de vos dons pour répandre la vérité"
 menu_title: ""
-description: "Nous avons besoin de vous et de vos dons pour répandre la vérité"
+description: "Yogananda, reçu par Maureen Cardoso : « Âmes bien-aimées, alors que vous priez maintenant ensemble à deux océans de distance et dans votre monde, cela … »"
 date: 2022-06-01 06:00:01+00:680
 draft: False
 hidden: True

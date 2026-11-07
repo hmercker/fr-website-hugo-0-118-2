@@ -1,7 +1,7 @@
 ---
 title: "Hélène décrit la discussion dans le parc entre le Dr Stone et M. Padgett"
 menu_title: ""
-description: "Hélène décrit la discussion dans le parc entre le Dr Stone et M. Padgett"
+description: "Hélène Padgett, reçu par James Padgett : « Chéri, tu es très somnolent et tu dois aller te coucher. Mais je dois te dire à quel point j’ai apprécié la … »"
 date: 2022-06-01 06:00:01+00:246
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Message personnel"
 menu_title: ""
-description: "Message personnel"
+description: "Lorenzo, reçu par Alfredo : « Tu es très susceptible, te laissant guider par ton propre jugement. Tu dois encore comprendre que, bien que tu aies reçu un … »"
 date: 2022-06-01 06:00:01+00:30
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Un avenir radieux"
 menu_title: ""
-description: "Un avenir radieux"
+description: "Inconnu, reçu par Kathryn Stokes : « Vous êtes consciente du fait que, souvent, lorsque vous exprimez vos opinions sur le Conseil, nous vous influençons … »"
 date: 2022-06-01 06:00:01+00:33
 draft: False
 hidden: True

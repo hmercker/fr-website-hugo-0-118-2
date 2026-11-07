@@ -1,7 +1,7 @@
 ---
 title: "Le grand potentiel de l'âme doit être découvert par tous"
 menu_title: ""
-description: "Le grand potentiel de l'âme doit être découvert par tous"
+description: "Lao Tseu, reçu par Al Fike : « Il y a un grand bouleversement dans le monde, surtout en Orient comme vous l’appelez, où la grande promesse du matérialisme … »"
 date: 2022-06-01 06:00:01+00:1029
 draft: False
 hidden: True

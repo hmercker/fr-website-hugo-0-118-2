@@ -1,7 +1,7 @@
 ---
 title: "Une révolution dans votre monde est à venir"
 menu_title: ""
-description: "Une révolution dans votre monde est à venir"
+description: "Shandor, reçu par Al Fike : « Vous m’avez demandé de venir vous parler. J’ai été avec vous pendant vos cercles de Lumière. »"
 date: 2022-06-01 06:00:01+00:363
 draft: False
 hidden: True

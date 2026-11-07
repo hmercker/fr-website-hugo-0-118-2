@@ -1,7 +1,7 @@
 ---
 title: "Jésus commente le sermon du prédicateur"
 menu_title: ""
-description: "Jésus commente le sermon du prédicateur"
+description: "Jésus, reçu par James Padgett : « Permettez-moi de partagez quelques réflexions ce soir. Je regrette que les hommes puissent concevoir de telles notions … »"
 date: 2022-06-01 06:00:01+00:19
 draft: False
 hidden: True

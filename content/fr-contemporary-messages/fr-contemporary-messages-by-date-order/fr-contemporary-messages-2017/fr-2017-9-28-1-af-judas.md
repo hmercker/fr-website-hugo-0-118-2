@@ -1,7 +1,7 @@
 ---
 title: "Ce ne sont pas les mots qui comptent"
 menu_title: ""
-description: "Ce ne sont pas les mots qui comptent"
+description: "Judas, reçu par Al Fike : « Je souhaite parler aujourd'hui du sujet de la communauté. Idéalement, vous voudriez tous que ceux avec qui vous vous associez … »"
 date: 2022-06-01 06:00:01+00:125
 draft: False
 hidden: True

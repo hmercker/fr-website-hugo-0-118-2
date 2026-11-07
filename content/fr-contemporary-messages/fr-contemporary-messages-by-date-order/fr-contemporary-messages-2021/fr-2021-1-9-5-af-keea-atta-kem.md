@@ -1,7 +1,7 @@
 ---
 title: "Jésus veut que vous soyez un rayon de soleil"
 menu_title: ""
-description: "Jésus veut que vous soyez un rayon de soleil"
+description: "Keea Atta Kem, reçu par Al Fike : « Jésus veut que vous soyez un rayon de soleil pour illuminer le monde. Et il marche avec vous tous et vous aide à … »"
 date: 2022-06-01 06:00:01+00:1376
 draft: False
 hidden: True

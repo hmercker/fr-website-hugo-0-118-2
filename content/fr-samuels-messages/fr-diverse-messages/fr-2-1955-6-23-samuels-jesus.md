@@ -1,7 +1,7 @@
 ---
 title: "Jésus confirme les propos de Jacques"
 menu_title: ""
-description: "Jésus confirme les propos de Jacques"
+description: "Jésus, reçu par Dr Samuels : « Je tiens à confirmer ce que Jacques a dit concernant les principautés de l’air, que j’ai pu aussi observer sur le Mont de … »"
 date: 2022-06-01 06:00:01+00:02
 draft: False
 hidden: True

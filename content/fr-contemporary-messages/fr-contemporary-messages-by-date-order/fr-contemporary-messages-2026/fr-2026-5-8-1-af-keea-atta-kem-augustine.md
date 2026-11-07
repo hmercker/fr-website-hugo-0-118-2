@@ -1,7 +1,7 @@
 ---
 title: "La Trame de Lumière : Renforcer le réseau de l'Amour Divin"
 menu_title: ""
-description: "La Trame de Lumière : Renforcer le réseau de l'Amour Divin"
+description: "Keea atta Kem & Augustin, reçu par Al Fike : « Keea atta Kem : Que les bénédictions de l’Amour du Père soient vôtres. Lorsque vous agissez ainsi, vous … »"
 date: 2026-06-26 16:00:01+00:01
 draft: False
 hidden: True

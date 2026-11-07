@@ -1,7 +1,7 @@
 ---
 title: "Le virus n'est qu'un prélude à ce qui est à venir "
 menu_title: ""
-description: "Le virus n'est qu'un prélude à ce qui est à venir "
+description: "St Matthieu, reçu par Al Fike : « Dieu déverse des bénédictions de Lumière et d’Amour, de guérison et de paix sur votre monde. »"
 date: 2022-06-01 06:00:01+00:1061
 draft: False
 hidden: True

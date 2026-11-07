@@ -1,7 +1,7 @@
 ---
 title: "Le début de la guerre civile Américaine"
 menu_title: ""
-description: "Le début de la guerre civile Américaine"
+description: "Abraham Lincoln, reçu par FAB : « Permettez-moi de commenter la crise qui a conduit à la guerre civile, à l'affrontement à Fort Sumter. »"
 date: 2022-06-01 06:00:01+00:09
 draft: False
 hidden: True

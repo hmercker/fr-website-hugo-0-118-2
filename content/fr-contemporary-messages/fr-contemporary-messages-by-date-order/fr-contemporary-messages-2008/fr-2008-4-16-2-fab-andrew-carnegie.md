@@ -1,7 +1,7 @@
 ---
 title: "La loi morale est exacte"
 menu_title: ""
-description: "La loi morale est exacte"
+description: "Andrew Carnegie, reçu par FAB : « Mais ce que les mortels doivent savoir, c'est que la loi de compensation de Dieu, la loi de la semence et de la récolte … »"
 date: 2022-06-01 06:00:01+00:49
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Les sociétés et les transactions financières"
 menu_title: ""
-description: "Les sociétés et les transactions financières"
+description: "Jésus, reçu par FAB : « J'ai commenté dans une canalisation passée que les sociétés deviennent plus conscientes de la préservation de l'environnement. »"
 date: 2022-06-01 06:00:01+00:27
 draft: False
 hidden: True

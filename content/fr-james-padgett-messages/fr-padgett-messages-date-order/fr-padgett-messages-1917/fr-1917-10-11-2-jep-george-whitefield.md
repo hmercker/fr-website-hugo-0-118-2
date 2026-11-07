@@ -1,7 +1,7 @@
 ---
 title: "Le grand enseignement au niveau du mondial vient de de nouveau à la terre sous la forme de ses Révélations Divines"
 menu_title: ""
-description: "Le grand enseignement au niveau du mondial vient de de nouveau à la terre sous la forme de ses Révélations Divines"
+description: "George Whitefield, reçu par James Padgett : « Permettez d’écrire une ou deux lignes. J’étais avec vous ce soir lors de la réunion de prière et ai entendu … »"
 date: 2022-06-01 06:00:01+00:180
 draft: False
 hidden: True

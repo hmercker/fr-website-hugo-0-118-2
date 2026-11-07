@@ -1,7 +1,7 @@
 ---
 title: "Le point de vue de notre ami stellaire sur la prière"
 menu_title: ""
-description: "Le point de vue de notre ami stellaire sur la prière"
+description: "Orion, reçu par Albert Fike : « Il est bon de prier, âmes bien-aimées. Vos prières ne sont pas seulement entendues par Dieu, mais elles sont entendues par … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

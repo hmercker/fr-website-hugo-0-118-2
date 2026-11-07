@@ -1,7 +1,7 @@
 ---
 title: "Reposez-vous sur vos lauriers et faites une pause"
 menu_title: ""
-description: "Reposez-vous sur vos lauriers et faites une pause"
+description: "Professeur Salyards, reçu par Al Fike : « Je vous recommande de faire une pause car je sais que vous êtes engagés dans d’autres projets, des projets … »"
 date: 2022-06-01 06:00:01+00:1605
 draft: False
 hidden: True

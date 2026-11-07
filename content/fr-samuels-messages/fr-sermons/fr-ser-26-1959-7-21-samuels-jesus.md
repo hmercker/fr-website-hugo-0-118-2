@@ -1,7 +1,7 @@
 ---
 title: "26ème Sermon – La prise de conscience d’Osée de l’Amour du Père"
 menu_title: ""
-description: "26ème Sermon – La prise de conscience d’Osée de l’Amour du Père"
+description: "Jésus, reçu par Dr Samuels : « Je tiens maintenant à clore les échanges que nous avons tenus sur les Psaumes et ouvrir les livres des prophètes. »"
 date: 2022-06-01 06:00:01+00:79
 draft: False
 hidden: True

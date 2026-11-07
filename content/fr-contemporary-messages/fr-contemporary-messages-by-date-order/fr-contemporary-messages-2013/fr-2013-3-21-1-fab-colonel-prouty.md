@@ -1,7 +1,7 @@
 ---
 title: "Le Colonel Prouty décrit son travail"
 menu_title: ""
-description: "Le Colonel Prouty décrit son travail"
+description: "Colonel Prouty, reçu par FAB : « C’est ce que vous n’êtes pas censé faire dans l’armée. Mais je l’ai fait, volontairement et avec joie. »"
 date: 2022-06-01 06:00:01+00:45
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Pourquoi les enseignements spirituels connus actuellement ne satisfont pas l’âme dans ses aspirations pour le bonheur, la paix et le contentement"
 menu_title: ""
-description: "Pourquoi les enseignements spirituels connus actuellement ne satisfont pas l’âme dans ses aspirations pour le bonheur, la paix et le contentement"
+description: "St Luc, reçu par James Padgett : « Je veux écrire quelques lignes sur le sujet dont vous et votre ami le Dr Stone parliez, c’est à dire de savoir si le … »"
 date: 2022-06-01 06:00:01+00:77
 draft: False
 hidden: True

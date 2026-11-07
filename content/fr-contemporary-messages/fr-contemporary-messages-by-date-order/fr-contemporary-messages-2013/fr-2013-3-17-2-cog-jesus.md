@@ -1,7 +1,7 @@
 ---
 title: "La relation réflétée de nos parents et de notre Père"
 menu_title: ""
-description: "La relation réflétée de nos parents et de notre Père"
+description: "Jésus, reçu par Enfant de Dieu : « Vous avez fait appel à moi pour vous éclairer sur le sujet de l’interrelation entre votre relation avec vos parents … »"
 date: 2022-06-01 06:00:01+00:44
 draft: False
 hidden: True

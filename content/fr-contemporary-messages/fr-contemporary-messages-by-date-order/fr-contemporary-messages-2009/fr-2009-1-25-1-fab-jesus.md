@@ -1,7 +1,7 @@
 ---
 title: "S'aimer soi-même"
 menu_title: ""
-description: "S'aimer soi-même"
+description: "Jésus, reçu par FAB : « Laisse-moi vous transmettre un message, car je vois que vous manquez de clarté. Vous avez entendu à maintes reprises que les … »"
 date: 2022-06-01 06:00:01+00:07
 draft: False
 hidden: True

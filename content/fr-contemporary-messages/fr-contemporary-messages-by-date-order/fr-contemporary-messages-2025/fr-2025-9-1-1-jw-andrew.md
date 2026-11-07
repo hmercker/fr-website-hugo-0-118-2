@@ -1,7 +1,7 @@
 ---
 title: "Vous ne mourrez pas"
 menu_title: ""
-description: "Vous ne mourrez pas"
+description: "André, reçu par reçu par Jimbeau Walsh : « Frères et sœurs, comme nous sommes heureux de vous voir réunis, unis dans l'Amour de Dieu ! »"
 date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La vérité, la connaissance et l’amour. Comment résoudre le problème de ce qui est vrai et de ce qui ne l’est pas"
 menu_title: ""
-description: "La vérité, la connaissance et l’amour. Comment résoudre le problème de ce qui est vrai et de ce qui ne l’est pas"
+description: "St Jean, reçu par James Padgett : « Je désire écrire un peu, ce soir, sur un sujet qui peut s’avérer intéressant pour vous et d’autres personnes qui … »"
 date: 2022-06-01 06:00:01+00:196
 draft: False
 hidden: True

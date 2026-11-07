@@ -1,7 +1,7 @@
 ---
 title: "Soyez en sécurité sur le chemin"
 menu_title: ""
-description: "Soyez en sécurité sur le chemin"
+description: "André, reçu par Al Fike : « Et chacun d’entre vous doit être patient dans ce voyage, en ayant confiance que Dieu vous guidera sur ce chemin, guidera ces … »"
 date: 2022-06-01 06:00:01+00:237
 draft: False
 hidden: True

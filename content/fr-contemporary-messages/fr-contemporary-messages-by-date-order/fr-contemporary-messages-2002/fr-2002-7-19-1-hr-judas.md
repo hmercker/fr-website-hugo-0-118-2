@@ -1,7 +1,7 @@
 ---
 title: "Marie Madeleine"
 menu_title: ""
-description: "Marie Madeleine"
+description: "Judas, reçu par H : « Marie-Madeleine souriait toujours, ou même blaguait. Elle était toujours d’une disposition ensoleillée, toujours de bonne humeur … »"
 date: 2022-06-01 06:00:01+00:79
 draft: False
 hidden: True

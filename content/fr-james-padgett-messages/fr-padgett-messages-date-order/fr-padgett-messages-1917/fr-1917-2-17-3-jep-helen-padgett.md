@@ -1,7 +1,7 @@
 ---
 title: "Hélène confirme que Perry a été aidé par M. Padgett dans la direction de l’Amour Divin"
 menu_title: ""
-description: "Hélène confirme que Perry a été aidé par M. Padgett dans la direction de l’Amour Divin"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, chéri, je sais que tu es heureux d’entendre le résultat de ta conversation avec Perry et tu devrais … »"
 date: 2022-06-01 06:00:01+00:62
 draft: False
 hidden: True

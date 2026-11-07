@@ -1,7 +1,7 @@
 ---
 title: "Nous unifions le physique et l'âme, afin que personne ne soit laissé pour compte"
 menu_title: ""
-description: "Nous unifions le physique et l'âme, afin que personne ne soit laissé pour compte"
+description: "Orion, reçu par Al Fike : « Je souhaite vous dire que nous apportons des énergies qui proviennent de la Terre et de l’ordre naturel de la Terre, en les … »"
 date: 2022-06-01 06:00:01+00:1630
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Détails de la vie d’Hélène Padgett"
 menu_title: ""
-description: "Détails de la vie d’Hélène Padgett"
+description: "Hélène Padgett, reçu par Al Fike : « Moi aussi je vous salue de mon côté de la vie et je transmets mes meilleurs vœux à vous tous. »"
 date: 2022-06-01 06:00:01+00:105
 draft: False
 hidden: True

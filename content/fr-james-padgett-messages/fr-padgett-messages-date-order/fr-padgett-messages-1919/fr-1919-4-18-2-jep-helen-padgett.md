@@ -1,7 +1,7 @@
 ---
 title: "Hélène confirme que l’auteur était un très bel esprit"
 menu_title: ""
-description: "Hélène confirme que l’auteur était un très bel esprit"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, je vois que tu as été très intéressé par le livre que tu as lu, et l’esprit qui t’a écrit … »"
 date: 2022-06-01 06:00:01+00:25
 draft: False
 hidden: True

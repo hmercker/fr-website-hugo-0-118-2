@@ -1,7 +1,7 @@
 ---
 title: "Il est important d'apporter la Vérité à l'humanité"
 menu_title: ""
-description: "Il est important d'apporter la Vérité à l'humanité"
+description: "Joseph Smith, reçu par Al Fike : « Je souhaite en effet me matérialiser auprès de mon peuple de la foi mormone, parler à ces gens et corriger de … »"
 date: 2022-06-01 06:00:01+00:210
 draft: False
 hidden: True

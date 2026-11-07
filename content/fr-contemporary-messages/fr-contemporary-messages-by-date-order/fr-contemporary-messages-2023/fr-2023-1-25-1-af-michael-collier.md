@@ -1,7 +1,7 @@
 ---
 title: "Notre rôle sur terre"
 menu_title: ""
-description: "Notre rôle sur terre"
+description: "Michael Collier, reçu par Al Fike : « Mais c’est un grand privilège et une bénédiction de venir sur ce plan terrestre et de parler à ceux qui désirent … »"
 date: 2022-06-01 06:00:01+00:16
 draft: False
 hidden: True

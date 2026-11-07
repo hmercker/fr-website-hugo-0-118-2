@@ -1,7 +1,7 @@
 ---
 title: "La porte est ouverte"
 menu_title: ""
-description: "La porte est ouverte"
+description: "Seretta Kem, reçu par Al Fike : « Ainsi vous êtes arrivés à un autre carrefour. Chaque jour est en effet un carrefour, un lieu de choix, un lieu différent … »"
 date: 2022-06-01 06:00:01+00:255
 draft: False
 hidden: True

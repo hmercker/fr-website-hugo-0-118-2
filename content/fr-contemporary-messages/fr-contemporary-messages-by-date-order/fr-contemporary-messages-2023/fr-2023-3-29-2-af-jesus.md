@@ -1,7 +1,7 @@
 ---
 title: "Prières de reconnaissance envers Catherine Koch"
 menu_title: ""
-description: "Prières de reconnaissance envers Catherine Koch"
+description: "Jésus, reçu par Al Fike : « …votre prière recherche le grand don que notre Père Céleste a à vous offrir, Son amour qui brille parmi vous, Sa grâce qui … »"
 date: 2023-09-01 06:00:01+00:105
 draft: False
 hidden: True

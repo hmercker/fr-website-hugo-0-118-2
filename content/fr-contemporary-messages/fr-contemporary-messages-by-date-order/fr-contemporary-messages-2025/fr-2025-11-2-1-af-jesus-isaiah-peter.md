@@ -1,7 +1,7 @@
 ---
 title: "Soyez fidèles à la volonté de Dieu : Un appel à s'éveiller et à servir dans l'Amour de Dieu"
 menu_title: ""
-description: "Soyez fidèles à la volonté de Dieu : Un appel à s'éveiller et à servir dans l'Amour de Dieu"
+description: "Jésus, Isaïe et Pierre, reçu par Albert Fike : « Jésus : Que la grande bénédiction de l'amour du Père soit avec vous. Par vos prières et vos désirs, par … »"
 date: 2025-12-12 16:00:01+00:01
 draft: False
 hidden: True

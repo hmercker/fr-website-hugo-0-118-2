@@ -1,7 +1,7 @@
 ---
 title: "Un concept Amérindien de Dieu"
 menu_title: ""
-description: "Un concept Amérindien de Dieu"
+description: "Uharu, reçu par FAB : « Permettez-moi de continuer à décrire ma culture. Il est vrai que mon peuple croit en un Créateur supérieur, mais pas dans le sens … »"
 date: 2022-06-01 06:00:01+00:02
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Détendez-vous!"
 menu_title: ""
-description: "Détendez-vous!"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Je veux faire remonter vos souvenirs et si vous pensez à tous les événements de votre vie qui vous ont appelé … »"
 date: 2022-06-01 06:00:01+00:1318
 draft: False
 hidden: True

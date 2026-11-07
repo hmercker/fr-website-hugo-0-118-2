@@ -1,7 +1,7 @@
 ---
 title: "St. Augustin"
 menu_title: ""
-description: "St. Augustin"
+description: "Keea Atta Kem : « Pour certains d'entre vous qui sont assis pour la première fois, le dernier orateur était Augustin, connu sur le plan terrestre sous le … »"
 date: 2022-06-01 06:00:01+00:153
 draft: False
 hidden: True

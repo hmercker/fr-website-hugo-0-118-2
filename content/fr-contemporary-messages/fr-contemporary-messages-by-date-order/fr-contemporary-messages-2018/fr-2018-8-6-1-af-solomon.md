@@ -1,7 +1,7 @@
 ---
 title: "La confiance dans la sagesse de l'âme"
 menu_title: ""
-description: "La confiance dans la sagesse de l'âme"
+description: "Salomon, reçu par Al Fike : « Ton esprit spécule sur de nombreuses choses. Tu as un profond désir de connaître la vérité grâce à tes facultés intellectuelles. »"
 date: 2022-06-01 06:00:01+00:440
 draft: False
 hidden: True

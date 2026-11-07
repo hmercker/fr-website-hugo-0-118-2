@@ -1,7 +1,7 @@
 ---
 title: "Soutien au médium"
 menu_title: ""
-description: "Soutien au médium"
+description: "Jésus, reçu par FAB : « Permettez-moi de répondre à votre préoccupation. Vous recevez les messages des esprits avec justesse et efficacité. »"
 date: 2022-06-01 06:00:01+00:160
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Comment l’âme perçoit la vérité et la fonction de l’Esprit de Vérité"
 menu_title: ""
-description: "Comment l’âme perçoit la vérité et la fonction de l’Esprit de Vérité"
+description: "Jacques, reçu par Al Fike : « Vous venez avec de nombreuses questions. Vous venez d’un endroit dans lequel vous avez des croyances et des compréhensions … »"
 date: 2022-06-01 06:00:01+00:03
 draft: False
 hidden: True

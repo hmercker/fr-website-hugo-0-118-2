@@ -1,7 +1,7 @@
 ---
 title: "Confirmation par St Jean"
 menu_title: ""
-description: "Confirmation par St Jean"
+description: "St Jean, reçu par James Padgett : « Vous devez donc croire ce que le Maître vous a promis, car il ne vous décevra pas. Je ne dois pas écrire plus ce soir. »"
 date: 2022-06-01 06:00:01+00:130
 draft: False
 hidden: True

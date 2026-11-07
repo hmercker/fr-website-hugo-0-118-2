@@ -1,7 +1,7 @@
 ---
 title: "L’Amour de Dieu mène à une vie de service"
 menu_title: ""
-description: "L’Amour de Dieu mène à une vie de service"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « L’Amour de Dieu mène à une vie de service. Car le cœur s’ouvre avec empathie à toutes les créatures de Dieu et … »"
 date: 2022-06-01 06:00:01+00:1695
 draft: False
 hidden: True

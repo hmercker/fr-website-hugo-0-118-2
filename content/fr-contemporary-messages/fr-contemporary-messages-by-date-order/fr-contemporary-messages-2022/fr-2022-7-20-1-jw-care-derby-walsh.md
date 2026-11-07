@@ -1,7 +1,7 @@
 ---
 title: "Tomber en Grace"
 menu_title: ""
-description: "Tomber en Grace"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Tombez dans la Grâce et soyez soulevés dans l’Amour de Dieu. C’est une question de cœur. »"
 date: 2022-06-01 06:00:01+00:138
 draft: False
 hidden: True

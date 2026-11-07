@@ -1,7 +1,7 @@
 ---
 title: "Au fil de votre progression, vous marcherez en paix, corps et âme"
 menu_title: ""
-description: "Au fil de votre progression, vous marcherez en paix, corps et âme"
+description: "Orion, reçu par Albert Fike : « Votre chemin est toujours pavé d’amour, éclairé par les bénédictions et la Volonté de Dieu. »"
 date: 2025-12-21 16:00:01+00:01
 draft: False
 hidden: True

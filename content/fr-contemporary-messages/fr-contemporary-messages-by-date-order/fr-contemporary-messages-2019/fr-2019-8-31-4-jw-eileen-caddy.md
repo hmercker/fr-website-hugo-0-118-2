@@ -1,7 +1,7 @@
 ---
 title: "Que voulez-vous construire ?"
 menu_title: ""
-description: "Que voulez-vous construire ?"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « J’étais à un carrefour de ma vie et j’avais besoin de faire des choix, mais je ne savais pas comment. »"
 date: 2022-06-01 06:00:01+00:826
 draft: False
 hidden: True

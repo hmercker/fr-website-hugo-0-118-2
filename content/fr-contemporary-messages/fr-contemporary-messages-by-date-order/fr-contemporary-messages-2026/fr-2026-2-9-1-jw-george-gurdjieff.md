@@ -1,7 +1,7 @@
 ---
 title: "Le chemin est entre vous et Dieu"
 menu_title: ""
-description: "Le chemin est entre vous et Dieu"
+description: "Georges Gurdjieff, reçu par Jimbeau Walsh : « Revenons sur le chercheur spirituel qui, au fond de lui, aspire au bonheur, à la joie et à la liberté, et … »"
 date: 2026-02-22 16:00:01+00:01
 draft: False
 hidden: True

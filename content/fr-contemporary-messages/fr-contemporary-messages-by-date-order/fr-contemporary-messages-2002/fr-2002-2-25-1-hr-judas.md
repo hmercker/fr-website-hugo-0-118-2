@@ -1,7 +1,7 @@
 ---
 title: "Quelques questions sur Bethsaïde et les disciples"
 menu_title: ""
-description: "Quelques questions sur Bethsaïde et les disciples"
+description: "Judas, reçu par H : « Je voudrais profiter de cette occasion pour clarifier certains doutes qui te perturbent. Ce ne sont pas des problèmes majeurs, mais … »"
 date: 2022-06-01 06:00:01+00:29
 draft: False
 hidden: True

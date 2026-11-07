@@ -1,7 +1,7 @@
 ---
 title: "Décrit la tendresse de leur approche pour travailler avec nous (2021 Gardiens de la Lumière)"
 menu_title: ""
-description: "Décrit la tendresse de leur approche pour travailler avec nous (2021 Gardiens de la Lumière)"
+description: "Orion, reçu par Al Fike : « Vous êtes comme les tendres pousses qui ont émergé du sol. Vous commencez à grandir dans la lumière mais dans votre état … »"
 date: 2022-06-01 06:00:01+00:1688
 draft: False
 hidden: True

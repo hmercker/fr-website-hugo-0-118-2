@@ -1,7 +1,7 @@
 ---
 title: "Hélène confirme que Jésus a écrit"
 menu_title: ""
-description: "Hélène confirme que Jésus a écrit"
+description: "Hélène Padgett, reçu par James Padgett : « Il est le Seigneur qui est descendu du Ciel pour sauver les hommes. Laisse son amour pour toi t’aider à devenir … »"
 date: 2022-06-01 06:00:01+00:04
 draft: False
 hidden: True

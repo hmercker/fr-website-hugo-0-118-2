@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes la bénédiction dont ce monde a besoin"
 menu_title: ""
-description: "Vous êtes la bénédiction dont ce monde a besoin"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « Lorsque vous allez dans le silence, que vous entendez la petite voix tranquille de Dieu ou des Anges, ce qui est … »"
 date: 2022-06-01 06:00:01+00:1177
 draft: False
 hidden: True

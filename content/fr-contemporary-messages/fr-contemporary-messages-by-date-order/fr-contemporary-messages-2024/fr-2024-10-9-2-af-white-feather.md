@@ -1,7 +1,7 @@
 ---
 title: "Toutes les races du monde doivent se rassembler en harmonie"
 menu_title: ""
-description: "Toutes les races du monde doivent se rassembler en harmonie "
+description: "Plume Blanche, reçu par Albert Fike : « Que l’esprit soit avec vous. Toutes les races du monde doivent se rassembler en harmonie. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

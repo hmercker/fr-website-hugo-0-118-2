@@ -1,7 +1,7 @@
 ---
 title: "La main de Dieu repose sur chacun de vous"
 menu_title: ""
-description: "La main de Dieu repose sur chacun de vous"
+description: "Joseph, reçu par Al Fike : « La Main de Dieu repose sur chacun de vous et vous apportera une force, une constance, une Lumière et un Amour qui nourriront … »"
 date: 2022-06-01 06:00:01+00:984
 draft: False
 hidden: True

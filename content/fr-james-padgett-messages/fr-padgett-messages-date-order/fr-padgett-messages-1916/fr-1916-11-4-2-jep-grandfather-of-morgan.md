@@ -1,7 +1,7 @@
 ---
 title: "Le grand-père et le père d’Eugène Morgan ont contribué à son développement spirituel"
 menu_title: ""
-description: "Le grand-père et le père d’Eugène Morgan ont contribué à son développement spirituel"
+description: "Le grand père d’Eugène Morgan, reçu par James Padgett : « Je me suis intéressé à l’expérience de mon petit-fils, et j’ai été avec lui à plusieurs … »"
 date: 2022-06-01 06:00:01+00:318
 draft: False
 hidden: True

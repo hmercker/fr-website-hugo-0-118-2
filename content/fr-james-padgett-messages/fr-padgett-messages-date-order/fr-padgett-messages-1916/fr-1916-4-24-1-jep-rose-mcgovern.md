@@ -1,7 +1,7 @@
 ---
 title: "L’âme sœur du juge Syrick écrit au sujet de sa progression dans l’Amour Divin"
 menu_title: ""
-description: "L’âme sœur du juge Syrick écrit au sujet de sa progression dans l’Amour Divin"
+description: "Rose Mcgovern, reçu par James Padgett : « Eh bien, le Juge a progressé vers la troisième sphère, et il est si heureux qu’il ne sait plus quoi faire ni … »"
 date: 2022-06-01 06:00:01+00:216
 draft: False
 hidden: True

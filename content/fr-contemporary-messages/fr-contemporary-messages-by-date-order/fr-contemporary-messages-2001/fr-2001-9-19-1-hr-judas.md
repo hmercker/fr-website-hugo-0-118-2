@@ -1,7 +1,7 @@
 ---
 title: "La troisième sphère"
 menu_title: ""
-description: "La troisième sphère"
+description: "Judas, reçu par H : « Mais avant cela, je tiens à répondre aux deux questions que tu m’as posées. Tout d’abord, je tiens à te dire que ton ami Victor qui … »"
 date: 2022-06-01 06:00:01+00:46
 draft: False
 hidden: True

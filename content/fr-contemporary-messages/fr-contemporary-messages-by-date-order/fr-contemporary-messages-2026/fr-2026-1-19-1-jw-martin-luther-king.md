@@ -1,7 +1,7 @@
 ---
 title: "Priez et Soyez en Paix"
 menu_title: ""
-description: "Priez et Soyez en Paix"
+description: "Martin Luther King, reçu par Jimbeau Walsh : « J'ai déjà parlé par l'intermédiaire de ce frère de mon parcours, de mon admiration pour la non-violence de … »"
 date: 2026-01-21 06:00:01+00:01
 draft: False
 hidden: True

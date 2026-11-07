@@ -1,7 +1,7 @@
 ---
 title: "Enseignement sur les trois esprits : matériel, spirituel et celui de l'âme"
 menu_title: ""
-description: "Enseignement sur les trois esprits : matériel, spirituel et celui de l'âme"
+description: "Orion, reçu par Albert Fike : « Aujourd'hui, je souhaite aborder la réalité que vous vivez au niveau de la conscience : les trois esprits que cette chère … »"
 date: 2026-10-12 06:00:01+00:01
 draft: False
 hidden: True

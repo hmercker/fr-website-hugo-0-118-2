@@ -1,7 +1,7 @@
 ---
 title: "Écoutez avec votre âme"
 menu_title: ""
-description: "Écoutez avec votre âme"
+description: "Inayat Khan, reçu par Jimbeau Walsh : « Mais j'aimerais maintenant évoquer l'écoute. Lorsque vous faites taire le monde pour vous adonner à cette forme … »"
 date: 2026-10-12 06:00:01+00:01
 draft: False
 hidden: True

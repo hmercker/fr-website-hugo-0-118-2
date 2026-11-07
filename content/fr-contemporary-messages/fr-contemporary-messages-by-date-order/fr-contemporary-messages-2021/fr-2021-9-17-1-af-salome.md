@@ -1,7 +1,7 @@
 ---
 title: "Les désirs de notre âme en alignement avec la Volonté de Dieu (2021 Voix directe II)"
 menu_title: ""
-description: "Les désirs de notre âme en alignement avec la Volonté de Dieu (2021 Voix directe II)"
+description: "Salomé, reçu par Al Fike : « Comme c’est merveilleux de venir prier ensemble dans ce Cercle de Lumière, que par vos prières vous nous rapprochiez, que par … »"
 date: 2022-06-01 06:00:01+00:1648
 draft: False
 hidden: True

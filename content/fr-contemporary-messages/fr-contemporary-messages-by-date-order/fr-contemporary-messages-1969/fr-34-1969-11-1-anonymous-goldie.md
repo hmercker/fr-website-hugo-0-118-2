@@ -1,7 +1,7 @@
 ---
 title: "Vous ne pouvez grandir que pas à pas"
 menu_title: ""
-description: "Vous ne pouvez grandir que pas à pas"
+description: "Goldie : « Je veux apporter à ce groupe une force de paix et d'amour si forte que vous pourrez tous vous fondre en un seul. »"
 date: 2022-06-01 06:00:01+00:31
 draft: False
 hidden: True

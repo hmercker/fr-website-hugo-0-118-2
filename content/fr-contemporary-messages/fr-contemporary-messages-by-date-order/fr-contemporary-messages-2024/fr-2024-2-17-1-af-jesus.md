@@ -1,7 +1,7 @@
 ---
 title: "Ne perdez pas votre temps dans des activités oisives"
 menu_title: ""
-description: "Ne perdez pas votre temps dans des activités oisives"
+description: "Jésus, reçu par Albert Fike : « À mesure que vous grandissez dans l’Amour du Père, nos relations se resserrent, vous et moi, chacun en harmonie avec les … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Marchez avec moi dans la lumière"
 menu_title: ""
-description: "Marchez avec moi dans la lumière"
+description: "Jésus, reçu par Al Fike : « Allez-vous vous immerger, âmes bien-aimées, et être dans cette Grâce et sentir son Toucher profond en vous et connaître la … »"
 date: 2022-06-01 06:00:01+00:205
 draft: False
 hidden: True

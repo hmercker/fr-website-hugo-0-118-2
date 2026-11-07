@@ -1,7 +1,7 @@
 ---
 title: "La septième sphère"
 menu_title: ""
-description: "La septième sphère"
+description: "Judas, reçu par H : « Nous allons parler de la septième sphère. C’est déjà tout à fait insatisfaisant ce que je peux communiquer de la vie dans les … »"
 date: 2022-06-01 06:00:01+00:52
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L’importance pour l’humanité de chercher l’Amour Divin – Suite2"
 menu_title: ""
-description: "L’importance pour l’humanité de chercher l’Amour Divin – Suite2"
+description: "Jésus, reçu par James Padgett : « Je vais continuer mon message. Comme je le disais, l’objet principal de ma mission sur terre était d’enseigner la … »"
 date: 2022-06-01 06:00:01+00:124
 draft: False
 hidden: True

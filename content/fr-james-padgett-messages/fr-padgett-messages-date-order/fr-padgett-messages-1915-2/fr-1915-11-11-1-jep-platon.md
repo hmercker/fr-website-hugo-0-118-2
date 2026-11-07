@@ -1,7 +1,7 @@
 ---
 title: "Platon, le disciple de Socrate est maintenant Chrétien"
 menu_title: ""
-description: "Platon, le disciple de Socrate est maintenant Chrétien"
+description: "Platon, reçu par James Padgett : « Laissez-moi être le seul à vous dire la vérité sur ce que vous voulez savoir. J’étais un disciple de Socrate et un … »"
 date: 2022-06-01 06:00:01+00:52
 draft: False
 hidden: True

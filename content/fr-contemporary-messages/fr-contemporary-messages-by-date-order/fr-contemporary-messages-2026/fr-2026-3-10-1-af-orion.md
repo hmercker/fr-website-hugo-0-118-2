@@ -1,7 +1,7 @@
 ---
 title: "Le Chemin le Moins Fréquenté"
 menu_title: ""
-description: "Le Chemin le Moins Fréquenté"
+description: "Orion, reçu par Al Fike : « Mes amis, je m’appelle Orion. C’est assurément le chemin le moins fréquenté. »"
 date: 2026-05-24 16:00:01+00:01
 draft: False
 hidden: True

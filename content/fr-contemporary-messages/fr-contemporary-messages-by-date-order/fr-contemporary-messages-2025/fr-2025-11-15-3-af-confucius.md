@@ -1,7 +1,7 @@
 ---
 title: "Fleurs Précieuses de Dieu"
 menu_title: ""
-description: "Fleurs Précieuses de Dieu"
+description: "Confucius, reçu par Albert Fike : « Ouvrez-vous aux bénédictions offertes. Tels les pétales d’une fleur dévoilant sa beauté intérieure, vous êtes ces … »"
 date: 2025-12-12 16:00:01+00:01
 draft: False
 hidden: True

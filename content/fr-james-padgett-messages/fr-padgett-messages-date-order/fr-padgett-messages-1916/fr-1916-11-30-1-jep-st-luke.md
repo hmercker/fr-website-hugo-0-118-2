@@ -1,7 +1,7 @@
 ---
 title: "Ce qui est le plus important pour des hommes de faire dans le monde pour amener le Grand Millénaire"
 menu_title: ""
-description: "Ce qui est le plus important pour des hommes de faire dans le monde pour amener le Grand Millénaire"
+description: "St Luc, reçu par James Padgett : « Mon sujet est : « Quelle est la chose la plus importante dans le monde que les hommes fassent au sujet du grand … »"
 date: 2022-06-01 06:00:01+00:337
 draft: False
 hidden: True

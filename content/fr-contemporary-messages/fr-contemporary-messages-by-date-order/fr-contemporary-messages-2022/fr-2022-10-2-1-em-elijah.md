@@ -1,7 +1,7 @@
 ---
 title: "Distribution des Bénédictions"
 menu_title: ""
-description: "Distribution des Bénédictions"
+description: "Moïse, reçu par Elizabeth Mack : « Touché par tes prières, Dieu envoie Ses bénédictions, et je t’en apporte une partie en réponse à tes prières personnelles. »"
 date: 2022-06-01 06:00:01+00:183
 draft: False
 hidden: True

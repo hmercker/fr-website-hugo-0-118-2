@@ -1,7 +1,7 @@
 ---
 title: "Vous connaîtrez le but et la raison de ce cercle"
 menu_title: ""
-description: "Vous connaîtrez le but et la raison de ce cercle"
+description: "Bartholomée, reçu par Albert Fike : « La Vérité est semée en vous. La Vérité est vécue par chacun de vous alors que vous vous réunissez dans ce Cercle de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

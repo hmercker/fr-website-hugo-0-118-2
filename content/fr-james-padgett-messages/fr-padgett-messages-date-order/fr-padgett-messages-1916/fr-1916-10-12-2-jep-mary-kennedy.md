@@ -1,7 +1,7 @@
 ---
 title: "Premier message écrit automatiquement à M. Morgan par Mary Kennedy"
 menu_title: ""
-description: "Premier message écrit automatiquement à M. Morgan par Mary Kennedy"
+description: "Mary Kennedy, reçu par James Padgett : « Je vais écrire quelques lignes pour dire au Docteur que je l’aime beaucoup. Je l’observe de très près et s’il … »"
 date: 2022-06-01 06:00:01+00:294
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Médecine spirituelle"
 menu_title: ""
-description: "Médecine spirituelle"
+description: "St Luc, reçu par reçu par Jimbeau Walsh : « Que l’Amour de Dieu soit sur nous et remplisse nos âmes. J’ai déjà parlé de guérison, de la nécessité des … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

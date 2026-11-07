@@ -1,7 +1,7 @@
 ---
 title: "Une affaire de cœur"
 menu_title: ""
-description: "Une affaire de cœur"
+description: "Jean le Bien Aimé, reçu par Jimbeau Walsh : « Quand vous parlez de sentiment, quand vous parlez d’intuition, quand vous laissez votre cœur, dans quelque … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

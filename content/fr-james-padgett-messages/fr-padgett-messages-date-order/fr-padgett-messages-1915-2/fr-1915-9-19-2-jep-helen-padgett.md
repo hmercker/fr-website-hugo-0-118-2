@@ -1,7 +1,7 @@
 ---
 title: "Un message d’Hélène"
 menu_title: ""
-description: "Un message d’Hélène"
+description: "Hélène Padgett, reçu par James Padgett : « Bien sûr, il a prêché quelques vérités quand il a parlé de faire confiance à Dieu pour nous soutenir dans nos … »"
 date: 2022-06-01 06:00:01+00:254
 draft: False
 hidden: True

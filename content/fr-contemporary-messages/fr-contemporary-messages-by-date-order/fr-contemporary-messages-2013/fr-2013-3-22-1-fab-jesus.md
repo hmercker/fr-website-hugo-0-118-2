@@ -1,7 +1,7 @@
 ---
 title: "Encouragement"
 menu_title: ""
-description: "Encouragement"
+description: "Jésus, reçu par FAB : « Nous serons plus malins que les méchants. Nos pouvoirs sont presque infinis, et nous voyons toutes les pensées et les plans secrets. »"
 date: 2022-06-01 06:00:01+00:46
 draft: False
 hidden: True

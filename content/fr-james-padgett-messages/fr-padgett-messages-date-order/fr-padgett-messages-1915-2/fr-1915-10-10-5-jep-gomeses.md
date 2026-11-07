@@ -1,7 +1,7 @@
 ---
 title: "Grec qui a vécu au temps du Christ. Est maintenant un Esprit Céleste"
 menu_title: ""
-description: "Grec qui a vécu au temps du Christ. Est maintenant un Esprit Céleste"
+description: "Gomeses, reçu par James Padgett : « Je ne fus pas un Chrétien, mais un disciple de Pythagore et un croyant en l’immortalité de l’âme, mais pas dans le … »"
 date: 2022-06-01 06:00:01+00:05
 draft: False
 hidden: True

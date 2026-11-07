@@ -1,7 +1,7 @@
 ---
 title: "L’ascension de Jésus et les prophéties de Daniel"
 menu_title: ""
-description: "L’ascension de Jésus et les prophéties de Daniel"
+description: "Marie, reçu par Amada Reza : « Je fus la mère de Jésus de la Bible, qui est maintenant le Maître des Cieux Célestes. Je participe à l’Amour Divin de Dieu … »"
 date: 2022-06-01 06:00:01+00:41
 draft: False
 hidden: True

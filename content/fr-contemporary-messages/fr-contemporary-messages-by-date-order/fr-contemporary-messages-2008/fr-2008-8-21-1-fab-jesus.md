@@ -1,7 +1,7 @@
 ---
 title: "Jésus et l'Empire"
 menu_title: ""
-description: "Jésus et l'Empire"
+description: "Jésus, reçu par FAB : « Lorsque j'enseignais à mes compatriotes Juifs, je leur disais que l'Empire Romain n'était qu'un nuage temporaire. »"
 date: 2022-06-01 06:00:01+00:95
 draft: False
 hidden: True

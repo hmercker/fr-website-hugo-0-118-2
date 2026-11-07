@@ -1,7 +1,7 @@
 ---
 title: "Vous aurez besoin les uns des autres dans les temps à venir"
 menu_title: ""
-description: "Vous aurez besoin les uns des autres dans les temps à venir"
+description: "Isaïe, reçu par Al Fike : « Mes chères douces âmes, ceci est si important. Vos efforts pour grandir ensemble dans l’Amour, pour établir ces connexions les … »"
 date: 2022-06-01 06:00:01+00:90
 draft: False
 hidden: True

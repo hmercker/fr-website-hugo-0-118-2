@@ -1,7 +1,7 @@
 ---
 title: "Un kaléidoscope de lumière"
 menu_title: ""
-description: "Un kaléidoscope de lumière"
+description: "Seretta Kem, reçu par Al Fike : « Vous m’avez demandé de parler des dons de l’âme et je vais le faire aujourd’hui, ce qui est un cadeau pour votre âme. »"
 date: 2022-06-01 06:00:01+00:518
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Mantra de l’Amour"
 menu_title: ""
-description: "Mantra de l’Amour"
+description: "Jacques, reçu par Kathryn Stokes : « Je souhaite aborder le problème de se débarrasser de la colère accumulée – une colère qui peut faire partie du … »"
 date: 2022-06-01 06:00:01+00:70
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Dieu désire que vous soyez une âme éveillée"
 menu_title: ""
-description: "Dieu désire que vous soyez une âme éveillée"
+description: "Jésus, reçu par Al Fike : « Étant donné vos efforts, vos désirs, vos prières, vos actions, vos pensées, vos motivations à être en alignement avec Dieu, à … »"
 date: 2022-06-01 06:00:01+00:503
 draft: False
 hidden: True

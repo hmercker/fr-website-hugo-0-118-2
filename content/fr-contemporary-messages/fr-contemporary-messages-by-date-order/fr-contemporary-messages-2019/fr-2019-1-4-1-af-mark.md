@@ -1,7 +1,7 @@
 ---
 title: "Le pouvoir de la lumière pour surmonter les ténèbres"
 menu_title: ""
-description: "Le pouvoir de la lumière pour surmonter les ténèbres"
+description: "Marc, reçu par Al Fike : « Voyez-vous comment les choses se mettent en place, que votre objectif et vos efforts ne sont pas compliqués et ne nécessitent … »"
 date: 2022-06-01 06:00:01+00:593
 draft: False
 hidden: True

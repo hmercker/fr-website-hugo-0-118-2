@@ -1,7 +1,7 @@
 ---
 title: "Les changements terrestres et la solitude au sein de la communauté"
 menu_title: ""
-description: "Les changements terrestres et la solitude au sein de la communauté"
+description: "Eileen Caddy, reçu par Jimbeau Walsh : « Que l'Amour de Dieu soit sur nous, en nous et à travers nous. Comme on vous l'a dit, tant pour le monde spirituel … »"
 date: 2026-09-08 16:00:01+00:01
 draft: False
 hidden: True

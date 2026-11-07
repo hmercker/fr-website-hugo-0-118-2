@@ -1,7 +1,7 @@
 ---
 title: "Une déclaration proclamant le début d'une nouvelle ère de lumière"
 menu_title: ""
-description: "Une déclaration proclamant le début d'une nouvelle ère de lumière"
+description: "Isaïe, reçu par Al Fike : « Dieu est en train d’infecter le monde avec de l’Amour. Il déverse Son Amour dans de nombreuses parties de votre monde, créant … »"
 date: 2022-06-01 06:00:01+00:458
 draft: False
 hidden: True

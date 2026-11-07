@@ -1,7 +1,7 @@
 ---
 title: "Les différences entre la Sixième Sphère et les Sphères Célestes"
 menu_title: ""
-description: "Les différences entre la Sixième Sphère et les Sphères Célestes"
+description: "Leytergus, reçu par Al Fike : « Vous souhaitez connaître un peu de mon histoire. J'ai aidé à fonder l'université de cette région et les débuts de telles … »"
 date: 2022-06-01 06:00:01+00:97
 draft: False
 hidden: True

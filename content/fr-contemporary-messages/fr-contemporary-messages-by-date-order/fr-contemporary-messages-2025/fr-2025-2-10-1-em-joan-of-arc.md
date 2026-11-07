@@ -1,7 +1,7 @@
 ---
 title: "Faites de chaque instant un moment divin dans votre vie sur Terre"
 menu_title: ""
-description: "Faites de chaque instant un moment divin dans votre vie sur Terre"
+description: "Jeanne d'Arc, reçu par Elizabeth Mack : « Ô Dieu bon et miséricordieux, ces enfants vous sont si précieux. Nous sommes reconnaissants de les accompagner … »"
 date: 2026-01-30 16:00:01+00:01
 draft: False
 hidden: True

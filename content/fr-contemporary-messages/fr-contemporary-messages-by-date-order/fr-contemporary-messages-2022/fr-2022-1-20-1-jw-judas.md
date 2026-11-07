@@ -1,7 +1,7 @@
 ---
 title: "Soyez des explorateurs de l’âme"
 menu_title: ""
-description: "Soyez des explorateurs de l’âme"
+description: "Judas, reçu par Jimbeau Walsh : « C'est une question de foi dans vos prières pour l'Amour de Dieu. Ces prières deviennent des choses, une substance … »"
 date: 2022-06-01 06:00:01+00:16
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Les graines de votre âme"
 menu_title: ""
-description: "Les graines de votre âme"
+description: "Augustin, reçu par Al Fike : « Pouvez-vous voir comment vos désirs affectent les résultats de vos vies, comment ces désirs dans la prière vous apportent … »"
 date: 2022-06-01 06:00:01+00:232
 draft: False
 hidden: True

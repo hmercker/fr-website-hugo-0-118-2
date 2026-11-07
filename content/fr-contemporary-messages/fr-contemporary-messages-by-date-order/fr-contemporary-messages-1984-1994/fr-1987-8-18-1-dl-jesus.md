@@ -1,7 +1,7 @@
 ---
 title: "Foi et guérison"
 menu_title: ""
-description: "Foi et guérison"
+description: "Jésus, reçu par Révérend Dave Lampron : « J'ai lu certains de tes messages par l'intermédiaire de K, et une phrase en particulier a attiré mon attention … »"
 date: 2022-06-01 06:00:01+00:26
 draft: False
 hidden: True

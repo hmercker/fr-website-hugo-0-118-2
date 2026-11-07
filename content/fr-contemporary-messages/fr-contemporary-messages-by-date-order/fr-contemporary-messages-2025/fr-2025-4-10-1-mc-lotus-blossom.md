@@ -1,7 +1,7 @@
 ---
 title: "Bienvenue dans vos cœurs"
 menu_title: ""
-description: "Bienvenue dans vos cœurs"
+description: "Fleur de Lotus, reçu par Maureen Cardoso : « Bienvenue sur cette terre, bienvenue dans cette partie de la Terre, bienvenue dans vos cœurs. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

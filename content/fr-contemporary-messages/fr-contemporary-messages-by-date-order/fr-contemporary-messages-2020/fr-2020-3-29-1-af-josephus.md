@@ -1,7 +1,7 @@
 ---
 title: "Comment faire face aux conditions changeantes de cette Terre en ce moment"
 menu_title: ""
-description: "Comment faire face aux conditions changeantes de cette Terre en ce moment"
+description: "Flavius Josèphe, reçu par Al Fike : « En ce moment même, chacun de vous est béni par la Lumière. Ainsi, lorsque vous priez ensemble et lorsque vous priez … »"
 date: 2022-06-01 06:00:01+00:1044
 draft: False
 hidden: True

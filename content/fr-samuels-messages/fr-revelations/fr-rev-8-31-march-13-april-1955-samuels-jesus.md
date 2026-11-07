@@ -1,7 +1,7 @@
 ---
 title: "8ème Révélation : Jésus explique l’Omniprésence de Dieu et la différence entre l’Esprit Saint et l’Esprit de Dieu"
 menu_title: ""
-description: "8ème Révélation : Jésus explique l’Omniprésence de Dieu et la différence entre l’Esprit Saint et l’Esprit de Dieu"
+description: "Jésus, reçu par Dr Samuels : « Je veux vous écrire au sujet de l’omniprésence de Dieu, sujet soulevé par une certaine dame suite à la lecture des messages … »"
 date: 2022-06-01 06:00:01+00:08
 draft: False
 hidden: True

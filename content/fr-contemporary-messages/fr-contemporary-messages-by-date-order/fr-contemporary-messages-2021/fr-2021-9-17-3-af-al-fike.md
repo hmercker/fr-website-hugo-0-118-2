@@ -1,7 +1,7 @@
 ---
 title: "Debriefing d'Al sur son expérience dans la chambre noire (2021 Voix Directe II)"
 menu_title: ""
-description: "Debriefing d'Al sur son expérience dans la chambre noire (2021 Voix Directe II)"
+description: "Al Fike, reçu par Al Fike : « Al : C’était une expérience très intense pour moi aujourd’hui. Il est passé à travers moi profondément. »"
 date: 2022-06-01 06:00:01+00:1650
 draft: False
 hidden: True

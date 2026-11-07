@@ -1,7 +1,7 @@
 ---
 title: "Un message d’Aigle Blanc"
 menu_title: ""
-description: "Un message d’Aigle Blanc"
+description: "Aigle Blanc, reçu par James Padgett : « Je leur ai dit et ils apprennent maintenant et semblent déçus, mais ils partiront de leur plein gré. »"
 date: 2022-06-01 06:00:01+00:58
 draft: False
 hidden: True

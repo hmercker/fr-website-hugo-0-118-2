@@ -1,7 +1,7 @@
 ---
 title: "Jésus affirme qu’Henry Ward Beecher a écrit sur « l’immortalité »"
 menu_title: ""
-description: "Jésus affirme qu’Henry Ward Beecher a écrit sur « l’immortalité »"
+description: "Jésus, reçu par James Padgett : « Je veux simplement dire que votre condition spirituelle et physique est meilleure. Vous ne devez pas oublier de prier le … »"
 date: 2022-06-01 06:00:01+00:119
 draft: False
 hidden: True

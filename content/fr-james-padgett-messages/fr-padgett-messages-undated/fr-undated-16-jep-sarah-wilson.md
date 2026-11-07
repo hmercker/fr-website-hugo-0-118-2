@@ -1,7 +1,7 @@
 ---
 title: "Sarah J. Wilson, une avorteuse, se rend compte trop tard du grand tort qu’elle a causé sur terre et cherche de l’aide"
 menu_title: ""
-description: "Sarah J. Wilson, une avorteuse, se rend compte trop tard du grand tort qu’elle a causé sur terre et cherche de l’aide"
+description: "Sarah J Wilson, reçu par James Padgett : « Laissez-moi vous écrire car j’ai tellement besoin d’aide. Lors de ma vie sur terre, je fus une femme qui essaya … »"
 date: 2022-06-01 06:00:01+00:90
 draft: False
 hidden: True

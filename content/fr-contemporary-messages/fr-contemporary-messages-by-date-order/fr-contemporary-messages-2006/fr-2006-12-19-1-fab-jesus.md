@@ -1,7 +1,7 @@
 ---
 title: "Souffrance, rédemption et croix"
 menu_title: ""
-description: "Souffrance, rédemption et croix"
+description: "Jésus, reçu par FAB : « Je vois que vous êtes confus. D'une part, vous croyez que ma mort sur la croix était une erreur tragique et non le plan de Dieu … »"
 date: 2022-06-01 06:00:01+00:70
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le voyage d’un poète vers la foi"
 menu_title: ""
-description: "Le voyage d’un poète vers la foi"
+description: "Pablo Neruda, reçu par FAB : « Je sais que vous pensez que vous m’avez mal canalisé parce que vous avez découvert, en lisant ma biographie, que j’étais … »"
 date: 2022-06-01 06:00:01+00:34
 draft: False
 hidden: True

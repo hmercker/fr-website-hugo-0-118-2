@@ -1,7 +1,7 @@
 ---
 title: "Le miracle de Fatima et l’Amour de Dieu"
 menu_title: ""
-description: "Le miracle de Fatima et l’Amour de Dieu"
+description: "Marie & Aigle Blanc, reçu par Amada Reza : « Je souhaite répondre à la question de D. qu’il transmet de L., concernant le miracle de Fatima, et je vous … »"
 date: 2022-06-01 06:00:01+00:22
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Promesse des Anges pour la Retraite de Trinité"
 menu_title: ""
-description: "Promesse des Anges pour la Retraite de Trinité"
+description: "Jésus, Mylora, Keea Atta Kem, reçu par Albert Fike : « Vous avez demandé cette bénédiction et elle vous sera accordée. Ouvrez grand vos âmes à l’afflux du … »"
 date: 2026-04-03 16:00:01+00:01
 draft: False
 hidden: True

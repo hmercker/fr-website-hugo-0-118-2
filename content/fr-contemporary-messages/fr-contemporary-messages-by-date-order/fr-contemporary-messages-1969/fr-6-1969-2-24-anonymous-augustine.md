@@ -1,7 +1,7 @@
 ---
 title: "Voici votre chance d'avancement - Voici la clé"
 menu_title: ""
-description: "Voici votre chance d'avancement - Voici la clé"
+description: "Augustin : « Je pense qu'il est temps que je vienne à nouveau pour vous encourager un peu plus dans notre désir de vous voir grandir un peu plus. »"
 date: 2022-06-01 06:00:01+00:06
 draft: False
 hidden: True

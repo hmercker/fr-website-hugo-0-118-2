@@ -1,7 +1,7 @@
 ---
 title: "Jean-Baptiste adresse également des paroles encourageantes à M. Padgett pour l’aider à accroître sa foi"
 menu_title: ""
-description: "Jean-Baptiste adresse également des paroles encourageantes à M. Padgett pour l’aider à accroître sa foi"
+description: "Jean le Baptiste, reçu par James Padgett : « Que votre cœur ne soit pas troublé, croyez en Dieu et au Maître. C’est aussi vrai ce soir que cela l’était … »"
 date: 2022-06-01 06:00:01+00:281
 draft: False
 hidden: True

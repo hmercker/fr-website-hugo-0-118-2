@@ -1,7 +1,7 @@
 ---
 title: "Bénédiction"
 menu_title: ""
-description: "Bénédiction"
+description: "Jésus, reçu par Al Fike : « Je viens, âmes bien-aimées. À travers vous, ce Cercle de Lumière, un grand canal de lumière se manifeste en ce moment pour … »"
 date: 2022-06-01 06:00:01+00:1448
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L’évêque Newman : confirme le message de Luc"
 menu_title: ""
-description: "L’évêque Newman : confirme le message de Luc"
+description: "John P Newman, reçu par James Padgett : « J’ai réalisé que certains propos exprimés par le prédicateur ont dû suggérer à Luc le sujet de son message. »"
 date: 2022-06-01 06:00:01+00:323
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La loyauté envers Dieu et votre âme"
 menu_title: ""
-description: "La loyauté envers Dieu et votre âme"
+description: "Keea Atta Kem, reçu par Maureen Cardoso : « Vous continuez avec votre temps de prière hebdomadaire, votre rendez-vous hebdomadaire. C’est excellent car en … »"
 date: 2022-06-01 06:00:01+00:434
 draft: False
 hidden: True

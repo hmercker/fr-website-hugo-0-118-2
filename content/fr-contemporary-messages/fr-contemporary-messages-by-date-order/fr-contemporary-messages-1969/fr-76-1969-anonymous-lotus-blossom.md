@@ -1,7 +1,7 @@
 ---
 title: "J'ai un grand amour pour la Chine"
 menu_title: ""
-description: "J'ai un grand amour pour la Chine"
+description: "Fleur de Lotus : « Je tiens à dire que de nombreux amis Chinois sont ici. C'est mon désir ce soir, lorsque vous dites vos prières, que vous incluiez le … »"
 date: 2022-06-01 06:00:01+00:63
 draft: False
 hidden: True

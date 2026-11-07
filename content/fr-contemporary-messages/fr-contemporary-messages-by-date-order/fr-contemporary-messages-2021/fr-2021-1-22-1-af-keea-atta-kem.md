@@ -1,7 +1,7 @@
 ---
 title: "Le pouvoir de la prière"
 menu_title: ""
-description: "Le pouvoir de la prière"
+description: "Keea Atta Kem, reçu par Al Fike : « Et je vous exhorte, mes chers et beaux frères et sœurs, à utiliser le pouvoir de la prière pour aider à sauver votre … »"
 date: 2022-06-01 06:00:01+00:1392
 draft: False
 hidden: True

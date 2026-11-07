@@ -1,7 +1,7 @@
 ---
 title: "La naissance de nos âmes"
 menu_title: ""
-description: "La naissance de nos âmes"
+description: "Augustin, reçu par Al Fike : « Je souhaite parler de la Loi de la Récompense par laquelle chaque âme doit expier ses actions et les conditions qui sont … »"
 date: 2022-06-01 06:00:01+00:34
 draft: False
 hidden: True

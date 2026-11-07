@@ -1,7 +1,7 @@
 ---
 title: "Saul – Dieu n’est pas le Dieu d’une race mais de la personne"
 menu_title: ""
-description: "Saul – Dieu n’est pas le Dieu d’une race mais de la personne"
+description: "Saul, reçu par James Padgett : « Je ne vous ai pas écrit depuis un certain temps et je voudrais seulement dire quelques mots relativement au fait que … »"
 date: 2022-06-01 06:00:01+00:36
 draft: False
 hidden: True

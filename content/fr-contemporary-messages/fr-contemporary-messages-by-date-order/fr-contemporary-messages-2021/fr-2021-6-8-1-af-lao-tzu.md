@@ -1,7 +1,7 @@
 ---
 title: "La voie Divine est différente de la voie naturelle"
 menu_title: ""
-description: "La voie Divine est différente de la voie naturelle"
+description: "Lao Tseu, reçu par Al Fike : « Je fus autrefois, il y a de très nombreuses années, un philosophe, un enseignant et un guide spirituel dans votre monde. »"
 date: 2022-06-01 06:00:01+00:1534
 draft: False
 hidden: True

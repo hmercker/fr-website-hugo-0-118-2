@@ -1,7 +1,7 @@
 ---
 title: "Aidez les autres à trouver la Vérité de l'Amour du Père"
 menu_title: ""
-description: "Aidez les autres à trouver la Vérité de l'Amour du Père"
+description: "Jésus, reçu par Al Fike : « Je tiens à vous assurer que je n’ai pas souffert aussi grandement que vous pourriez l’imaginer, que mon Père céleste a fait en … »"
 date: 2022-06-01 06:00:01+00:374
 draft: False
 hidden: True

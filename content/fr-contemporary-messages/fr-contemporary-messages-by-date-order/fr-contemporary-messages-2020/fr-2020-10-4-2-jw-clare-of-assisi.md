@@ -1,7 +1,7 @@
 ---
 title: "Ce sera votre trésor"
 menu_title: ""
-description: "Ce sera votre trésor"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Il a été notre inspiration et notre mentor, et jusqu’à ce jour, de nombreux frères et sœurs ont emprunté le … »"
 date: 2022-06-01 06:00:01+00:1268
 draft: False
 hidden: True

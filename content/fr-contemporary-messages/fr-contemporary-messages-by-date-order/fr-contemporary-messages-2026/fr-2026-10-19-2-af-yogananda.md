@@ -1,7 +1,7 @@
 ---
 title: "La véritable paix au-delà de la peur"
 menu_title: ""
-description: "La véritable paix au-delà de la peur"
+description: "Yogananda, reçu par Jimbeau Walsh : « Je vais développer quelque peu le message que notre chère sœur a lu, reçu il y a quelques années par mon frère. »"
 date: 2026-10-28 06:00:01+00:01
 draft: False
 hidden: True

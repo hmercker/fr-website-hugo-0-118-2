@@ -1,7 +1,7 @@
 ---
 title: "Hélène a écrit que Jésus n’est pas très heureux durant les fêtes et qu’il quitte le plan terrestre vers les Cieux Célestes les plus élevés"
 menu_title: ""
-description: "Hélène a écrit que Jésus n’est pas très heureux durant les fêtes et qu’il quitte le plan terrestre vers les Cieux Célestes les plus élevés"
+description: "Hélène Padgett, reçu par James Padgett : « En cette veille de Noël , nous nous réjouissons que le peuple croie que Jésus est ressuscité des morts. »"
 date: 2022-06-01 06:00:01+00:46
 draft: False
 hidden: True

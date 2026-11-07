@@ -1,7 +1,7 @@
 ---
 title: "Nous serons avec vous"
 menu_title: ""
-description: "Nous serons avec vous"
+description: "Confucius, reçu par Al Fike : « Il n’est pas facile de marcher dans ces conditions avec tant de personnes qui sont si douées psychiquement. »"
 date: 2022-06-01 06:00:01+00:475
 draft: False
 hidden: True

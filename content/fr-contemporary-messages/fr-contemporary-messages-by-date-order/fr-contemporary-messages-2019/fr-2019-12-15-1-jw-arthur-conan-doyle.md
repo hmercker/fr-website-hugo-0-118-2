@@ -1,7 +1,7 @@
 ---
 title: "J'ai ressenti la grâce de Dieu"
 menu_title: ""
-description: "J'ai ressenti la grâce de Dieu"
+description: "Arthur Conan Doyle, reçu par Jimbeau Walsh : « Vous me connaissez comme un écrivain. Les livres que j’ai écrits, les histoires que j’ai écrites, sont … »"
 date: 2022-06-01 06:00:01+00:959
 draft: False
 hidden: True

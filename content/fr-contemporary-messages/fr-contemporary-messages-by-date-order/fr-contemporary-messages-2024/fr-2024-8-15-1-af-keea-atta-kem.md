@@ -1,7 +1,7 @@
 ---
 title: "L'importance de la communion de l’Amour Divin"
 menu_title: ""
-description: "L'importance de la communion de l’Amour Divin"
+description: "Keea Atta Kem, reçu par Albert Fike : « Vous continuez à cheminer ensemble sur ce beau chemin de l’amour, pour établir vos liens et vos relations, vos … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

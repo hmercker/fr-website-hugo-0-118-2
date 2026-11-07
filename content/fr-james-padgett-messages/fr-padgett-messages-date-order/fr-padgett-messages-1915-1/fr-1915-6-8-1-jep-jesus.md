@@ -1,7 +1,7 @@
 ---
 title: "Description de la naissance et de la vie de Jésus jusqu’à l’époque de son ministère public"
 menu_title: ""
-description: "Description de la naissance et de la vie de Jésus jusqu’à l’époque de son ministère public"
+description: "Jésus, reçu par James Padgett : « Je vais continuer mon message, au sujet de ma naissance et ma mission, que j’ai commencée la nuit dernière. »"
 date: 2022-06-01 06:00:01+00:103
 draft: False
 hidden: True

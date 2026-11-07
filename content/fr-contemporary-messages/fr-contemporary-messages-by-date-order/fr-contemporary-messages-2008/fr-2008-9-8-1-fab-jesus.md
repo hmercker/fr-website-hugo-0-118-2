@@ -1,7 +1,7 @@
 ---
 title: "Pré-existence des Cieux Célestes"
 menu_title: ""
-description: "Pré-existence des Cieux Célestes"
+description: "Jésus, reçu par FAB : « Je voulais transmettre ce message depuis longtemps, mais votre vous a en empêché. Maintenant que la peur t’a quitté, je peux … »"
 date: 2022-06-01 06:00:01+00:105
 draft: False
 hidden: True

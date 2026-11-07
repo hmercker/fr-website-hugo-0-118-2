@@ -1,7 +1,7 @@
 ---
 title: "La source des émotions"
 menu_title: ""
-description: "La source des émotions"
+description: "Judas, reçu par Al Fike : « Une discussion récente sur les émotions et les pensées a porté sur ce qui vient en premier. »"
 date: 2022-06-01 06:00:01+00:38
 draft: False
 hidden: True

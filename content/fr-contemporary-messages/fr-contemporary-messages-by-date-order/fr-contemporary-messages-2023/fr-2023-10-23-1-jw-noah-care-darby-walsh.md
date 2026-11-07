@@ -1,7 +1,7 @@
 ---
 title: "L’acte de foi et la création de sanctuaires"
 menu_title: ""
-description: "L’acte de foi et la création de sanctuaires"
+description: "Noé et Care Darby Walsh, reçu par Jimbeau Walsh : « De nombreux siècles se sont écoulés depuis mon passage sur terre et je ne viens pas souvent sur le … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

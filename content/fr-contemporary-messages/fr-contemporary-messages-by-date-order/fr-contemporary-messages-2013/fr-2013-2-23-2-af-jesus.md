@@ -1,7 +1,7 @@
 ---
 title: "Priez pour être guidés"
 menu_title: ""
-description: "Priez pour être guidés"
+description: "Jésus, reçu par Albert Fike : « Marchez avec moi, mes enfants, et je marcherai avec vous alors que vous aspirez à apporter la lumière, le changement, la … »"
 date: 2026-10-16 06:00:01+00:09
 draft: False
 hidden: True

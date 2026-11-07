@@ -1,7 +1,7 @@
 ---
 title: "Un rapport sur nos progrès"
 menu_title: ""
-description: "Un rapport sur nos progrès"
+description: "Seretta Kem, reçu par Al Fike : « Vous avez constamment progressé vers le haut de l'échelle de la Lumière. En effet, vous êtes maintenant à ce qui serait … »"
 date: 2022-06-01 06:00:01+00:217
 draft: False
 hidden: True

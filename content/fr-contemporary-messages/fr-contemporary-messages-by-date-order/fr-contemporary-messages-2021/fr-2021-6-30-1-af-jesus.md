@@ -1,7 +1,7 @@
 ---
 title: "Venez prier avec nous"
 menu_title: ""
-description: "Venez prier avec nous"
+description: "Jésus, reçu par Al Fike : « Je continuerai mon travail comme beaucoup d’autres dans les sphères spirituelles et le Royaume Céleste, car c’est notre but … »"
 date: 2022-06-01 06:00:01+00:1559
 draft: False
 hidden: True

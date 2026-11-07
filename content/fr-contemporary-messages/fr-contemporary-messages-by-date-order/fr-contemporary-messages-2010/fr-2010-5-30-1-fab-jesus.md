@@ -1,7 +1,7 @@
 ---
 title: "Jésus parle de l'indignation vertueuse"
 menu_title: ""
-description: "Jésus parle de l'indignation vertueuse"
+description: "Jésus, reçu par FAB : « J'ai eu une juste indignation. Comme tous les prophètes Hébreux avant moi. »"
 date: 2022-06-01 06:00:01+00:132
 draft: False
 hidden: True

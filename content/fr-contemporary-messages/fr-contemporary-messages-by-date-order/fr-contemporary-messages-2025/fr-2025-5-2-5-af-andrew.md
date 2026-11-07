@@ -1,7 +1,7 @@
 ---
 title: "Continuez à aller de l'avant"
 menu_title: ""
-description: "Continuez à aller de l'avant"
+description: "André, reçu par Albert Fike : « Mes frères, vous continuez à aller de l’avant. Votre désir de progresser, de recevoir davantage d’Amour du Père en votre … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

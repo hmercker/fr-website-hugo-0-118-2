@@ -1,7 +1,7 @@
 ---
 title: "Concentrez-vous sur Dieu et mettez toutes les distractions de côté"
 menu_title: ""
-description: "Concentrez-vous sur Dieu et mettez toutes les distractions de côté"
+description: "Plume Blanche, reçu par Albert Fike : « Vous avez tous beaucoup à apprendre sur les voies de Dieu et sur les voies de cet univers créé par Dieu. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

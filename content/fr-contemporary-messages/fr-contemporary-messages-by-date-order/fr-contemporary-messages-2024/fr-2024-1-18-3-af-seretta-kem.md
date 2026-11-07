@@ -1,7 +1,7 @@
 ---
 title: "Décrit les soins prodigués par les anges lorsque nous sommes dans des cercles de lumière"
 menu_title: ""
-description: "Décrit les soins prodigués par les anges lorsque nous sommes dans des cercles de lumière"
+description: "Seretta Kem, reçu par Albert Fike : « Nous avons fait tout notre possible pour vous assister à la fois physiquement et spirituellement afin de vous aider … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

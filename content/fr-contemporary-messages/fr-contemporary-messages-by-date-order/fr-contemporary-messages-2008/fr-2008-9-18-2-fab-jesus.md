@@ -1,7 +1,7 @@
 ---
 title: "Le point de vue de Jésus sur les politiciens"
 menu_title: ""
-description: "Le point de vue de Jésus sur les politiciens"
+description: "Jésus, reçu par FAB : « Nous voyons tous que vous continuez à être troublé par, et en désaccord avec, ce que William Howard Taft a dit sur les politiciens. »"
 date: 2022-06-01 06:00:01+00:110
 draft: False
 hidden: True

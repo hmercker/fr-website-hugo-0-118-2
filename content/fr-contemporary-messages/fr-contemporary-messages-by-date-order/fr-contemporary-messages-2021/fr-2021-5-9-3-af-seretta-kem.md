@@ -1,7 +1,7 @@
 ---
 title: "Réponse aux questions sur le cercle de développement (2021 Voix Directe II)"
 menu_title: ""
-description: "Réponse aux questions sur le cercle de développement (2021 Voix Directe II)"
+description: "Seretta Kem, reçu par Al Fike : « Nous continuerons à soutenir et à défendre ces efforts. Nous ne pouvons pas déterminer qui arrivera sur le pas de votre … »"
 date: 2022-06-01 06:00:01+00:1498
 draft: False
 hidden: True

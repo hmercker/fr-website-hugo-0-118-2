@@ -1,7 +1,7 @@
 ---
 title: "Le but des « Porteurs de Lumière » est d’atteindre le monde entier"
 menu_title: ""
-description: "Le but des « Porteurs de Lumière » est d’atteindre le monde entier"
+description: "Professeur Salyards, reçu par Al Fike : « Le but de votre organisation est d’atteindre les individus et les groupes qui recherchent la vérité, de quelque … »"
 date: 2022-06-01 06:00:01+00:120
 draft: False
 hidden: True

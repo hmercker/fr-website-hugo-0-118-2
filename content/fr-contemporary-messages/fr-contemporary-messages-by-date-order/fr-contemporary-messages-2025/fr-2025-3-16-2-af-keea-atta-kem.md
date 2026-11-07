@@ -1,7 +1,7 @@
 ---
 title: "Salle de la Paix"
 menu_title: ""
-description: "Salle de la Paix"
+description: "Keea Atta Kem, reçu par Albert Fike : « Vous y avez reçu des bénédictions et vous avez trouvé vos âmes nourries et soutenues, chacun d’entre vous étant … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

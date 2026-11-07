@@ -1,7 +1,7 @@
 ---
 title: "Création, évolution"
 menu_title: ""
-description: "Création, évolution"
+description: "Orion, reçu par George Barnard : « Bzutu : « Je vous salue, mon ami humain. L’enseignant qui vous informe aujourd’hui est un de mes proches collaborateurs … »"
 date: 2022-06-01 06:00:01+00:104
 draft: False
 hidden: True

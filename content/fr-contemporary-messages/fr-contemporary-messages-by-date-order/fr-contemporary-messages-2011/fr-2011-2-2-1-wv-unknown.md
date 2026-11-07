@@ -1,7 +1,7 @@
 ---
 title: "Théorie sans pratique"
 menu_title: ""
-description: "Théorie sans pratique"
+description: "Inconnu, reçu par WV : « Comme vous l’avez remarqué, toutes ces entités avaient quelque chose en commun. Elles ont toutes demandé de l’aide et il était … »"
 date: 2022-06-01 06:00:01+00:187
 draft: False
 hidden: True

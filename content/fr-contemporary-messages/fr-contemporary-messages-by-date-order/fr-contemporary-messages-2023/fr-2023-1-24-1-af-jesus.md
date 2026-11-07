@@ -1,7 +1,7 @@
 ---
 title: "Les prophètes sont nécessaires dans les temps à venir"
 menu_title: ""
-description: "Les prophètes sont nécessaires dans les temps à venir"
+description: "Jésus, reçu par Al Fike : « Vous êtes mes disciples sur la Terre. Chacun d’entre vous porte cette couronne et a la responsabilité d’apporter la bonne … »"
 date: 2023-09-01 06:00:01+00:70
 draft: False
 hidden: True

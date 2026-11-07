@@ -1,7 +1,7 @@
 ---
 title: "Saint-Jean approuve le fait que M. Padgett lise le livre de Stainton Moses"
 menu_title: ""
-description: "Saint-Jean approuve le fait que M. Padgett lise le livre de Stainton Moses"
+description: "St Jean, reçu par James Padgett : « Laissez-moi vous dire un mot. J’ai lu avec vous dans le livre (Enseignements spirituels de Stainton Moïse) et je … »"
 date: 2022-06-01 06:00:01+00:49
 draft: False
 hidden: True

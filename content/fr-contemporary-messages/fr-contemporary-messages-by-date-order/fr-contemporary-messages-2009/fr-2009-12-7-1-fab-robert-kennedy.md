@@ -1,7 +1,7 @@
 ---
 title: "Plus sur Robert Kennedy"
 menu_title: ""
-description: "Plus sur Robert Kennedy"
+description: "Robert Kennedy, reçu par FAB : « Lorsque j'ai canalisé mes premiers messages vers vous, j'étais conscient que vous, comme beaucoup d'autres, m'aviez idéalisé. »"
 date: 2022-06-01 06:00:01+00:94
 draft: False
 hidden: True

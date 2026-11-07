@@ -1,7 +1,7 @@
 ---
 title: "M. Padgett a posé des questions aux écrivains spirituels et, dans cette première question posée est relative à sa conversation avec Bright Star"
 menu_title: ""
-description: "M. Padgett a posé des questions aux écrivains spirituels et, dans cette première question posée est relative à sa conversation avec Bright Star"
+description: "Bright Star, reçu par James Padgett : « Vous ne devez pas être si abattu. Vous vous sentez trop seul pour rester dans la solitude. »"
 date: 2022-06-01 06:00:01+00:12
 draft: False
 hidden: True

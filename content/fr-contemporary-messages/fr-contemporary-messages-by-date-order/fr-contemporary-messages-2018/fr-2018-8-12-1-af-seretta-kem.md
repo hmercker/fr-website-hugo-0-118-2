@@ -1,7 +1,7 @@
 ---
 title: "Une belle lumière grandit, signalant le réveil de vos âmes"
 menu_title: ""
-description: "Une belle lumière grandit, signalant le réveil de vos âmes"
+description: "Seretta Kem, reçu par Al Fike : « C’est très agréable pour nous, que vous fassiez l’effort nécessaire pour être dans des conditions de lumière afin que le … »"
 date: 2022-06-01 06:00:01+00:444
 draft: False
 hidden: True

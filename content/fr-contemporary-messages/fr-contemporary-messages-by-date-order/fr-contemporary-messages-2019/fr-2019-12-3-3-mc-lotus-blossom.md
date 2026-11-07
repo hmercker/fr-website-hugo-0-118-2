@@ -1,7 +1,7 @@
 ---
 title: "La foi est un instrument pour que la guérison se produise"
 menu_title: ""
-description: "La foi est un instrument pour que la guérison se produise"
+description: "Fleur de Lotus, reçu par Maureen Cardoso : « Beaucoup d’entre vous dans ce cercle ont le don de la guérison. J’assiste et travaille avec chacun d’entre … »"
 date: 2022-06-01 06:00:01+00:940
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L’idéalisme d’un président"
 menu_title: ""
-description: "L’idéalisme d’un président"
+description: "Woodrow Wilson, reçu par FAB : « J’ai fait référence dans ma canalisation du 20 Décembre 2006 à mon idéalisme, et pourtant vous lisez, dans The Untold … »"
 date: 2022-06-01 06:00:01+00:73
 draft: False
 hidden: True

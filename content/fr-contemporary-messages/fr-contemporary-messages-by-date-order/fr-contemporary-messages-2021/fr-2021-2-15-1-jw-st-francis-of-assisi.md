@@ -1,7 +1,7 @@
 ---
 title: "Tendre la main avec l’Amour de Dieu dans vos cœurs"
 menu_title: ""
-description: "Tendre la main avec l’Amour de Dieu dans vos cœurs"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Comme j’aime voir mes frères et sœurs en prière. Comme j’aime entendre la douce musique de louange au … »"
 date: 2022-06-01 06:00:01+00:1411
 draft: False
 hidden: True

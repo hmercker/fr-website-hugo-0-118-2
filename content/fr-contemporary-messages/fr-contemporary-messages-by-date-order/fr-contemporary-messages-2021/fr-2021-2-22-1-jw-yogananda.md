@@ -1,7 +1,7 @@
 ---
 title: "Toutes les choses faites dans l'Amour de Dieu sont bonnes"
 menu_title: ""
-description: "Toutes les choses faites dans l'Amour de Dieu sont bonnes"
+description: "Yogananda, reçu par Jimbeau Walsh : « Laissez vos cœurs s’ouvrir pour que Dieu puisse toucher vos âmes afin que les choses qui vous ont lié à la terre et … »"
 date: 2022-06-01 06:00:01+00:1417
 draft: False
 hidden: True

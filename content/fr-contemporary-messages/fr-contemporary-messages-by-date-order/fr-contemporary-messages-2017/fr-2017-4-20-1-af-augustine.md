@@ -1,7 +1,7 @@
 ---
 title: "Choisissez d’embrasser la volonté de Dieu"
 menu_title: ""
-description: "Choisissez d’embrasser la volonté de Dieu"
+description: "Augustin, reçu par Al Fike : « Vous êtes chacun sur le point de franchir de grandes étapes dans votre vie, des étapes qui mèneront au service et au flux … »"
 date: 2022-06-01 06:00:01+00:25
 draft: False
 hidden: True

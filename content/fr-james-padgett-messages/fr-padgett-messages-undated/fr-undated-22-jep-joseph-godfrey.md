@@ -1,7 +1,7 @@
 ---
 title: "Un esprit reconnaissant écrit pour remercier M. Padgett pour l’aide qu’il a reçue de lui"
 menu_title: ""
-description: "Un esprit reconnaissant écrit pour remercier M. Padgett pour l’aide qu’il a reçue de lui"
+description: "Joseph Godfrey, reçu par James Padgett : « Vous ne me connaissez peut-être pas, mais cela ne fait aucune différence, car le sujet que je vais communiquer … »"
 date: 2022-06-01 06:00:01+00:96
 draft: False
 hidden: True

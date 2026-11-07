@@ -1,7 +1,7 @@
 ---
 title: "La confédération Iroquoise"
 menu_title: ""
-description: "La confédération Iroquoise"
+description: "Benjamin Franklin, reçu par FAB : « Nous avons vu qu'il existait un exemple vivant du type de gouvernement coopératif auquel nous aspirions, une preuve … »"
 date: 2022-06-01 06:00:01+00:100
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Vous avez abordé le sujet de l'immortalité"
 menu_title: ""
-description: "Vous avez abordé le sujet de l'immortalité"
+description: "Lao Tseu, reçu par reçu par Jimbeau Walsh : « Que l’Amour de Dieu et les joies du ciel soient avec vous tous. On m’associe souvent à un homme que vous … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

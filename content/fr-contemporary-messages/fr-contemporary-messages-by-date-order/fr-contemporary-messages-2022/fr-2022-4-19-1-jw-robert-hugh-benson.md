@@ -1,7 +1,7 @@
 ---
 title: "Les royaumes de l’esprit"
 menu_title: ""
-description: "Les royaumes de l’esprit"
+description: "Robert Hugh Benson, reçu par Jimbeau Walsh : « Et vous pouvez voir que je fais toujours allusion à la progression vers les royaumes supérieurs où je … »"
 date: 2022-06-01 06:00:01+00:70
 draft: False
 hidden: True

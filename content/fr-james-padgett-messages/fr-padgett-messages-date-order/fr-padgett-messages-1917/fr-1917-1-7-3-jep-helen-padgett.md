@@ -1,7 +1,7 @@
 ---
 title: "Confirme l’opinion de Jean concernant la capacité du médium à prophétiser"
 menu_title: ""
-description: "Confirme l’opinion de Jean concernant la capacité du médium à prophétiser"
+description: "Hélène Padgett, reçu par James Padgett : « J’étais également heureuse que tu sois en bien meilleure condition et que tu aies mis de côté tes soucis. »"
 date: 2022-06-01 06:00:01+00:09
 draft: False
 hidden: True

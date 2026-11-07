@@ -1,7 +1,7 @@
 ---
 title: "Vos efforts, votre engagement et votre amour ont créé une grande lumière"
 menu_title: ""
-description: "Vos efforts, votre engagement et votre amour ont créé une grande lumière"
+description: "Augustin, reçu par Albert Fike : « Je tiens à dire que cet instrument et sa chère compagne bien-aimée ont beaucoup appris et beaucoup vu au cours de leurs … »"
 date: 2026-10-16 06:00:01+00:09
 draft: False
 hidden: True

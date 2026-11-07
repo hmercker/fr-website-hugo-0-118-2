@@ -1,7 +1,7 @@
 ---
 title: "Il est temps de prendre ses responsabilités et de toujours choisir l'harmonie"
 menu_title: ""
-description: "Il est temps de prendre ses responsabilités et de toujours choisir l'harmonie"
+description: "Orion, reçu par Albert Fike : « Une fois de plus, nous nous réunissons, nous prions et discutons de divers sujets et questions concernant votre âme. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

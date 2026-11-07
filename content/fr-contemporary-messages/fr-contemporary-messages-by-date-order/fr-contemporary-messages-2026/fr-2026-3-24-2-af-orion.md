@@ -1,7 +1,7 @@
 ---
 title: "Dépassez la première étape de l'éveil et élevez votre planète vers l'harmonie"
 menu_title: ""
-description: "Dépassez la première étape de l'éveil et élevez votre planète vers l'harmonie"
+description: "Orion, reçu par Al Fike : « Le monde attend cela, mes amis. Alors que nous poursuivons notre chemin, que nous persévérons dans nos engagements et nos … »"
 date: 2026-05-28 16:00:01+00:01
 draft: False
 hidden: True

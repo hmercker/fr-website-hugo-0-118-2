@@ -1,7 +1,7 @@
 ---
 title: "Les multitudes se réjouissent avec nous"
 menu_title: ""
-description: "Les multitudes se réjouissent avec nous"
+description: "St Matthieu, reçu par Al Fike : « Que l’Amour du Père entre dans vos âmes. Chacun béni par Dieu, chacun trouvant son propre chemin sur le chemin que Dieu … »"
 date: 2023-09-01 06:00:01+00:44
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La pratique rend parfait"
 menu_title: ""
-description: "La pratique rend parfait"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Mes chères souris, comme on dit, la pratique rend parfait. Si vous pouvez trouver du temps, si vous pouvez … »"
 date: 2022-06-01 06:00:01+00:1431
 draft: False
 hidden: True

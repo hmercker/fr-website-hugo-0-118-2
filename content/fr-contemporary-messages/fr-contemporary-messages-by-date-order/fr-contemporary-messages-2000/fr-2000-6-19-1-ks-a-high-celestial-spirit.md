@@ -1,7 +1,7 @@
 ---
 title: "Un Esprit Céleste Élevé : Conseil personnel ; sur les Premiers Parents"
 menu_title: ""
-description: "Un Esprit Céleste Élevé : Conseil personnel ; sur les Premiers Parents"
+description: "Esprit Céleste Elevé, reçu par Kathryn Stokes : « Un des disciples de Vos enseignements se demande ce qui se serait passé si les premiers parents … »"
 date: 2022-06-01 06:00:01+00:15
 draft: False
 hidden: True

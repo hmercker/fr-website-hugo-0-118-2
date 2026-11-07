@@ -1,7 +1,7 @@
 ---
 title: "La responsabilité d'agir par amour vous incombe"
 menu_title: ""
-description: "La responsabilité d'agir par amour vous incombe"
+description: "Martin Luther, reçu par Al Fike : « Vous êtes arrivés à un moment des plus difficiles, mes âmes bien-aimées. Un moment où vous emmenez vos nouvelles … »"
 date: 2022-06-01 06:00:01+00:288
 draft: False
 hidden: True

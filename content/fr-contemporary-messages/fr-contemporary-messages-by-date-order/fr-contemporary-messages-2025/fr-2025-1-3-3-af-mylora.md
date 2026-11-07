@@ -1,7 +1,7 @@
 ---
 title: "Bénédiction de guérison pour la Terre"
 menu_title: ""
-description: "Bénédiction de guérison pour la Terre"
+description: "Mylora, reçu par Albert Fike : « Un pont entre Dieu et la Terre, entre ces deux consciences et vous-même, afin que tout soit en harmonie ensemble, que … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

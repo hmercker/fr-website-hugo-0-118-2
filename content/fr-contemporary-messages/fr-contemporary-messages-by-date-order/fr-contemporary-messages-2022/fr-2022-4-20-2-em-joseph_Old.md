@@ -1,7 +1,7 @@
 ---
 title: "Bénédictions pour tous les passagers"
 menu_title: ""
-description: "Bénédictions pour tous les passagers"
+description: "Joseph, reçu par Elizabeth Mack : « Élevez vos âmes pour que les immenses bénédictions de l’Amour de Dieu les emplissent. Ouvrez grand vos cœurs, recevez … »"
 date: 2022-06-01 06:00:01+00:69
 draft: False
 hidden: True

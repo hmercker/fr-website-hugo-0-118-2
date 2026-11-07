@@ -1,7 +1,7 @@
 ---
 title: "Alimentez ce treillis de lumière"
 menu_title: ""
-description: "Alimentez ce treillis de lumière"
+description: "Augustin, reçu par Al Fike : « C'est votre enseignant Augustin. Je souhaite continuer à vous encourager à alimenter ce treillis de lumière que nous … »"
 date: 2022-06-01 06:00:01+00:729
 draft: False
 hidden: True

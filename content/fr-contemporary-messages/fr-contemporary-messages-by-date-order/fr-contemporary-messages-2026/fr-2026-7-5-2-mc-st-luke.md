@@ -1,7 +1,7 @@
 ---
 title: "L’Amour de Dieu éveillera en votre âme un désir et une réceptivité accrus"
 menu_title: ""
-description: "L’Amour de Dieu éveillera en votre âme un désir et une réceptivité accrus"
+description: "Luc, reçu par Maureen Cardoso : « Mes chers frères et sœurs, soyez les bienvenus. Bienvenue dans ce Cercle de Lumière, où Dieu bénit vos âmes de Son Amour … »"
 date: 2026-10-04 06:00:01+00:01
 draft: False
 hidden: True

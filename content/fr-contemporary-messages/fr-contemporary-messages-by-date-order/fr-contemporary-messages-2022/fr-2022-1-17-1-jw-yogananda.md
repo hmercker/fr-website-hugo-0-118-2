@@ -1,7 +1,7 @@
 ---
 title: "Laissez vos pensées s’élever vers Dieu"
 menu_title: ""
-description: "Laissez vos pensées s’élever vers Dieu"
+description: "Yogananda, reçu par Jimbeau Walsh : « Lorsque vous ouvrez la porte de votre cœur et permettez à Dieu d’entrer et d’ouvrir la porte de votre âme, vous … »"
 date: 2022-06-01 06:00:01+00:13
 draft: False
 hidden: True

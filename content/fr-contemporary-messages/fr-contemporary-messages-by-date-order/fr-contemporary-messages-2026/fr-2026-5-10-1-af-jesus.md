@@ -1,7 +1,7 @@
 ---
 title: "Recherchez le don de l'Amour Divin et devenez une lumière dans le monde"
 menu_title: ""
-description: "Recherchez le don de l'Amour Divin et devenez une lumière dans le monde"
+description: "Jésus, reçu par Al Fike : « Il existe en effet de nombreuses récompenses, dont la moindre n’est pas l’existence éternelle. »"
 date: 2026-06-26 16:00:01+00:01
 draft: False
 hidden: True

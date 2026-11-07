@@ -1,7 +1,7 @@
 ---
 title: "Nous progressons dans l'Amour de Dieu"
 menu_title: ""
-description: "Nous progressons dans l'Amour de Dieu"
+description: "Orion, reçu par Al Fike : « Vous continuez à lever les pieds pour avancer, bien que souvent ces pieds soient recouverts d’un matériau de plomb et que vous … »"
 date: 2023-09-01 06:00:01+00:20
 draft: False
 hidden: True

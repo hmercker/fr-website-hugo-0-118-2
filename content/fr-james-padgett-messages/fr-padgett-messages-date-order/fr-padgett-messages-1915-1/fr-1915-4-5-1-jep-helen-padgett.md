@@ -1,7 +1,7 @@
 ---
 title: "Affirme que les esprits sombres ont été aidés"
 menu_title: ""
-description: "Affirme que les esprits sombres ont été aidés"
+description: "Hélène Padgett, reçu par James Padgett : « Le pauvre esprit que tu m’as envoyé était vraiment pénitente et a pleuré de vraies larmes amères de peine et de … »"
 date: 2022-06-01 06:00:01+00:63
 draft: False
 hidden: True

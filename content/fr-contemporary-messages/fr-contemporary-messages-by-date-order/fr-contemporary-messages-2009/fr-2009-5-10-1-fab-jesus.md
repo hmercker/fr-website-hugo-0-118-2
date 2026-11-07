@@ -1,7 +1,7 @@
 ---
 title: "Le système et la générosité"
 menu_title: ""
-description: "Le système et la générosité"
+description: "Jésus, reçu par FAB : « Lorsque vous lisez sur votre société, vous êtes souvent agréablement surpris de découvrir tant de façons dont se manifeste la … »"
 date: 2022-06-01 06:00:01+00:40
 draft: False
 hidden: True

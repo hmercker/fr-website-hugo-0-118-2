@@ -1,7 +1,7 @@
 ---
 title: "Un grand amour et une grande joie"
 menu_title: ""
-description: "Un grand amour et une grande joie"
+description: "Goldie, reçu par Maureen Cardoso : « Je ne peux tout simplement pas rester loin de vous. Je pense que vous me sentez. »"
 date: 2026-10-28 06:00:01+00:435
 draft: False
 hidden: True

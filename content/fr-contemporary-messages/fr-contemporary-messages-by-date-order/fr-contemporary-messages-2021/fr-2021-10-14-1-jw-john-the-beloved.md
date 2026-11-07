@@ -1,7 +1,7 @@
 ---
 title: "Une histoire sans fin"
 menu_title: ""
-description: "Une histoire sans fin"
+description: "Jean le Bien-Aimé, reçu par Jimbeau Walsh : « Imaginez un instant que vous regardez la terre depuis un point d’observation où vous pourriez voir … »"
 date: 2022-06-01 06:00:01+00:1679
 draft: False
 hidden: True

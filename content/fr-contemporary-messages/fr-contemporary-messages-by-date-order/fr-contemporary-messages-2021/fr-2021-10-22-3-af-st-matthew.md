@@ -1,7 +1,7 @@
 ---
 title: "Le monde a besoin de l’Amour de Dieu pour survivre aux changements à venir (Cercle de prière en ligne)"
 menu_title: ""
-description: "Le monde a besoin de l’Amour de Dieu pour survivre aux changements à venir (Cercle de prière en ligne)"
+description: "St Matthieu, reçu par Al Fike : « Je sais que pour beaucoup d’entre vous, vous ne pouvez pas voir ni reconnaître la quantité et la profondeur du soutien … »"
 date: 2022-06-01 06:00:01+00:1687
 draft: False
 hidden: True

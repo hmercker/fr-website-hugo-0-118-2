@@ -1,7 +1,7 @@
 ---
 title: "Une note d’encouragement d’Anne Rollins"
 menu_title: ""
-description: "Une note d’encouragement d’Anne Rollins"
+description: "Anne Rollins, reçu par James Padgett : « Donne ton cœur au Seigneur et Il te bénira comme tu le réaliseras bientôt. Il l’a fait et il viendra … »"
 date: 2022-06-01 06:00:01+00:06
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Vous ferez grandir l’ombre pour ceux à venir"
 menu_title: ""
-description: "Vous ferez grandir l’ombre pour ceux à venir"
+description: "Samuel, reçu par Albert Fike : « Vous tracez la voie pour les autres. Sur cette route, il n’y a aucune ombre contre le soleil. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Soyez un véritable canal pour Dieu"
 menu_title: ""
-description: "Soyez un véritable canal pour Dieu"
+description: "Augustin : « Je vous salue de l'esprit, mes enfants. Des progrès merveilleux ont été réalisés dans la préparation de l'instrument pour ce travail et cela … »"
 date: 2022-06-01 06:00:01+00:100
 draft: False
 hidden: True

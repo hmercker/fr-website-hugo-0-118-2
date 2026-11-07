@@ -1,7 +1,7 @@
 ---
 title: "Comment recevoir l'inspiration"
 menu_title: ""
-description: "Comment recevoir l'inspiration"
+description: "Frédéric Chopin : « Je ressens une grande compassion pour vous en écoutant mes compositions qui vous sont jouées ce soir et je veux parler de la façon … »"
 date: 2022-06-01 06:00:01+00:138
 draft: False
 hidden: True

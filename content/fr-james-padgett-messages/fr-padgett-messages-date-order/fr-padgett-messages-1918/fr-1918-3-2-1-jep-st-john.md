@@ -1,7 +1,7 @@
 ---
 title: "Beaucoup de choses dans la Bible, Jean dit qu’il ne les a jamais écrites. Jean s’est trompé sur le genre de royaume que Jésus est venu établir"
 menu_title: ""
-description: "Beaucoup de choses dans la Bible, Jean dit qu’il ne les a jamais écrites. Jean s’est trompé sur le genre de royaume que Jésus est venu établir"
+description: "St Jean, reçu par James Padgett : « Je n’écrirai pas maintenant, sauf pour dire que votre condition spirituelle s’est beaucoup améliorée et que vous … »"
 date: 2022-06-01 06:00:01+00:22
 draft: False
 hidden: True

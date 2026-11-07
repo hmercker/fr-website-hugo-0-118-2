@@ -1,7 +1,7 @@
 ---
 title: "40ème Révélation : Pourquoi Jésus a enseigné en paraboles ; comment ses disciples ont-ils été en mesure de guérir"
 menu_title: ""
-description: "40ème Révélation : Pourquoi Jésus a enseigné en paraboles ; comment ses disciples ont-ils été en mesure de guérir"
+description: "Jésus, reçu par Dr Samuels : « Vous ne pensiez pas que je viendrais encore ce soir, mais, comme je vois que vous continuez à prier le Père Céleste avec … »"
 date: 2022-06-01 06:00:01+00:40
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le don de la vie"
 menu_title: ""
-description: "Le don de la vie"
+description: "Jacques, reçu par Al Fike : « Je vois que vous contemplez la vie, l’importance de la vie, le renouvellement de la vie, les transitions de la vie. »"
 date: 2022-06-01 06:00:01+00:184
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L'humanité construit ses fondations"
 menu_title: ""
-description: "L'humanité construit ses fondations"
+description: "Confucius, reçu par FAB : « J'ai délibérément utilisé la forme occidentale, latinisée, de mon nom avec vous, car c'est la façon dont vous vous reliez le … »"
 date: 2022-06-01 06:00:01+00:71
 draft: False
 hidden: True

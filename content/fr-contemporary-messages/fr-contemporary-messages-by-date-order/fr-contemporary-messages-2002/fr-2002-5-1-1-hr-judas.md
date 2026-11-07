@@ -1,7 +1,7 @@
 ---
 title: "Les Samaritains, deuxième partie"
 menu_title: ""
-description: "Les Samaritains, deuxième partie"
+description: "Judas, reçu par H : « Hier nous avons parlé de l’histoire de la séparation de l’ancien Royaume de David et de Salomon en deux États indépendants, Juda au … »"
 date: 2022-06-01 06:00:01+00:61
 draft: False
 hidden: True

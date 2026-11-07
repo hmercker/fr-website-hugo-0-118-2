@@ -1,7 +1,7 @@
 ---
 title: "Les premiers parents - leur famille et leur langue"
 menu_title: ""
-description: "Les premiers parents - leur famille et leur langue"
+description: "Aman, reçu par FAB : « Je sais que vous êtes curieux de connaître notre famille. Un membre de l'église en a parlé un jour. »"
 date: 2022-06-01 06:00:01+00:101
 draft: False
 hidden: True

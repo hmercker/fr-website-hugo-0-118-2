@@ -1,7 +1,7 @@
 ---
 title: "Les vérités du Père"
 menu_title: ""
-description: "Les vérités du Père"
+description: "Jésus, reçu par Kathryn Stokes : « En raison de la grande diversité des croyances et des stades de développement, il sera nécessairement le besoin de … »"
 date: 2022-06-01 06:00:01+00:06
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Orientation pour l'Université de l'âme"
 menu_title: ""
-description: "Orientation pour l'Université de l'âme"
+description: "Professeur Salyards, reçu par Al Fike : « Vous formez tous les quatre une équipe puissante qui va en effet aplanir ces rides, ces problèmes et ces énigmes … »"
 date: 2022-06-01 06:00:01+00:1300
 draft: False
 hidden: True

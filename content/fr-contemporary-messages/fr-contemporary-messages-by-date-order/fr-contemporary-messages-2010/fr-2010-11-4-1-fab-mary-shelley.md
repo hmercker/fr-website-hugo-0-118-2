@@ -1,7 +1,7 @@
 ---
 title: "Un message de l'auteur de Frankenstein"
 menu_title: ""
-description: "Un message de l'auteur de Frankenstein"
+description: "Mary Shelley, reçu par FAB : « J'ai observé qu'il est très utile aux esprits d'avoir une longueur d'avance sur la Terre. Je sais que c'est évident pour … »"
 date: 2022-06-01 06:00:01+00:169
 draft: False
 hidden: True

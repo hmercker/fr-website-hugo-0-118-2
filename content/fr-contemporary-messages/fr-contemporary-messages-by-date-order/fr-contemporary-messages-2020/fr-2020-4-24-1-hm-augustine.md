@@ -1,7 +1,7 @@
 ---
 title: "La Vérité doit être expérimentée par l'âme"
 menu_title: ""
-description: "La Vérité doit être expérimentée par l'âme"
+description: "Augustin, reçu par Helge Mercker : « Je te salue en cette heure matinale, c’est ton ami et maître Augustin. Les écrits de la vérité sont souvent révélés … »"
 date: 2022-06-01 06:00:01+00:1069
 draft: False
 hidden: True

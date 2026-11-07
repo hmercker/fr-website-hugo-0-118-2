@@ -1,7 +1,7 @@
 ---
 title: "57ème Sermon – L’appel prophétique d’Ézéchiel"
 menu_title: ""
-description: "57ème Sermon – L’appel prophétique d’Ézéchiel"
+description: "Jésus, reçu par Dr Samuels : « Il a fallu à Ézéchiel de nombreuses années pour se remettre de son déplacement vers la nouvelle terre et pour s’intégrer … »"
 date: 2022-06-01 06:00:01+00:110
 draft: False
 hidden: True

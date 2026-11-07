@@ -1,7 +1,7 @@
 ---
 title: "Mary Kennedy,âme sœur du Dr Leslie Stone, fait référence à un message écrit par l’apôtre Jean"
 menu_title: ""
-description: "Mary Kennedy,âme sœur du Dr Leslie Stone, fait référence à un message écrit par l’apôtre Jean"
+description: "Mary Kennedy, reçu par James Padgett : « Padgett a suggéré au Dr Stone de sortir et de prendre un café.) Permettez-moi de vous dire que vous pensez plus à … »"
 date: 2022-06-01 06:00:01+00:44
 draft: False
 hidden: True

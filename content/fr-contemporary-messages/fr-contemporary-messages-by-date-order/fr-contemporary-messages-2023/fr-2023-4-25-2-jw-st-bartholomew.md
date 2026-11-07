@@ -1,7 +1,7 @@
 ---
 title: "Ouvrez votre âme à la lumière de Dieu"
 menu_title: ""
-description: "Ouvrez votre âme à la lumière de Dieu"
+description: "Bartholomée, reçu par Jimbeau Walsh : « Que la porte s’ouvre toute grande à vous, mes amis, la porte de l’Amour de Dieu. C’est vous qui contrôlez le … »"
 date: 2023-09-01 06:00:01+00:10
 draft: False
 hidden: True

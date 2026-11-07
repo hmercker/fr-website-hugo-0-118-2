@@ -1,7 +1,7 @@
 ---
 title: "Écrit sur la forte impression que ce premier message a exercé sur lui"
 menu_title: ""
-description: "Écrit sur la forte impression que ce premier message a exercé sur lui"
+description: "Dr Leslie R. Stone, reçu par James Padgett : « Avant de recevoir ce message d’Hélène, je dois avouer que je n’avais aucune connaissance de la grande … »"
 date: 2022-06-01 06:00:01+00:154
 draft: False
 hidden: True

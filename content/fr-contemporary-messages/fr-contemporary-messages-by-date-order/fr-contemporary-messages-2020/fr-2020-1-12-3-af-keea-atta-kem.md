@@ -1,7 +1,7 @@
 ---
 title: "Soyez attentifs à la Volonté de Dieu"
 menu_title: ""
-description: "Soyez attentifs à la Volonté de Dieu"
+description: "Kea Atta Kem, reçu par Al Fike : « Je souhaite vous remercier tous pour votre service à Dieu, pour votre dévouement à cette Vérité de l’Amour de Dieu car … »"
 date: 2023-09-01 06:00:01+00:03
 draft: False
 hidden: True

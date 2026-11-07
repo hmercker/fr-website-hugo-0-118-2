@@ -1,7 +1,7 @@
 ---
 title: "41ème Sermon – L’enfance de Jérémie à Anathoth"
 menu_title: ""
-description: "41ème Sermon – L’enfance de Jérémie à Anathoth"
+description: "Jésus, reçu par Dr Samuels : « Il peut vous sembler étrange qu’il y avait une certaine relation entre Jérémie et Joseph, qui, comme un petit garçon … »"
 date: 2022-06-01 06:00:01+00:94
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Q&R : Les anges Célestes souhaitent encourager et aider l'humanité"
 menu_title: ""
-description: "Q&R : Les anges Célestes souhaitent encourager et aider l'humanité"
+description: "Flavius Josèphe, reçu par Al Fike : « Puisse l’amour de Dieu continuer à toucher vos âmes. Puissiez-vous parvenir à connaître la magnificence qu’est votre … »"
 date: 2022-06-01 06:00:01+00:789
 draft: False
 hidden: True

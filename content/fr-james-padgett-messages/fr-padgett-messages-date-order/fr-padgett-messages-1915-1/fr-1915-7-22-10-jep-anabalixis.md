@@ -1,7 +1,7 @@
 ---
 title: "Anabalixis, de l’Atlantide a promis de revenir et d’écrire sur le continent perdu"
 menu_title: ""
-description: "Anabalixis, de l’Atlantide a promis de revenir et d’écrire sur le continent perdu"
+description: "Anabalixis, reçu par James Padgett : « J’ai vécu sur le continent perdu de l’Atlantide. Je reviendrai prochainement vous raconter les merveilles de cette … »"
 date: 2022-06-01 06:00:01+00:160
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le programme politique de Jésus"
 menu_title: ""
-description: "Le programme politique de Jésus"
+description: "Jésus, reçu par FAB : « En outre, je ne croyais pas au type de politique qui, dans votre pays [les États-Unis], semble fonctionner à travers de graves … »"
 date: 2022-06-01 06:00:01+00:129
 draft: False
 hidden: True

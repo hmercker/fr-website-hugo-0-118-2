@@ -1,7 +1,7 @@
 ---
 title: "L'importance de ce que chaque individu apporte au cercle"
 menu_title: ""
-description: "L'importance de ce que chaque individu apporte au cercle"
+description: "Seretta Kem, reçu par Albert Fike : « Parfois, lorsque ces énergies sont mélangées, cela génère une énergie complètement différente. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

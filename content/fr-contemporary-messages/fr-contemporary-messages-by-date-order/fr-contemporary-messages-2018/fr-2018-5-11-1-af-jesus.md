@@ -1,7 +1,7 @@
 ---
 title: "Rien ne peut briser ce lien"
 menu_title: ""
-description: "Rien ne peut briser ce lien"
+description: "Jésus, reçu par Al Fike : « Vous êtes réclamés par Dieu dans la Sainte Communion, dans la lumière et l’Amour éternel est votre cadeau et votre promesse de … »"
 date: 2022-06-01 06:00:01+00:388
 draft: False
 hidden: True

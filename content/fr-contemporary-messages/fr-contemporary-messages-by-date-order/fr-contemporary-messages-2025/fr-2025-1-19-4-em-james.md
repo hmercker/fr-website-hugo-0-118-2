@@ -1,7 +1,7 @@
 ---
 title: "Sachez qu'il y a beaucoup plus à venir avec vos prières, votre service, votre développement de l'amour"
 menu_title: ""
-description: "Sachez qu'il y a beaucoup plus à venir avec vos prières, votre service, votre développement de l'amour"
+description: "Jacques, reçu par Elizabeth Mack : « Bénédictions d’en haut, vrais enfants de Dieu, bénédictions pour chacune de vos âmes de la part du Père. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

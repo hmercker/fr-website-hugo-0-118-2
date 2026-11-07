@@ -1,7 +1,7 @@
 ---
 title: "60/40 Défi de l’esprit d’âme"
 menu_title: ""
-description: "60/40 Défi de l’esprit d’âme"
+description: "Augustin, reçu par Al Fike : « Bien que ce ne soit pas nécessairement ce qu’elle avait prévu, beaucoup de choses ont été accomplies. »"
 date: 2022-06-01 06:00:01+00:392
 draft: False
 hidden: True

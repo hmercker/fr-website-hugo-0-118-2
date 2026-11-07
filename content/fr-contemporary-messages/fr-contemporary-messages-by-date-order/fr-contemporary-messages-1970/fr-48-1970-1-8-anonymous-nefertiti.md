@@ -1,7 +1,7 @@
 ---
 title: "Il y a beaucoup d'Égyptiens qui ont atteint les sphères Célestes"
 menu_title: ""
-description: "Il y a beaucoup d'Égyptiens qui ont atteint les sphères Célestes"
+description: "Néfertiti : « Comme il est intéressant pour moi d'être parmi vous. J'aime être parmi ce groupe et c'est une expérience agréable pour moi de revenir sur … »"
 date: 2022-06-01 06:00:01+00:116
 draft: False
 hidden: True

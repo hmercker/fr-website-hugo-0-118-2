@@ -1,7 +1,7 @@
 ---
 title: "19ème Révélation : Rapport nécessaire pour la guérison spirituelle"
 menu_title: ""
-description: "19ème Révélation : Rapport nécessaire pour la guérison spirituelle"
+description: "Jésus, reçu par Dr Samuels : « La guérison peut être le résultat d’un rapport entre la personne malade et l’esprit guérisseur ; car, lorsque le rapport a … »"
 date: 2022-06-01 06:00:01+00:19
 draft: False
 hidden: True

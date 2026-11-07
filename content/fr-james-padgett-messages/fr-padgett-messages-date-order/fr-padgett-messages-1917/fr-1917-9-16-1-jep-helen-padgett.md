@@ -1,7 +1,7 @@
 ---
 title: "Hélène confirme que Jésus a écrit sur la nécessité d’être en condition pour faire ce travail"
 menu_title: ""
-description: "Hélène confirme que Jésus a écrit sur la nécessité d’être en condition pour faire ce travail"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, le Maître t’a écrit un message important et je sais qu’il t’aidera dans ta conception de ce … »"
 date: 2022-06-01 06:00:01+00:175
 draft: False
 hidden: True

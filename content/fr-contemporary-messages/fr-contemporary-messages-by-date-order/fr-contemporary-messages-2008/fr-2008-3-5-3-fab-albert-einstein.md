@@ -1,7 +1,7 @@
 ---
 title: "Lumière et obscurité"
 menu_title: ""
-description: "Lumière et obscurité"
+description: "Albert Einstein, reçu par FAB : « Depuis le début, l'humanité se rapproche de plus en plus de son objectif d'harmonie. Je sais que les événements semblent … »"
 date: 2022-06-01 06:00:01+00:31
 draft: False
 hidden: True

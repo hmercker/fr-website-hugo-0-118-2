@@ -1,7 +1,7 @@
 ---
 title: "Samuel Mills un collègue juriste, regrette de ne pas avoir été plus religieux lors de sa vie sur terre mais maintenant il apprend les lois spirituelles en accord avec lesquelles il convient de vivre"
 menu_title: ""
-description: "Samuel Mills un collègue juriste, regrette de ne pas avoir été plus religieux lors de sa vie sur terre mais maintenant il apprend les lois spirituelles en accord avec lesquelles il convient de vivre"
+description: "Samuel Mills, reçu par James Padgett : « J’attends depuis un certain temps d’avoir l’occasion de vous écrire, comme j’ai si souvent attendu et vu d’autres … »"
 date: 2022-06-01 06:00:01+00:84
 draft: False
 hidden: True

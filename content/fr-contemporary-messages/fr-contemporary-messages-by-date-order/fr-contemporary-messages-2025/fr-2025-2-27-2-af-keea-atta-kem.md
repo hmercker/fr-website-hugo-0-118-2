@@ -1,7 +1,7 @@
 ---
 title: "Continuez à transmettre les messages de l'Amour de Dieu au monde"
 menu_title: ""
-description: "Continuez à transmettre les messages de l'Amour de Dieu au monde"
+description: "Keea atta Kem, reçu par Albert Fike : « Dans la foulée de notre Maître bien-aimé, dans la foulée de l’amour, nous accomplissons notre œuvre. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

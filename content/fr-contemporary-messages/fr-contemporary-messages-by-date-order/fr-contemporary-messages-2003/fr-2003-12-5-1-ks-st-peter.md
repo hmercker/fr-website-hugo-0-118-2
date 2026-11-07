@@ -1,7 +1,7 @@
 ---
 title: "Des millions d’âmes, des millions de chemins"
 menu_title: ""
-description: "Des millions d’âmes, des millions de chemins"
+description: "St Pierre, reçu par Kathryn Stokes : « Prière du médium : Cher Père Céleste, je T’aime. Je veux connaître la vérité. »"
 date: 2022-06-01 06:00:01+00:80
 draft: False
 hidden: True

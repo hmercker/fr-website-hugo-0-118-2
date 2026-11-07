@@ -1,7 +1,7 @@
 ---
 title: "Quand les saints entrent en scène"
 menu_title: ""
-description: "Quand les saints entrent en scène"
+description: "Goldie, reçu par Al Fike : « Oh, quand les saints entrent en marchant et qu'ils franchissent cette porte, remplissant la pièce, marchant dans le cercle de … »"
 date: 2022-06-01 06:00:01+00:79
 draft: False
 hidden: True

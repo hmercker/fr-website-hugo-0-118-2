@@ -1,7 +1,7 @@
 ---
 title: "Jimmy Stewart fait le bilan de sa vie"
 menu_title: ""
-description: "Jimmy Stewart fait le bilan de sa vie"
+description: "Jimmy Stewart, reçu par FAB : « Vous venez de terminer la lecture de ma vie [« Jimmy Stewart, A Biography », par Marc Eliot], et vous avez découvert … »"
 date: 2022-06-01 06:00:01+00:99
 draft: False
 hidden: True

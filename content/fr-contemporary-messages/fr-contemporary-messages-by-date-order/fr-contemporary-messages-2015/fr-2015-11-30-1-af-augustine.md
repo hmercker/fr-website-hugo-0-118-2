@@ -1,7 +1,7 @@
 ---
 title: "Commencez à connaître votre but"
 menu_title: ""
-description: "Commencez à connaître votre but"
+description: "Augustin, reçu par Al Fike : « Car chacun a des dons et des capacités uniques et un but profond, et vous jouez un rôle dans le plan pour le salut de … »"
 date: 2022-06-01 06:00:01+00:146
 draft: False
 hidden: True

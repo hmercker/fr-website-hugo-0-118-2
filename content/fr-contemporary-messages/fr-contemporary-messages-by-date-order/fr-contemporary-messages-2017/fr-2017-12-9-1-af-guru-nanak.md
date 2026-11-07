@@ -1,7 +1,7 @@
 ---
 title: "Guru Nanak, le fondateur de la religion Sikh"
 menu_title: ""
-description: "Guru Nanak, le fondateur de la religion Sikh"
+description: "Guru Nanak, reçu par Al Fike : « Mon fils, le Seigneur brille sur toi dans tes efforts. Tu continues à servir Dieu. »"
 date: 2022-06-01 06:00:01+00:262
 draft: False
 hidden: True

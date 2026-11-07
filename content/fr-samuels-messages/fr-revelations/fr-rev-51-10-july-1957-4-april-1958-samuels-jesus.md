@@ -1,7 +1,7 @@
 ---
 title: "51ème Révélation : Pourquoi nous sommes appelés nouveaux Chrétiens de la Nouvelle Naissance"
 menu_title: ""
-description: "51ème Révélation : Pourquoi nous sommes appelés nouveaux Chrétiens de la Nouvelle Naissance"
+description: "Jésus, reçu par Dr Samuels : « Stone pour être présent à notre rencontre et être capable de faire des commentaires et observations à la lumière de ce qui … »"
 date: 2022-06-01 06:00:01+00:51
 draft: False
 hidden: True

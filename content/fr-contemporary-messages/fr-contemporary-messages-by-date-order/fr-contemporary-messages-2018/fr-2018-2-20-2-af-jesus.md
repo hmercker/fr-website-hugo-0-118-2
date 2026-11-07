@@ -1,7 +1,7 @@
 ---
 title: "L'amour est la clé de l'épanouissement, de la joie et de la paix"
 menu_title: ""
-description: "L'amour est la clé de l'épanouissement, de la joie et de la paix"
+description: "Jésus, reçu par Al Fike : « Reposez-vous dans cette grande paix de la présence du Créateur. Chacun de vous est une Lumière. »"
 date: 2022-06-01 06:00:01+00:323
 draft: False
 hidden: True

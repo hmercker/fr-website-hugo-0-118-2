@@ -1,7 +1,7 @@
 ---
 title: "Recherchez ce don d'Amour Divin pour vous-mêmes"
 menu_title: ""
-description: "Recherchez ce don d'Amour Divin pour vous-mêmes"
+description: "Augustin : « J'espère que vous ne vous êtes pas opposés à ce que je demande que les lumières soient tamisées, cela nous facilite la tâche. »"
 date: 2022-06-01 06:00:01+00:17
 draft: False
 hidden: True

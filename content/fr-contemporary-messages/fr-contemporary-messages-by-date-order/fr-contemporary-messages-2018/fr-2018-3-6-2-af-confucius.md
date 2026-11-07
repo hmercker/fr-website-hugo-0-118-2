@@ -1,7 +1,7 @@
 ---
 title: "L'amour équilibre l'esprit matériel et l'esprit de l'âme"
 menu_title: ""
-description: "L'amour équilibre l'esprit matériel et l'esprit de l'âme"
+description: "Confucius, reçu par Al Fike : « Comme les anges sont heureux que vous souhaitiez être avec eux dans la prière, pour continuer à soutenir cette condition … »"
 date: 2022-06-01 06:00:01+00:344
 draft: False
 hidden: True

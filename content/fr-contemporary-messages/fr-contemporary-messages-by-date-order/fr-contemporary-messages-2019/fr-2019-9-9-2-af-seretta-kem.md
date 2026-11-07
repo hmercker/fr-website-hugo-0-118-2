@@ -1,7 +1,7 @@
 ---
 title: "Priez pour les portails de lumière et pour que d'autres soient établis"
 menu_title: ""
-description: "Priez pour les portails de lumière et pour que d'autres soient établis"
+description: "Seretta Kem, reçu par Al Fike : « Je souhaite vous encourager à continuer à prier pour ces Portails de Lumière qui ont été établis dans le monde et à … »"
 date: 2022-06-01 06:00:01+00:846
 draft: False
 hidden: True

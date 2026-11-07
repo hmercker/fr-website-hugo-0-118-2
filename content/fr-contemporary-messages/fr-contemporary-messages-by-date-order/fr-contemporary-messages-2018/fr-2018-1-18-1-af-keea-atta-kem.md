@@ -1,7 +1,7 @@
 ---
 title: "Le monde a besoin de vos prières de guérison"
 menu_title: ""
-description: "Le monde a besoin de vos prières de guérison"
+description: "Keea Atta Kem, reçu par Al Fike : « Cette lumière vient avec le désir et la prière sincères d’être ensemble dans cette pièce, avec un désir profond dans … »"
 date: 2022-06-01 06:00:01+00:303
 draft: False
 hidden: True

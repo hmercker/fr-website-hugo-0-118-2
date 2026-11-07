@@ -1,7 +1,7 @@
 ---
 title: "Communion spirituelle et communauté"
 menu_title: ""
-description: "Communion spirituelle et communauté"
+description: "Luc, reçu par Jimbeau Walsh : « Car vous êtes une communauté et une communion d’âmes, recherchant le plus haut. À mesure que vous grandissez, vous … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Il n'y a pas de différences entre nous"
 menu_title: ""
-description: "Il n'y a pas de différences entre nous"
+description: "Salomon, reçu par Al Fike : « Moi aussi je vous soutiens dans votre travail et je souhaite m'adresser au peuple d'Israël. »"
 date: 2022-06-01 06:00:01+00:215
 draft: False
 hidden: True

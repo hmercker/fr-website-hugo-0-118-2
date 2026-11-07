@@ -1,7 +1,7 @@
 ---
 title: "Une question sur la 7ème Sphère"
 menu_title: ""
-description: "Une question sur la 7ème Sphère"
+description: "Seretta Kem, reçu par Al Fike : « Je tiens à te remercier, ma fille, d'avoir conseillé à cet instrument le repos. Car bien qu'il puisse voir et discerner … »"
 date: 2022-06-01 06:00:01+00:201
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Amitié et voyage similaire avec Grace Jordan"
 menu_title: ""
-description: "Amitié et voyage similaire avec Grace Jordan"
+description: "Barbara Davies, reçu par Al Fike : « En effet, je connais votre mère, Grace, et nous avons prié ensemble et communiqué de nombreuses façons et sur de … »"
 date: 2023-09-01 06:00:01+00:72
 draft: False
 hidden: True

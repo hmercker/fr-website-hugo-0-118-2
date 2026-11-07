@@ -1,7 +1,7 @@
 ---
 title: "Diagnostic pour Al"
 menu_title: ""
-description: "Diagnostic pour Al"
+description: "Seretta Kem, reçu par Al Fike : « Je voudrais donner quelques conseils à cet instrument concernant les problèmes qu’il rencontre avec sa vision. »"
 date: 2022-06-01 06:00:01+00:50
 draft: False
 hidden: True

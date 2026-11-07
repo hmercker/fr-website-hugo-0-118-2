@@ -1,7 +1,7 @@
 ---
 title: "L'Amour avant tout"
 menu_title: ""
-description: "L'Amour avant tout"
+description: "Orion, reçu par Albert Fike : « Bénédictions à vous, âmes bien-aimées. Vous vivez le luxe de ce temps sur votre plan terrestre, où les conditions … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

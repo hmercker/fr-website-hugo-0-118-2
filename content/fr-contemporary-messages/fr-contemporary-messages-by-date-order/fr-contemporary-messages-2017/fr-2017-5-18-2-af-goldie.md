@@ -1,7 +1,7 @@
 ---
 title: "L’enthousiasme et les encouragements de Goldie"
 menu_title: ""
-description: "L’enthousiasme et les encouragements de Goldie"
+description: "Goldie, reçu par Al Fike : « Goldie arrive en riant, apportant une grande joie ! Oh, mes amis, j’ai hâte de pouvoir chanter et danser avec vous en voix … »"
 date: 2022-06-01 06:00:01+00:30
 draft: False
 hidden: True

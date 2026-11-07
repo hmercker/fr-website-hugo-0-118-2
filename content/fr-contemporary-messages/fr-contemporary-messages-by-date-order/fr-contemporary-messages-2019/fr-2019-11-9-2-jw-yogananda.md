@@ -1,7 +1,7 @@
 ---
 title: "L'Amour Divin transforme votre âme de l'image de Dieu à la substance de Dieu"
 menu_title: ""
-description: "L'Amour Divin transforme votre âme de l'image de Dieu à la substance de Dieu"
+description: "Yogananda, reçu par Jimbeau Walsh : « C’est un plaisir d’être en cette compagnie, dans ce Portail de la Lumière. Tant d’âmes diverses et pourtant, nous … »"
 date: 2022-06-01 06:00:01+00:901
 draft: False
 hidden: True

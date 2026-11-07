@@ -1,7 +1,7 @@
 ---
 title: "Nous encourage à prier pour combattre les forces des ténèbres"
 menu_title: ""
-description: "Nous encourage à prier pour combattre les forces des ténèbres"
+description: "Flavius Josèphe, reçu par Al Fike : « Il est important que vous attiriez la lumière de Dieu sur votre plan terrestre et que vous cherchiez à élever un … »"
 date: 2023-09-01 06:00:01+00:22
 draft: False
 hidden: True

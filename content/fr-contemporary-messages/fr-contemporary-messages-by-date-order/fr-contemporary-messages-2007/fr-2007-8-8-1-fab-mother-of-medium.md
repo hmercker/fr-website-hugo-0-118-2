@@ -1,7 +1,7 @@
 ---
 title: "Dieu est juste"
 menu_title: ""
-description: "Dieu est juste"
+description: "Mère du médium, reçu par FAB : « Laisse-moi commenter ce que tu veux savoir. Tu sais que je n'étais absolument pas intéressée par la politique. »"
 date: 2022-06-01 06:00:01+00:139
 draft: False
 hidden: True

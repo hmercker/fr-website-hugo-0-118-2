@@ -1,7 +1,7 @@
 ---
 title: "Tout repose sur l'âme"
 menu_title: ""
-description: "Tout repose sur l'âme"
+description: "St Matthieu, reçu par Al Fike : « Nous nous avançons une fois de plus, plaçant notre foi en Dieu, recherchant notre moi le plus élevé et nos inclinaisons … »"
 date: 2022-06-01 06:00:01+00:494
 draft: False
 hidden: True

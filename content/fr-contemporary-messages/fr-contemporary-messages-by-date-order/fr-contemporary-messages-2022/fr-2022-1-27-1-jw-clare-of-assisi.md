@@ -1,7 +1,7 @@
 ---
 title: "L’Amour de Dieu met une chanson dans votre âme"
 menu_title: ""
-description: "L’Amour de Dieu met une chanson dans votre âme"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « J’étais avec vous lorsque vous lisiez le récit du concert musical dans le monde des esprits, dans le grand … »"
 date: 2022-06-01 06:00:01+00:20
 draft: False
 hidden: True

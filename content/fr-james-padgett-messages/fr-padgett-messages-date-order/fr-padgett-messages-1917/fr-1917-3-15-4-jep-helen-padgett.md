@@ -1,7 +1,7 @@
 ---
 title: "Hélène écrit que la séance à laquelle M. Padgett et Dr Stone ont pris part fut au détriment de leur propre progression spirituelle et Mary dit qu’elle n’aurait pas permis à aucun de ces esprits de s’approcher de son âme sœur"
 menu_title: ""
-description: "Hélène écrit que la séance à laquelle M. Padgett et Dr Stone ont pris part fut au détriment de leur propre progression spirituelle et Mary dit qu’elle n’aurait pas permis à aucun de ces esprits de s’approcher de son âme sœur"
+description: "Hélène Padgett, reçu par James Padgett : « Mon cher, j’étais avec toi, bien sûr, à la séance, et ce qui t’a été dit est vrai, et je n’ai pas besoin de … »"
 date: 2022-06-01 06:00:01+00:87
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Prières pour la transformation de nos âmes et du monde"
 menu_title: ""
-description: "Prières pour la transformation de nos âmes et du monde"
+description: "André, reçu par Al Fike : « Le monde sera élevé dans l'amour. C'est la destinée de votre monde car Dieu a un plan pour éveiller toute l'humanité et pour … »"
 date: 2022-06-01 06:00:01+00:27
 draft: False
 hidden: True

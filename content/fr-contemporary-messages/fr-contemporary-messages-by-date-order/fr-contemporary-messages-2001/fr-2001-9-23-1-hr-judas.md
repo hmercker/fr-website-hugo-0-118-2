@@ -1,7 +1,7 @@
 ---
 title: "La Quatrième Sphère"
 menu_title: ""
-description: "La Quatrième Sphère"
+description: "Judas, reçu par H : « Mais ce n’est pas notre sujet d’aujourd’hui. Je sais que tu as une longue liste de questions, et nous allons les traiter une par une. »"
 date: 2022-06-01 06:00:01+00:48
 draft: False
 hidden: True

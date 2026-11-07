@@ -1,7 +1,7 @@
 ---
 title: "Je suis avec vous dans vos efforts"
 menu_title: ""
-description: "Je suis avec vous dans vos efforts"
+description: "Mylora, reçu par Al Fike : « Il y a beaucoup d’anges qui travaillent en votre nom et selon la Volonté de Dieu, pour apporter la guérison et l’harmonie à … »"
 date: 2022-06-01 06:00:01+00:1265
 draft: False
 hidden: True

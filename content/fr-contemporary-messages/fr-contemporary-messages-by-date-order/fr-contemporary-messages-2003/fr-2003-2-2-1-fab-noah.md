@@ -1,7 +1,7 @@
 ---
 title: "Noé et le déluge"
 menu_title: ""
-description: "Noé et le déluge"
+description: "Noé, reçu par FAB : « J’ai réellement existé et j’ai vécu, comme chacun sait, il y a très longtemps. À mon époque, nous comprenions plus de choses que … »"
 date: 2022-06-01 06:00:01+00:20
 draft: False
 hidden: True

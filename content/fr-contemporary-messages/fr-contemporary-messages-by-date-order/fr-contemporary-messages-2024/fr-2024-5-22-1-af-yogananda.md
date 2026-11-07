@@ -1,7 +1,7 @@
 ---
 title: "Une leçon sur la Vérité"
 menu_title: ""
-description: "Une leçon sur la Vérité"
+description: "Yogananda, reçu par Albert Fike : « Beaucoup en Occident prennent la philosophie orientale très au sérieux, croyant que telle est la voie de la vérité … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

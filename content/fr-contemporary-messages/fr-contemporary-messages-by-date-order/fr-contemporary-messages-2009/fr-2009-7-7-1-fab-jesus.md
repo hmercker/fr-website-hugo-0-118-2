@@ -1,7 +1,7 @@
 ---
 title: "L'avènement de la paix et de l'harmonie - 2"
 menu_title: ""
-description: "L'avènement de la paix et de l'harmonie - 2"
+description: "Jésus, reçu par FAB : « Dans ma canalisation du 24 janvier 2009, L'avènement de la paix et de l'harmonie, j'ai dit que « l'élection de Barack Obama à la … »"
 date: 2022-06-01 06:00:01+00:55
 draft: False
 hidden: True

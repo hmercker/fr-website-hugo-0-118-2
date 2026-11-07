@@ -1,7 +1,7 @@
 ---
 title: "Les conditions énergétiques de la Terre vous affectent tous"
 menu_title: ""
-description: "Les conditions énergétiques de la Terre vous affectent tous"
+description: "St Luc, reçu par Al Fike : « Le monde a été créé par Dieu. Les intentions de Dieu ont créé des impulsions et des expressions, ont peuplé la Terre d’une … »"
 date: 2022-06-01 06:00:01+00:913
 draft: False
 hidden: True

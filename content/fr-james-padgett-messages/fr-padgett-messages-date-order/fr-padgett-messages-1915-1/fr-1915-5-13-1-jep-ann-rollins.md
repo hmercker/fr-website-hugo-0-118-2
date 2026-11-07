@@ -1,7 +1,7 @@
 ---
 title: "L’expérience d’Anne Rollins dans sa recherche de l’Amour Divin de Dieu"
 menu_title: ""
-description: "L’expérience d’Anne Rollins dans sa recherche de l’Amour Divin de Dieu"
+description: "Anne Rollins, reçu par James Padgett : « Je vis dans ma maison dont je t’ai parlée il y a quelques nuits, et c’est une très belle maison au-delà de toute … »"
 date: 2022-06-01 06:00:01+00:83
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Jésus est souvent avec M. Padgett et il prie avec lui afin de l’aider dans son développement d’âme et lui permettre de recevoir ses messages"
 menu_title: ""
-description: "Jésus est souvent avec M. Padgett et il prie avec lui afin de l’aider dans son développement d’âme et lui permettre de recevoir ses messages"
+description: "Jésus, reçu par James Padgett : « J’étais avec vous ce soir et j’ai entendu ce que le prédicateur a dit et certaines parties de son discours ont exprimé … »"
 date: 2022-06-01 06:00:01+00:30
 draft: False
 hidden: True

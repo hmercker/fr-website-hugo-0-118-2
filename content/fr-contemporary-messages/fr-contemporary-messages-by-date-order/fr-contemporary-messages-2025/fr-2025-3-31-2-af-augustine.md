@@ -1,7 +1,7 @@
 ---
 title: "DLSF est une organisation belle et simple"
 menu_title: ""
-description: "DLSF est une organisation belle et simple"
+description: "Augustin, reçu par Albert Fike : « Vous avez tous été choisis pour jouer votre rôle, apporter vos dons et être un canal d’amour envers le centre qu’est … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

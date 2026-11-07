@@ -1,7 +1,7 @@
 ---
 title: "La bonté de la vie quotidienne"
 menu_title: ""
-description: "La bonté de la vie quotidienne"
+description: "St Jean, reçu par Amada Reza : « Beaucoup de gens se demandent ce qu’est la vérité lorsqu’ils se sentent en décalage avec ce qu’ils voient se passer … »"
 date: 2022-06-01 06:00:01+00:74
 draft: False
 hidden: True

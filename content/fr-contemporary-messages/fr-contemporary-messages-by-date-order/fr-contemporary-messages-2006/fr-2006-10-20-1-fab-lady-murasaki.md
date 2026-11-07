@@ -1,7 +1,7 @@
 ---
 title: "Une ancienne et célèbre Romancière Japonaise a fait l'expérience de la Nouvelle Naissance"
 menu_title: ""
-description: "Une ancienne et célèbre Romancière Japonaise a fait l'expérience de la Nouvelle Naissance"
+description: "Lady Murasaki, reçu par FAB : « Vous pouvez penser que beaucoup de choses nous séparent - les nombreux siècles, et ma patrie asiatique. »"
 date: 2022-06-01 06:00:01+00:54
 draft: False
 hidden: True

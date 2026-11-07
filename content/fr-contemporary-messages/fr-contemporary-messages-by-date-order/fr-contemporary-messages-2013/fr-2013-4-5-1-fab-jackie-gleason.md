@@ -1,7 +1,7 @@
 ---
 title: "Clarification de Jackie Gleason"
 menu_title: ""
-description: "Clarification de Jackie Gleason"
+description: "Jackie Gleason, reçu par FAB : « J’ai dit dans ma canalisation du 15 Mars 2013 que je n’ai jamais eu de problème avec l’humilité. »"
 date: 2022-06-01 06:00:01+00:50
 draft: False
 hidden: True

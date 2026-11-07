@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes prêt à aller de l'avant"
 menu_title: ""
-description: "Vous êtes prêt à aller de l'avant"
+description: "Seretta Kem, reçu par Al Fike : « Il y a un changement à venir dans vos cercles, un changement profond, car des dons sont en train d’être développés qui … »"
 date: 2022-06-01 06:00:01+00:466
 draft: False
 hidden: True

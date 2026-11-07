@@ -1,7 +1,7 @@
 ---
 title: "La compensation des Pères fondateurs"
 menu_title: ""
-description: "La compensation des Pères fondateurs"
+description: "Benjamin Franklin, reçu par FAB : « Vous vous interrogez sur vos diverses canalisations de nous, les pères fondateurs. Eh bien, nous avons parlé … »"
 date: 2022-06-01 06:00:01+00:90
 draft: False
 hidden: True

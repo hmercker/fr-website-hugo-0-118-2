@@ -1,7 +1,7 @@
 ---
 title: "Les pouvoirs d'Aaron"
 menu_title: ""
-description: "Les pouvoirs d'Aaron"
+description: "Aaron, reçu par FAB : « Dans mon message canalisé par M. Padgett, j'ai dit : « Dans mon combat avec les magiciens du pharaon égyptien, j'ai reçu l'aide du … »"
 date: 2022-06-01 06:00:01+00:158
 draft: False
 hidden: True

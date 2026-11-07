@@ -1,7 +1,7 @@
 ---
 title: "Hélène Padgett explique à M. Padgett au sujet de son nouvel et beau vêtement témoin de son avancement spirituel"
 menu_title: ""
-description: "Hélène Padgett explique à M. Padgett au sujet de son nouvel et beau vêtement témoin de son avancement spirituel"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon vêtement est une belle robe blanche et fluide qui a toute la splendeur du soleil qui brille sur le … »"
 date: 2022-06-01 06:00:01+00:97
 draft: False
 hidden: True

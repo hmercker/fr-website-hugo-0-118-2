@@ -1,7 +1,7 @@
 ---
 title: "Hélène est avec moi lorsqu’Harry vient en visite au bureau"
 menu_title: ""
-description: "Hélène est avec moi lorsqu’Harry vient en visite au bureau"
+description: "Hélène Padgett, reçu par James Padgett : « J’avais l’intention d’écrire ma lettre ce soir, mais tu es trop somnolant et je n’essaierai donc pas. »"
 date: 2022-06-01 06:00:01+00:170
 draft: False
 hidden: True

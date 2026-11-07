@@ -1,7 +1,7 @@
 ---
 title: "Le monde est bon"
 menu_title: ""
-description: "Le monde est bon"
+description: "Mani, reçu par FAB : « Je sais que vous n'avez aucune idée de ce que je veux dire. Souvent, nous, les esprits, vous avons « coaché » en vous donnant des … »"
 date: 2022-06-01 06:00:01+00:12
 draft: False
 hidden: True

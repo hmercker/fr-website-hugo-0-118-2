@@ -1,7 +1,7 @@
 ---
 title: "Alignez votre corps, votre esprit et votre âme Permettre à votre âme de conduire votre véhicule"
 menu_title: ""
-description: "Alignez votre corps, votre esprit et votre âme Permettre à votre âme de conduire votre véhicule"
+description: "St Matthieu, reçu par Maureen Cardoso : « Lorsque vous voyez la lumière d’une autre personne et ce qui émane autour d’elle, c’est l’essence de son âme qui … »"
 date: 2022-06-01 06:00:01+00:936
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Vous devez vous lever et dire la vérité"
 menu_title: ""
-description: "Vous devez vous lever et dire la vérité"
+description: "Nuage Blanc, reçu par Al Fike : « Vous m'avez attiré dans votre cercle avec vos chansons et vos histoires de ceux qui ont fait l'expérience des vérités … »"
 date: 2022-06-01 06:00:01+00:737
 draft: False
 hidden: True

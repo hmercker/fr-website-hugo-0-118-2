@@ -1,7 +1,7 @@
 ---
 title: "Il est temps d’apporter la Vérité à l’humanité"
 menu_title: ""
-description: "Il est temps d’apporter la Vérité à l’humanité"
+description: "John Wesley, reçu par Al Fike : « Certains d’entre vous me connaissent bien, car vous avez adhéré à l’église et aux disciples que j’ai créés il n’y a pas … »"
 date: 2022-06-01 06:00:01+00:1607
 draft: False
 hidden: True

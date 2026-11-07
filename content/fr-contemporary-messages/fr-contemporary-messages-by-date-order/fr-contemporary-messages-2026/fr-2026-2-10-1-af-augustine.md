@@ -1,7 +1,7 @@
 ---
 title: "Foi et Âme 3 : Efforcez-vous de connaître et d'avoir foi en votre âme"
 menu_title: ""
-description: "Foi et Âme 3 : Efforcez-vous de connaître et d'avoir foi en votre âme"
+description: "Augustin, reçu par Al Fike : « Votre maître, Augustin, est parmi vous pour poursuivre nos réflexions et vous guider concernant l'avenir et ce qui vous est … »"
 date: 2026-04-21 16:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Laisse Dieu prendre le contrôle"
 menu_title: ""
-description: "Laisse Dieu prendre le contrôle"
+description: "St Pierre, reçu par Kathryn Stokes : « Nous sommes venus pour être avec toi en ce moment et pour te protéger des pensées négatives et des distractions. »"
 date: 2022-06-01 06:00:01+00:64
 draft: False
 hidden: True

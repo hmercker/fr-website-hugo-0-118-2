@@ -1,7 +1,7 @@
 ---
 title: "Nietzsche est malheureux"
 menu_title: ""
-description: "Nietzsche est malheureux"
+description: "Nietzsche, reçu par FAB : « J’ai observé depuis le début votre profond désaccord avec l’essence de ma pensée, mais vous avez montré une volonté d’être … »"
 date: 2022-06-01 06:00:01+00:18
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Engagez votre âme"
 menu_title: ""
-description: "Engagez votre âme"
+description: "Anne Rollins, reçu par Jimbeau Walsh : « Quelle merveille que de communier avec notre Père Céleste, alors que la présence de Son Amour imprègne ce lieu et … »"
 date: 2026-06-24 16:00:01+00:01
 draft: False
 hidden: True

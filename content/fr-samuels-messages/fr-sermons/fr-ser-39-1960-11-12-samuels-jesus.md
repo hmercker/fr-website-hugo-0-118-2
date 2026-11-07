@@ -1,7 +1,7 @@
 ---
 title: "39ème Sermon – Le droit de toutes les nations à être sauvées"
 menu_title: ""
-description: "39ème Sermon – Le droit de toutes les nations à être sauvées"
+description: "Jésus, reçu par Dr Samuels : « Non seulement Sophonie a prédit l’exil pour Juda, mais également la colère de Dieu qui s’est abattue sur les autres nations … »"
 date: 2022-06-01 06:00:01+00:92
 draft: False
 hidden: True

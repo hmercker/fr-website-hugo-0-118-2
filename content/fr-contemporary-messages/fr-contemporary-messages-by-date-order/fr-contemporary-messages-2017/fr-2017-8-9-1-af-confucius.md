@@ -1,7 +1,7 @@
 ---
 title: "Dans l'amour de Dieu se trouvent toutes les réponses"
 menu_title: ""
-description: "Dans l'amour de Dieu se trouvent toutes les réponses"
+description: "Confucius, reçu par Al Fike : « Oui en effet, parfois vous occupez vos anges, vous protégeant et vous assistant dans vos vies, mais ma fille je vous … »"
 date: 2022-06-01 06:00:01+00:81
 draft: False
 hidden: True

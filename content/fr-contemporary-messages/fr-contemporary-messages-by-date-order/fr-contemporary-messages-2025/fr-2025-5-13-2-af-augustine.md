@@ -1,7 +1,7 @@
 ---
 title: "Remplacer le jugement par la compassion"
 menu_title: ""
-description: "Remplacer le jugement par la compassion"
+description: "Augustin, reçu par Albert Fike : « La condition humaine est très complexe. Elle est présente en chaque individu et se manifeste de manière unique. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

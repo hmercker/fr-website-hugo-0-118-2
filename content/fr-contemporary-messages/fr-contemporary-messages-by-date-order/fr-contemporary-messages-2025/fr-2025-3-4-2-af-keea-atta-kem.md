@@ -1,7 +1,7 @@
 ---
 title: "Se préparer à vivre l'amour"
 menu_title: ""
-description: "Se préparer à vivre l'amour"
+description: "Keea Atta Kem, reçu par Albert Fike : « Le chemin vers Dieu est si simple. En effet, chacun de vous, malgré les difficultés, a constaté que lorsque vos … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Les expériences d’Anne Rollins dans la Seconde Sphère Céleste"
 menu_title: ""
-description: "Les expériences d’Anne Rollins dans la Seconde Sphère Céleste"
+description: "Anne Rollins, reçu par James Padgett : « Je veux partager avec toi, ce soir, mon expérience dans ma nouvelle maison, parmi les esprits rachetés qui sont … »"
 date: 2022-06-01 06:00:01+00:124
 draft: False
 hidden: True

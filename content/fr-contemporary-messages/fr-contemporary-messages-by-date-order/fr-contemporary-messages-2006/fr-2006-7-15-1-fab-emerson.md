@@ -1,7 +1,7 @@
 ---
 title: "Emerson ne croit toujours pas à l’Amour Divin"
 menu_title: ""
-description: "Emerson ne croit toujours pas à l’Amour Divin"
+description: "Emerson, reçu par FAB : « Comme j’ai écrit par l’intermédiaire de M. Padgett, j’écris donc par votre intermédiaire – tout amour est divin, puisque l’amour … »"
 date: 2022-06-01 06:00:01+00:29
 draft: False
 hidden: True

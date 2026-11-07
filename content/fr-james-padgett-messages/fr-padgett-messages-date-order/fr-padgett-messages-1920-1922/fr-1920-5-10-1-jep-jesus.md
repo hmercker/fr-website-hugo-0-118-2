@@ -1,7 +1,7 @@
 ---
 title: "Différence entre l’Esprit de Dieu et l’Esprit Saint"
 menu_title: ""
-description: "Différence entre l’Esprit de Dieu et l’Esprit Saint"
+description: "Jésus, reçu par James Padgett : « Permettez-moi d’écrire, pendant un court instant, sur un sujet qui est intéressant pour vous et pour ceux qui pourront … »"
 date: 2022-06-01 06:00:01+00:61
 draft: False
 hidden: True

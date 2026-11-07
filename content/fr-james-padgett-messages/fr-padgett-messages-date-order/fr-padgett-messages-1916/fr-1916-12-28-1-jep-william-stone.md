@@ -1,7 +1,7 @@
 ---
 title: "A écrit sur l’expérience de son fils lors de son premier voyage dans le monde des esprits où il a rencontré sa famille"
 menu_title: ""
-description: "A écrit sur l’expérience de son fils lors de son premier voyage dans le monde des esprits où il a rencontré sa famille"
+description: "William Stone, reçu par James Padgett : « Je souhaite écrire quelques lignes à mon fils car je vois qu’il est dans un état qui rend toute communication de … »"
 date: 2022-06-01 06:00:01+00:26
 draft: False
 hidden: True

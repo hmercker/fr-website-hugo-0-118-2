@@ -1,7 +1,7 @@
 ---
 title: "Un membre du Sanhédrin et juge au procès de Jésus expose les raisons qui ont conduit, à l’époque, à la condamnation du Maître"
 menu_title: ""
-description: "Un membre du Sanhédrin et juge au procès de Jésus expose les raisons qui ont conduit, à l’époque, à la condamnation du Maître"
+description: "Elohiam, reçu par James Padgett : « J’ai aussi été parmi ceux ceux qui ont voté pour la peine de mort à son égard et, ce faisant, j’ai été également … »"
 date: 2022-06-01 06:00:01+00:31
 draft: False
 hidden: True

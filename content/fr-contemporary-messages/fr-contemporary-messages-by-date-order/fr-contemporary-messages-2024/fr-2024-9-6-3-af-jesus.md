@@ -1,7 +1,7 @@
 ---
 title: "Ouverture et bénédiction de la retraite de Lansing"
 menu_title: ""
-description: "Ouverture et bénédiction de la retraite de Lansing"
+description: "Jésus, reçu par Al Fike : « Mes frères et sœurs, sachez que vous cheminez vers les plus hautes et les plus profondes bénédictions. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

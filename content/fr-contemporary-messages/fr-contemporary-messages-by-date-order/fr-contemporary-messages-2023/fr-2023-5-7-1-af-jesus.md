@@ -1,7 +1,7 @@
 ---
 title: "Votre capacité à aimer se renforce"
 menu_title: ""
-description: "Votre capacité à aimer se renforce"
+description: "Jésus, reçu par Al Fike : « Que les grandes bénédictions de Dieu tombent sur vous, âmes bien-aimées. Ainsi, vous avez appris à connaître cette … »"
 date: 2023-09-01 06:00:01+00:18
 draft: False
 hidden: True

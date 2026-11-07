@@ -1,7 +1,7 @@
 ---
 title: "Q&R : La notion de mental intérieur n'est pas exacte"
 menu_title: ""
-description: "Q&R : La notion de mental intérieur n'est pas exacte"
+description: "Flavius Josèphe, reçu par Al Fike : « J’attends donc votre réponse. C’est une question complexe, mon cher fils, et une question à laquelle on peut … »"
 date: 2022-06-01 06:00:01+00:768
 draft: False
 hidden: True

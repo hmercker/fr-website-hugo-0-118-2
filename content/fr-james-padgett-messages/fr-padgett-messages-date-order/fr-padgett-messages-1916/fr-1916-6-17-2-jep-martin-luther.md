@@ -1,7 +1,7 @@
 ---
 title: "Un court message de Martin Luther"
 menu_title: ""
-description: "Un court message de Martin Luther"
+description: "Martin Luther, reçu par James Padgett : « Je vois que vous êtes trop fatigué, ce soir, pour écrire et je ne vous demanderai pas de le faire, mais si vous … »"
 date: 2022-06-01 06:00:01+00:247
 draft: False
 hidden: True

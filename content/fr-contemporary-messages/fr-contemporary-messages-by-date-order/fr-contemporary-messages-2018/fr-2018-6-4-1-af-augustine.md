@@ -1,7 +1,7 @@
 ---
 title: "L'âme à la tête de l'esprit"
 menu_title: ""
-description: "L'âme à la tête de l'esprit"
+description: "Augustin, reçu par Al Fike : « Le monde est un endroit très compliqué et stratifié, rempli de nombreuses pensées, sentiments, idées, intentions, désirs … »"
 date: 2022-06-01 06:00:01+00:403
 draft: False
 hidden: True

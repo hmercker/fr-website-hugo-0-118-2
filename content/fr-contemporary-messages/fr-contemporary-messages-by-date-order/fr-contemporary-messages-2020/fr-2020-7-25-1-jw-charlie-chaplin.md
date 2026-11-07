@@ -1,7 +1,7 @@
 ---
 title: "Soyez un cadeau pour le monde"
 menu_title: ""
-description: "Soyez un cadeau pour le monde"
+description: "Charlie Chaplin, reçu par Jimbeau Walsh : « Vous me connaissez sous le nom de Charlie, Charlie Chaplin. J’ai pensé à mon propre parcours, à mes propres … »"
 date: 2022-06-01 06:00:01+00:1197
 draft: False
 hidden: True

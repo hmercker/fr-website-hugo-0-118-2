@@ -1,7 +1,7 @@
 ---
 title: "Reposez-vous dans l'Étreinte de l'Amour et de la Bénédiction Divins"
 menu_title: ""
-description: "Reposez-vous dans l'Étreinte de l'Amour et de la Bénédiction Divins"
+description: "Marie, reçu par Al Fike : « Que vous marchiez dans la Lumière de la Main du Père sur chacun de vous, Sa bénédiction guérissant et transformant chacun de vous. »"
 date: 2026-05-28 16:00:01+00:01
 draft: False
 hidden: True

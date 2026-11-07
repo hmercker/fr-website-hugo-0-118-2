@@ -1,7 +1,7 @@
 ---
 title: "Message personnel. l’Esprit Saint pas Dieu. Jésus continue à faire le travail du Père"
 menu_title: ""
-description: "Message personnel. l’Esprit Saint pas Dieu. Jésus continue à faire le travail du Père"
+description: "Jésus, reçu par James Padgett : « Je dirai cependant qu'il n'est pas Dieu ni aucune partie de Lui. C’est simplement un de Ses instruments qu’il utilise … »"
 date: 2022-06-01 06:00:01+00:69
 draft: False
 hidden: True

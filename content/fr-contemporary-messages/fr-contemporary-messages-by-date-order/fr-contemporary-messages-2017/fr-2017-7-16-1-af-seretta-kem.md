@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes des joyaux hors de prix"
 menu_title: ""
-description: "Vous êtes des joyaux hors de prix"
+description: "Seretta Kem, reçu par Al Fike : « C’est bien, âmes bien-aimées, c’est bien. Nous voyons déjà une différence en chacun de vous. »"
 date: 2022-06-01 06:00:01+00:64
 draft: False
 hidden: True

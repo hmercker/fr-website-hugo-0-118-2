@@ -1,7 +1,7 @@
 ---
 title: "Ressentir de la joie"
 menu_title: ""
-description: "Ressentir de la joie"
+description: "Goldie, reçu par Al Fike : « Je viendrai vous chatouiller derrière les oreilles et sous le menton et je vous murmurerai des mots doux à l’oreille pour que … »"
 date: 2022-06-01 06:00:01+00:1038
 draft: False
 hidden: True

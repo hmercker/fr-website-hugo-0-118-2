@@ -1,7 +1,7 @@
 ---
 title: "Un jour, le treillis de lumière encerclera le monde entier"
 menu_title: ""
-description: "Un jour, le treillis de lumière encerclera le monde entier"
+description: "Michaël Collier, reçu par Al Fike : « Je souhaite vous dire à quel point il est important de souder cette communauté dans l’amour. »"
 date: 2022-06-01 06:00:01+00:938
 draft: False
 hidden: True

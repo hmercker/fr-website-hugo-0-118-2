@@ -1,7 +1,7 @@
 ---
 title: "Renforcez ce lien entre vous"
 menu_title: ""
-description: "Renforcez ce lien entre vous"
+description: "Samuel : « Notre amour est tellement fort et tellement plus élevé que l'amour que vous connaissez, que vous ne pouvez pas comprendre la grandeur de notre … »"
 date: 2022-06-01 06:00:01+00:14
 draft: False
 hidden: True

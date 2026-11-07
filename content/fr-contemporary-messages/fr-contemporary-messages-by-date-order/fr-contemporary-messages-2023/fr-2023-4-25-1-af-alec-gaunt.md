@@ -1,7 +1,7 @@
 ---
 title: "Invite le groupe des douze à se réunir à nouveau"
 menu_title: ""
-description: "Invite le groupe des douze à se réunir à nouveau"
+description: "Alec Gaunt, reçu par Al Fike : « Je souhaite encourager chacun d’entre vous dans vos efforts pour travailler ensemble et rechercher ce don insaisissable … »"
 date: 2023-09-01 06:00:01+00:09
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Écoutez les incitations que vous recevez"
 menu_title: ""
-description: "Écoutez les incitations que vous recevez"
+description: "Marc, reçu par Al Fike : « Ils s’efforceront de vous aider à comprendre les mots qui ont été prononcés, les idées qui vous ont été présentées, et à … »"
 date: 2022-06-01 06:00:01+00:840
 draft: False
 hidden: True

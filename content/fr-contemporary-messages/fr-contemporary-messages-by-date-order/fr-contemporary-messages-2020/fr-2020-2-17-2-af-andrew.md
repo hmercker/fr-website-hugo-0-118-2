@@ -1,7 +1,7 @@
 ---
 title: "Tout l’univers est gouverné par l’Amour"
 menu_title: ""
-description: "Tout l’univers est gouverné par l’Amour"
+description: "André, reçu par Al Fike : « L’essence de Dieu est l’amour. Tout dans l’univers est gouverné par l’Amour. »"
 date: 2022-06-01 06:00:01+00:1000
 draft: False
 hidden: True

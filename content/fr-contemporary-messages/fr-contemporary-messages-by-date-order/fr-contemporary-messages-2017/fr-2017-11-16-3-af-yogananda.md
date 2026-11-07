@@ -1,7 +1,7 @@
 ---
 title: "Vous construisez votre lumière"
 menu_title: ""
-description: "Vous construisez votre lumière"
+description: "Yogananda, reçu par Al Fike : « Vous êtes en train de construire votre lumière, mes amis, de construire une grande lumière en vous et tout autour de vous. »"
 date: 2022-06-01 06:00:01+00:208
 draft: False
 hidden: True

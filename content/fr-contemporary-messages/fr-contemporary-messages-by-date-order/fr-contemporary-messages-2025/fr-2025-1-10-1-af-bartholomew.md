@@ -1,7 +1,7 @@
 ---
 title: "Barthélémy continue de nous aider à trouver notre objectif"
 menu_title: ""
-description: "Barthélémy continue de nous aider à trouver notre objectif"
+description: "Barthélémy, reçu par Albert Fike : « Je continue à travailler avec diligence pour vous aider à parvenir à un endroit où vous êtes fort et clair, rempli … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

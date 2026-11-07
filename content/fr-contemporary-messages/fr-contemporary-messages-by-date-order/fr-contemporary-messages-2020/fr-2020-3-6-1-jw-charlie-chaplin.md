@@ -1,7 +1,7 @@
 ---
 title: "Le sujet du service"
 menu_title: ""
-description: "Le sujet du service"
+description: "Charlie Chaplin, reçu par Jimbeau Walsh : « Nous étions tous en train d'écouter le sujet du service et moi aussi j'avais envisagé cela dans ma vie. »"
 date: 2022-06-01 06:00:01+00:1014
 draft: False
 hidden: True

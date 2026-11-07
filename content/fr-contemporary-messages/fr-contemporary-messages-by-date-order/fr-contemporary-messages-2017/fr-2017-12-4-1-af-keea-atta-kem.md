@@ -1,7 +1,7 @@
 ---
 title: "Un esprit qui suit la grâce de l'âme"
 menu_title: ""
-description: "Un esprit qui suit la grâce de l'âme"
+description: "Keea Atta Kem, reçu par Al Fike : « Oui vous êtes en effet entré dans une nouvelle phase dans le développement de vos dons. Au cours de la période … »"
 date: 2022-06-01 06:00:01+00:254
 draft: False
 hidden: True

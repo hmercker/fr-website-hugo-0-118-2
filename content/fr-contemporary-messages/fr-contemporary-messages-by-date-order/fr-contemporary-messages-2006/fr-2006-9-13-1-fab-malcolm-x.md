@@ -1,7 +1,7 @@
 ---
 title: "Malcolm X aime toute l’humanité"
 menu_title: ""
-description: "Malcolm X aime toute l’humanité"
+description: "Malcolm X, reçu par FAB : « Dans un sens, je travaille toujours avec passion pour les causes qui me sont chères, mais il n’y a pas de violence ou de … »"
 date: 2022-06-01 06:00:01+00:42
 draft: False
 hidden: True

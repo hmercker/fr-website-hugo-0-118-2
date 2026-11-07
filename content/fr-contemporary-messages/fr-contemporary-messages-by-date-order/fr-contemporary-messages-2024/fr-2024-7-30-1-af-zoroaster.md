@@ -1,7 +1,7 @@
 ---
 title: "Le fondateur de la religion zoroastrienne affirme le chemin de l'Amour Divin vers l'expiation avec Dieu"
 menu_title: ""
-description: "Le fondateur de la religion zoroastrienne affirme le chemin de l'Amour Divin vers l'expiation avec Dieu "
+description: "Zoroastre, reçu par Albert Fike : « Je veux vous assurer que vous êtes sur la bonne voie. Que vous trouverez une grande lumière et un grand épanouissement … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

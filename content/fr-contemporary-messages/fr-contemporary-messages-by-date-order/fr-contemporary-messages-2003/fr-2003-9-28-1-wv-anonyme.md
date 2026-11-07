@@ -1,7 +1,7 @@
 ---
 title: "Pour renoncer à tout"
 menu_title: ""
-description: "Pour renoncer à tout"
+description: "Anonyme, reçu par WV : « Lorsque tu as considéré l’explication de la personne que tu as rencontrée sur Internet – Maus – sur sa façon d’interpréter … »"
 date: 2022-06-01 06:00:01+00:68
 draft: False
 hidden: True

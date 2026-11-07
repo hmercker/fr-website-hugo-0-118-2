@@ -1,7 +1,7 @@
 ---
 title: "Pourquoi Jésus n’apparaît-il pas aux gens aujourd’hui, comme il l’a fait à ses disciples il y a 2 000 ans ?"
 menu_title: ""
-description: "Pourquoi Jésus n’apparaît-il pas aux gens aujourd’hui, comme il l’a fait à ses disciples il y a 2 000 ans ?"
+description: "Jésus, reçu par Kathryn Stokes : « Je peux très bien imaginer qu’une apparition provoquerait le chaos dans certains endroits, le rejet total comme une … »"
 date: 2022-06-01 06:00:01+00:03
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Créer un sanctuaire"
 menu_title: ""
-description: "Créer un sanctuaire"
+description: "François d'Assise, reçu par Jimbeau Walsh : « Je veux parler de la création d’un sanctuaire et, plus particulièrement, d’un sanctuaire spirituel. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

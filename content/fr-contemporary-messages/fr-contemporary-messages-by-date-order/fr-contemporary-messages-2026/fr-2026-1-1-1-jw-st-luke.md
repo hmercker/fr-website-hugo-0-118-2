@@ -1,7 +1,7 @@
 ---
 title: "Le baume guérisseur de l'Amour de Dieu"
 menu_title: ""
-description: "Le baume guérisseur de l'Amour de Dieu"
+description: "Luke, reçu par Jimbeau Walsh : « Que l’Amour de Dieu soit un baume guérisseur pour tous ceux qui ont besoin de guérison, pour tous ceux qui se sentent … »"
 date: 2026-01-21 06:00:01+00:01
 draft: False
 hidden: True

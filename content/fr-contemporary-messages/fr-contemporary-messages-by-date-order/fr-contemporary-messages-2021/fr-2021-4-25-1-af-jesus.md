@@ -1,7 +1,7 @@
 ---
 title: "Concentrez-vous sur votre conscience"
 menu_title: ""
-description: "Concentrez-vous sur votre conscience"
+description: "Jésus, reçu par Al Fike : « Comme Dieu a ouvert de nombreuses portes pour que nous puissions être ensemble aujourd’hui dans cette communion de prière, ce … »"
 date: 2022-06-01 06:00:01+00:1481
 draft: False
 hidden: True

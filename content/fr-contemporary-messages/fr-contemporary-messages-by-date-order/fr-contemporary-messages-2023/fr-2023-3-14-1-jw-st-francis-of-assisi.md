@@ -1,7 +1,7 @@
 ---
 title: "Des paroles sans actes"
 menu_title: ""
-description: "Des paroles sans actes"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Dans un monde si occupé à acquérir des choses matérielles, dans un monde si dépourvu de la connexion à … »"
 date: 2023-09-01 06:00:01+00:95
 draft: False
 hidden: True

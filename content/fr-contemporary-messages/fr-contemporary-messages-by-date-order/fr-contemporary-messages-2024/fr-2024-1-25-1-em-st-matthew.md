@@ -1,7 +1,7 @@
 ---
 title: "La nature de l'Angélisme Céleste"
 menu_title: ""
-description: "La nature de l'Angélisme Céleste"
+description: "St Matthieu, reçu par Elizabeth Mack : « Que l'étendue de Dieu soit sur vos âmes. Nous sommes toujours prêts à servir Dieu de cette manière. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

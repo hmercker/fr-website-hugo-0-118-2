@@ -1,7 +1,7 @@
 ---
 title: "Orientations sur les préparations pour la Voix Directe"
 menu_title: ""
-description: "Orientations sur les préparations pour la Voix Directe"
+description: "Seretta Kem, reçu par Al Fike : « Nous vous avons réunis ce soir alors que vous continuez à vous donner ce rendez-vous ensemble pour recevoir la guidance … »"
 date: 2022-06-01 06:00:01+00:129
 draft: False
 hidden: True

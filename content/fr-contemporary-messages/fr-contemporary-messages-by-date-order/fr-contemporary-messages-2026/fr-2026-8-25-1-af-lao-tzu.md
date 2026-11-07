@@ -1,7 +1,7 @@
 ---
 title: "Une leçon sur la sagesse de l’âme"
 menu_title: ""
-description: "Une leçon sur la sagesse de l’âme"
+description: "Lao-Tseu, reçu par Albert Fike : « Les enseignements si répandus dans votre monde traitent du mental, de l'esprit et du corps, mais on parle si peu de l'âme. »"
 date: 2026-10-12 06:00:01+00:01
 draft: False
 hidden: True

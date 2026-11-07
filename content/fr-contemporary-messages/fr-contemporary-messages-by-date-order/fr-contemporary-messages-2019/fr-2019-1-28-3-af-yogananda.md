@@ -1,7 +1,7 @@
 ---
 title: "L’Amour Divin est disponible pour que vous le demandiez"
 menu_title: ""
-description: "L’Amour Divin est disponible pour que vous le demandiez"
+description: "Yogananda, reçu par Al Fike : « En effet, mon professeur est venu vous rendre visite, mon cher fils. C’était un grand homme et c’est toujours un bel … »"
 date: 2022-06-01 06:00:01+00:624
 draft: False
 hidden: True

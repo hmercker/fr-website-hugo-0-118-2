@@ -1,7 +1,7 @@
 ---
 title: "Clarification de la façon dont notre esprit interprète mal les directives"
 menu_title: ""
-description: "Clarification de la façon dont notre esprit interprète mal les directives"
+description: "Augustin, reçu par Al Fike : « C'est votre enseignant Augustin. Vous avez posé des questions concernant votre guidance. »"
 date: 2022-06-01 06:00:01+00:728
 draft: False
 hidden: True

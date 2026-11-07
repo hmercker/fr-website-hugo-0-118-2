@@ -1,7 +1,7 @@
 ---
 title: "Vos choix attirent à vous des esprits qui vivent et vibrent au même niveau"
 menu_title: ""
-description: "Vos choix attirent à vous des esprits qui vivent et vibrent au même niveau"
+description: "Judas, reçu par reçu par Jimbeau Walsh : « J’ai déjà parlé de la nécessité d’être conscient de ce que l’on émet et de ce que l’on reçoit. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

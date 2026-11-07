@@ -1,7 +1,7 @@
 ---
 title: "Soyez un phare et une source de Lumière"
 menu_title: ""
-description: "Soyez un phare et une source de Lumière"
+description: "St François d'Assise, reçu par Al Fike : « J’ai quitté une vie remplie de toutes les richesses matérielles et de réconfort pour faire cela, pour communier … »"
 date: 2022-06-01 06:00:01+00:138
 draft: False
 hidden: True

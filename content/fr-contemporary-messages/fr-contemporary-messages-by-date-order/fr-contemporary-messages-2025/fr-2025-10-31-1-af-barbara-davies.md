@@ -1,7 +1,7 @@
 ---
 title: "Le Chemin des Ténèbres à la Lumière"
 menu_title: ""
-description: "Le Chemin des Ténèbres à la Lumière"
+description: "Barbara Davies, reçu par Albert Fike : « Vous continuez de prier et d’aspirer à ce don, car vous savez au plus profond de votre être, au plus profond de … »"
 date: 2025-12-21 16:00:01+00:01
 draft: False
 hidden: True

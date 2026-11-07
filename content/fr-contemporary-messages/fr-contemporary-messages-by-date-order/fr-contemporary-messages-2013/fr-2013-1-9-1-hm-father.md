@@ -1,7 +1,7 @@
 ---
 title: "Le réseau d'Amour"
 menu_title: ""
-description: "Le réseau d'Amour"
+description: "Le Père Céleste, reçu par Helge Mercker : « Mon enfant, Je veux te parler. Tu es encouragée à tendre la main et à construire ton filet, oui le filet de … »"
 date: 2022-06-01 06:00:01+00:10
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Vous pouvez changer le monde"
 menu_title: ""
-description: "Vous pouvez changer le monde"
+description: "Mahatma Gandhi, reçu par Al Fike : « Il y a une grande porte qui est sur le point de s’ouvrir, mon amie, pour vous dans le service. »"
 date: 2022-06-01 06:00:01+00:32
 draft: False
 hidden: True

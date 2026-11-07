@@ -1,7 +1,7 @@
 ---
 title: "Faites le grand saut et nous vous attendrons de l'autre côté"
 menu_title: ""
-description: "Faites le grand saut et nous vous attendrons de l'autre côté"
+description: "Orion, reçu par Albert Fike : « Une force grandit en vous, une solidité qui appartient véritablement à l'âme. L'âme recherche la croissance, le … »"
 date: 2026-09-30 06:00:01+00:01
 draft: False
 hidden: True

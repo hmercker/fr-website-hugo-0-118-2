@@ -1,7 +1,7 @@
 ---
 title: "Les miracles et les pensées"
 menu_title: ""
-description: "Les miracles et les pensées"
+description: "Judas, reçu par H : « As-tu vraiment trouvé mon dernier message très choquant ? C’est vrai, mon ami, ils sont mes amis, même plus que des amis. »"
 date: 2022-06-01 06:00:01+00:82
 draft: False
 hidden: True

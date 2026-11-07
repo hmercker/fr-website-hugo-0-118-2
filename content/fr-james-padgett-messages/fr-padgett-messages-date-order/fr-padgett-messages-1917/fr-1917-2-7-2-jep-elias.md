@@ -1,7 +1,7 @@
 ---
 title: "Élie n’était pas Jean le Baptiste, Jean n’était pas non plus la réincarnation d’Élie"
 menu_title: ""
-description: "Élie n’était pas Jean le Baptiste, Jean n’était pas non plus la réincarnation d’Élie"
+description: "Élie, reçu par James Padgett : « Je veux aussi vous encourager à croire que vous avez un travail important à faire et que vous ne devez pas hésiter ou … »"
 date: 2022-06-01 06:00:01+00:47
 draft: False
 hidden: True

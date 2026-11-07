@@ -1,7 +1,7 @@
 ---
 title: "La rigueur de la douleur qui accompagne le libre arbitre"
 menu_title: ""
-description: "La rigueur de la douleur qui accompagne le libre arbitre"
+description: "Augustin, reçu par Al Fike : « Le libre arbitre est une force formidable dans votre monde. Il a déterminé le cours de l’histoire humaine depuis le … »"
 date: 2023-09-01 06:00:01+00:75
 draft: False
 hidden: True

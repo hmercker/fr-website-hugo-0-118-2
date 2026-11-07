@@ -1,7 +1,7 @@
 ---
 title: "Confirmation par St Thomas"
 menu_title: ""
-description: "Confirmation par St Thomas"
+description: "St Thomas, reçu par James Padgett : « Que votre esprit soit ouvert à la conviction que moi et tous les autres disciples de Jésus avons et pouvons vous … »"
 date: 2022-06-01 06:00:01+00:142
 draft: False
 hidden: True

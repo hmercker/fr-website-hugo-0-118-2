@@ -1,7 +1,7 @@
 ---
 title: "L'Amour Divin est la clé de la communication interstellaire et permet d'éviter les distorsions et les distractions"
 menu_title: ""
-description: "L'Amour Divin est la clé de la communication interstellaire et permet d'éviter les distorsions et les distractions"
+description: "Orion, reçu par Albert Fike : « En effet, la chose la plus importante que vous puissiez faire est de continuer à poser les fondations de l’amour dans … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

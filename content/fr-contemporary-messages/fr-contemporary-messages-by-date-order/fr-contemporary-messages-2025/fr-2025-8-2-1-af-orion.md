@@ -1,7 +1,7 @@
 ---
 title: "Êtes-vous prêts à servir ? Le temps de choisir est maintenant"
 menu_title: ""
-description: "Êtes-vous prêts à servir ? Le temps de choisir est maintenant"
+description: "Orion, reçu par Albert Fike : « Le temps d’un profond changement intérieur, de l’acceptation de ce changement et de son expression est venu pour vous, mes … »"
 date: 2025-07-15 06:00:01+00:01
 draft: False
 hidden: True

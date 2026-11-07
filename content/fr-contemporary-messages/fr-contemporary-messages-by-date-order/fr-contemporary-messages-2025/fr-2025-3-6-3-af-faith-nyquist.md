@@ -1,7 +1,7 @@
 ---
 title: "L'importance de la prière"
 menu_title: ""
-description: "L'importance de la prière"
+description: "Faith Nyquist, reçu par Albert Fike : « Cela me fait du bien de voir des amis se rassembler pour prier. Prier dans votre monde, dans vos cultures, est … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Offrez le cadeau de l'Amour de Dieu"
 menu_title: ""
-description: "Offrez le cadeau de l'Amour de Dieu"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Je souhaite commenter le guide de notre cher frère et sa merveilleuse influence sur lui, et ses paroles. »"
 date: 2022-06-01 06:00:01+00:1135
 draft: False
 hidden: True

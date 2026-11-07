@@ -1,7 +1,7 @@
 ---
 title: "La mort à l’américaine"
 menu_title: ""
-description: "La mort à l’américaine"
+description: "Allen Dulles, reçu par FAB : « Je ne peux pas exprimer de manière adéquate l’expérience d’une vie de travail qui part en fumée. »"
 date: 2022-06-01 06:00:01+00:29
 draft: False
 hidden: True

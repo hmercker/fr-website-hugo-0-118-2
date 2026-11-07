@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes ici pour orchestrer cette musique de l’âme"
 menu_title: ""
-description: "Nous sommes ici pour orchestrer cette musique de l’âme"
+description: "St Matthieu, reçu par Al Fike : « Lorsque vous atteignez le plus haut, lorsque vos prières font mouche et apportent une réponse de Dieu à votre âme, vous … »"
 date: 2022-06-01 06:00:01+00:1469
 draft: False
 hidden: True

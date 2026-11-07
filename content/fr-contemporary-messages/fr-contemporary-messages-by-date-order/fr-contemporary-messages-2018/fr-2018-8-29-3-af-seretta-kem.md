@@ -1,7 +1,7 @@
 ---
 title: "Qu'est-ce qui apporte la médiumnité de l'Amour Divin ?"
 menu_title: ""
-description: "Qu'est-ce qui apporte la médiumnité de l'Amour Divin ?"
+description: "Seretta Kem, reçu par Al Fike : « Il y a beaucoup de choses à vous communiquer concernant ce que vous appelez la médiumnité de l’Amour Divin. »"
 date: 2022-06-01 06:00:01+00:460
 draft: False
 hidden: True

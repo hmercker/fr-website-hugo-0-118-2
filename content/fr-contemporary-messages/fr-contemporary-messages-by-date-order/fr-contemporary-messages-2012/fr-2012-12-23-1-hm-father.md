@@ -1,7 +1,7 @@
 ---
 title: "L'Amour imprègne le monde"
 menu_title: ""
-description: "L'Amour imprègne le monde"
+description: "Le Père Céleste, reçu par Helge Mercker : « C’est Mon Amour, tu es un témoin de Mon Amour qui inonde le monde en ce moment. Il imprègne tout ce qui est ! »"
 date: 2022-06-01 06:00:01+00:306
 draft: False
 hidden: True

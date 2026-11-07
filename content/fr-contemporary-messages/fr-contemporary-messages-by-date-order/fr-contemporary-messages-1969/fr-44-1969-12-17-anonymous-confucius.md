@@ -1,7 +1,7 @@
 ---
 title: "Désir de parler à mon peuple"
 menu_title: ""
-description: "Désir de parler à mon peuple"
+description: "Confucius : « Je voulais vous dire quelques mots car vous m'êtes si chers et j'ai été avec vous si souvent. »"
 date: 2022-06-01 06:00:01+00:44
 draft: False
 hidden: True

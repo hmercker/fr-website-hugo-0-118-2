@@ -1,7 +1,7 @@
 ---
 title: "Attribut d'âme de la foi"
 menu_title: ""
-description: "Attribut d'âme de la foi"
+description: "Faith, reçu par Maureen Cardoso : « Quelle grande bénédiction que d’être avec vous alors que vous êtes dispersés à travers votre globe, certains en cercle … »"
 date: 2022-06-01 06:00:01+00:21
 draft: False
 hidden: True

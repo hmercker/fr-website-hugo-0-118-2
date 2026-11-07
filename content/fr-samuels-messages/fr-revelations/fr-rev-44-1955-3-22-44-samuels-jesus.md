@@ -1,7 +1,7 @@
 ---
 title: "44ème Révélation : Intuition d’Isaïe au sujet du Messie à venir"
 menu_title: ""
-description: "44ème Révélation : Intuition d’Isaïe au sujet du Messie à venir"
+description: "Jésus, reçu par Dr Samuels : « Les deux sont un et identiques, sauf qu’IL n’avait pas répandu son Amour Divin sur l’humanité jusqu’à ma venue, et il était … »"
 date: 2022-06-01 06:00:01+00:44
 draft: False
 hidden: True

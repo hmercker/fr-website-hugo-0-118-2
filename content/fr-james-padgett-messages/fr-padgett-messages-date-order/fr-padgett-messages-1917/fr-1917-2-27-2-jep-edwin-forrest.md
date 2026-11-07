@@ -1,7 +1,7 @@
 ---
 title: "Forrest écrit qu’il est sorti des ténèbres et est dans la lumière de l’Amour, qu’il a prié, ainsi que les esprits brillants en son nom et particulièrement Hélène, l’épouse de Mr Padgett"
 menu_title: ""
-description: "Forrest écrit qu’il est sorti des ténèbres et est dans la lumière de l’Amour, qu’il a prié, ainsi que les esprits brillants en son nom et particulièrement Hélène, l’épouse de Mr Padgett"
+description: "Edwin Forrest, reçu par James Padgett : « Laissez-moi te dire un mot. Mais je sais que si je n’avais pas bénéficié de l’aide de tes amis esprits et … »"
 date: 2022-06-01 06:00:01+00:67
 draft: False
 hidden: True

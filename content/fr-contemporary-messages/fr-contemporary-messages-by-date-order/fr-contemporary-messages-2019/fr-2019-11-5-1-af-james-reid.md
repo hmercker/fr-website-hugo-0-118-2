@@ -1,7 +1,7 @@
 ---
 title: "Le voyage de l'âme vers Dieu"
 menu_title: ""
-description: "Le voyage de l'âme vers Dieu"
+description: "James Reid, reçu par Al Fike : « Si heureux d’être parmi mes amis une fois de plus. Si heureux que nous connaissions tous la Grâce de Dieu, Son bel Amour … »"
 date: 2022-06-01 06:00:01+00:895
 draft: False
 hidden: True

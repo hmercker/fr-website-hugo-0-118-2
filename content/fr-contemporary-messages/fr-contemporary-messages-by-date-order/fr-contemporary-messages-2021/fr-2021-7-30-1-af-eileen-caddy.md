@@ -1,7 +1,7 @@
 ---
 title: "Nous appelle tous à servir Dieu"
 menu_title: ""
-description: "Nous appelle tous à servir Dieu"
+description: "Eileen Caddy, reçu par Al Fike : « Je continue à faire mon voyage vers l’union et la réconciliation avec Dieu. Cette figure de grand-mère que j’étais est … »"
 date: 2022-06-01 06:00:01+00:1584
 draft: False
 hidden: True

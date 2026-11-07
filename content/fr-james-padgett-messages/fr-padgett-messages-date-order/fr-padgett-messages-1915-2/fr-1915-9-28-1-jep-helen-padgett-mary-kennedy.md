@@ -1,7 +1,7 @@
 ---
 title: "Premier message, pour le Dr Leslie R. Stone, de Mary Kennedy, son âme-soeur"
 menu_title: ""
-description: "Premier message, pour le Dr Leslie R. Stone, de Mary Kennedy, son âme-soeur"
+description: "Hélène Padgett, reçu par James Padgett : « Quelle merveilleuse et heureuse nuit nous avons tous eu – toi et le Dr Stone dans la vie mortelle, et nous tous … »"
 date: 2022-06-01 06:00:01+00:279
 draft: False
 hidden: True

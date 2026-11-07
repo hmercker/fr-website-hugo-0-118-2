@@ -1,7 +1,7 @@
 ---
 title: "La bataille entre l'esprit et l'âme"
 menu_title: ""
-description: "La bataille entre l'esprit et l'âme"
+description: "Augustin, reçu par Al Fike : « La prière et l’action sont les deux faces d’une même médaille. Car sans l’expression de la prière dans votre vie et … »"
 date: 2023-09-01 06:00:01+00:18
 draft: False
 hidden: True

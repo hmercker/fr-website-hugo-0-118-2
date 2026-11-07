@@ -1,7 +1,7 @@
 ---
 title: "Élevez votre vibration pour guérir"
 menu_title: ""
-description: "Élevez votre vibration pour guérir"
+description: "Yogananda, reçu par Jimbeau Walsh : « Plus particulièrement pour les afflictions du cœur où l’âme se sent stagnante. Car lorsqu’une personne est déprimée … »"
 date: 2022-06-01 06:00:01+00:1407
 draft: False
 hidden: True

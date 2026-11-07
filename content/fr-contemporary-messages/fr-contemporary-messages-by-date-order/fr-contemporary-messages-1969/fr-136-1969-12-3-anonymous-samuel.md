@@ -1,7 +1,7 @@
 ---
 title: "Connaître les causes de la maladie"
 menu_title: ""
-description: "Connaître les causes de la maladie"
+description: "Samuel : « Le sujet du message que je souhaite vous transmettre ce soir est d'une nature quelque peu différente, mais il vous concerne, vous et ceux avec … »"
 date: 2022-06-01 06:00:01+00:40
 draft: False
 hidden: True

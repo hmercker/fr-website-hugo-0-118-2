@@ -1,7 +1,7 @@
 ---
 title: "La loi morale comme loi de compensation"
 menu_title: ""
-description: "La loi morale comme loi de compensation"
+description: "Jésus, reçu par FAB : « Il a voulu utiliser le mot « moral » pour souligner qu'il y a effectivement un équilibre moral à la vie mortelle, bien que justice … »"
 date: 2022-06-01 06:00:01+00:06
 draft: False
 hidden: True

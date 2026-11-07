@@ -1,7 +1,7 @@
 ---
 title: "Suivez le chemin le moins fréquenté, le chemin de l'Amour Divin"
 menu_title: ""
-description: "Suivez le chemin le moins fréquenté, le chemin de l'Amour Divin"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Mon cher Jimbeau est très heureux d’être autour de cette énergie, cette énergie féminine dans cette pièce. »"
 date: 2022-06-01 06:00:01+00:848
 draft: False
 hidden: True

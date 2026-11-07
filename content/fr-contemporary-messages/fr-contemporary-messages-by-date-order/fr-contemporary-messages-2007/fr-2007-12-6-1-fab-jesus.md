@@ -1,7 +1,7 @@
 ---
 title: "Canaliser les esprits sombres"
 menu_title: ""
-description: "Canaliser les esprits sombres"
+description: "Jésus, reçu par FAB : « Laisse-moi canaliser quelque chose qui vous a rendu perplexe. Vous avez occasionnellement canalisé un message clair, cohérent … »"
 date: 2022-06-01 06:00:01+00:182
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Chaque âme qui contribue au treillis de lumière fait partie de sa vitalité"
 menu_title: ""
-description: "Chaque âme qui contribue au treillis de lumière fait partie de sa vitalité"
+description: "Jacques, reçu par Al Fike : « C’est en effet le plan de Dieu d’avoir tous Ses enfants connectés dans l’amour et la lumière, que tous ceux qui sont ouverts … »"
 date: 2022-06-01 06:00:01+00:806
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Hélène mentionne le fait que M. Padgett ne fut pas satisfait par l’écriture des sages"
 menu_title: ""
-description: "Hélène mentionne le fait que M. Padgett ne fut pas satisfait par l’écriture des sages"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, tu as eu deux esprits qui t’ont écrit ce soir et qui ne font pas partie de notre groupe … »"
 date: 2022-06-01 06:00:01+00:69
 draft: False
 hidden: True

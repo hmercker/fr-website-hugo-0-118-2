@@ -1,7 +1,7 @@
 ---
 title: "Continuez à construire le treillis de lumière grâce à vos voyages"
 menu_title: ""
-description: "Continuez à construire le treillis de lumière grâce à vos voyages"
+description: "Seretta Kem, reçu par Al Fike : « Ma fille (J), tu as donné d’une manière que tu n’avais jamais faite auparavant. Tu as découvert des dons en toi-même et … »"
 date: 2022-06-01 06:00:01+00:828
 draft: False
 hidden: True

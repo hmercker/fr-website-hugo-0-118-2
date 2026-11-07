@@ -1,7 +1,7 @@
 ---
 title: "Que les vents du changement prennent les voiles de votre âme"
 menu_title: ""
-description: "Que les vents du changement prennent les voiles de votre âme"
+description: "André, reçu par Al Fike : « Vous êtes confrontés à divers événements et situations qui surviennent de façon inattendue, imprévue, mais ils surviennent … »"
 date: 2022-06-01 06:00:01+00:391
 draft: False
 hidden: True

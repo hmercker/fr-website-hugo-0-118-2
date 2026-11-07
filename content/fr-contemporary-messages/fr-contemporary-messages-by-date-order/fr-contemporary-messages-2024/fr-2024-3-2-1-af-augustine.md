@@ -1,7 +1,7 @@
 ---
 title: "Importance de partager la vérité de l’Amour de Dieu avec le monde"
 menu_title: ""
-description: "Importance de partager la vérité de l’Amour de Dieu avec le monde"
+description: "Augustin, reçu par Albert Fike : « Je souhaite vous encourager à être courageux et fort dans vos relations avec le monde. Car il est facile de résider … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

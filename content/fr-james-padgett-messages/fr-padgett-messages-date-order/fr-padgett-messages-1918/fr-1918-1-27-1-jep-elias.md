@@ -1,7 +1,7 @@
 ---
 title: "Élie encourage M. Padgett à se mettre en condition d’âme pour permettre au Maître d’écrire ses messages importants"
 menu_title: ""
-description: "Élie encourage M. Padgett à se mettre en condition d’âme pour permettre au Maître d’écrire ses messages importants"
+description: "Élie, reçu par James Padgett : « Je ne vous ai pas écrit depuis longtemps et, ce soir, je désire partager quelques mots, en référence à votre travail et à … »"
 date: 2022-06-01 06:00:01+00:10
 draft: False
 hidden: True

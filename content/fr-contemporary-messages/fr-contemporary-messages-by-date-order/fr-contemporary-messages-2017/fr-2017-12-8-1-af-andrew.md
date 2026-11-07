@@ -1,7 +1,7 @@
 ---
 title: "S'unir dans l'amour"
 menu_title: ""
-description: "S'unir dans l'amour"
+description: "André, reçu par Al Fike : « Nous allons en effet nous joindre à vous dans votre célébration demain pour rassembler les belles âmes dans l'Amour. »"
 date: 2022-06-01 06:00:01+00:259
 draft: False
 hidden: True

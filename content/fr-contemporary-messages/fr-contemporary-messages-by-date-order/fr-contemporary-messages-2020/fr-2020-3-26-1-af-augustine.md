@@ -1,7 +1,7 @@
 ---
 title: "Il est temps de répondre à l'invitation à rechercher l'harmonie par la prière"
 menu_title: ""
-description: "Il est temps de répondre à l'invitation à rechercher l'harmonie par la prière"
+description: "Augustin, reçu par Al Fike : « Alors que les vents du changement soufflent sur votre monde, ne voyez-vous pas à quel point l’humanité est inadéquate dans … »"
 date: 2022-06-01 06:00:01+00:1041
 draft: False
 hidden: True

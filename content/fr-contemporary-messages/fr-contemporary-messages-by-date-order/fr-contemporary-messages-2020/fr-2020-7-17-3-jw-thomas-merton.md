@@ -1,7 +1,7 @@
 ---
 title: "Diversité et unicité"
 menu_title: ""
-description: "Diversité et unicité"
+description: "Thomas Merton, reçu par Jimbeau Walsh : « Vous qui venez de différentes cultures, de différentes régions du monde, vous trouvez une unité dans votre désir … »"
 date: 2022-06-01 06:00:01+00:1188
 draft: False
 hidden: True

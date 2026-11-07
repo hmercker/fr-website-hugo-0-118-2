@@ -1,7 +1,7 @@
 ---
 title: "Leçon 16 : Comment les barrières de l’esprit seront brisées par un monde en transition"
 menu_title: ""
-description: "Leçon 16 : Comment les barrières de l’esprit seront brisées par un monde en transition"
+description: "Jésus, reçu par Al Fike : « Aujourd’hui, je souhaite aborder les questions du mental, comment il inhibe l’expérience consciente et la compréhension de … »"
 date: 2022-06-01 06:00:01+00:149
 draft: False
 hidden: True

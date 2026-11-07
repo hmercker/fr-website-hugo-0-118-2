@@ -1,7 +1,7 @@
 ---
 title: "Dieu saisit chaque occasion pour bénir les autres"
 menu_title: ""
-description: "Dieu saisit chaque occasion pour bénir les autres"
+description: "Keea Atta Kem, reçu par Albert Fike : « Dans les jours à venir, nous ferons largement appel à vous en tant qu'instruments, en tant que canaux de … »"
 date: 2026-10-04 06:00:01+00:01
 draft: False
 hidden: True

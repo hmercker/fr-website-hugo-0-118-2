@@ -1,7 +1,7 @@
 ---
 title: "La joie d'être aimé par Dieu"
 menu_title: ""
-description: "La joie d'être aimé par Dieu"
+description: "Goldie, reçu par Albert Fike : « Que l’Amour de Dieu pénètre vos âmes et que vous en connaissiez la joie. Je sais que bien des choses dans votre monde ne … »"
 date: 2026-10-04 06:00:01+00:01
 draft: False
 hidden: True

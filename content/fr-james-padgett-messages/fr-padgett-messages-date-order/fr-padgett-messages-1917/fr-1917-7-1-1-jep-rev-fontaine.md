@@ -1,7 +1,7 @@
 ---
 title: "Expérience d’un prêtre Orthodoxe lors de son passage dans le monde spirituel"
 menu_title: ""
-description: "Expérience d’un prêtre Orthodoxe lors de son passage dans le monde spirituel"
+description: "Rev Fontaine, reçu par James Padgett : « Permettez-moi de dire quelques mots alors que j’ai hâte d’écrire et de vous dire que j’étais avec vous, ce soir … »"
 date: 2022-06-01 06:00:01+00:158
 draft: False
 hidden: True

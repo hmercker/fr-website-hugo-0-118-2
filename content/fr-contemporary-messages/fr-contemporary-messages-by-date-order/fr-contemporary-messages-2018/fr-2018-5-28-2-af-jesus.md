@@ -1,7 +1,7 @@
 ---
 title: "Faites partie du plan pour le salut de l'humanité"
 menu_title: ""
-description: "Faites partie du plan pour le salut de l'humanité"
+description: "Jésus, reçu par Al Fike : « Vous faites partie d’un grand nombre et vous travaillerez ensemble de cette manière. Vous ne faites que commencer ce voyage … »"
 date: 2022-06-01 06:00:01+00:400
 draft: False
 hidden: True

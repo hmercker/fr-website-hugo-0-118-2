@@ -1,7 +1,7 @@
 ---
 title: "Intégration du mental matériel et du mental de l'âme  (groupe des douze)"
 menu_title: ""
-description: "Intégration du mental matériel et du mental de l'âme  (groupe des douze)"
+description: "Orion, reçu par Al Fike : « Je vous remercie de votre prière, mon fils bien-aimé. En effet, les limitations du mental sont grandes. »"
 date: 2022-06-01 06:00:01+00:42
 draft: False
 hidden: True

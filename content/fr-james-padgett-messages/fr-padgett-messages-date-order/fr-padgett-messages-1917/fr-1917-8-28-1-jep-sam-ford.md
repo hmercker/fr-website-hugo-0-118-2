@@ -1,7 +1,7 @@
 ---
 title: "Sam Ford écrit sur la progression des esprits dans la connaissance de la vérité"
 menu_title: ""
-description: "Sam Ford écrit sur la progression des esprits dans la connaissance de la vérité"
+description: "Sam Ford, reçu par James Padgett : « J’ai entendu ce qui a été dit au sujet de la protection accordée à M. Ce n’est pas que je ne veux pas qu’ils ne … »"
 date: 2022-06-01 06:00:01+00:174
 draft: False
 hidden: True

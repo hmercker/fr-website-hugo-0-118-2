@@ -1,7 +1,7 @@
 ---
 title: "Confirmation que Socrate s’est bien exprimé à travers James Padgett"
 menu_title: ""
-description: "Confirmation que Socrate s’est bien exprimé à travers James Padgett"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon chéri, tu as eu de merveilleux messages ce soir, et tu devrais avoir l’impression que tu es très … »"
 date: 2022-06-01 06:00:01+00:126
 draft: False
 hidden: True

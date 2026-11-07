@@ -1,7 +1,7 @@
 ---
 title: "Écriture automatique et impression de pensée"
 menu_title: ""
-description: "Écriture automatique et impression de pensée"
+description: "Jésus, reçu par Révérend Dave Lampron : « J'espère seulement que votre message à travers moi aujourd'hui pourra être aussi utile à l'humanité. »"
 date: 2022-06-01 06:00:01+00:27
 draft: False
 hidden: True

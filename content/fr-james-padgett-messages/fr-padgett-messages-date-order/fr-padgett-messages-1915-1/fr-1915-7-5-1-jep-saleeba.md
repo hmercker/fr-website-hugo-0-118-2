@@ -1,7 +1,7 @@
 ---
 title: "Saleeba progresse et se sera bientôt élevée au-dessus de la 3ème sphère"
 menu_title: ""
-description: "Saleeba progresse et se sera bientôt élevée au-dessus de la 3ème sphère"
+description: "Saleeba, reçu par James Padgett : « Oh, quelle merveilleuse chose est l’Amour Divin, et quand je considère les longues années que j’ai vécues en tant … »"
 date: 2022-06-01 06:00:01+00:117
 draft: False
 hidden: True

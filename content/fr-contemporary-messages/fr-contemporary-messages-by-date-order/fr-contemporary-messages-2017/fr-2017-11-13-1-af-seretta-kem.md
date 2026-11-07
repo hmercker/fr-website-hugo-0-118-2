@@ -1,7 +1,7 @@
 ---
 title: "Bienvenue pour le retour à la Chambre"
 menu_title: ""
-description: "Bienvenue pour le retour à la Chambre"
+description: "Seretta Kem, reçu par Al Fike : « Cela nécessite vos efforts pour élever votre condition toujours plus loin, toujours plus près de la Lumière. »"
 date: 2022-06-01 06:00:01+00:197
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Vous ne pouvez pas vous révolter contre les ténèbres, mais vous pouvez embrasser tout ce qui est dans la lumière"
 menu_title: ""
-description: "Vous ne pouvez pas vous révolter contre les ténèbres, mais vous pouvez embrasser tout ce qui est dans la lumière"
+description: "George Gurdjieff, reçu par Jimbeau Walsh : « Lorsque votre âme s’éveille et commence à voir l’omniprésence du sommeil et de l’obscurité sur votre planète … »"
 date: 2022-06-01 06:00:01+00:1282
 draft: False
 hidden: True

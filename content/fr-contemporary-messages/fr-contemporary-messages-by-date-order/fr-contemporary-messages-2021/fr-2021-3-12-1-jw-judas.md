@@ -1,7 +1,7 @@
 ---
 title: "Lâcher prise et laisser faire, s'en remettre à Dieu pour tout"
 menu_title: ""
-description: "Lâcher prise et laisser faire, s'en remettre à Dieu pour tout"
+description: "Judas, reçu par Jimbeau Walsh : « La plus grande étant la vérité de l’Amour de Dieu. Le mental est en mouvement et est capable de se plier, de se tordre … »"
 date: 2022-06-01 06:00:01+00:1438
 draft: False
 hidden: True

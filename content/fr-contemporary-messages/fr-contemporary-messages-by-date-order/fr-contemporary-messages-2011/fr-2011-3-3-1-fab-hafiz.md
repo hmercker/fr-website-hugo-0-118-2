@@ -1,7 +1,7 @@
 ---
 title: "Musulmans dans le Monde des Esprits"
 menu_title: ""
-description: "Musulmans dans le Monde des Esprits"
+description: "Hafiz, reçu par FAB : « Mais d’abord, laissez-moi vous dire que j’ai trouvé mon chemin vers la Nouvelle Naissance. »"
 date: 2022-06-01 06:00:01+00:190
 draft: False
 hidden: True

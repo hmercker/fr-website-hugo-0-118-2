@@ -1,7 +1,7 @@
 ---
 title: "L'espoir de Walt Disney"
 menu_title: ""
-description: "L'espoir de Walt Disney"
+description: "Walt Disney, reçu par FAB : « Lorsque vous écoutez la musique de mes films, sachez que ma gratitude envers vous pour votre appréciation de ce que j'ai … »"
 date: 2022-06-01 06:00:01+00:35
 draft: False
 hidden: True

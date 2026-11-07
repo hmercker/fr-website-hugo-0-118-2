@@ -1,7 +1,7 @@
 ---
 title: "La bénédiction de l'Épiphanie de Jésus"
 menu_title: ""
-description: "La bénédiction de l'Épiphanie de Jésus"
+description: "Jésus, reçu par Al Fike : « Je vous enveloppe tous dans ce cercle d’Amour, ceux qui sont dans des endroits lointains et ceux qui sont ici. »"
 date: 2022-06-01 06:00:01+00:296
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le sens de la Foi"
 menu_title: ""
-description: "Le sens de la Foi"
+description: "Haut Esprit Céleste, reçu par Amada Réza : « Je prie pour abandonner ma volonté à Ta volonté. Je prie pour le pardon, la miséricorde et la foi. »"
 date: 2022-06-01 06:00:01+00:23
 draft: False
 hidden: True

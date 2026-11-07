@@ -1,7 +1,7 @@
 ---
 title: "Faites en sorte que vos âmes soient dignes de recevoir, puis priez et demandez"
 menu_title: ""
-description: "Faites en sorte que vos âmes soient dignes de recevoir, puis priez et demandez"
+description: "Keea Atta Kem : « C'est une occasion merveilleuse d'être ici, mes amis, et d'ouvrir cette réunion avec le plus grand maître de tous. »"
 date: 2022-06-01 06:00:01+00:98
 draft: False
 hidden: True

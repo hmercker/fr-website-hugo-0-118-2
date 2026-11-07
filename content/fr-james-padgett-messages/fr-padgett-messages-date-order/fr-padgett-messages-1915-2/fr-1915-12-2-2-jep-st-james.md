@@ -1,7 +1,7 @@
 ---
 title: "St. Jacques fut subjugué par la grande présence de Jésus"
 menu_title: ""
-description: "St. Jacques fut subjugué par la grande présence de Jésus"
+description: "St Jacques, reçu par James Padgett : « Permettez-moi de dire un seul mot. J’étais présent et j’ai vu, une nouvelle fois, les merveilles de sa puissance et … »"
 date: 2022-06-01 06:00:01+00:71
 draft: False
 hidden: True

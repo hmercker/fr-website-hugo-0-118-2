@@ -1,7 +1,7 @@
 ---
 title: "Croyance mentale et perception de l’âme"
 menu_title: ""
-description: "Croyance mentale et perception de l’âme"
+description: "Robert Hugh Benson, reçu par Jimbeau Walsh : « Certains d’entre vous me connaissent peut-être comme monseigneur, ce qui était mon poste sur terre. »"
 date: 2022-06-01 06:00:01+00:69
 draft: False
 hidden: True

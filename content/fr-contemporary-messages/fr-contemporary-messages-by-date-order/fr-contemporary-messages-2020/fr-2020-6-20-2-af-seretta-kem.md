@@ -1,7 +1,7 @@
 ---
 title: "Qui suis-je dans le grand plan de Dieu ? "
 menu_title: ""
-description: "Qui suis-je dans le grand plan de Dieu ? "
+description: "Seretta Kem, reçu par Al Fike : « Le voyage qui vous attend sera pour chacun d’entre vous un voyage intéressant. Tout cela est un grand mystère et plein … »"
 date: 2022-06-01 06:00:01+00:1147
 draft: False
 hidden: True

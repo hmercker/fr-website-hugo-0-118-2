@@ -1,7 +1,7 @@
 ---
 title: "Mariages civils, le divorce, l’adultère, le contrôle des naissances et l’avortement"
 menu_title: ""
-description: "Mariages civils, le divorce, l’adultère, le contrôle des naissances et l’avortement"
+description: "Jésus, reçu par Dr Samuels : « Puisque le mariage est un domaine vital de la vie dont l’importance ne peut jamais être trop fortement affirmé, je tiens à … »"
 date: 2022-06-01 06:00:01+00:13
 draft: False
 hidden: True

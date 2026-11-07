@@ -1,7 +1,7 @@
 ---
 title: "Priez pour mon peuple"
 menu_title: ""
-description: "Priez pour mon peuple"
+description: "Mahatma Gandhi : « Je n'ai pas voulu parler jusqu'à ce que je puisse assez bien contrôler cet instrument afin que je puisse exprimer à travers lui … »"
 date: 2022-06-01 06:00:01+00:28
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Dr Channing : Commentaires d’un pasteur"
 menu_title: ""
-description: "Dr Channing : Commentaires d’un pasteur"
+description: "Dr Channing, reçu par James Padgett : « Permettez-moi d’écrire un court message, car je désire simplement dire que j’ai écouté ce que le Maître a écrit et … »"
 date: 2022-06-01 06:00:01+00:56
 draft: False
 hidden: True

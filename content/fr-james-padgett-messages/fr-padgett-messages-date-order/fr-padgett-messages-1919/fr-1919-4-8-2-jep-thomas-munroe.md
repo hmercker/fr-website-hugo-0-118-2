@@ -1,7 +1,7 @@
 ---
 title: "Thomas Munroe commente le sermon du prédicateur"
 menu_title: ""
-description: "Thomas Munroe commente le sermon du prédicateur"
+description: "Thomas Munroe, reçu par James Padgett : « Permettez-moi de dire un mot, car j’étais également présent à la réunion de ce soir, et j’ai écouté le … »"
 date: 2022-06-01 06:00:01+00:20
 draft: False
 hidden: True

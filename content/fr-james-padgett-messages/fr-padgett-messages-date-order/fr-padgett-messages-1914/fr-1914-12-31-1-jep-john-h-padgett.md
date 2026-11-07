@@ -1,7 +1,7 @@
 ---
 title: "Le père de M. Padgett parle du registre des âmes-sœurs"
 menu_title: ""
-description: "Le père de M. Padgett parle du registre des âmes-sœurs"
+description: "John Padgett, reçu par James Padgett : « Tu étais certainement rempli d’amour et tu dois être parfaitement heureux d’avoir eu une telle démonstration … »"
 date: 2022-06-01 06:00:01+00:57
 draft: False
 hidden: True

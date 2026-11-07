@@ -1,7 +1,7 @@
 ---
 title: "Un ami de M. Padgett écrit que lors de sa vie sur terre, il croyait en la Nouvelle Naissance, mais qu’il l’a trouvée très différente en entrant dans le monde des esprits"
 menu_title: ""
-description: "Un ami de M. Padgett écrit que lors de sa vie sur terre, il croyait en la Nouvelle Naissance, mais qu’il l’a trouvée très différente en entrant dans le monde des esprits"
+description: "William Woodward, reçu par James Padgett : « Permettez-moi de dire un mot alors que j’ai écouté votre conversation. Pour moi, c’est comme si c’est du … »"
 date: 2022-06-01 06:00:01+00:194
 draft: False
 hidden: True

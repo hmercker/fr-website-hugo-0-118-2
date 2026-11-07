@@ -1,7 +1,7 @@
 ---
 title: "Alec Gaunt décrit son rôle dans la création des Cercles de Lumière et explique le processus d'éveil à l'Amour"
 menu_title: ""
-description: "Alec Gaunt décrit son rôle dans la création des Cercles de Lumière et explique le processus d'éveil à l'Amour"
+description: "Alec Gaunt, reçu par Al Fike : « Que les bénédictions de cet Amour vous accompagnent, mes amis. Car en vous ouvrant, vous ouvrez la porte à un voyage … »"
 date: 2026-05-28 16:00:01+00:01
 draft: False
 hidden: True

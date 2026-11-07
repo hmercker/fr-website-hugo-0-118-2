@@ -1,7 +1,7 @@
 ---
 title: "Dieu regarde le cœur"
 menu_title: ""
-description: "Dieu regarde le cœur"
+description: "Cotton Mather, reçu par FAB : « Laissez-moi vous dire ce que vous voulez savoir. J’ai dû faire face au fait que mon désir intense de servir Dieu n’a pas … »"
 date: 2022-06-01 06:00:01+00:17
 draft: False
 hidden: True

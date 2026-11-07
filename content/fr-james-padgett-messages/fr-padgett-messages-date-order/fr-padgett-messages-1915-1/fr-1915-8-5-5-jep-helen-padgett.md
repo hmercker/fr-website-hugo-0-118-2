@@ -1,7 +1,7 @@
 ---
 title: "Hélène confirme le précédent message"
 menu_title: ""
-description: "Hélène confirme le précédent message"
+description: "Hélène Padgett, reçu par James Padgett : « Il semble très inspiré par ta grand-mère, et l’écoute avec beaucoup d’intérêt. Je crois qu’il verra bientôt la … »"
 date: 2022-06-01 06:00:01+00:173
 draft: False
 hidden: True

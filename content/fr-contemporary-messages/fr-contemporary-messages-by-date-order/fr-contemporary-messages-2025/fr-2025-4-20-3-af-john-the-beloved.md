@@ -1,7 +1,7 @@
 ---
 title: "Avec des larmes de joie, le travail du maître se poursuit"
 menu_title: ""
-description: "Avec des larmes de joie, le travail du maître se poursuit"
+description: "Jean le Bien Aimé, reçu par Albert Fike : « Je pleure de joie, car l’œuvre se poursuit et nombreux sont ceux qui ont faim de cette vérité. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La religion est la relation et l’harmonie de l’âme des hommes avec l’âme de Dieu. Différence dans les résultats des enseignements des différentes églises"
 menu_title: ""
-description: "La religion est la relation et l’harmonie de l’âme des hommes avec l’âme de Dieu. Différence dans les résultats des enseignements des différentes églises"
+description: "St Luc, reçu par James Padgett : « Permettez-moi écrire quelques lignes – Luc. J’étais avec vous ce soir à l’église et j’ai écouté ce que le prédicateur … »"
 date: 2022-06-01 06:00:01+00:32
 draft: False
 hidden: True

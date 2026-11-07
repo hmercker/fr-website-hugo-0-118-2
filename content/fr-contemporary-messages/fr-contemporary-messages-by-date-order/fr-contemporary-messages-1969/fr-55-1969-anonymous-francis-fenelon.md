@@ -1,7 +1,7 @@
 ---
 title: "Instruction pour les débutants"
 menu_title: ""
-description: "Instruction pour les débutants"
+description: "François Fenelo : « Notre temps est précieux et il y a beaucoup de choses que nous pouvons faire. Si vous souhaitez faire l'effort, nous sommes prêts à … »"
 date: 2022-06-01 06:00:01+00:59
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Réattribution de l'Amour Divin"
 menu_title: ""
-description: "Réattribution de l'Amour Divin"
+description: "Jésus, reçu par FAB : « Ne méritaient-elles pas l'Amour Divin, et ne l'auraient-elles pas désiré ? Eh bien, c'est une très bonne question et une question … »"
 date: 2022-06-01 06:00:01+00:113
 draft: False
 hidden: True

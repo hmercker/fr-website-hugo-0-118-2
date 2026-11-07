@@ -1,7 +1,7 @@
 ---
 title: "Le parler en langues et les animaux dans le monde spirituel"
 menu_title: ""
-description: "Le parler en langues et les animaux dans le monde spirituel"
+description: "Marie & Jean, reçu par Amada Réza : « En ce qui concerne ta question sur le parler en langues, je t’assure que cela se produit lors de la réception de … »"
 date: 2022-06-01 06:00:01+00:30
 draft: False
 hidden: True

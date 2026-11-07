@@ -1,7 +1,7 @@
 ---
 title: "Le livre d'Orion arrive bientôt"
 menu_title: ""
-description: "Le livre d'Orion arrive bientôt"
+description: "Orion, reçu par Al Fike : « Je souhaite confirmer les idées et les impressions de cet instrument quant à la façon dont nous pouvons communiquer les … »"
 date: 2022-06-01 06:00:01+00:30
 draft: False
 hidden: True

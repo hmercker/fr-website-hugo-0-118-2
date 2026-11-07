@@ -1,7 +1,7 @@
 ---
 title: "Bénédiction dans le Grand Hall de la Paix"
 menu_title: ""
-description: "Bénédiction dans le Grand Hall de la Paix"
+description: "André, reçu par Albert Fike : « Dieu murmure à votre âme, mes chers et merveilleux amis. Il vous apporte sagesse et amour. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

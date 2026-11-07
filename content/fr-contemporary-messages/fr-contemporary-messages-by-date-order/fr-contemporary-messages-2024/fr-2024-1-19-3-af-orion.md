@@ -1,7 +1,7 @@
 ---
 title: "Alignement avec Dieu"
 menu_title: ""
-description: "Alignement avec Dieu"
+description: "Orion, reçu par Albert Fike : « Que les bénédictions de l’Amour Divin continuent d’affluer dans vos âmes, mes amis. Je n’ai aucun doute sur le fait que le … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

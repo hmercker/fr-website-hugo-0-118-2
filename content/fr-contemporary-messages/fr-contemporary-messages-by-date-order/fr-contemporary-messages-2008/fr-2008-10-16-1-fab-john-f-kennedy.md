@@ -1,7 +1,7 @@
 ---
 title: "Les expériences d'un Kennedy en esprit"
 menu_title: ""
-description: "Les expériences d'un Kennedy en esprit"
+description: "John F Kennedy Jr, reçu par FAB : « Mais c'est une vie formidable, et je travaille sur ma vie spirituelle. Ce n'était pas un meurtre avec préméditation … »"
 date: 2022-06-01 06:00:01+00:122
 draft: False
 hidden: True

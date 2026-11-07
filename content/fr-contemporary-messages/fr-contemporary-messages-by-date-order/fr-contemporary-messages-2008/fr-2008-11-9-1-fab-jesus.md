@@ -1,7 +1,7 @@
 ---
 title: "Le programme économique de Jésus"
 menu_title: ""
-description: "Le programme économique de Jésus"
+description: "Jésus, reçu par FAB : « Je veux discuter ce matin de mon programme économique. Tout comme j'ai eu un programme politique, j'ai eu aussi un programme … »"
 date: 2022-06-01 06:00:01+00:127
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Marcher sur le Chemin de la Vérité"
 menu_title: ""
-description: "Marcher sur le Chemin de la Vérité"
+description: "Confucius, reçu par Al Fike : « Ne sortez-vous pas revigorés de votre rassemblement ? Et je perçois chez vous tous un engagement renouvelé à marcher sur … »"
 date: 2026-10-12 06:00:01+00:84
 draft: False
 hidden: True

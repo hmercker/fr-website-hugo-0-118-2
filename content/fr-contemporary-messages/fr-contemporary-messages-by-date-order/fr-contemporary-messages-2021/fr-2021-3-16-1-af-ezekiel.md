@@ -1,7 +1,7 @@
 ---
 title: "Dieu rassemble des lumières du monde entier"
 menu_title: ""
-description: "Dieu rassemble des lumières du monde entier"
+description: "Ézéchiel, reçu par Al Fike : « Que le grand amour de Dieu continue d’entrer dans vos âmes, mes amis. J’ai déjà parlé à travers cet instrument auparavant. »"
 date: 2022-06-01 06:00:01+00:1442
 draft: False
 hidden: True

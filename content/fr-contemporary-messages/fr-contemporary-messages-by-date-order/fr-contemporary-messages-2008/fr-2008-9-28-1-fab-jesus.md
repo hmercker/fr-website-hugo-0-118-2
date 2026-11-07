@@ -1,7 +1,7 @@
 ---
 title: "La loi de la compensation et les enfants"
 menu_title: ""
-description: "La loi de la compensation et les enfants"
+description: "Jésus, reçu par FAB : « Laisse-moi vous instruire sur la loi de compensation et les enfants. Vous pensez que les nourrissons et les enfants n'ont pas la … »"
 date: 2022-06-01 06:00:01+00:117
 draft: False
 hidden: True

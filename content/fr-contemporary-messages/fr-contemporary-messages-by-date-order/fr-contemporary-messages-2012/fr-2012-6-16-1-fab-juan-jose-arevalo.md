@@ -1,7 +1,7 @@
 ---
 title: "Une victime de l’Empire"
 menu_title: ""
-description: "Une victime de l’Empire"
+description: "Juan Jose Arevalo, reçu par FAB : « Je vois que vous avez une très haute opinion de mon livre, « Le Requin et les Sardines ». Je savais qu’il y aurait une … »"
 date: 2022-06-01 06:00:01+00:270
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La loi morale et le fait de gagner de l’argent"
 menu_title: ""
-description: "La loi morale et le fait de gagner de l’argent"
+description: "Andrew Carnegie, reçu par FAB : « De plus, lorsqu'il s'agissait de gagner de l'argent, j'étais impitoyable. J'étais très généreux avec l'argent que je … »"
 date: 2022-06-01 06:00:01+00:29
 draft: False
 hidden: True

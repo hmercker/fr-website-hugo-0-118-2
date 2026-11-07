@@ -1,7 +1,7 @@
 ---
 title: "Jésus nous appelle à être ses disciples"
 menu_title: ""
-description: "Jésus nous appelle à être ses disciples"
+description: "Jésus, reçu par Al Fike : « La grâce de Dieu soit sur vous, âmes bien-aimées. Mes prières sont que l’Amour du Père puisse continuer à remplir votre âme … »"
 date: 2022-06-01 06:00:01+00:1558
 draft: False
 hidden: True

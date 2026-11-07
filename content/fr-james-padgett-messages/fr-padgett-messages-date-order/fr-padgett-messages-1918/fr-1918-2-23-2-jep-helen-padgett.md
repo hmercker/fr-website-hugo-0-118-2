@@ -1,7 +1,7 @@
 ---
 title: "Hélène était également présente aux services du Révérend William Sunday avec beaucoup d’autres personnes, y compris son tuteur spécial, Jean, et elle est heureuse que Jésus ait pu établir de bonnes relations avec son mari"
 menu_title: ""
-description: "Hélène était également présente aux services du Révérend William Sunday avec beaucoup d’autres personnes, y compris son tuteur spécial, Jean, et elle est heureuse que Jésus ait pu établir de bonnes relations avec son mari"
+description: "Hélène Padget, reçu par James Padgett : « J’étais avec toi, ce soir et, à côté de moi, il y avait le Maître et ton tuteur particulier, Jean, et nous … »"
 date: 2022-06-01 06:00:01+00:20
 draft: False
 hidden: True

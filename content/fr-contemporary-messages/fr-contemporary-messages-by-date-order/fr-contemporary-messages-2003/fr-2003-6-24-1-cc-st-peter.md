@@ -1,7 +1,7 @@
 ---
 title: "L’amour est la clé"
 menu_title: ""
-description: "L’amour est la clé"
+description: "St Pierre, reçu par CC : « Tu n’as jamais pensé que quelqu’un comme moi viendrait . Tu es un enfant chéri et je me sens comme un père pour toi. »"
 date: 2022-06-01 06:00:01+00:52
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Marcher dans la lumière à travers les bouleversements à venir"
 menu_title: ""
-description: "Marcher dans la lumière à travers les bouleversements à venir"
+description: "Tahlia, reçu par Al Fike : « Je veux que vous sachiez que je vous aiderai dans vos efforts en Voix Directe car j'ai des dons qui aideront à soutenir les … »"
 date: 2022-06-01 06:00:01+00:130
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Voltaire a trouvé le Dieu vivant"
 menu_title: ""
-description: "Voltaire a trouvé le Dieu vivant"
+description: "Voltaire, reçu par FAB : « Les erreurs de la Bible seront révélées et reconnues. Beaucoup vont se rallier à votre façon de penser. »"
 date: 2022-06-01 06:00:01+00:39
 draft: False
 hidden: True

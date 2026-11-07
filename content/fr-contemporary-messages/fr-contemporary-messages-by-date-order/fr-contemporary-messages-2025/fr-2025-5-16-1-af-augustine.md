@@ -1,7 +1,7 @@
 ---
 title: "Vous devez demander avec ferveur et précision pour recevoir un afflux de l'Amour Divin de Dieu"
 menu_title: ""
-description: "Vous devez demander avec ferveur et précision pour recevoir un afflux de l'Amour Divin de Dieu"
+description: "Augustin, reçu par Albert Fike : « Ceux qui souhaitent une guérison et une transformation rapides dans leur monde, habitué aux réponses immédiates et à … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

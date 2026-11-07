@@ -1,7 +1,7 @@
 ---
 title: "Rappel affectueux de l'importance de nos préparatifs"
 menu_title: ""
-description: "Rappel affectueux de l'importance de nos préparatifs"
+description: "Seretta Kem, reçu par Al Fike : « Comme nous vous l’avons assuré et informé, il y a divers obstacles et défis qui seront évidents avant que vous ne vous … »"
 date: 2022-06-01 06:00:01+00:1619
 draft: False
 hidden: True

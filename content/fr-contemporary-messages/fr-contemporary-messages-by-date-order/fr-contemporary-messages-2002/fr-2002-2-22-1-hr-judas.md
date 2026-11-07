@@ -1,7 +1,7 @@
 ---
 title: "Judas rencontre le Maître"
 menu_title: ""
-description: "Judas rencontre le Maître"
+description: "Judas, reçu par H : « Le mois d’Octobre de l’année 25 avait commencé. La chaleur de l’été avait cédé la place à une agréable fraîcheur. »"
 date: 2022-06-01 06:00:01+00:28
 draft: False
 hidden: True

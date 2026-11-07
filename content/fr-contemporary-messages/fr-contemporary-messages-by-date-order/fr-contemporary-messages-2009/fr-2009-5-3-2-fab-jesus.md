@@ -1,7 +1,7 @@
 ---
 title: "Le programme politique et économique de Jésus - 2"
 menu_title: ""
-description: "Le programme politique et économique de Jésus - 2"
+description: "Jésus, reçu par FAB : « Pour comprendre mon enseignement, il est nécessaire de comprendre que j'ai enseigné que Dieu est un Dieu d'Amour. »"
 date: 2022-06-01 06:00:01+00:37
 draft: False
 hidden: True

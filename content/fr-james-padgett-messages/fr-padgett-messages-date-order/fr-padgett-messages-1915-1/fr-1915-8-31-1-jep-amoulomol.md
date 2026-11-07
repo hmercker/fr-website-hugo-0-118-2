@@ -1,7 +1,7 @@
 ---
 title: "Amoulomol, un habitant du pôle Nord alors qu’il était vert et chaud"
 menu_title: ""
-description: "Amoulomol, un habitant du pôle Nord alors qu’il était vert et chaud"
+description: "Amoulomol, reçu par James Padgett : « J’ai habité une terre qui n’existe plus et qui est complètement oubliée de l’histoire humaine. »"
 date: 2022-06-01 06:00:01+00:226
 draft: False
 hidden: True

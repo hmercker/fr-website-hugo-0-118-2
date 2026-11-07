@@ -1,7 +1,7 @@
 ---
 title: "Un message intéressant de Jésus sur les changements à venir"
 menu_title: ""
-description: "Un message intéressant de Jésus sur les changements à venir"
+description: "Jésus, reçu par Al Fike : « Prologue : Ce n’est pas souvent que je reçois un message aussi important de la part de ces anges qui parlent à travers moi le … »"
 date: 2022-06-01 06:00:01+00:1170
 draft: False
 hidden: True

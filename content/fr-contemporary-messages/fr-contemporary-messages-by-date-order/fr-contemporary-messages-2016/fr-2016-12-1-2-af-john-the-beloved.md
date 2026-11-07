@@ -1,7 +1,7 @@
 ---
 title: "S’éveiller à l’Amour Divin"
 menu_title: ""
-description: "S’éveiller à l’Amour Divin"
+description: "Jean le Bien-Aimé, reçu par Al Fike : « Dieu va lever vos fardeaux, vous libérer de votre douleur et vous amener dans la liberté et la gloire de Sa … »"
 date: 2022-06-01 06:00:01+00:280
 draft: False
 hidden: True

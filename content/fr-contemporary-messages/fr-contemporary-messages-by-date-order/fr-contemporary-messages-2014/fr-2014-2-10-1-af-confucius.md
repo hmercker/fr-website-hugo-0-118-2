@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes assis dans la Lumière et désirez que l’Amour de Dieu pénètre vos âmes"
 menu_title: ""
-description: "Vous êtes assis dans la Lumière et désirez que l’Amour de Dieu pénètre vos âmes"
+description: "Confucius, reçu par Al Fike : « Âmes bien-aimées, vous êtes assises dans la Lumière et désirez que l’Amour de Dieu pénètre vos âmes, mes enfants, et en … »"
 date: 2026-10-12 06:00:01+00:84
 draft: False
 hidden: True

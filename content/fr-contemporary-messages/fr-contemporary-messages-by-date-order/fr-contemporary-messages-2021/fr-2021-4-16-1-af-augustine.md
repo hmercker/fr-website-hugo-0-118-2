@@ -1,7 +1,7 @@
 ---
 title: "Croyance et foi"
 menu_title: ""
-description: "Croyance et foi"
+description: "Augustin, reçu par Al Fike : « C’est l’intensité et la puissance de votre foi qui vous maintiendra dans la lumière. Sans ce sentiment, cette compréhension … »"
 date: 2022-06-01 06:00:01+00:1471
 draft: False
 hidden: True

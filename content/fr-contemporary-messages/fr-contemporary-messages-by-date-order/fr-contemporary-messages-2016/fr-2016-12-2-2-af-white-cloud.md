@@ -1,7 +1,7 @@
 ---
 title: "Le monde a besoin de vos prières"
 menu_title: ""
-description: "Le monde a besoin de vos prières"
+description: "Nuage Blanc, reçu par Al Fike : « J’ai entendu vos prières pour mes frères et sœurs qui ont puissamment lutté dans ce monde et pour cette planète qui … »"
 date: 2022-06-01 06:00:01+00:282
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "65ème Sermon – Le double concept du Père selon le Second Isaïe"
 menu_title: ""
-description: "65ème Sermon – Le double concept du Père selon le Second Isaïe"
+description: "Jésus, reçu par Dr Samuels : « Le Second Isaïe a développé un double concept du Père en tant que résultat de la bonté de Cyrus envers les Hébreux. »"
 date: 2022-06-01 06:00:01+00:118
 draft: False
 hidden: True

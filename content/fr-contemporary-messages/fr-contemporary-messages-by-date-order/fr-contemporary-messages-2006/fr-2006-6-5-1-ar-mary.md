@@ -1,7 +1,7 @@
 ---
 title: "L'étoffe de l'éternité"
 menu_title: ""
-description: "L'étoffe de l'éternité"
+description: "Marie, reçu par Amada Reza : « La foi avec laquelle vous êtes né ne nécessite aucun développement de l'âme. Cette foi vous sert à développer votre … »"
 date: 2022-06-01 06:00:01+00:20
 draft: False
 hidden: True

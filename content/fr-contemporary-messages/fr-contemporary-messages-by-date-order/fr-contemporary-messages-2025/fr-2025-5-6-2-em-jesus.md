@@ -1,7 +1,7 @@
 ---
 title: "La liberté de l'Amour de Dieu"
 menu_title: ""
-description: "La liberté de l'Amour de Dieu"
+description: "Jésus, reçu par Elizabeth Mack : « Je vous bénis abondamment. Vous n’avez jamais connu une telle liberté, mais vous la connaîtrez à mesure que vous … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

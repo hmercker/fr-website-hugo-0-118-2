@@ -1,7 +1,7 @@
 ---
 title: "L'auteur de Frankenstein a trouvé l'Amour Divin"
 menu_title: ""
-description: "L'auteur de Frankenstein a trouvé l'Amour Divin"
+description: "Mary Shelley, reçu par FAB : « J'ai senti que mon livre Frankenstein allait vivre, comme il l'a fait. J'ai vu et compris que j'avais capté un message … »"
 date: 2022-06-01 06:00:01+00:89
 draft: False
 hidden: True

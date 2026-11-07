@@ -1,7 +1,7 @@
 ---
 title: "Un ami commente le livre que M. Padgett lisait sur le spiritualisme"
 menu_title: ""
-description: "Un ami commente le livre que M. Padgett lisait sur le spiritualisme"
+description: "Spencer, reçu par James Padgett : « Je veux dire un mot à votre ami qui est tellement intéressé par la découverte des vérités du monde des esprits et des … »"
 date: 2022-06-01 06:00:01+00:34
 draft: False
 hidden: True

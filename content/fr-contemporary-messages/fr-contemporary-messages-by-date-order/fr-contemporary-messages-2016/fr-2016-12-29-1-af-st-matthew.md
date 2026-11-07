@@ -1,7 +1,7 @@
 ---
 title: "Il est temps d’accepter une nouvelle façon d’être"
 menu_title: ""
-description: "Il est temps d’accepter une nouvelle façon d’être"
+description: "St Matthieu, reçu par Al Fike : « Dieu a apporté une vague d’énergie, de bénédictions pour ce monde qui apportera des changements, des changements de … »"
 date: 2022-06-01 06:00:01+00:303
 draft: False
 hidden: True

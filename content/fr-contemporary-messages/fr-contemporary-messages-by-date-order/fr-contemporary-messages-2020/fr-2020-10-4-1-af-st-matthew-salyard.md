@@ -1,7 +1,7 @@
 ---
 title: "Encouragement et engagement pour l’Université de l’âme"
 menu_title: ""
-description: "Encouragement et engagement pour l’Université de l’âme"
+description: "St Matthieu & Professeur Salyard, reçu par Al Fike : « Nous, dans le royaume Céleste, sommes heureux que vous vous soyez réunis pour chercher à faire … »"
 date: 2022-06-01 06:00:01+00:1267
 draft: False
 hidden: True

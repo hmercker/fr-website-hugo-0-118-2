@@ -1,7 +1,7 @@
 ---
 title: "L'Amour de Dieu est la clé de toutes choses"
 menu_title: ""
-description: "L'Amour de Dieu est la clé de toutes choses"
+description: "Jésus, reçu par Albert Fike : « J'espère que vous ressentirez et reconnaîtrez ma présence. Car sans votre désir d'éveiller et de transformer votre âme … »"
 date: 2025-10-15 06:00:01+00:01
 draft: False
 hidden: True

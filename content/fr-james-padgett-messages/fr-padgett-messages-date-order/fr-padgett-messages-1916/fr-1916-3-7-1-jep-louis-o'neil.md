@@ -1,7 +1,7 @@
 ---
 title: "Le juge O’Neil, un ami personnel de M. Padgett, parle de ses expériences dans le monde spirituel et décrit son travail pour l’avancement du royaume"
 menu_title: ""
-description: "Le juge O’Neil, un ami personnel de M. Padgett, parle de ses expériences dans le monde spirituel et décrit son travail pour l’avancement du royaume"
+description: "Louis O'Neil, reçu par James Padgett : « Je veux simplement dire un mot car je n’ai pas eu l’occasion de vous écrire depuis longtemps. »"
 date: 2022-06-01 06:00:01+00:165
 draft: False
 hidden: True

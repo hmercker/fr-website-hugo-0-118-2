@@ -1,7 +1,7 @@
 ---
 title: "Soyez en paix "
 menu_title: ""
-description: "Soyez en paix"
+description: "Serreta Kem, reçu par Albert Fike : « Le décor est planté, âmes bien-aimées. Chacun de vous connaît son rôle à jouer et les détails ont été donnés et pris … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

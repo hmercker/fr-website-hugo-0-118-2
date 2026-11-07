@@ -1,7 +1,7 @@
 ---
 title: "Le pouvoir de l'Amour Divin élève toutes les situations"
 menu_title: ""
-description: "Le pouvoir de l'Amour Divin élève toutes les situations"
+description: "St Matthieu, reçu par Albert Fike : « Les marées du changement sont sur vous, n’est-ce pas ? Pour certains, cela est tout à fait évident. »"
 date: 2023-09-01 06:00:01+00:64
 draft: False
 hidden: True

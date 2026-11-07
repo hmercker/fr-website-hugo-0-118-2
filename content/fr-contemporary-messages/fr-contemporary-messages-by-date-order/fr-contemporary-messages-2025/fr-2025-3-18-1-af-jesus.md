@@ -1,7 +1,7 @@
 ---
 title: "Est-ce aujourd'hui le jour ?"
 menu_title: ""
-description: "Est-ce aujourd'hui le jour ?"
+description: "Jésus, reçu par Albert Fike : « Est-ce le jour où le Saint-Esprit vous touchera à un point tel que vous vous sentirez frappés et transformés par sa … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

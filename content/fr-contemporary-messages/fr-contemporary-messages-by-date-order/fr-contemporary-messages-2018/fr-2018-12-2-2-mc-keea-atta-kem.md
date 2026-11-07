@@ -1,7 +1,7 @@
 ---
 title: "Le don d’un mental discipliné"
 menu_title: ""
-description: "Le don d’un mental discipliné"
+description: "Keea Atta Kem, reçu par Maureen Cardoso : « C’est votre enseignante Keea Atta Kem. Bienvenue dans ce cercle que vous formez de toutes les parties du monde. »"
 date: 2022-07-10 06:25:48+00:80
 draft: False
 hidden: True

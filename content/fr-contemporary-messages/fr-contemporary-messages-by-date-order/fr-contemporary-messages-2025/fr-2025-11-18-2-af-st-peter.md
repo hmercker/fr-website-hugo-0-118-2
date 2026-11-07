@@ -1,7 +1,7 @@
 ---
 title: "Fidélité à la Vérité : Servir Dieu avec force et ténacité"
 menu_title: ""
-description: "Fidélité à la Vérité : Servir Dieu avec force et ténacité"
+description: "Pierre, reçu par Albert Fike : « Que les bénédictions de l’amour du Père vous accompagnent, mes amis. J’ai en effet manifesté l’amour et la loyauté, ainsi … »"
 date: 2025-12-21 16:00:01+00:01
 draft: False
 hidden: True

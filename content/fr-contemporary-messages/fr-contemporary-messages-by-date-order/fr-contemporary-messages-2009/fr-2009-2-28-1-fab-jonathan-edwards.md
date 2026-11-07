@@ -1,7 +1,7 @@
 ---
 title: "La loi morale"
 menu_title: ""
-description: "La loi morale"
+description: "Jonathan Edwards, reçu par FAB : « Mais je n'ai pas pu échapper au jugement concernant ces croyances qui étaient fausses et nuisibles. »"
 date: 2022-06-01 06:00:01+00:27
 draft: False
 hidden: True

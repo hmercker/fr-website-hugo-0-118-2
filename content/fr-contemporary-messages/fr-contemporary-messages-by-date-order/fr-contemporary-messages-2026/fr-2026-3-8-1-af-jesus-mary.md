@@ -1,7 +1,7 @@
 ---
 title: "La Puissance de la Prière Quotidienne / Une Bénédiction pour les Enfants de Dieu"
 menu_title: ""
-description: "La Puissance de la Prière Quotidienne / Une Bénédiction pour les Enfants de Dieu"
+description: "Jésus et Marie, reçu par Al Fike : « En priant pour le recevoir, vous vous rapprocherez du moment où vous serez dignes d’entrer dans ce Royaume. »"
 date: 2026-05-24 16:00:01+00:01
 draft: False
 hidden: True

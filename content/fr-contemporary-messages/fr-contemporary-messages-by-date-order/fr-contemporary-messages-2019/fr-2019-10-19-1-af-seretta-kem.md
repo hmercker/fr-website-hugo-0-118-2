@@ -1,7 +1,7 @@
 ---
 title: "L'engagement est nécessaire pour développer les dons de l'âme"
 menu_title: ""
-description: "L'engagement est nécessaire pour développer les dons de l'âme"
+description: "Seretta Kem, reçu par Al Fike : « Nous souhaitons exprimer nos remerciements et notre gratitude à chacun d’entre vous qui vous êtes réunis au cours de ces … »"
 date: 2022-06-01 06:00:01+00:881
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Les manifestations physiques du changement s'accompagneront de calamités et de perturbations"
 menu_title: ""
-description: "Les manifestations physiques du changement s'accompagneront de calamités et de perturbations"
+description: "Augustin, reçu par Al Fike : « Mes élèves, c'est votre enseignant, Augustine. Ressentez-vous cette élévation spirituelle qui vous a été offerte à chacun … »"
 date: 2026-10-12 06:00:01+00:84
 draft: False
 hidden: True

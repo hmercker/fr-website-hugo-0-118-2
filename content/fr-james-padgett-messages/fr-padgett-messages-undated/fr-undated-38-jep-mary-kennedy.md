@@ -1,7 +1,7 @@
 ---
 title: "Mary Kennedy écrit que les Esprits Célestes sont fiers de connaître le Dr Stone"
 menu_title: ""
-description: "Mary Kennedy écrit que les Esprits Célestes sont fiers de connaître le Dr Stone"
+description: "Mary Kennedy, reçu par James Padgett : « Laissez-moi vous dire une seule chose – Hélène dit que je peux, et je le veux bien sûr, et je ne vais pas faire … »"
 date: 2022-06-01 06:00:01+00:112
 draft: False
 hidden: True

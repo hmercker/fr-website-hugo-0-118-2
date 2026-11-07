@@ -1,7 +1,7 @@
 ---
 title: "Vous ne pouvez pas vous permettre de prendre votre engagement sur cette voie à la légère"
 menu_title: ""
-description: "Vous ne pouvez pas vous permettre de prendre votre engagement sur cette voie à la légère"
+description: "Orion, reçu par Al Fike : « Un changement de conscience est urgent, car le temps presse pour que vous puissiez profiter pleinement de ces Cercles de … »"
 date: 2026-04-21 16:00:01+00:01
 draft: False
 hidden: True

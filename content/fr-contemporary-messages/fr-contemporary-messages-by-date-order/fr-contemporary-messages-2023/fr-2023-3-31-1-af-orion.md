@@ -1,7 +1,7 @@
 ---
 title: "Dieu nous a rassemblés tous ensemble"
 menu_title: ""
-description: "Dieu nous a rassemblés tous ensemble"
+description: "Orion, reçu par Al Fike : « Et sachez que Dieu nous a tous rassemblés dans la lumière de Sa présence, une lumière sainte et magnifique, une lumière … »"
 date: 2023-09-01 06:00:01+00:110
 draft: False
 hidden: True

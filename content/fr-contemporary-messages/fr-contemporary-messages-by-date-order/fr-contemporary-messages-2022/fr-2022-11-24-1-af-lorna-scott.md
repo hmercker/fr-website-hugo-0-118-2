@@ -1,7 +1,7 @@
 ---
 title: "Notre croissance dans l’Amour de Dieu"
 menu_title: ""
-description: "Notre croissance dans l’Amour de Dieu"
+description: "Lorna Scott, reçu par Al Fike : « J'ai maintenant progressé vers la 5e sphère et j'y suis très heureuse. J'ai libéré une grande partie des fardeaux que … »"
 date: 2022-06-01 06:00:01+00:214
 draft: False
 hidden: True

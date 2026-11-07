@@ -1,7 +1,7 @@
 ---
 title: "La communication requiert de la dévotion et de l'engagement"
 menu_title: ""
-description: "La communication requiert de la dévotion et de l'engagement"
+description: "Anne Rollins, reçu par Helge Mercker : « Cela demande du dévouement et de l’engagement pour accomplir cette tâche de communication. »"
 date: 2022-06-01 06:00:01+00:02
 draft: False
 hidden: True

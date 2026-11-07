@@ -1,7 +1,7 @@
 ---
 title: "Le Dr King réaffirme la non-violence"
 menu_title: ""
-description: "Le Dr King réaffirme la non-violence"
+description: "Martin Luther King jr, reçu par FAB : « Vous m'avez canalisé correctement dans mon message du 12 Janvier 2007, La Terre Promise. Lorsque j'ai mentionné ce … »"
 date: 2022-06-01 06:00:01+00:16
 draft: False
 hidden: True

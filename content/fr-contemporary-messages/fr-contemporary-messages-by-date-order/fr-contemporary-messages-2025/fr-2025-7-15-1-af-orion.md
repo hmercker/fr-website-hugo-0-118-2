@@ -1,7 +1,7 @@
 ---
 title: "Mettez vos doutes de côté et préparez-vous à ce qui vient !"
 menu_title: ""
-description: "Mettez vos doutes de côté et préparez-vous à ce qui vient !"
+description: "Orion, reçu par reçu par Al Fike : « Comme nous avons manqué un rendez-vous plus tôt dans la journée1, je m’adresserai à la famille élargie ce soir. »"
 date: 2025-07-15 06:00:01+00:01
 draft: False
 hidden: True

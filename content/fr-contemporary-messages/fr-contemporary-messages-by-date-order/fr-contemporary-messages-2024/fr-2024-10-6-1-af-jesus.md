@@ -1,7 +1,7 @@
 ---
 title: "Votre lumière peut aider Dieu à briser des générations de ténèbres dans le monde"
 menu_title: ""
-description: "Votre lumière peut aider Dieu à briser des générations de ténèbres dans le monde"
+description: "Jésus, reçu par Albert Fike : « Merci, mon frère, pour ta prière. Chacun de vous s’efforce de briser les chaînes de l’erreur, de se libérer de la douleur … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

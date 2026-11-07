@@ -1,7 +1,7 @@
 ---
 title: "A évolué vers une nouvelle sphère spirituelle et cherche maintenant plus d’aide pour faire avancer son progrès spirituel. Et l’a reçu avec l’aide de Jésus"
 menu_title: ""
-description: "A évolué vers une nouvelle sphère spirituelle et cherche maintenant plus d’aide pour faire avancer son progrès spirituel. Et l’a reçu avec l’aide de Jésus"
+description: "Albert Riddle, reçu par James Padgett : « Tu as eu des moments plutôt difficiles, et cela m’a un peu rappelé la souffrance que j’ai souvent enduré lorsque … »"
 date: 2022-06-01 06:00:01+00:21
 draft: False
 hidden: True

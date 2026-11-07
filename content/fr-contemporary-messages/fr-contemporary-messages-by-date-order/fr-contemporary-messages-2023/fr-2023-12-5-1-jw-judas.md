@@ -1,7 +1,7 @@
 ---
 title: "Le chemin à parcourir"
 menu_title: ""
-description: "Le chemin à parcourir"
+description: "Judas, reçu par Jimbeau Walsh : « Il y a un sentiment d’impuissance. Il y a un sentiment de défaite. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

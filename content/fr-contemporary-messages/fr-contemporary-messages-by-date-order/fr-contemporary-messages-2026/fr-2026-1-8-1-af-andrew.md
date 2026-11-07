@@ -1,7 +1,7 @@
 ---
 title: "Vous bâtissez un pont entre vous et Dieu"
 menu_title: ""
-description: "Vous bâtissez un pont entre vous et Dieu"
+description: "André, reçu par Albert Fike : « Le pont qui vous relie à Dieu continue de s’édifier à chaque prière. Chaque fois que vous confiez une pensée, un désir à … »"
 date: 2026-04-03 16:00:00+00:00
 draft: False
 hidden: True

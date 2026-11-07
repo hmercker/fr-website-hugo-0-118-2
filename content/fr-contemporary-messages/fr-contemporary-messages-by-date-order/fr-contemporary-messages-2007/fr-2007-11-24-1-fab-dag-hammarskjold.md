@@ -1,7 +1,7 @@
 ---
 title: "Les réflexions d'un dirigeant de l'ONU"
 menu_title: ""
-description: "Les réflexions d'un dirigeant de l'ONU"
+description: "Dag Hammarskjold, reçu par FAB : « N'ignorez pas nos messages. J'ai hérité d'un grand bonheur ici, et mon travail continue. »"
 date: 2022-06-01 06:00:01+00:178
 draft: False
 hidden: True

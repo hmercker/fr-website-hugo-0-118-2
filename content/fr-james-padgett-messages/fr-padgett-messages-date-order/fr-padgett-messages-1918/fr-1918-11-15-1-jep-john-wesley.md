@@ -1,7 +1,7 @@
 ---
 title: "La condition de l’homme est telle qu’il est de la plus haute importance que les hommes apprennent la vérité"
 menu_title: ""
-description: "La condition de l’homme est telle qu’il est de la plus haute importance que les hommes apprennent la vérité"
+description: "John Wesley, reçu par James Padgett : « Je souhaite vous parler d’une question qui est très étroitement liée à votre mission et au travail que vous … »"
 date: 2022-06-01 06:00:01+00:65
 draft: False
 hidden: True

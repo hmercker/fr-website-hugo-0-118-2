@@ -1,7 +1,7 @@
 ---
 title: "Jésus choisit le Dr Stone"
 menu_title: ""
-description: "Jésus choisit le Dr Stone"
+description: "Jésus, reçu par James Padgett : « Je sais que le Docteur est impatient d’entendre celui qui l’a choisi pour faire une œuvre de grande importance pour le … »"
 date: 2022-06-01 06:00:01+00:23
 draft: False
 hidden: True

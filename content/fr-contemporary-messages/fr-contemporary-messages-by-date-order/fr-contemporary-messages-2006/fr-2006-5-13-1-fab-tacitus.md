@@ -1,7 +1,7 @@
 ---
 title: "Tacite fait l'expérience de la Nouvelle Naissance"
 menu_title: ""
-description: "Tacite fait l'expérience de la Nouvelle Naissance"
+description: "Tacitus, reçu par FAB : « Et dans mon cœur, j'aspirais à quelque chose, je ne savais pas quoi. Eh bien, j'ai trouvé ce quelque chose - la Nouvelle Naissance. »"
 date: 2022-06-01 06:00:01+00:14
 draft: False
 hidden: True

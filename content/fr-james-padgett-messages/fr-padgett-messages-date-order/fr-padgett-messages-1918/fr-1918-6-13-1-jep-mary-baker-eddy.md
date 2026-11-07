@@ -1,7 +1,7 @@
 ---
 title: "Ne connaissait pas la vérité révélée dans les messages reçus par M. Padgett"
 menu_title: ""
-description: "Ne connaissait pas la vérité révélée dans les messages reçus par M. Padgett"
+description: "Mme Eddy Baker, reçu par James Padgett : « Je désire écrire quelques lignes, car j’ai été intéressé par la conversation du Docteur et je veux lui exprimer … »"
 date: 2022-06-01 06:00:01+00:44
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Leadership et service"
 menu_title: ""
-description: "Leadership et service"
+description: "Augustin, reçu par Al Fike : « Je tiens à vous assurer que votre fils va guérir. Il n’y a pas de problèmes structurels dans sa jambe, seulement des … »"
 date: 2022-06-01 06:00:01+00:1326
 draft: False
 hidden: True

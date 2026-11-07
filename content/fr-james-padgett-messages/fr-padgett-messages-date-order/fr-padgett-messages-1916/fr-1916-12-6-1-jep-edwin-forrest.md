@@ -1,7 +1,7 @@
 ---
 title: "Edwin Forrest, un ancien ami de M. Padgett, est intéressé dans la Prière que Jésus a écrit parce qu’il veut sortir des ténèbres et progresser vers la lumière"
 menu_title: ""
-description: "Edwin Forrest, un ancien ami de M. Padgett, est intéressé dans la Prière que Jésus a écrit parce qu’il veut sortir des ténèbres et progresser vers la lumière"
+description: "Edwin Forrest, reçu par James Padgett : « Je veux simplement dire un mot. Je sais qu’il est tard, mais j’ai écouté tes lectures et ta conversation de ce … »"
 date: 2022-06-01 06:00:01+00:08
 draft: False
 hidden: True

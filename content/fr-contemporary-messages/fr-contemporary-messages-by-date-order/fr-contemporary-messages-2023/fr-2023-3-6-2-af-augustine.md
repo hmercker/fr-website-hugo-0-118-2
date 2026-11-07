@@ -1,7 +1,7 @@
 ---
 title: "Affirme notre collaboration avec les autres porteurs de lumière"
 menu_title: ""
-description: "Affirme notre collaboration avec les autres porteurs de lumière"
+description: "Augustin, reçu par Al Fike : « En effet, nombreux sont ceux qui s’attardent à la porte d’une telle expérience, mais peu y pénètrent parce qu’ils sont … »"
 date: 2023-09-01 06:00:01+00:88
 draft: False
 hidden: True

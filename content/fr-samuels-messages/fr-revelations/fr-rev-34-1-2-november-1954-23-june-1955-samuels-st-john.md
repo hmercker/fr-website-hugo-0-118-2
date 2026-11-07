@@ -1,7 +1,7 @@
 ---
 title: "34ème Révélation : Dieu écoute tous ceux qui Le cherchent dans la prière fervente"
 menu_title: ""
-description: "34ème Révélation : Dieu écoute tous ceux qui Le cherchent dans la prière fervente"
+description: "Jean, reçu par Dr Samuels : « J’ai écouté votre conversation avec le Docteur au sujet de quelques-uns des passages incertains qui se trouvent dans … »"
 date: 2022-06-01 06:00:01+00:34
 draft: False
 hidden: True

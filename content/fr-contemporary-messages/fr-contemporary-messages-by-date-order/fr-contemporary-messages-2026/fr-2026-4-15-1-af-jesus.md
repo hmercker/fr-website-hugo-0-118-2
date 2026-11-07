@@ -1,7 +1,7 @@
 ---
 title: "Heureux ceux qui proclament la Parole de Dieu"
 menu_title: ""
-description: "Heureux ceux qui proclament la Parole de Dieu"
+description: "Jésus, reçu par Al Fike : « Vous avez ressenti la puissance de Son Toucher. Vos âmes continuent de s’éveiller et sont attirées par Ses bénédictions. »"
 date: 2026-05-28 16:00:01+00:01
 draft: False
 hidden: True

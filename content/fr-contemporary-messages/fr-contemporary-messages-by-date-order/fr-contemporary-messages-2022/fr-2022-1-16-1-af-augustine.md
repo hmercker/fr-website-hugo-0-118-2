@@ -1,7 +1,7 @@
 ---
 title: "Dieu frappe à la porte de votre âme (2022 Cercles de prière en ligne)"
 menu_title: ""
-description: "Dieu frappe à la porte de votre âme (2022 Cercles de prière en ligne)"
+description: "Augustin, reçu par Al Fike : « Chacun d’entre vous a porté le manteau des attentes et des enseignements de votre culture et de vos pays, et a répondu du … »"
 date: 2022-06-01 06:00:01+00:11
 draft: False
 hidden: True

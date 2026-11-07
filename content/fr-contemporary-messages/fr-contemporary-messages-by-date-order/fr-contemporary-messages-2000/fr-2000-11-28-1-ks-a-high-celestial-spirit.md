@@ -1,7 +1,7 @@
 ---
 title: "Bénédictions matérielles"
 menu_title: ""
-description: "Bénédictions matérielles"
+description: "Esprit Céleste Elevé, reçu par Kathryn Stokes : « Lorsqu’un cœur et une âme recherchent sincèrement la vérité, ce désir sincère ouvre les perceptions de … »"
 date: 2022-06-01 06:00:01+00:38
 draft: False
 hidden: True

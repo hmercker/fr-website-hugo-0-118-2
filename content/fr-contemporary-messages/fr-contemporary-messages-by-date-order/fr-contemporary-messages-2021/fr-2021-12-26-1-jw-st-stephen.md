@@ -1,7 +1,7 @@
 ---
 title: "Parlez au monde depuis votre âme"
 menu_title: ""
-description: "Parlez au monde depuis votre âme"
+description: "St Étienne, reçu par Jimbeau Walsh : « Comme vous le savez peut-être, nous n’étions pas des hommes instruits, à quelques exceptions près. »"
 date: 2022-06-01 06:00:01+00:1738
 draft: False
 hidden: True

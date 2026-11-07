@@ -1,7 +1,7 @@
 ---
 title: "Ayez de la compassion pour les âmes perdues"
 menu_title: ""
-description: "Ayez de la compassion pour les âmes perdues"
+description: "St Matthieu, reçu par Albert Fike : « En parcourant cette ville (San Francisco) et en rencontrant des personnes engagées dans la vie, voyez-vous avec … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

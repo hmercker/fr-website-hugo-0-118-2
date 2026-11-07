@@ -1,7 +1,7 @@
 ---
 title: "10ème Sermon – L’amour humain est un préalable indispensable à une appréciation de l’Amour Divin"
 menu_title: ""
-description: "10ème Sermon – L’amour humain est un préalable indispensable à une appréciation de l’Amour Divin"
+description: "Jésus, reçu par Dr Samuels : « Dans mon neuvième sermon, j’ai écrit sur le Nouveau Cœur, et comment, lors de longues périodes de temps enregistrées dans … »"
 date: 2022-06-01 06:00:01+00:63
 draft: False
 hidden: True

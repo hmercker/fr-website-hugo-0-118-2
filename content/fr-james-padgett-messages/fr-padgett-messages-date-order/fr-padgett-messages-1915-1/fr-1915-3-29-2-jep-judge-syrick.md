@@ -1,7 +1,7 @@
 ---
 title: "Confirme beaucoup de choses que M. Padgett lui a dites sur la vie dans le monde des esprits"
 menu_title: ""
-description: "Confirme beaucoup de choses que M. Padgett lui a dites sur la vie dans le monde des esprits"
+description: "Juge Syrick, reçu par James Padgett : « Eh bien, vieil ami, l’incertitude est devenue certaine et je sais maintenant que les esprits peuvent communiquer … »"
 date: 2022-06-01 06:00:01+00:49
 draft: False
 hidden: True

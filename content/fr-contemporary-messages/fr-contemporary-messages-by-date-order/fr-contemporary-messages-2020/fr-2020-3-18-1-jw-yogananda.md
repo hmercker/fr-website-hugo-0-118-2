@@ -1,7 +1,7 @@
 ---
 title: "Quand Dieu touche l'âme, il n'y a pas de barrières"
 menu_title: ""
-description: "Quand Dieu touche l'âme, il n'y a pas de barrières"
+description: "Yogananda, reçu par Jimbeau Walsh : « e suis votre frère dans l’amour de Dieu, Yogananda. Grâce à la merveilleuse technologie qui est à votre disposition … »"
 date: 2022-06-01 06:00:01+00:1037
 draft: False
 hidden: True

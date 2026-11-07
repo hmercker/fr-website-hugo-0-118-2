@@ -1,7 +1,7 @@
 ---
 title: "Ce sont les marginaux et les non-conformistes qui œuvreront en dehors des normes de la société qui changeront le monde !"
 menu_title: ""
-description: "Ce sont les marginaux et les non-conformistes qui œuvreront en dehors des normes de la société qui changeront le monde !"
+description: "Augustin, reçu par Albert Fike : « Vos groupes continueront d’être quelque peu disparates, marginaux, des individus qui ne s’intègrent pas à la société … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

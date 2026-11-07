@@ -1,7 +1,7 @@
 ---
 title: "Saul affirme que Marie la mère de Jésus a écrit"
 menu_title: ""
-description: "Saul affirme que Marie la mère de Jésus a écrit"
+description: "Saul, reçu par James Padgett : « Je veux écrire juste une ligne alors que, ce soir, je vois que vous êtes entouré de tant d’esprits élevés. »"
 date: 2022-06-01 06:00:01+00:204
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Tu dois te donner du temps"
 menu_title: ""
-description: "Tu dois te donner du temps"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Tu apprends à me connaître de mieux en mieux. Mes vérités s’enfoncent de plus en plus profondément dans ton … »"
 date: 2022-06-01 06:00:01+00:21
 draft: False
 hidden: True

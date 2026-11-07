@@ -1,7 +1,7 @@
 ---
 title: "Prière, méditation et guérison dans l'amour humain et Divin"
 menu_title: ""
-description: "Prière, méditation et guérison dans l'amour humain et Divin"
+description: "Yogananda, reçu par Jimbeau Walsh : « Je souhaite parler du lien non seulement entre la méditation et la prière, mais aussi de ces deux aspects qui sont … »"
 date: 2022-06-01 06:00:01+00:221
 draft: False
 hidden: True

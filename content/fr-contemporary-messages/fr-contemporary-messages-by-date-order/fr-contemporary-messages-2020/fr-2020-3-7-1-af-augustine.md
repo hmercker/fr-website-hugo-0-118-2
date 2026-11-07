@@ -1,7 +1,7 @@
 ---
 title: "L’Âme a été créée pour recevoir l’Amour de Dieu"
 menu_title: ""
-description: "L’Âme a été créée pour recevoir l’Amour de Dieu"
+description: "Augustin, reçu par Al Fike : « Pour ceux qui s’investissent leur vie dans la prière, il y a toujours une réponse. Pour ceux qui ont un profond désir de … »"
 date: 2022-06-01 06:00:01+00:1017
 draft: False
 hidden: True

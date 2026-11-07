@@ -1,7 +1,7 @@
 ---
 title: "Ouvrez vos âmes à l'afflux de l'Amour Divin"
 menu_title: ""
-description: "Ouvrez vos âmes à l'afflux de l'Amour Divin"
+description: "Keea Atta Kem, reçu par Maureen Cardoso : « Mes frères et sœurs, ouvrez-vous, comme vous avez été guidés à ouvrir votre âme et à ressentir sa résonance et … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

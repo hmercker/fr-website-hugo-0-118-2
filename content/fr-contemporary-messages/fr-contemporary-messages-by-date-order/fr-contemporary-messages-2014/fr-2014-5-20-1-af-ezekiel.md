@@ -1,7 +1,7 @@
 ---
 title: "Heureux ceux qui sont prêts à aimer"
 menu_title: ""
-description: "Heureux ceux qui sont prêts à aimer"
+description: "Ezéchiel, reçu par Al Fike : « Dieu vous bénit et vous conduit vers une plus grande lumière et une compréhension plus complète de votre Père Céleste qui … »"
 date: 2022-06-01 06:00:01+00:92
 draft: False
 hidden: True

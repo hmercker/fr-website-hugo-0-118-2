@@ -1,7 +1,7 @@
 ---
 title: "Pour que la paix l’emporte"
 menu_title: ""
-description: "Pour que la paix l’emporte"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Mes chères souris, je ressens vos beaux cœurs. Je ressens les désirs que vous avez pour la paix, pour le … »"
 date: 2022-06-01 06:00:01+00:40
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Comment Dieu vous aime t-il ?"
 menu_title: ""
-description: "Comment Dieu vous aime t-il ?"
+description: "Elizabeth Barret Browning, reçu par Jimbeau Walsh : « Je veux que vous sachiez que c’était moi dans le livre que vous lisez par l’âme la plus … »"
 date: 2022-06-01 06:00:01+00:227
 draft: False
 hidden: True

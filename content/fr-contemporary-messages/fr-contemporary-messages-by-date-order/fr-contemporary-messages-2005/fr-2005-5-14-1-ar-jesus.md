@@ -1,7 +1,7 @@
 ---
 title: "L'épanouissement comme attribut de l'amour"
 menu_title: ""
-description: "L'épanouissement comme attribut de l'amour"
+description: "Jésus, reçu par Amada Reza : « Cet amour que je ressens pour vous remplit mon cœur et comble mon âme. Dieu me montre ce genre d'amour. »"
 date: 2022-06-01 06:00:01+00:46
 draft: False
 hidden: True

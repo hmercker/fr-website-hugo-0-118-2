@@ -1,7 +1,7 @@
 ---
 title: "Une bénédiction de Jésus"
 menu_title: ""
-description: "Une bénédiction de Jésus"
+description: "Jésus, reçu par Al Fike : « Éveille-les, Père bien-aimé, à Ta Présence et à Ton Amour. Ouvre leurs yeux, active leurs âmes afin qu’ils puissent marcher … »"
 date: 2022-06-01 06:00:01+00:368
 draft: False
 hidden: True

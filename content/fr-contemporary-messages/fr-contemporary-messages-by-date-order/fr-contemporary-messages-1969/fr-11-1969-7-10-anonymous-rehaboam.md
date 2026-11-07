@@ -1,7 +1,7 @@
 ---
 title: "Dieu est Amour"
 menu_title: ""
-description: "Dieu est Amour"
+description: "Reboham : « La Bible me qualifie de roi méchant et dit que j'ai conduit mon peuple, les Juifs, à l'idolâtrie. »"
 date: 2022-06-01 06:00:01+00:11
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Utilisez vos dons"
 menu_title: ""
-description: "Utilisez vos dons"
+description: "Maharishi Mahesh Yogi, reçu par Al Fike : « Vous êtes surpris mais laissez-moi vous dire qu'il y a beaucoup de personnes qui comprennent cette Vérité. »"
 date: 2022-06-01 06:00:01+00:209
 draft: False
 hidden: True

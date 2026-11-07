@@ -1,7 +1,7 @@
 ---
 title: "Retour pour souligner le processus de développement des dons"
 menu_title: ""
-description: "Retour pour souligner le processus de développement des dons"
+description: "Seretta Kem, reçu par Albert Fike : « Il continue et continuera jusqu’à ce que vienne le moment où vous serez confiants et ouverts à vos dons et où ces … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

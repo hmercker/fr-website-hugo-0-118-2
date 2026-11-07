@@ -1,7 +1,7 @@
 ---
 title: "Louanges aux Enfants de Lumière"
 menu_title: ""
-description: "Louanges aux Enfants de Lumière"
+description: "Confucius, reçu par Albert Fike : « J’apporte amour et louanges à mes amis sur Terre. Je vous loue parce que vous avez choisi le chemin le plus élevé … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

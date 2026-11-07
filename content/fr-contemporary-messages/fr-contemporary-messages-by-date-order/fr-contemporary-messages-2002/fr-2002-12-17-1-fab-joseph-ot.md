@@ -1,7 +1,7 @@
 ---
 title: "Le génie musical et créatif en relation avec le monde des esprits"
 menu_title: ""
-description: "Le génie musical et créatif en relation avec le monde des esprits"
+description: "Joseph (AT), reçu par FAB : « Il y aura de nombreux objectifs atteints par votre médiumnité au cours des années. Vous comprendrez que tous ces individus … »"
 date: 2022-06-01 06:00:01+00:97
 draft: False
 hidden: True

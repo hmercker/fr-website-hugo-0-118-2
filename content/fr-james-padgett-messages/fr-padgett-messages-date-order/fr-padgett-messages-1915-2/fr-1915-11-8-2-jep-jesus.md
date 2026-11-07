@@ -1,7 +1,7 @@
 ---
 title: "Jésus fut très intéressé par la façon dont M. Padgett a aidé à prévenir deux suicides en leur donnant des instructions sur les conséquences d’un tel acte"
 menu_title: ""
-description: "Jésus fut très intéressé par la façon dont M. Padgett a aidé à prévenir deux suicides en leur donnant des instructions sur les conséquences d’un tel acte"
+description: "Jésus, reçu par James Padgett : « Je pense plus particulièrement aux deux cas où des personnes qui avaient décidé de se suicider ont abandonné cette idée … »"
 date: 2022-06-01 06:00:01+00:50
 draft: False
 hidden: True

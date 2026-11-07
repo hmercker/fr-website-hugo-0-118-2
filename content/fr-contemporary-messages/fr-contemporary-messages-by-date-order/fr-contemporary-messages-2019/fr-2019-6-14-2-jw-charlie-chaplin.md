@@ -1,7 +1,7 @@
 ---
 title: "Whoo ! C'est merveilleux !"
 menu_title: ""
-description: "Whoo ! C'est merveilleux !"
+description: "Charlie Chaplin, reçu par Jimbeau Walsh : « Vous m'avez ressenti en Irlande et vous avez réalisé que vous n'aviez pas besoin d'aller dans ma résidence … »"
 date: 2022-06-01 06:00:01+00:745
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Besoin croissant de soutien communautaire d'Amour Divin"
 menu_title: ""
-description: "Besoin croissant de soutien communautaire d'Amour Divin"
+description: "Augustin, reçu par Al Fike : « Âmes bien-aimées, c’est votre professeur, Augustin. Tu parles de tes besoins en matière de publications et de … »"
 date: 2022-06-01 06:00:01+00:29
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Les Anges du Ciel viennent vous accompagner avec grâce et humilité"
 menu_title: ""
-description: "Les Anges du Ciel viennent vous accompagner avec grâce et humilité"
+description: "Jesus, reçu par Albert Fike : « L’humilité et la grâce sont la marque distinctive de ceux qui résident dans le Royaume Céleste. »"
 date: 2026-03-15 06:00:00+00:00
 draft: False
 hidden: True

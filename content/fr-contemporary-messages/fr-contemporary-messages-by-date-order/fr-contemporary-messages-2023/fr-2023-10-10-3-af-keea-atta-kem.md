@@ -1,7 +1,7 @@
 ---
 title: " RÉJOUISSEZ-VOUS du dessein de Dieu !"
 menu_title: ""
-description: " RÉJOUISSEZ-VOUS du dessein de Dieu !"
+description: "Keea Atta Kem, reçu par Albert Fike : « Je m’appelle Keea Atta Kem. Les anges se réjouissent de votre rassemblement, belles lumières pour Dieu dans une … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

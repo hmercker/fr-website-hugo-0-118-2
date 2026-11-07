@@ -1,7 +1,7 @@
 ---
 title: "Royaumes de lumière"
 menu_title: ""
-description: "Royaumes de lumière"
+description: "Yogananda, reçu par Jimbeau Walsh : « Je souhaite vous rappeler que le Maître a dit : « Il y a de nombreuses demeures dans la maison de mon Père. » Ceux … »"
 date: 2022-06-01 06:00:01+00:703
 draft: False
 hidden: True

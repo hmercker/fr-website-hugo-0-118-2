@@ -1,7 +1,7 @@
 ---
 title: "68ème Sermon – Le Second Isaïe prêchait la consécration de son peuple"
 menu_title: ""
-description: "68ème Sermon – Le Second Isaïe prêchait la consécration de son peuple"
+description: "Jésus, reçu par Dr Samuels : « Selon la version de la bible de Louis Segond, le Second Isaïe dit ensuite au chapitre 53 : 8. »"
 date: 2022-06-01 06:00:01+00:121
 draft: False
 hidden: True

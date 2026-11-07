@@ -1,7 +1,7 @@
 ---
 title: "L’univers de Dieu est multidimensionnel"
 menu_title: ""
-description: "L’univers de Dieu est multidimensionnel"
+description: "Augustin, reçu par Albert Fike : « Le monde a de nombreuses facettes et dimensions dont vous n’avez pas conscience. Certes, la capacité des mortels à ne … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Encouragement"
 menu_title: ""
-description: "Encouragement"
+description: "Jésus, reçu par Amada Réza : « Je veux écrire un message d’encouragement à vous qui aspirez à faire la Volonté de Dieu dans vos vies, et vous faire savoir … »"
 date: 2022-06-01 06:00:01+00:18
 draft: False
 hidden: True

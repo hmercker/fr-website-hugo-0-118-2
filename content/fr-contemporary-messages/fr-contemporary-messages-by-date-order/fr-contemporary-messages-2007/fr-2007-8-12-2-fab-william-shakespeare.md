@@ -1,7 +1,7 @@
 ---
 title: "La vie de Shakespeare - 1"
 menu_title: ""
-description: "La vie de Shakespeare - 1"
+description: "William Shakespeare, reçu par FAB : « Comme vous l'avez compris, je vous ai guidé vers ce merveilleux livre, « Shakespeare The Biography » de Peter Ackroyd. »"
 date: 2022-06-01 06:00:01+00:141
 draft: False
 hidden: True

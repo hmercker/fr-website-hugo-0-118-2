@@ -1,7 +1,7 @@
 ---
 title: "Dieu utilise ceux qui ont de l’amour et de la compassion"
 menu_title: ""
-description: "Dieu utilise ceux qui ont de l’amour et de la compassion"
+description: "Augustin, reçu par Albert Fike : « …à vous, âmes bien-aimées. En effet, les inventions de l’homme peuvent être utilisées à bon escient. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

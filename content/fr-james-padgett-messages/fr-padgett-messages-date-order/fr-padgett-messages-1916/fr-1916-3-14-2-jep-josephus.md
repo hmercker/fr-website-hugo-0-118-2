@@ -1,7 +1,7 @@
 ---
 title: "Flavius Josèphe (Historien Juif) assure M. Padgett qu’il reçoit des communications des esprits vivant dans les Sphères Célestes"
 menu_title: ""
-description: "Flavius Josèphe (Historien Juif) assure M. Padgett qu’il reçoit des communications des esprits vivant dans les Sphères Célestes"
+description: "Flavius Josèphe, reçu par James Padgett : « Je vois que vous êtes endormi ce soir et que je ne dois pas écrire plus, bien que j’aimerais bien vous écrire … »"
 date: 2022-06-01 06:00:01+00:174
 draft: False
 hidden: True

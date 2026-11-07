@@ -1,7 +1,7 @@
 ---
 title: "Les bénédictions de Son Amour vous envahiront comme un puissant torrent"
 menu_title: ""
-description: "Les bénédictions de Son Amour vous envahiront comme un puissant torrent"
+description: "Seretta Kem, reçu par Al Fike : « Et il vous connaît bien, et vous le connaissez plus que vous ne le pensez. Il y a beaucoup de personnes dans le monde de … »"
 date: 2022-06-01 06:00:01+00:174
 draft: False
 hidden: True

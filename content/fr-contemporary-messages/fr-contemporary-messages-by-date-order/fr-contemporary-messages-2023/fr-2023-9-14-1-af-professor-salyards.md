@@ -1,7 +1,7 @@
 ---
 title: "Encouragements et louanges aux Porteurs de Lumière pour la planification et la préparation de Laurelville"
 menu_title: ""
-description: "Encouragements et louanges aux Porteurs de Lumière pour la planification et la préparation de Laurelville"
+description: "Profeseur Salyards, reçu par Albert Fike : « Que la grâce de Dieu soit sur vous, âmes bien-aimées. Je compare cet événement à ce qui, dans votre quartier … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

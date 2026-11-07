@@ -1,7 +1,7 @@
 ---
 title: "La vitesse de ton âme"
 menu_title: ""
-description: "La vitesse de ton âme"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Mon cher enfant, parlons de vivre à la vitesse de ton âme. Ton âme est une partie très délicate de toi. »"
 date: 2022-06-01 06:00:01+00:244
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes nécessaires à la transformation"
 menu_title: ""
-description: "Vous êtes nécessaires à la transformation"
+description: "Samuel et Joie, reçu par Elizabeth Mack : « Je ne fais qu'un avec mon Père Céleste qui supervise tous Ses enfants dans leur progression. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La loi de l’histoire"
 menu_title: ""
-description: "La loi de l’histoire"
+description: "Jésus, reçu par FAB : « Mais cela ne signifie pas qu’il est inévitable qu’ils réussissent. Il y a certaines lois qui régissent l’histoire, selon … »"
 date: 2022-06-01 06:00:01+00:191
 draft: False
 hidden: True

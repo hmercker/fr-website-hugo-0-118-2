@@ -1,7 +1,7 @@
 ---
 title: "Bénédictions pour la nouvelle année"
 menu_title: ""
-description: "Bénédictions pour la nouvelle année"
+description: "Jésus, reçu par Al Fike : « Merci pour votre belle prière. Pourtant, dans l’esprit de beaucoup, ils croient qu’ils sont arrivés au sommet du développement … »"
 date: 2022-06-01 06:00:01+00:01
 draft: False
 hidden: True

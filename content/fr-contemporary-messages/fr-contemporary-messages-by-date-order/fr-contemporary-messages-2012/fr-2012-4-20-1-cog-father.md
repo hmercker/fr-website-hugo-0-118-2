@@ -1,7 +1,7 @@
 ---
 title: "Être soi-même"
 menu_title: ""
-description: "Être soi-même"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Hier, tu étais très stressé à cause d’un seul mot que tu n’as pas bien compris. Cela t’a fait douter de nos … »"
 date: 2022-06-01 06:00:01+00:239
 draft: False
 hidden: True

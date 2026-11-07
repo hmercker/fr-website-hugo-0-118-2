@@ -1,7 +1,7 @@
 ---
 title: "Soyez conscients d'être une lumière dans le monde"
 menu_title: ""
-description: "Soyez conscients d'être une lumière dans le monde"
+description: "Michaël Collier, reçu par Albert Fike : « Merci et bénédictions à vous, âmes bien-aimées. Ce n’est pas votre esprit qui est l’élément crucial pour que … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La F.U.S.C. continuera d'être un refuge et un sanctuaire - 100e anniversaire"
 menu_title: ""
-description: "La F.U.S.C. continuera d'être un refuge et un sanctuaire - 100e anniversaire"
+description: "Jésus, reçu par Al Fike : « Chacun de vous porte une Lumière. Chacun d’entre vous est nourri par Dieu. »"
 date: 2022-06-01 06:00:01+00:417
 draft: False
 hidden: True

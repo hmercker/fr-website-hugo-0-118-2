@@ -1,7 +1,7 @@
 ---
 title: "Astronautes spirituels"
 menu_title: ""
-description: "Astronautes spirituels"
+description: "Judas, reçu par Jimbeau Walsh : « Je peux vous dire que Monseigneur Benson, comme il était appelé, est très heureux que vous lisiez le récit de sa vie en … »"
 date: 2022-06-01 06:00:01+00:07
 draft: False
 hidden: True

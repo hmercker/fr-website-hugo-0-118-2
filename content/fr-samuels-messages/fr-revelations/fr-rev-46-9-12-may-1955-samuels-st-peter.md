@@ -1,7 +1,7 @@
 ---
 title: "46ème Révélation : Le Leadership de Pierre du mouvement Chrétien"
 menu_title: ""
-description: "46ème Révélation : Le Leadership de Pierre du mouvement Chrétien"
+description: "Pierre, reçu par Dr Samuels : « Le fait est que Jésus ne m’a pas donné la direction du mouvement Chrétien alors qu’il était vivant. »"
 date: 2022-06-01 06:00:01+00:46
 draft: False
 hidden: True

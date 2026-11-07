@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes tous appelés à faire partie du plan de Dieu pour le salut de l'humanité"
 menu_title: ""
-description: "Nous sommes tous appelés à faire partie du plan de Dieu pour le salut de l'humanité"
+description: "Jésus, reçu par Al Fike : « Je te remercie mon fils pour ta prière. Beaucoup d’entre vous ont une profonde destinée à accomplir dans ce monde, un but que … »"
 date: 2022-06-01 06:00:01+00:1302
 draft: False
 hidden: True

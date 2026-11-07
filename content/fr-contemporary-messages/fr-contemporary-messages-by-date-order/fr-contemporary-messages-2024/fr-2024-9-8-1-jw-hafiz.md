@@ -1,7 +1,7 @@
 ---
 title: "Que pensera le monde de vous ?"
 menu_title: ""
-description: "Que pensera le monde de vous ?"
+description: "Hafiz, reçu par Jimbeau Walsh : « Que pensera le monde de vous ? Chacun est enfermé dans sa petite boule d’autolimitation, tournant sans fin sur son … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

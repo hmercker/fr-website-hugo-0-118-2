@@ -1,7 +1,7 @@
 ---
 title: "Nous devons avoir un but unique_2"
 menu_title: ""
-description: "Nous devons avoir un but unique_2"
+description: "Augustin : « Il y a ceux qui n'ont fait aucune préparation, ni physique ni mentale et il aurait été préférable pour le groupe qu'ils ne prennent pas la … »"
 date: 2022-06-01 06:00:01+00:23
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes liés pour l'éternité dans cet amour"
 menu_title: ""
-description: "Nous sommes liés pour l'éternité dans cet amour"
+description: "Jésus, reçu par Al Fike : « Cette puissante bénédiction se déverse sur vous, mes âmes bien-aimées. Les eaux vives de l'Amour de Dieu vous lavent, vous … »"
 date: 2022-06-01 06:00:01+00:247
 draft: False
 hidden: True

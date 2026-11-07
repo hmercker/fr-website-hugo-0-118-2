@@ -1,7 +1,7 @@
 ---
 title: "Récupérer des souvenirs traumatiques"
 menu_title: ""
-description: "Récupérer des souvenirs traumatiques"
+description: "Joseph, reçu par WV : « La seule grande différence est qu’ils n’ont pas à les revivre avec toutes les émotions négatives qui s’y rattachent. »"
 date: 2022-06-01 06:00:01+00:79
 draft: False
 hidden: True

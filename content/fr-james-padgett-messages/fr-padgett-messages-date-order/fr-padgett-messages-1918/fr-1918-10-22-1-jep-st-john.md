@@ -1,7 +1,7 @@
 ---
 title: "Lois du rapport et de la communication, suite"
 menu_title: ""
-description: "Lois du rapport et de la communication, suite"
+description: "St Jean, reçu par James Padgett : « Permettez-moi d’écrire quelques lignes ce soir, car je n’ai pas écrit depuis longtemps et j’ai hâte de dire quelques … »"
 date: 2022-06-01 06:00:01+00:59
 draft: False
 hidden: True

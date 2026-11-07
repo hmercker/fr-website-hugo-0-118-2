@@ -1,7 +1,7 @@
 ---
 title: "Un Empereur Romain partage son expérience. Pourquoi il a appris l’anglais"
 menu_title: ""
-description: "Un Empereur Romain partage son expérience. Pourquoi il a appris l’anglais"
+description: "Vespasien, reçu par James Padgett : « Je fus un esprit qui, sur terre, adut connu comme l’homme qui a conquis et détruit Jérusalem. »"
 date: 2022-06-01 06:00:01+00:152
 draft: False
 hidden: True

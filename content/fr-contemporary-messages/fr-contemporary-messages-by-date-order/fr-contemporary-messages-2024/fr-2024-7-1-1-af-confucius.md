@@ -1,7 +1,7 @@
 ---
 title: "Poursuivre le voyage"
 menu_title: ""
-description: "Poursuivre le voyage"
+description: "Confucius, reçu par Albert Fike : « En effet, nous T’honorons, bien-aimé Créateur de tous. Vos âmes sont comme des embryons, pas encore complètement formés. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

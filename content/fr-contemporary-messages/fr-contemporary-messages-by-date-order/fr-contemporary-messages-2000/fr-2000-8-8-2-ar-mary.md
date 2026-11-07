@@ -1,7 +1,7 @@
 ---
 title: "Sur les canalisations à travers Patricia Talbott Borrero"
 menu_title: ""
-description: "Sur les canalisations à travers Patricia Talbott Borrero"
+description: "Marie, reçu par Amada Réza : « Je veux que tu réalises le Don de cet Amour et ce que cela signifie pour toi de le voir disponible pour ton âme en quête … »"
 date: 2022-06-01 06:00:01+00:19
 draft: False
 hidden: True

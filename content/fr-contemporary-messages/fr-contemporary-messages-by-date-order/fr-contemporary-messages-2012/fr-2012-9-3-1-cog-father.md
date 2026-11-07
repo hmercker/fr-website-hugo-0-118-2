@@ -1,7 +1,7 @@
 ---
 title: "Tu demandes comment Me servir"
 menu_title: ""
-description: "Tu demandes comment Me servir"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Mon cher enfant, tu me demandes comment Me servir. Pour ceux d’entre vous qui connaissent et ressentent Mon … »"
 date: 2022-06-01 06:00:01+00:289
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La Métamorphose de l'Âme"
 menu_title: ""
-description: "La Métamorphose de l'Âme"
+description: "Orion, reçu par Albert Fike : « Vous exprimez bien vos besoins et vos dilemmes, mon ami, dans vos prières. Ce sont les besoins et les dilemmes de la … »"
 date: 2025-07-15 06:00:01+00:01
 draft: False
 hidden: True

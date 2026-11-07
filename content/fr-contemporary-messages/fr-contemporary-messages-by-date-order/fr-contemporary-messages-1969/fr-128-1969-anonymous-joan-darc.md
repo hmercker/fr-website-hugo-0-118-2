@@ -1,7 +1,7 @@
 ---
 title: "La plus grande force vient de Dieu"
 menu_title: ""
-description: "La plus grande force vient de Dieu"
+description: "Jeanne d'Arc : « Cela fait si longtemps que j'attends de parler, mes amis. Être le chef d'un groupe, quel qu'il soit, être un chef tout court, est une … »"
 date: 2022-06-01 06:00:01+00:94
 draft: False
 hidden: True

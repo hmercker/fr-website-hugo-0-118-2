@@ -1,7 +1,7 @@
 ---
 title: "Permettez à vos âmes d'informer vos esprits"
 menu_title: ""
-description: "Permettez à vos âmes d'informer vos esprits"
+description: "Yogananda, reçu par Jimbeau Walsh : « Pour ceux d’entre vous qui ont découvert le simple secret de permettre à leurs âmes d’être en ascension afin que … »"
 date: 2022-06-01 06:00:01+00:176
 draft: False
 hidden: True

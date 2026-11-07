@@ -1,7 +1,7 @@
 ---
 title: "Avoir de l’espoir"
 menu_title: ""
-description: "Avoir de l’espoir"
+description: "Amon, reçu par Jimbeau Walsh : « Ensemble mon Aman bien-aimé, le premier homme, et moi-même, nous nous sommes vus offrir le don de l’Amour Divin que nous … »"
 date: 2022-06-01 06:00:01+00:1560
 draft: False
 hidden: True

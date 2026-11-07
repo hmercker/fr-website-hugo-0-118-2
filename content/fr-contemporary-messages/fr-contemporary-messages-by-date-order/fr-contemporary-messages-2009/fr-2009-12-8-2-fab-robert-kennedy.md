@@ -1,7 +1,7 @@
 ---
 title: "Plus sur Robert Kennedy - 4"
 menu_title: ""
-description: "Plus sur Robert Kennedy - 4"
+description: "Robert Kennedy, reçu par FAB : « Lorsque je porte un regard sur ma vie terrestre, je me rends compte, qu'à bien des égards, je fus ordinaire. »"
 date: 2022-06-01 06:00:01+00:97
 draft: False
 hidden: True

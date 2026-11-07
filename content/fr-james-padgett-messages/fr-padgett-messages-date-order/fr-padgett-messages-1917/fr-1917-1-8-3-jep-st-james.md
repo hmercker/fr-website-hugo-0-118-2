@@ -1,7 +1,7 @@
 ---
 title: "Jacques écrit que le Dr Stone progresse dans le développement de son âme et dans son rapport avec les esprits des sphères supérieures"
 menu_title: ""
-description: "Jacques écrit que le Dr Stone progresse dans le développement de son âme et dans son rapport avec les esprits des sphères supérieures"
+description: "St Jacques, reçu par James Padgett : « Je voudrais partager quelques mots avec vous et avec le Dr. car, comme vous le savez, je m’intéresse … »"
 date: 2022-06-01 06:00:01+00:12
 draft: False
 hidden: True

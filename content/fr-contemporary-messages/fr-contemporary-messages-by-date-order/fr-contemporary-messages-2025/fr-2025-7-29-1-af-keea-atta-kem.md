@@ -1,7 +1,7 @@
 ---
 title: "Aimez-vous pour aimer le monde"
 menu_title: ""
-description: "Aimez-vous pour aimer le monde"
+description: "Keaa atta Kem, reçu par reçu par Al Fike : « L’amour est tout autour de vous. D’abord et avant tout, vous êtes aimés de Dieu d’une telle profondeur et … »"
 date: 2025-07-15 06:00:01+00:01
 draft: False
 hidden: True

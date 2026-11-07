@@ -1,7 +1,7 @@
 ---
 title: "Le monde bénéficiera de ce que j'ai reçu"
 menu_title: ""
-description: "Le monde bénéficiera de ce que j'ai reçu"
+description: "Robert James Lees, reçu par Jimbeau Walsh : « Et là où il y a erreur, elle est insignifiante comparée à la grande vérité de ce que j’ai reçu, qui est … »"
 date: 2022-06-01 06:00:01+00:1684
 draft: False
 hidden: True

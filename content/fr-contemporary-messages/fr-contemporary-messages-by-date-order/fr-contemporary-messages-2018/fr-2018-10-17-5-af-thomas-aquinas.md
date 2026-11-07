@@ -1,7 +1,7 @@
 ---
 title: "Le travail se poursuit si vous restez dévoué à Dieu"
 menu_title: ""
-description: "Le travail se poursuit si vous restez dévoué à Dieu"
+description: "Thomas d'Aquin, reçu par Al Fike : « Je souhaite remercier mon protégé pour ses efforts, ses prières profondes et sincères, son désir de grandir dans … »"
 date: 2022-06-01 06:00:01+00:523
 draft: False
 hidden: True

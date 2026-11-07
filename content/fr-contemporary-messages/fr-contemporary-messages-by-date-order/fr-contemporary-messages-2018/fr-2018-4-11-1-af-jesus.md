@@ -1,7 +1,7 @@
 ---
 title: "Jésus commente les expériences médiumniques"
 menu_title: ""
-description: "Jésus commente les expériences médiumniques"
+description: "Jésus, reçu par Al Fike : « Je souhaite commenter la description que cette chère âme fait de moi dans ses méditations et à suggérer que beaucoup d’âmes … »"
 date: 2022-06-01 06:00:01+00:379
 draft: False
 hidden: True

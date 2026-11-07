@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes dans la grâce et les bénédictions de Dieu"
 menu_title: ""
-description: "Vous êtes dans la grâce et les bénédictions de Dieu"
+description: "Jésus, reçu par Al Fike : « Je viens, âmes bien-aimées. Je marche avec vous pour toujours et nous sommes liés pour toute l’éternité. »"
 date: 2022-06-01 06:00:01+00:1096
 draft: False
 hidden: True

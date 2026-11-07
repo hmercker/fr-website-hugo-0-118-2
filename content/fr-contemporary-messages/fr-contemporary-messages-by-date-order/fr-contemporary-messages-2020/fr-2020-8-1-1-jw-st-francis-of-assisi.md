@@ -1,7 +1,7 @@
 ---
 title: "Embrassez tout dans l'Amour"
 menu_title: ""
-description: "Embrassez tout dans l'Amour"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Lorsque j’ai quitté la maison familiale et que j’ai commencé à marcher dans la nature, parmi la beauté de … »"
 date: 2022-06-01 06:00:01+00:1206
 draft: False
 hidden: True

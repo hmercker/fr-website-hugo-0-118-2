@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes uniques"
 menu_title: ""
-description: "Vous êtes uniques"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Il n’y en a jamais eu et il n’y en aura jamais un autre comme toi. Personne ne pourra jamais prendre ta place. »"
 date: 2022-06-01 06:00:01+00:26
 draft: False
 hidden: True

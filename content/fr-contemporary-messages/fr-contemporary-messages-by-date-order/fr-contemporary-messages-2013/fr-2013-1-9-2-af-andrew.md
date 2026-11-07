@@ -1,7 +1,7 @@
 ---
 title: "Soyez en paix"
 menu_title: ""
-description: "Soyez en paix"
+description: "André, reçu par Albert Fike : « Une paix profonde, mes enfants, une paix profonde. Une bénédiction pour chacun de vous. »"
 date: 2026-10-16 06:00:01+00:09
 draft: False
 hidden: True

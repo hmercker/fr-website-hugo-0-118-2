@@ -1,7 +1,7 @@
 ---
 title: "Choisir de vivre dans l'Amour de Dieu"
 menu_title: ""
-description: "Choisir de vivre dans l'Amour de Dieu"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Imaginez, si vous le voulez bien, être dans l’état d’amour à chaque instant. Imaginez la joie et le bonheur … »"
 date: 2022-06-01 06:00:01+00:873
 draft: False
 hidden: True

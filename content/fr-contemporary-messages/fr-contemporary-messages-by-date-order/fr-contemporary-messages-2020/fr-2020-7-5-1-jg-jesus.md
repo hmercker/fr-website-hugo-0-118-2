@@ -1,7 +1,7 @@
 ---
 title: "Le Pardon"
 menu_title: ""
-description: "Le Pardon"
+description: "Jésus (Yeshua ben Yosef), reçu par Jane Gartshore : « La leçon d’aujourd’hui porte sur le pardon. C’est une période où beaucoup se comportent d’une … »"
 date: 2022-06-01 06:00:01+00:1175
 draft: False
 hidden: True

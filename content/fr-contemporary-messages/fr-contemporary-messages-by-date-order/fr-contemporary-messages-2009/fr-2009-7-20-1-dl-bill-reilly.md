@@ -1,7 +1,7 @@
 ---
 title: "Un message de Bill Reilly"
 menu_title: ""
-description: "Un message de Bill Reilly"
+description: "Bill Reilly, reçu par Révérend Dave Lampron : « Mes très chers Jim, Joan, Laura et Michael, Je me rends compte que cela fait un certain temps que j’ai … »"
 date: 2022-06-01 06:00:01+00:65
 draft: False
 hidden: True

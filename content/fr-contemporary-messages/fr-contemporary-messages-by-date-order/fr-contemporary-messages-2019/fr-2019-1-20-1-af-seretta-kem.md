@@ -1,7 +1,7 @@
 ---
 title: "Soyez patient alors que l’Amour Divin grandit dans votre âme"
 menu_title: ""
-description: "Soyez patient alors que l’Amour Divin grandit dans votre âme"
+description: "Seretta Kem, reçu par Al Fike : « Ces graines ont été plantées en chacun de vous et continuent de croître. Bien que vous ne puissiez pas en ressentir … »"
 date: 2022-06-01 06:00:01+00:607
 draft: False
 hidden: True

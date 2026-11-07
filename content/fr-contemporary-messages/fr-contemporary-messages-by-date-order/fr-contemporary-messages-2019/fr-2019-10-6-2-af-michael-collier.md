@@ -1,7 +1,7 @@
 ---
 title: "Prions pour la bénédiction de l'Aamour de Dieu"
 menu_title: ""
-description: "Prions pour la bénédiction de l'Amour de Dieu"
+description: "Michael Collier, reçu par Al Fike : « Mes bien-aimées, je m’appelle Michael . J’étais avec ce cher instrument à son réveil, lui faisant comprendre combien … »"
 date: 2022-06-01 06:00:01+00:871
 draft: False
 hidden: True

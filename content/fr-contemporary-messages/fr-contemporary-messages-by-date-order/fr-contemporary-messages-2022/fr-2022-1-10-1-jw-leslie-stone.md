@@ -1,7 +1,7 @@
 ---
 title: "Ne vous laissez pas distraire par des questions secondaires"
 menu_title: ""
-description: "Ne vous laissez pas distraire par des questions secondaires"
+description: "Leslie Stone, reçu par Jimbeau Walsh : « J’ai souvent été présent auprès de James Padgett lorsqu’il recevait ce qu’on appelle des messages Célestes de … »"
 date: 2022-06-01 06:00:01+00:06
 draft: False
 hidden: True

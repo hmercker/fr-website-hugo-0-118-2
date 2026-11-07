@@ -1,7 +1,7 @@
 ---
 title: "La nécessité d’obtenir l’Amour Divin ; ceux qui refusent ce Grand Don après le retrait du privilège de l’obtenir souffriront la « seconde mort »"
 menu_title: ""
-description: "La nécessité d’obtenir l’Amour Divin ; ceux qui refusent ce Grand Don après le retrait du privilège de l’obtenir souffriront la « seconde mort »"
+description: "Anne Rollins, reçu par James Padgett : « J’ai pensé que je pourrais t’écrire un message ce soir, si tu veux bien le recevoir. Le seul moyen par lequel le … »"
 date: 2022-06-01 06:00:01+00:235
 draft: False
 hidden: True

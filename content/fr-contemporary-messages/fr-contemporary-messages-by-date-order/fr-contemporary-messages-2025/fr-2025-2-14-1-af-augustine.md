@@ -1,7 +1,7 @@
 ---
 title: "Message de la Saint-Valentin pour tous"
 menu_title: ""
-description: "Message de la Saint-Valentin pour tous"
+description: "Augustin, reçu par Albert Fike : « Il est plutôt amusant qu’une journée dans l’année soit consacrée à l’amour, alors qu’en réalité, chaque jour de l’année … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

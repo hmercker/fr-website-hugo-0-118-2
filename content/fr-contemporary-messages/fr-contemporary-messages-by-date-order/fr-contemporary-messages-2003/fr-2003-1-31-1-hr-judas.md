@@ -1,7 +1,7 @@
 ---
 title: "La parabole du bois pourri"
 menu_title: ""
-description: "La parabole du bois pourri"
+description: "Judas, reçu par H : « Bien entendu, Jésus a eu recours à beaucoup d’autres paraboles, bien qu’elles ne figurent pas dans la Bible, afin de rendre ses … »"
 date: 2022-06-01 06:00:01+00:19
 draft: False
 hidden: True

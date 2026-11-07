@@ -1,7 +1,7 @@
 ---
 title: "Un seul pas sur le chemin sans fin"
 menu_title: ""
-description: "Un seul pas sur le chemin sans fin"
+description: "Lao Tseu, reçu par Jimbeau Walsh : « Imaginez un instant pénétrer dans une sphère d’une intensité si forte que vous en seriez presque aveuglés, peinant à … »"
 date: 2026-06-10 16:00:01+00:01
 draft: False
 hidden: True

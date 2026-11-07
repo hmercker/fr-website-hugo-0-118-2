@@ -1,7 +1,7 @@
 ---
 title: "Le miracle de Naïm"
 menu_title: ""
-description: "Le miracle de Naïm"
+description: "Judas, reçu par H : « Mon cher frère, pour commencer ce message, je veux juste te rappeler les nouvelles que tu as entendues aujourd’hui. »"
 date: 2022-06-01 06:00:01+00:32
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Les Anges se préparent à nous accueillir à Harrow"
 menu_title: ""
-description: "Les Anges se préparent à nous accueillir à Harrow"
+description: "Estelle Roberts et Augustin, reçu par Albert Fike : « Je tiens à vous dire que nous travaillons sans relâche pour attirer de nombreuses personnes dans … »"
 date: 2025-11-21 06:00:01+00:01
 draft: False
 hidden: True

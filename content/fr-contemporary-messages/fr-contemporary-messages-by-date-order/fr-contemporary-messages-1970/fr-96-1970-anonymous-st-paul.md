@@ -1,7 +1,7 @@
 ---
 title: "Soyez des serviteurs de Dieu"
 menu_title: ""
-description: "Soyez des serviteurs de Dieu"
+description: "St Paul : « Mes enfants, je voudrais demander à chacun d'entre vous de quitter cet endroit ce soir, déterminé plus que jamais à être des serviteurs de … »"
 date: 2022-06-01 06:00:01+00:126
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Affirme sa collaboration avec Seretta Kem"
 menu_title: ""
-description: "Affirme sa collaboration avec Seretta Kem"
+description: "Orion, reçu par Al Fike : « En effet, il appartient à chacun d’entre vous d’accepter cette invitation et de permettre ce qui est donné à travers ces … »"
 date: 2022-06-01 06:00:01+00:1644
 draft: False
 hidden: True

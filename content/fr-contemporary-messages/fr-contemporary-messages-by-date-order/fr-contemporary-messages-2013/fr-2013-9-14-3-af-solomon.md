@@ -1,7 +1,7 @@
 ---
 title: "La chaîne d'amour"
 menu_title: ""
-description: "La chaîne d'amour"
+description: "Salomon, reçu par Albert Fike : « Vous recherchez avec ferveur la vérité, la lumière, la bonté, le service et la droiture — la lumière de l’Amour. »"
 date: 2026-10-21 06:00:01+00:09
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Quand l'âme est imprégnée de l'Amour de Dieu, tout est possible"
 menu_title: ""
-description: "Quand l'âme est imprégnée de l'Amour de Dieu, tout est possible"
+description: "Paul, reçu par Jimbeau Walsh : « Que l’Amour de Dieu soit sur vous et en vous. Bien sûr, je ne l’ai pas fait parfaitement ni sans erreur, mais comme je … »"
 date: 2025-11-10 06:00:01+00:01
 draft: False
 hidden: True

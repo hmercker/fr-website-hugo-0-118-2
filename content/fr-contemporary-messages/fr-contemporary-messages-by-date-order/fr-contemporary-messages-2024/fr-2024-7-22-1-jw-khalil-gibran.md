@@ -1,7 +1,7 @@
 ---
 title: "Le cadeau de l'amour intemporel"
 menu_title: ""
-description: "Le cadeau de l'amour intemporel"
+description: "Khalil Gibran, reçu par Jimbeau Walsh : « Quelle merveille que d’avoir mis le monde de côté cette fois-ci pour permettre à votre âme, votre âme … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

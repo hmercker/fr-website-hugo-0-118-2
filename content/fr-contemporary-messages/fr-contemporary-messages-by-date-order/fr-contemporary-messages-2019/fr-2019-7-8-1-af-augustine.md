@@ -1,7 +1,7 @@
 ---
 title: "Q&R : Le don de la médiumnité"
 menu_title: ""
-description: "Q&R : Le don de la médiumnité"
+description: "Augustin, reçu par Al Fike : « C’est votre maître Augustin qui est venu de nouveau pour parler. Je souhaite parler du don de médiumnité ; donner une … »"
 date: 2022-06-01 06:00:01+00:767
 draft: False
 hidden: True

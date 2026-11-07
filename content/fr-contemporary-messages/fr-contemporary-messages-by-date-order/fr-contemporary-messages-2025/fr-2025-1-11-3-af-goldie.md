@@ -1,7 +1,7 @@
 ---
 title: "Libérez-vous du bavardage de votre esprit pour que le plaisir et la liberté commencent !"
 menu_title: ""
-description: "Libérez-vous du bavardage de votre esprit pour que le plaisir et la liberté commencent !"
+description: "Goldie, reçu par Albert Fike : « Lorsque l’esprit se libère du bavardage, comme le dit notre cher ami, le plaisir commence. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Mme Padgett confirme que le Pasteur Russell a écrit, et qu’il est dans une grande obscurité à cause de ses enseignements erronés pendant son séjour sur terre"
 menu_title: ""
-description: "Mme Padgett confirme que le Pasteur Russell a écrit, et qu’il est dans une grande obscurité à cause de ses enseignements erronés pendant son séjour sur terre"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien mon cher, tu viens de recevoir une lettre du pasteur Russell, qui, comme il le dit, a été avec toi au … »"
 date: 2022-06-01 06:00:01+00:53
 draft: False
 hidden: True

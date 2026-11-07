@@ -1,7 +1,7 @@
 ---
 title: "Luc donne Son témoignage"
 menu_title: ""
-description: "Luc donne Son témoignage"
+description: "St Luc, reçu par James Padgett : « Permettez-moi d’ajouter mon témoignage, et vous verrez bientôt que tout doute n’est que de la folie. »"
 date: 2022-06-01 06:00:01+00:140
 draft: False
 hidden: True

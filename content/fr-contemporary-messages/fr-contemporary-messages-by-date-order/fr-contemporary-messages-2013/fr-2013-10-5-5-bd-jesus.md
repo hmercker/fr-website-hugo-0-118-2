@@ -1,7 +1,7 @@
 ---
 title: "Vous trouverez votre chemin"
 menu_title: ""
-description: "Vous trouverez votre chemin"
+description: "Jésus, reçu par Barbara Dvies : « … précieux dans votre monde, chacun d’entre vous est profondément nécessaire et vous trouverez votre chemin, qui vous … »"
 date: 2026-10-21 06:00:01+00:09
 draft: False
 hidden: True

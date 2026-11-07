@@ -1,7 +1,7 @@
 ---
 title: "Connaître Dieu avec le mental de l’âme"
 menu_title: ""
-description: "Connaître Dieu avec le mental de l’âme"
+description: "Thomas d'Aquin, reçu par Al Fike : « Je vous souhaite la bienvenue en cette belle journée alors que je parle au nom de mes compatriotes dans cette œuvre … »"
 date: 2022-06-01 06:00:01+00:513
 draft: False
 hidden: True

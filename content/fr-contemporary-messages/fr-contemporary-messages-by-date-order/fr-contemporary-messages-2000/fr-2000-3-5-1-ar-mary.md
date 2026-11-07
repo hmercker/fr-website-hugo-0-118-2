@@ -1,7 +1,7 @@
 ---
 title: "Message d’espoir"
 menu_title: ""
-description: "Message d’espoir"
+description: "Marie, reçu par Amada Réza : « Je veux partager avec vous, mes enfants, un message d’espoir, car il est parfois très difficile de voir l’Amour de Dieu à … »"
 date: 2022-06-01 06:00:01+00:05
 draft: False
 hidden: True

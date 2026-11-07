@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes tous des êtres saints !"
 menu_title: ""
-description: "Vous êtes tous des êtres saints !"
+description: "Yogananda, reçu par Albert Fike : « Que es choses de l’Amour Divin entrent dans vos âmes. N’est-ce pas ce que vous venez chercher ? »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

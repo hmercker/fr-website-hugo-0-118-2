@@ -1,7 +1,7 @@
 ---
 title: "Hélène affirme que Jean a écrit sur la sélection de M. Padgett pour œuvrer pour le Royaume"
 menu_title: ""
-description: "Hélène affirme que Jean a écrit sur la sélection de M. Padgett pour œuvrer pour le Royaume"
+description: "Hélène Padgett, reçu par James Padgett : « J’écris maintenant, car je veux ajouter mon témoignage à celui de Mary et de Mme Stone quant à la vérité du … »"
 date: 2022-06-01 06:00:01+00:45
 draft: False
 hidden: True

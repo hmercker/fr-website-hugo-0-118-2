@@ -1,7 +1,7 @@
 ---
 title: "Que ceux qui cherchent soient récompensés"
 menu_title: ""
-description: "Que ceux qui cherchent soient récompensés"
+description: "Évêque Alexis : « Que l'Amour de Dieu coule dans vos âmes, mes enfants, en si grande quantité que vous puissiez rayonner de bonté et attirer à vous de … »"
 date: 2022-06-01 06:00:01+00:50
 draft: False
 hidden: True

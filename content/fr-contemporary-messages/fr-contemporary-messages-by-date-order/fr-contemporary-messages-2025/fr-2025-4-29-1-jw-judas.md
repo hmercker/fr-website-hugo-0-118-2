@@ -1,7 +1,7 @@
 ---
 title: "Semez les graines de la Vérité dans le monde sans inquiétude"
 menu_title: ""
-description: "Semez les graines de la Vérité dans le monde sans inquiétude"
+description: "Judas, reçu par reçu par Jimbeau Walsh : « Je souhaite également aborder ce sujet qui vous est si cher à tous : apporter au monde les vérités de l’Amour … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

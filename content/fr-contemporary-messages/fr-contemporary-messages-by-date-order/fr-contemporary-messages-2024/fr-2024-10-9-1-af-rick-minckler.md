@@ -1,7 +1,7 @@
 ---
 title: "Message de Joie"
 menu_title: ""
-description: "Message de Joie"
+description: "Rick Minckler, reçu par Albert Fike : « Oh, comme je vois beaucoup plus clairement que je ne le faisais. Comme je désirais voir clairement ce qu’est la … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

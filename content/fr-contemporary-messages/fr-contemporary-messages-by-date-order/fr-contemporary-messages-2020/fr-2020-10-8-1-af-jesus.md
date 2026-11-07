@@ -1,7 +1,7 @@
 ---
 title: "Leçon 2 : Le choix – Choisissez de changer vos façons de voir et de comprendre le monde"
 menu_title: ""
-description: "Leçon 2 : Le choix – Choisissez de changer vos façons de voir et de comprendre le monde"
+description: "Jésus, reçu par Al Fike : « Car votre Terre est malade. Elle décline lentement dans ses fonctions naturelles et sa vitalité et elle continuera à décliner … »"
 date: 2022-06-01 06:00:01+00:1272
 draft: False
 hidden: True

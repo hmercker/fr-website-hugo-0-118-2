@@ -1,7 +1,7 @@
 ---
 title: "Vous saurez quand Dieu placera une âme sur votre chemin"
 menu_title: ""
-description: "Vous saurez quand Dieu placera une âme sur votre chemin"
+description: "Confucius, reçu par Al Fike : « Oh, comme mes petits oiseaux aiment se rassembler, n’est-ce pas ! Et comme Dieu aime entendre les chants que vous Lui … »"
 date: 2026-10-28 06:00:01+00:24
 draft: False
 hidden: True

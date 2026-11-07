@@ -1,7 +1,7 @@
 ---
 title: "Le chemin de l'Amour Divin est la voie de l'âme"
 menu_title: ""
-description: "Le chemin de l'Amour Divin est la voie de l'âme"
+description: "Augustin, reçu par Maureen Cardoso : « Il est bon de vous voir réunis en prière dans ce beau sanctuaire, ce Centre de Lumière. En effet, vous avez eu ce … »"
 date: 2022-06-01 06:00:01+00:480
 draft: False
 hidden: True

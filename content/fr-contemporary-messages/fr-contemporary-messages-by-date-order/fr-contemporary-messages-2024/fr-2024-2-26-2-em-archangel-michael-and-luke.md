@@ -1,7 +1,7 @@
 ---
 title: "Guérison"
 menu_title: ""
-description: "Guérison"
+description: "Archange Michaël et St Luc, reçu par Elizabeth Mack : « Vous tous sur Terre, qui êtes les enfants du Tout-Puissant dans vos âmes, êtes protégés et élevés … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

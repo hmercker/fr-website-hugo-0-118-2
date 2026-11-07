@@ -1,7 +1,7 @@
 ---
 title: "La vision globale"
 menu_title: ""
-description: "La vision globale"
+description: "Judas, reçu par H : « Samedi dernier, quand tu as parlé avec ton invité, tu as entrepris, en esprit, un voyage à travers quelques décennies, et tu as … »"
 date: 2022-06-01 06:00:01+00:15
 draft: False
 hidden: True

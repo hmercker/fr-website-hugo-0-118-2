@@ -1,7 +1,7 @@
 ---
 title: "Un message d'Amour"
 menu_title: ""
-description: "Un message d'Amour"
+description: "Elyon, reçu par NA : « Nous, du royaume Céleste, aimons écrire et délivrer des messages d'amour concernant l'Amour Divin de notre Père et notre … »"
 date: 2022-06-01 06:00:01+00:02
 draft: False
 hidden: True

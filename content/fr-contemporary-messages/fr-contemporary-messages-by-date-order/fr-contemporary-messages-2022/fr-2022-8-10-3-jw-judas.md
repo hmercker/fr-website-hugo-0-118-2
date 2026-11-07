@@ -1,7 +1,7 @@
 ---
 title: "Les deux frères"
 menu_title: ""
-description: "Les deux frères"
+description: "Judas, reçu par Jimbeau Walsh : « Laissez-moi vous raconter l’histoire de ces deux frères. Tous deux avaient le don de médiumnité ; des canaux de lumière … »"
 date: 2022-06-01 06:00:01+00:164
 draft: False
 hidden: True

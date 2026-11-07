@@ -1,7 +1,7 @@
 ---
 title: "Jésus – Les efforts des esprits pour montrer aux hommes les Vérités du Père"
 menu_title: ""
-description: "Jésus – Les efforts des esprits pour montrer aux hommes les Vérités du Père"
+description: "Jésus, reçu par James Padgett : « Je veux compléter le message, que vous avez reçu de votre grand-mère, sur les efforts du monde des esprits pour montrer … »"
 date: 2022-06-01 06:00:01+00:125
 draft: False
 hidden: True

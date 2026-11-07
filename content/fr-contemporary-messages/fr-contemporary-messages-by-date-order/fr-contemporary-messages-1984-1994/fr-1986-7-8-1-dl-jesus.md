@@ -1,7 +1,7 @@
 ---
 title: "La loi de la Prière"
 menu_title: ""
-description: "La loi de la Prière"
+description: "Jésus, reçu par Révérend Dave Lampron : « Nous ne savons pas tout ce qu’il faut savoir. Mais nous sommes conscients de certaines lois qui, si elles sont … »"
 date: 2022-06-01 06:00:01+00:09
 draft: False
 hidden: True

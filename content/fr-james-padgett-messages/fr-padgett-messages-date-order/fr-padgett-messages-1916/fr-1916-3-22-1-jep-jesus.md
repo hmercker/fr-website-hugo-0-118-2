@@ -1,7 +1,7 @@
 ---
 title: "Jésus a choisi M Eugène Morgan pour faire un travail en référence à la propagation de Ses vérités"
 menu_title: ""
-description: "Jésus a choisi M Eugène Morgan pour faire un travail en référence à la propagation de Ses vérités"
+description: "Jésus, reçu par James Padgett : « Je vais prochainement vous communiquer la prière, avec elle vous recevrez une illumination spirituelle sur sa … »"
 date: 2022-06-01 06:00:01+00:185
 draft: False
 hidden: True

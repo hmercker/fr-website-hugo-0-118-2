@@ -1,7 +1,7 @@
 ---
 title: "La loi de la création et Sathya Sai Baba"
 menu_title: ""
-description: "La loi de la création et Sathya Sai Baba"
+description: "Sri Yarisupta, reçu par WV : « Laissez-moi commencer par dire qu’il n’était pas un avatar. Lorsqu’il est mort, il est entré dans ce que l’on appelle la … »"
 date: 2022-06-01 06:00:01+00:77
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Instructions sur la Voix Directe"
 menu_title: ""
-description: "Instructions sur la Voix Directe"
+description: "Jacques : « Alec, j'aimerais que tu rassembles un petit groupe afin de s'asseoir ensemble pour la Voix Directe. »"
 date: 2022-06-01 06:00:01+00:29
 draft: False
 hidden: True

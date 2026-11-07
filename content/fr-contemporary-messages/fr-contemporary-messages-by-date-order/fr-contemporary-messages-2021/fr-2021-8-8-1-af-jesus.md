@@ -1,7 +1,7 @@
 ---
 title: "Soyez une lumière dans le monde"
 menu_title: ""
-description: "Soyez une lumière dans le monde"
+description: "Jésus, reçu par Al Fike : « C’est dans ce désir profond et sincère de Dieu que les puissantes bénédictions de Son Amour viennent en vous. »"
 date: 2022-06-01 06:00:01+00:1594
 draft: False
 hidden: True

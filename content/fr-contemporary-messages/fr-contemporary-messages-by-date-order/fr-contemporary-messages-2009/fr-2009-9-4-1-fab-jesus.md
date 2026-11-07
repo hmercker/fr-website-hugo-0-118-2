@@ -1,7 +1,7 @@
 ---
 title: "La véritable croissance de l’âme"
 menu_title: ""
-description: "La véritable croissance de l’âme"
+description: "Jésus, reçu par FAB : « Le message de James Padgett a dit la vérité lorsqu’il a affirmé que le changement permanent et authentique de l’âme se produit non … »"
 date: 2022-06-01 06:00:01+00:80
 draft: False
 hidden: True

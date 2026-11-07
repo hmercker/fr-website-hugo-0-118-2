@@ -1,7 +1,7 @@
 ---
 title: "Attitude des entreprises vis-à-vis de l'environnement"
 menu_title: ""
-description: "Attitude des entreprises vis-à-vis de l'environnement"
+description: "Jésus, reçu par FAB : « Cependant, au fur et à mesure que l'humanité évolue, de plus en plus d'entités corporatives suivront simplement les réformes … »"
 date: 2022-06-01 06:00:01+00:88
 draft: False
 hidden: True

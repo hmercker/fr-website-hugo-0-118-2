@@ -1,7 +1,7 @@
 ---
 title: "Réponses aux questions sur la guérison par l'Amour Divin"
 menu_title: ""
-description: "Réponses aux questions sur la guérison par l'Amour Divin"
+description: "Sri Yarisupta, reçu par Al Fike : « Que la lumière brille sur chacun de vous et sur votre monde. Il y a beaucoup d’énergies de guérison dans l’univers et … »"
 date: 2022-06-01 06:00:01+00:616
 draft: False
 hidden: True

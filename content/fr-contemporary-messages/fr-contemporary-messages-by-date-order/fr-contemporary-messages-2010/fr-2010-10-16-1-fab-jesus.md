@@ -1,7 +1,7 @@
 ---
 title: "L'importance relative de la politique et de l'économie"
 menu_title: ""
-description: "L'importance relative de la politique et de l'économie"
+description: "Jésus, reçu par FAB : « Eh bien, il y a une grande vérité dans cela, car ce sera toujours notre préoccupation ultime. »"
 date: 2022-06-01 06:00:01+00:161
 draft: False
 hidden: True

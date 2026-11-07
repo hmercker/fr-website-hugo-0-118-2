@@ -1,7 +1,7 @@
 ---
 title: "Abraham Lincoln parle de la condition de l’Amérique et nous implore d’atteindre la lumière"
 menu_title: ""
-description: "Abraham Lincoln parle de la condition de l’Amérique et nous implore d’atteindre la lumière"
+description: "Abraham Lincoln, reçu par Al Fike : « Depuis que ce médium a lu mes efforts en matière de spiritualisme, il m’a attiré à lui Comme vous le savez, je fais … »"
 date: 2022-06-01 06:00:01+00:1357
 draft: False
 hidden: True

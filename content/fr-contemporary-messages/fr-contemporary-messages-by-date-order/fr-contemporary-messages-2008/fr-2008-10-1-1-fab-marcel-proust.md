@@ -1,7 +1,7 @@
 ---
 title: "Proust décrit son expérience avec la Madeleine"
 menu_title: ""
-description: "Proust décrit son expérience avec la Madeleine"
+description: "Marcel Proust, reçu par FAB : « Et tous vos amis les Anges le sont aussi ! Je souhaite vous instruire sur ce moment déterminant qui a donné lieu au thème … »"
 date: 2022-06-01 06:00:01+00:118
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Compagnons explorateurs"
 menu_title: ""
-description: "Compagnons explorateurs"
+description: "Galilée, reçu par Jimbeau Walsh : « Chers explorateurs, vous qui avez transcendé les systèmes de croyances qui maintiennent le monde dans l'obscurité … »"
 date: 2026-04-03 16:00:01+00:01
 draft: False
 hidden: True

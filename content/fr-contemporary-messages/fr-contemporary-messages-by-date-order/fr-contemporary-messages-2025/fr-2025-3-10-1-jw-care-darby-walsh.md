@@ -1,7 +1,7 @@
 ---
 title: "Les bénédictions de la tragédie"
 menu_title: ""
-description: "Les bénédictions de la tragédie"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Mes chers, reposons-nous du monde un instant. Ressentons l’Amour de Dieu et Sa sainte présence dans ce cercle. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

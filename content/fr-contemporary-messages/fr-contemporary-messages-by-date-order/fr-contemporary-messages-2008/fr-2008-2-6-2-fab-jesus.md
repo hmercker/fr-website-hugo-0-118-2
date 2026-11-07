@@ -1,7 +1,7 @@
 ---
 title: "Quelle est la vérité sur l'évolution - 4"
 menu_title: ""
-description: "Quelle est la vérité sur l'évolution - 4"
+description: "Jésus, reçu par FAB : « En réponse à la confusion d'un collègue de l'église concernant ma première canalisation sur l'évolution, permettez-moi de clarifier. »"
 date: 2022-06-01 06:00:01+00:20
 draft: False
 hidden: True

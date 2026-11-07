@@ -1,7 +1,7 @@
 ---
 title: "L'amour naturel de Dieu"
 menu_title: ""
-description: "L'amour naturel de Dieu"
+description: "Confucius : « Augustin s'impatiente ; je sens qu'il a attendu si longtemps la voix directe, mais son amour pour vous est fort et je vous aime beaucoup. »"
 date: 2022-06-01 06:00:01+00:24
 draft: False
 hidden: True

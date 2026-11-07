@@ -1,7 +1,7 @@
 ---
 title: "L’aide est en chemin"
 menu_title: ""
-description: "L’aide est en chemin"
+description: "Jésus, reçu par FAB : « Lien vers les messages des années 2012 Lien vers la liste des messages contemporains classées par année »"
 date: 2022-06-01 06:00:01+00:230
 draft: False
 hidden: True

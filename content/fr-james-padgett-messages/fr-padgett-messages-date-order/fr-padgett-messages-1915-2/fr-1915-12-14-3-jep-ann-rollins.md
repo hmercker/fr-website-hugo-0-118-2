@@ -1,7 +1,7 @@
 ---
 title: "Anne Rollins affirme l’amour de Jésus pour M. Padgett. La merveilleuse expérience – tous furent surpris à la démonstration de sa gloire"
 menu_title: ""
-description: "Anne Rollins affirme l’amour de Jésus pour M. Padgett. La merveilleuse expérience – tous furent surpris à la démonstration de sa gloire"
+description: "Anne Rollins, reçu par James Padgett : « Permets-moi d’écrire alors que le pouvoir du Maître est encore ici, et te dire que tu as eu, ce soir, une … »"
 date: 2022-06-01 06:00:01+00:87
 draft: False
 hidden: True

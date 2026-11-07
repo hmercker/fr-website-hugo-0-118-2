@@ -1,7 +1,7 @@
 ---
 title: "Un ex-président est encore dans les ténèbres à cause de certains désirs terrestres"
 menu_title: ""
-description: "Un ex-président est encore dans les ténèbres à cause de certains désirs terrestres"
+description: "Andrew Jonhson, reçu par James Padgett : « J’étais un grand buveur lorsque j’étais sur terre et je bois toujours et je ne suis jamais satisfait. »"
 date: 2022-06-01 06:00:01+00:87
 draft: False
 hidden: True

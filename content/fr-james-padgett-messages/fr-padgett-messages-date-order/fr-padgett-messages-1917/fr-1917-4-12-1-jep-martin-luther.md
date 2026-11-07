@@ -1,7 +1,7 @@
 ---
 title: "M. Luther écrit que M. Padgett ne se trompera pas comme il l’a fait parce que ses écrits proviennent uniquement d’esprits et d’anges qui connaissent la vérité de Dieu"
 menu_title: ""
-description: "M. Luther écrit que M. Padgett ne se trompera pas comme il l’a fait parce que ses écrits proviennent uniquement d’esprits et d’anges qui connaissent la vérité de Dieu"
+description: "Martin Luther, reçu par James Padgett : « Durant me vie terrestre, j’ai été confronté à mes problèmes et mes souffrances, mais, grâce au Père, je n’ai … »"
 date: 2022-06-01 06:00:01+00:102
 draft: False
 hidden: True

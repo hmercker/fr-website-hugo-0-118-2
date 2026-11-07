@@ -1,7 +1,7 @@
 ---
 title: "43ème Sermon – Les premiers sermons de Jérémie"
 menu_title: ""
-description: "43ème Sermon – Les premiers sermons de Jérémie"
+description: "Jésus, reçu par Dr Samuels : « Maintenant lorsque Jérémie commença à prêcher, la réforme de Josias avait cours depuis plus de deux ans. »"
 date: 2022-06-01 06:00:01+00:96
 draft: False
 hidden: True

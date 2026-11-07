@@ -1,7 +1,7 @@
 ---
 title: "Shakespeare - Adolescence"
 menu_title: ""
-description: "Shakespeare - Adolescence"
+description: "William Shakespeare, reçu par FAB : « La légende selon laquelle j'aurais bu, puis dormi sous un arbre, n'a rien de vrai. Quand j'avais 16 ans, je faisais … »"
 date: 2022-06-01 06:00:01+00:142
 draft: False
 hidden: True

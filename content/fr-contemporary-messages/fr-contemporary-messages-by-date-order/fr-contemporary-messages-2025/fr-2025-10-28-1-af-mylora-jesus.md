@@ -1,7 +1,7 @@
 ---
 title: "Unis dans l'Amour de Dieu pour Bénir le Monde"
 menu_title: ""
-description: "Unis dans l'Amour de Dieu pour Bénir le Monde"
+description: "Mylora et Jésus, reçu par Albert Fike : « Car, tandis que nous illuminons cette magnifique source de guérison, cette belle façon de nous connecter, alors … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

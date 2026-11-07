@@ -1,7 +1,7 @@
 ---
 title: "Bénédictions spéciales de grande joie !"
 menu_title: ""
-description: "Bénédictions spéciales de grande joie !"
+description: "Kea Atta Kem, reçu par Albert Fike : « En effet, cet amour est un élément important, une partie importante de la vie de chacun. Mais je ne parle pas de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

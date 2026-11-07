@@ -1,7 +1,7 @@
 ---
 title: "James A. Garfield aimerait pouvoir influencer notre président en lui disant qu’il néglige des questions d’une plus grande importance à à cause de sa position de paix"
 menu_title: ""
-description: "James A. Garfield aimerait pouvoir influencer notre président en lui disant qu’il néglige des questions d’une plus grande importance à à cause de sa position de paix"
+description: "James Garfield, reçu par James Padgett : « Je sais que ce que je dis n’a peut-être pas d’importance pour plusieurs raisons : l’une est que personne ne … »"
 date: 2022-06-01 06:00:01+00:68
 draft: False
 hidden: True

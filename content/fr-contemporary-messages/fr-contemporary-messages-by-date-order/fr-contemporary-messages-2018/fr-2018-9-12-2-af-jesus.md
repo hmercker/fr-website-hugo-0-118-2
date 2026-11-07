@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes des canaux de lumière et d'amour"
 menu_title: ""
-description: "Vous êtes des canaux de lumière et d'amour"
+description: "Jésus, reçu par Al Fike : « Vous devez porter cette lumière avec vous et vous devez prier pour que cette lumière augmente en vous, afin que la bénédiction … »"
 date: 2022-06-01 06:00:01+00:473
 draft: False
 hidden: True

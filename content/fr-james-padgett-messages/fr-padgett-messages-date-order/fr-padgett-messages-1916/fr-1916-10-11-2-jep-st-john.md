@@ -1,7 +1,7 @@
 ---
 title: "Jésus ne viendra jamais dans toute sa gloire et puissance pour emmener les hommes dans son Ciel, alors qu’ils sont dans le corps, l’âme et l’esprit"
 menu_title: ""
-description: "Jésus ne viendra jamais dans toute sa gloire et puissance pour emmener les hommes dans son Ciel, alors qu’ils sont dans le corps, l’âme et l’esprit"
+description: "St Jean, reçu par James Padgett : « Je veux simplement dire que j’ai écouté votre lecture de mon message et entendu vos commentaires sur lui, et vous avez … »"
 date: 2022-06-01 06:00:01+00:292
 draft: False
 hidden: True

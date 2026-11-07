@@ -1,7 +1,7 @@
 ---
 title: "Forces sociales, économiques et politiques"
 menu_title: ""
-description: "Forces sociales, économiques et politiques"
+description: "Jésus, reçu par FAB : « Je veux clarifier ce que j'ai voulu dire dans la canalisation d'aujourd'hui « Richesse Matérielle » lorsque j'ai dit : « Nous ne … »"
 date: 2022-06-01 06:00:01+00:44
 draft: False
 hidden: True

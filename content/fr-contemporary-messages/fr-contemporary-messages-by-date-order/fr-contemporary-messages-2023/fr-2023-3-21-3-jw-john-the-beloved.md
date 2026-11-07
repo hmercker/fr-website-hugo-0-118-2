@@ -1,7 +1,7 @@
 ---
 title: "La compagnie des anges"
 menu_title: ""
-description: "La compagnie des anges"
+description: "Judas, reçu par Jimbeau Walsh : « Que la lumière de l’Amour de Dieu remplisse chaque âme ici présente. Sachez que vous êtes un enfant précieux du Père … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

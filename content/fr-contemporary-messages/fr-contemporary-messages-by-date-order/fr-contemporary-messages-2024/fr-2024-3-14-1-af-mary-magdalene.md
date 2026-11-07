@@ -1,7 +1,7 @@
 ---
 title: "Décrit sa relation avec Jesus"
 menu_title: ""
-description: "Décrit sa relation avec Jesus"
+description: "Marie Madeleine, reçu par Albert Fike : « Ne faiblissez pas sur le chemin, mais recherchez ceci. En recherchant ainsi, vous apprendrez à me connaître … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

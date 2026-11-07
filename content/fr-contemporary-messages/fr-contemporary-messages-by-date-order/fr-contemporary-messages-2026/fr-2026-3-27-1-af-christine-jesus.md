@@ -1,7 +1,7 @@
 ---
 title: "Devenir des instruments de lumière dans un monde en mutation"
 menu_title: ""
-description: "Devenir des instruments de lumière dans un monde en mutation"
+description: "Christine et Jésus, reçu par Al Fike : « Certains d’entre vous me connaissent, d’autres non, mais sachez que même moi, qui viens de loin, je participe à … »"
 date: 2026-05-28 16:00:01+00:01
 draft: False
 hidden: True

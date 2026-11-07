@@ -1,7 +1,7 @@
 ---
 title: "Décrit plus en détail son travail avec ce projet Voix Directe"
 menu_title: ""
-description: "Décrit plus en détail son travail avec ce projet Voix Directe"
+description: "Orion & Augustin, reçu par Al Fike : « Je tiens à vous féliciter pour tous les efforts que vous avez déployés jusqu’à présent. Vous avez en effet gravi … »"
 date: 2022-06-01 06:00:01+00:1638
 draft: False
 hidden: True

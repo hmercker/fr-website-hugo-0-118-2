@@ -1,7 +1,7 @@
 ---
 title: "Questions et réponses lors de la retraite de Poughkeepsie"
 menu_title: ""
-description: "Questions et réponses lors de la retraite de Poughkeepsie"
+description: "Orion, reçu par Albert Fike : « Merci de m’avoir invité, mes amis. Malheureusement, les mots sont un moyen de communication si peu élégant. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Joseph se marie avec Marie et retourne à Bethléem"
 menu_title: ""
-description: "Joseph se marie avec Marie et retourne à Bethléem"
+description: "Judas, reçu par H : « Mon cher H , je me sens heureux d’être en mesure de délivrer un autre message par ton intermédiaire. »"
 date: 2022-06-01 06:00:01+00:56
 draft: False
 hidden: True

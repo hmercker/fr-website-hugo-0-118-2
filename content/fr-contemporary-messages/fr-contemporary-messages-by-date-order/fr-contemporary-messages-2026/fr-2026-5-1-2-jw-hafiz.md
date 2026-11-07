@@ -1,7 +1,7 @@
 ---
 title: "Sept grains de vérité"
 menu_title: ""
-description: "Sept grains de vérité"
+description: "Hafiz, reçu par Jimbeau Walsh : « Ce qui est créé dans les ténèbres peut regarder sans voir. Ce qui est créé dans le chaos peut écouter sans entendre. »"
 date: 2026-09-30 06:00:01+00:01
 draft: False
 hidden: True

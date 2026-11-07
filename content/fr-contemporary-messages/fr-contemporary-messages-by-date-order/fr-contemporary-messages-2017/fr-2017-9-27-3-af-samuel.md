@@ -1,7 +1,7 @@
 ---
 title: "Les dons et le but de chaque âme"
 menu_title: ""
-description: "Les dons et le but de chaque âme"
+description: "Samuel, reçu par Al Fike : « La raison première pour laquelle une âme s'incarne dans le monde est d'établir son identité, une individualité qui vient avec … »"
 date: 2022-06-01 06:00:01+00:124
 draft: False
 hidden: True

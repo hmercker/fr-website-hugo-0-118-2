@@ -1,7 +1,7 @@
 ---
 title: "La vérité passe par l'âme éveillée par l'Amour de Dieu"
 menu_title: ""
-description: "La vérité passe par l'âme éveillée par l'Amour de Dieu"
+description: "St Luc, reçu par Al Fike : « Mes chers fils, vous avez beaucoup de questions. Vous cherchez beaucoup de réponses. »"
 date: 2022-06-01 06:00:01+00:484
 draft: False
 hidden: True

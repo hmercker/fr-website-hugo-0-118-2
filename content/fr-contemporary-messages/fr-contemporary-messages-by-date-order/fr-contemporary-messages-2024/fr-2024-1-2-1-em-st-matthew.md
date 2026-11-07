@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes le fondement de la Vérité sur Terre"
 menu_title: ""
-description: "Vous êtes le fondement de la Vérité sur Terre"
+description: "St Matthieu, reçu par Elizabeth Mack : « Vous êtes le fondement de la vérité sur cette Terre. Jamais auparavant ce fondement de vérité de l’Amour Divin de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

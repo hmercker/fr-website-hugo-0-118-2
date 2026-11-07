@@ -1,7 +1,7 @@
 ---
 title: "Guerriers de la lumière"
 menu_title: ""
-description: "Guerriers de la lumière"
+description: "Isaïe, reçu par Albert Fike : « …pour les guerriers de la vérité. Car il y a beaucoup de choses dans le monde qui ont besoin d’être corrigées et guéries … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

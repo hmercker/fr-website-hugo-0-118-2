@@ -1,7 +1,7 @@
 ---
 title: "Marchez doucement dans la paix"
 menu_title: ""
-description: "Marchez doucement dans la paix"
+description: "Jésus, reçu par Amada Reza : « Alors que je parlais aux nombreuses personnes qui cherchaient à entendre le message d’amour que j’enseignais, j’avais … »"
 date: 2022-06-01 06:00:01+00:25
 draft: False
 hidden: True

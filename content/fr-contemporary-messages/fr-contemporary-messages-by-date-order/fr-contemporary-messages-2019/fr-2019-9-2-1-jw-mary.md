@@ -1,7 +1,7 @@
 ---
 title: "Bénissez les enfants dans l'Amour de Dieu"
 menu_title: ""
-description: "Bénissez les enfants dans l'Amour de Dieu"
+description: "Marie, reçu par Jimbeau Walsh : « Mon groupe et moi, nous nourrissons les prières de ceux qui nous sont ouverts, mais nous les protégeons aussi. »"
 date: 2022-06-01 06:00:01+00:829
 draft: False
 hidden: True

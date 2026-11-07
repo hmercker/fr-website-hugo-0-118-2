@@ -1,7 +1,7 @@
 ---
 title: "Le père de Jésus et Joseph d’Arimathie sont une seule et même personne"
 menu_title: ""
-description: "Le père de Jésus et Joseph d’Arimathie sont une seule et même personne"
+description: "Joseph, reçu par Amada Réza : « Grâce à l’amour maternel, Marie, mon épouse, a pu rester proche de notre fils dans son cœur et la tendresse de son amour … »"
 date: 2022-06-01 06:00:01+00:03
 draft: False
 hidden: True

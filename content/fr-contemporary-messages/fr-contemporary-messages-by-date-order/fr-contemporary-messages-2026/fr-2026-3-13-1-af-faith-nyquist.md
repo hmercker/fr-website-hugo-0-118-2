@@ -1,7 +1,7 @@
 ---
 title: "Appelés à servir : Marcher sur le chemin de l'amour"
 menu_title: ""
-description: "Appelés à servir : Marcher sur le chemin de l'amour"
+description: "Faith Nyquist, reçu par Al Fike : « Oh, il y a tant à faire dans votre monde, tant de pensées et d’actions contradictoires qui ne sont pas en harmonie … »"
 date: 2026-05-24 16:00:01+00:01
 draft: False
 hidden: True

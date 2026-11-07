@@ -1,7 +1,7 @@
 ---
 title: "Leçon 4 : Le pouvoir de l’amour pour guérir la condition humaine"
 menu_title: ""
-description: "Leçon 4 : Le pouvoir de l’amour pour guérir la condition humaine"
+description: "Jésus, reçu par Al Fike : « Bien que dans le passé, j’ai passé beaucoup de temps et d’efforts à décrire cette perspective que nous avons tellement … »"
 date: 2022-06-01 06:00:01+00:1476
 draft: False
 hidden: True

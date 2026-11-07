@@ -1,7 +1,7 @@
 ---
 title: "Abandonnez la volonté de l'esprit et adoptez celle de l'âme"
 menu_title: ""
-description: "Abandonnez la volonté de l'esprit et adoptez celle de l'âme"
+description: "Augustin, reçu par Albert Fike : « Dans votre monde, la volonté humaine est précieuse : pouvoir choisir, contrôler, manipuler et utiliser les ressources … »"
 date: 2026-03-15 06:00:00+00:00
 draft: False
 hidden: True

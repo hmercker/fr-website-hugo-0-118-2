@@ -1,7 +1,7 @@
 ---
 title: "La relation de Moïse avec les femmes"
 menu_title: ""
-description: "La relation de Moïse avec les femmes"
+description: "Moïse, reçu par FAB : « Permettez-moi de dissiper votre confusion. Il est vrai qu’à mon époque, les femmes étaient considérées comme des biens meublés … »"
 date: 2022-06-01 06:00:01+00:165
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Placez Dieu en premier en toutes choses"
 menu_title: ""
-description: "Placez Dieu en premier en toutes choses"
+description: "Jean-Baptiste : « Communiquer avec nous dans le monde de l'Esprit et aussi communiquer avec votre Père, le Créateur, Dieu. »"
 date: 2022-06-01 06:00:01+00:109
 draft: False
 hidden: True

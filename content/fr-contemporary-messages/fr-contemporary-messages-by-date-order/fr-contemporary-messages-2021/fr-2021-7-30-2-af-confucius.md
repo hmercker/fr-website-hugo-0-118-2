@@ -1,7 +1,7 @@
 ---
 title: "Bénédictions"
 menu_title: ""
-description: "Bénédictions"
+description: "Confucius, reçu par Al Fike : « Il vient en vagues de lumière, une belle lumière, en vagues de paix, une paix au-delà de la compréhension, des vagues … »"
 date: 2022-06-01 06:00:01+00:1585
 draft: False
 hidden: True

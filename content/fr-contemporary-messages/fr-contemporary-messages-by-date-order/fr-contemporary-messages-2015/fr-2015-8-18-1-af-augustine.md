@@ -1,7 +1,7 @@
 ---
 title: "Le chemin le moins parcouru et conseils pour le voyage"
 menu_title: ""
-description: "Le chemin le moins parcouru et conseils pour le voyage"
+description: "Augustin, reçu par Al Fike : « C'’est votre enseignant Augustin. Il vous a été donné beaucoup de choses ces derniers jours, beaucoup de conseils et … »"
 date: 2022-06-01 06:00:01+00:136
 draft: False
 hidden: True

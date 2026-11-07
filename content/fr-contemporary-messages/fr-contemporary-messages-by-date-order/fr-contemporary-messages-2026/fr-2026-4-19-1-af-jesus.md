@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes la lumière : Appelés à recevoir et à partager l’Amour de Dieu"
 menu_title: ""
-description: "Vous êtes la lumière : Appelés à recevoir et à partager l’Amour de Dieu"
+description: "Jésus, reçu par Al Fike : « Le monde a besoin de vos prières. Tant de personnes souffrent. »"
 date: 2026-05-28 16:00:01+00:01
 draft: False
 hidden: True

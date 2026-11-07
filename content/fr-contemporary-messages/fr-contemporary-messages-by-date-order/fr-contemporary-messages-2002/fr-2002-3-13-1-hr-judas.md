@@ -1,7 +1,7 @@
 ---
 title: "Le Son de Sa voix"
 menu_title: ""
-description: "Le Son de Sa voix"
+description: "Judas, reçu par H : « Hier, j’ai annoncé que je voulais parler de certains événements importants qui se sont produits au cours de l’année 26. »"
 date: 2022-06-01 06:00:01+00:37
 draft: False
 hidden: True

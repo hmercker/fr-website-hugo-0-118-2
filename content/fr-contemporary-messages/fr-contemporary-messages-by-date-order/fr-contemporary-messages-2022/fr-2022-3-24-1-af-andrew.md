@@ -1,7 +1,7 @@
 ---
 title: "Continuez à faire ressortir la Vérité"
 menu_title: ""
-description: "Continuez à faire ressortir la Vérité"
+description: "André, reçu par Al Fike : « Ses bénédictions sur nos âmes continuent de nous remplir et de nous transformer. Nous nous réunissons donc de partout dans le … »"
 date: 2023-09-01 06:00:01+00:23
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "De grands changements s'annoncent sur la Terre"
 menu_title: ""
-description: "De grands changements s'annoncent sur la Terre"
+description: "Augustin, reçu par Al Fike : « J’ai été autrefois l’évêque d’Hippone, il y a de très nombreuses années. De bien des façons, tous les habitants de cette … »"
 date: 2022-06-01 06:00:01+00:900
 draft: False
 hidden: True

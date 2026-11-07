@@ -1,7 +1,7 @@
 ---
 title: "Le voyage spirituel de Judy Holliday"
 menu_title: ""
-description: "Le voyage spirituel de Judy Holliday"
+description: "Judy Holliday, reçu par FAB : « Cette amertume m'a suivie jusqu'ici. La bonté que vous avez sentie en moi dans mes films était réelle, et elle m'a suivie … »"
 date: 2022-06-01 06:00:01+00:109
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes nombreux à travailler à l'unisson"
 menu_title: ""
-description: "Nous sommes nombreux à travailler à l'unisson"
+description: "Nicolas Tesla, reçu par Al Fike : « Et ma compréhension particulière de la mécanique de l'univers entre en jeu dans mon aide au développement de votre don. »"
 date: 2022-06-01 06:00:01+00:178
 draft: False
 hidden: True

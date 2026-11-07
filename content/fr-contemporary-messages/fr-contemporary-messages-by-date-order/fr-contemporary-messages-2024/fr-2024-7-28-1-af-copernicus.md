@@ -1,7 +1,7 @@
 ---
 title: "S'élancer dans la gloire de la conscience de l'âme"
 menu_title: ""
-description: "S'élancer dans la gloire de la conscience de l'âme"
+description: "Copernic, reçu par Albert Fike : « Que de grandes bénédictions vous soient accordées, mes amis. Que le don de l’Amour du Père continue de se déverser dans … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "M. Ridle commente les récits de M. Garfield et son propre progrès"
 menu_title: ""
-description: "M. Ridle commente les récits de M. Garfield et son propre progrès"
+description: "Albert Riddle, reçu par James Padgett : « Tu as reçu une lettre de James Garfield. C’est un esprit intellectuellement merveilleux, et il a progressé à un … »"
 date: 2022-06-01 06:00:01+00:38
 draft: False
 hidden: True

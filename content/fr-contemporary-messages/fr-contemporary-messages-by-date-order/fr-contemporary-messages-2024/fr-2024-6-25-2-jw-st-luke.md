@@ -1,7 +1,7 @@
 ---
 title: "Prières magnétiques"
 menu_title: ""
-description: "Prières magnétiques"
+description: "Luc, reçu par Jimbeau Walsh : « Puisse-t-il imprégner votre être alors que vous ouvrez simplement votre cœur, ouvrez votre âme afin que Dieu puisse … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

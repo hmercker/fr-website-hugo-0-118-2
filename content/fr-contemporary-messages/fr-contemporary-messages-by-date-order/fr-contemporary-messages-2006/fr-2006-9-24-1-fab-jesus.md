@@ -1,7 +1,7 @@
 ---
 title: "Jésus commente le langage masculin dans les Messages de James Padgett"
 menu_title: ""
-description: "Jésus commente le langage masculin dans les Messages de James Padgett"
+description: "Jésus, reçu par FAB : « Permettez-moi de parler de l'utilisation du langage masculin pour décrire l'humanité et Dieu dans les messages de James Padgett. »"
 date: 2022-06-01 06:00:01+00:44
 draft: False
 hidden: True

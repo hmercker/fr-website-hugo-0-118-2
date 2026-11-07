@@ -1,7 +1,7 @@
 ---
 title: "La force de l'Amour Divin stabilise votre monde"
 menu_title: ""
-description: "La force de l'Amour Divin stabilise votre monde"
+description: "Jeanne d'Arc, reçu par Albert Fike : « Quoi qu’il arrive dans votre monde, dans ce lieu physique où vous vivez, vous avez prié pour que la solidité, la … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

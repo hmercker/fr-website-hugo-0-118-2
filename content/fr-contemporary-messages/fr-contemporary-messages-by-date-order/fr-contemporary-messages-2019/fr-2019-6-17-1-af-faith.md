@@ -1,7 +1,7 @@
 ---
 title: "Vos efforts contribuent à soutenir les portails à Blackpool et ailleurs"
 menu_title: ""
-description: "Vos efforts contribuent à soutenir les portails à Blackpool et ailleurs"
+description: "Faith, reçu par Al Fike : « C'est comme si un écran, un rideau avait été tiré autour de vous et c'est pour une très bonne raison - pour vous protéger des … »"
 date: 2022-06-01 06:00:01+00:748
 draft: False
 hidden: True

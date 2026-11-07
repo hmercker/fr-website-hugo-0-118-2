@@ -1,7 +1,7 @@
 ---
 title: "Le réchauffement des âmes de l'humanité"
 menu_title: ""
-description: "Le réchauffement des âmes de l'humanité"
+description: "Orion, reçu par Al Fike : « La poursuite de la transformation de votre monde entraînera un réchauffement de l’âme de l’humanité, une sorte d’éveil qui … »"
 date: 2022-06-01 06:00:01+00:21
 draft: False
 hidden: True

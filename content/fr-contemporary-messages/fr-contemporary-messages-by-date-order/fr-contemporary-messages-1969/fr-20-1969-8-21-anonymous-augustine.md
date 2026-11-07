@@ -1,7 +1,7 @@
 ---
 title: "Nous devons avoir un but unique"
 menu_title: ""
-description: "Nous devons avoir un but unique"
+description: "Augustin : « Nous allons faire un travail de développement et vous avez tous fait un effort pour contrôler vos pensées, pour garder votre mental tel que … »"
 date: 2022-06-01 06:00:01+00:19
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Introduction d’une autre planète (Retraite Voix Directe 2021)"
 menu_title: ""
-description: "Introduction d’une autre planète (Retraite Voix Directe 2021)"
+description: "Orion, reçu par Al Fike : « Le voyage de la vie comprend de nombreuses couches d’expérience et de conscience que l’humanité s’est refusée à elle-même … »"
 date: 2022-06-01 06:00:01+00:1627
 draft: False
 hidden: True

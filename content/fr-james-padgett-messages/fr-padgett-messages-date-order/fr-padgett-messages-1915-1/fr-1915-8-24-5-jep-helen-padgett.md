@@ -1,7 +1,7 @@
 ---
 title: "Hélène confirme que ceux qui ont écrit étaient bien ceux qu’ils prétendaient être, parce qu’elle les connaissait"
 menu_title: ""
-description: "Hélène confirme que ceux qui ont écrit étaient bien ceux qu’ils prétendaient être, parce qu’elle les connaissait"
+description: "Hélène Padgett, reçu par James Padgett : « Tu sembles douter, ce soir, de l’identité des auteurs. Mais tu ne dois pas douter car je te dis que Jésus a … »"
 date: 2022-06-01 06:00:01+00:213
 draft: False
 hidden: True

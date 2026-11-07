@@ -1,7 +1,7 @@
 ---
 title: "38ème Révélation: Le Sermon sur le Bon Berger"
 menu_title: ""
-description: "38ème Révélation: Le Sermon sur le Bon Berger"
+description: "Jésus, reçu par Dr Samuels : « Je tiens à vous écrire, si vous êtes en état, sur le passage, dans le dixième chapitre de l’Évangile de Jean, concernant … »"
 date: 2022-06-01 06:00:01+00:38
 draft: False
 hidden: True

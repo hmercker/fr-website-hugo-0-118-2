@@ -1,7 +1,7 @@
 ---
 title: "Ronald Reagan - Apprendre à connaître un président"
 menu_title: ""
-description: "Ronald Reagan - Apprendre à connaître un président"
+description: "Ronald Reagan, reçu par FAB : « Cela me fait chaud au cœur que vous soyez en train de lire les mémoires de ma femme Nancy. »"
 date: 2022-06-01 06:00:01+00:50
 draft: False
 hidden: True

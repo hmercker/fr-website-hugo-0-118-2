@@ -1,7 +1,7 @@
 ---
 title: "Ne présumez pas de la manière dont la volonté de Dieu s'accomplit"
 menu_title: ""
-description: "Ne présumez pas de la manière dont la volonté de Dieu s'accomplit"
+description: "St Étienne, reçu par Al Fike : « Dieu utilise chaque fissure et chaque fente, chaque trou et chaque recoin pour apporter la lumière et la vérité. »"
 date: 2022-06-01 06:00:01+00:679
 draft: False
 hidden: True

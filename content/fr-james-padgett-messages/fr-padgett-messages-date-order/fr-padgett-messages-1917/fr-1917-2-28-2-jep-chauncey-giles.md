@@ -1,7 +1,7 @@
 ---
 title: "Chauncey Giles change sa croyance que Jésus est Dieu"
 menu_title: ""
-description: "Chauncey Giles change sa croyance que Jésus est Dieu"
+description: "Chauncey Giles, reçu par James Padgett : « Je souhaite, si possible, témoigner de mon intérêt suite à ce qui vient de vous être écrit. »"
 date: 2022-06-01 06:00:01+00:70
 draft: False
 hidden: True

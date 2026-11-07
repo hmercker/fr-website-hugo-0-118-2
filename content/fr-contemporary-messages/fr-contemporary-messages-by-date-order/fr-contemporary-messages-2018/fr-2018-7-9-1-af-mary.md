@@ -1,7 +1,7 @@
 ---
 title: "L'éveil de l'âme"
 menu_title: ""
-description: "L'éveil de l'âme"
+description: "Marie, reçu par Al Fike : « Puisse l’Amour du Père continuer à se déverser dans vos belles âmes et vous porter toujours plus près de la fontaine de tout … »"
 date: 2022-06-01 06:00:01+00:424
 draft: False
 hidden: True

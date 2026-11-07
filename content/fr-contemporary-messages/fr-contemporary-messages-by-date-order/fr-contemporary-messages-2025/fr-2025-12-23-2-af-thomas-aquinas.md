@@ -1,7 +1,7 @@
 ---
 title: "Le véritable sens de Noël est l'amour"
 menu_title: ""
-description: "Le véritable sens de Noël est l'amour"
+description: "Thomas d'Aquin, reçu par Albert Fike : « Je ne m’exprime pas souvent par cet instrument, mais aujourd’hui j’ai le privilège de le faire. »"
 date: 2026-02-21 16:00:01+00:01
 draft: False
 hidden: True

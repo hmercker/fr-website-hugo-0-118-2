@@ -1,7 +1,7 @@
 ---
 title: "Un message de bienvenue"
 menu_title: ""
-description: "Un message de bienvenue"
+description: "St Paul : « J'apporte un grand sentiment d'affection pour vous tous ici, mes amis. Venir à vous, nous joindre à vous en cette heure merveilleuse nous rend … »"
 date: 2022-06-01 06:00:01+00:90
 draft: False
 hidden: True

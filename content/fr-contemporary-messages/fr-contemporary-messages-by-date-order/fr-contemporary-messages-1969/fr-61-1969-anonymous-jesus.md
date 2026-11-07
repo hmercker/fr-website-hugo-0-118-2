@@ -1,7 +1,7 @@
 ---
 title: "De grandes choses vous attendent"
 menu_title: ""
-description: "De grandes choses vous attendent"
+description: "Jésus : « Notre Père est venu en présence de nous tous en cette heure. C'est très, très sacré en ce moment. »"
 date: 2022-06-01 06:00:01+00:114
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La souffrance d'un soldat"
 menu_title: ""
-description: "La souffrance d'un soldat"
+description: "Max Smith, reçu par FAB : « J'ai pris part à la guerre du Mexique, que vous êtes en train de lire. Mes copains et moi avons tué des Mexicains, et fait … »"
 date: 2022-06-01 06:00:01+00:32
 draft: False
 hidden: True

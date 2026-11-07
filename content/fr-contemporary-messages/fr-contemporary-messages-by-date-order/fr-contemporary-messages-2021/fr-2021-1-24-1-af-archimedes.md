@@ -1,7 +1,7 @@
 ---
 title: "La dynamique des cercles de lumière"
 menu_title: ""
-description: "La dynamique des cercles de lumière"
+description: "Archimède, reçu par Al Fike : « Je m’appelle Archimède et je fus un philosophe et un scientifique de longue date. Je continue à grandir dans mon … »"
 date: 2022-06-01 06:00:01+00:1395
 draft: False
 hidden: True

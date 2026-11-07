@@ -1,7 +1,7 @@
 ---
 title: "L’éveil de l’âme donne lieu à l’harmonisation de l’esprit matériel et de l’âme"
 menu_title: ""
-description: "L’éveil de l’âme donne lieu à l’harmonisation de l’esprit matériel et de l’âme"
+description: "St Matthieu, reçu par Al Fike : « Je souhaite aborder le sujet de ce que vous appelez la réalité, car l’humanité a un grand désir d’affirmer ses … »"
 date: 2022-06-01 06:00:01+00:119
 draft: False
 hidden: True

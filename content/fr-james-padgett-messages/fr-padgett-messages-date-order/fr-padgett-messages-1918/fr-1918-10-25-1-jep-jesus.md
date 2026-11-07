@@ -1,7 +1,7 @@
 ---
 title: "Les motifs donnés par Jésus quant aux raisons pour lesquelles il a choisi M. Padgett pour cette tâche de réception des messages"
 menu_title: ""
-description: "Les motifs donnés par Jésus quant aux raisons pour lesquelles il a choisi M. Padgett pour cette tâche de réception des messages"
+description: "Jésus, reçu par James Padgett : « Eh bien, mon cher frère, le temps passe, et la nécessité de la révélation est très évidente, alors que les hommes sont … »"
 date: 2022-06-01 06:00:01+00:60
 draft: False
 hidden: True

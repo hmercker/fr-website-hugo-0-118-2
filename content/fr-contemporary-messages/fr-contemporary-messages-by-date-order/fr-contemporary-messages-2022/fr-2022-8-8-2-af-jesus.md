@@ -1,7 +1,7 @@
 ---
 title: "Nous animons le treillis de lumière en priant pour l'Amour de Dieu"
 menu_title: ""
-description: "Nous animons le treillis de lumière en priant pour l'Amour de Dieu"
+description: "Jésus, reçu par Al Fike : « C’est à vous de vous ouvrir à ce don, car il est pleinement présent et attend votre désir de le recevoir. »"
 date: 2022-06-01 06:00:01+00:153
 draft: False
 hidden: True

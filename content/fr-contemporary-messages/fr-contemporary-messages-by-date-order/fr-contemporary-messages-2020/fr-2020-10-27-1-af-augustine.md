@@ -1,7 +1,7 @@
 ---
 title: "Libre Arbitre et Perfectionnisme"
 menu_title: ""
-description: "Libre Arbitre et Perfectionnisme"
+description: "Augustin, reçu par Al Fike : « Avoir le pouvoir de choisir est un grand don et pourtant ce pouvoir de choisir crée de nombreuses conditions et situations … »"
 date: 2022-06-01 06:00:01+00:1295
 draft: False
 hidden: True

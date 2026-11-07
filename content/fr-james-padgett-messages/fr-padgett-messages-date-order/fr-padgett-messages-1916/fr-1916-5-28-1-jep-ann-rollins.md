@@ -1,7 +1,7 @@
 ---
 title: "Comment tous les hommes peuvent devenir des Anges Divins et comment les fausses croyances empêchent cette réalisation"
 menu_title: ""
-description: "Comment tous les hommes peuvent devenir des Anges Divins et comment les fausses croyances empêchent cette réalisation"
+description: "Anne Rollins, reçu par James Padgett : « Je vais te dire ce soir une vérité qui pourra t’intéresser, et je sais que c’est important pour tous ceux qui … »"
 date: 2022-06-01 06:00:01+00:231
 draft: False
 hidden: True

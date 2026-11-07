@@ -1,7 +1,7 @@
 ---
 title: "Le Peuple Élu"
 menu_title: ""
-description: "Le Peuple Élu"
+description: "Judas, reçu par H : « Je voudrais utiliser mon premier message de la nouvelle année pour aborder le sujet du peuple élu. »"
 date: 2022-06-01 06:00:01+00:01
 draft: False
 hidden: True

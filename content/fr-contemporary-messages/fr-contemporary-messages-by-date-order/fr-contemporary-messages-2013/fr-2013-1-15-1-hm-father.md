@@ -1,7 +1,7 @@
 ---
 title: "Unis à travers l'Amour"
 menu_title: ""
-description: "Unis à travers l'Amour"
+description: "Le Père Céleste, reçu par Helge Mercker : « Mon enfant, c’est ton Père, Que l’amour qui rayonne à travers chacun de vous s’unisse et forme un soleil de … »"
 date: 2022-06-01 06:00:01+00:11
 draft: False
 hidden: True

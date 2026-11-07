@@ -1,7 +1,7 @@
 ---
 title: "Le service réveille l'âme"
 menu_title: ""
-description: "Le service réveille l'âme"
+description: "Seretta Kem, reçu par Maureen Cardoso : « Ce fut une très grande journée, participant au service, servant vos frères et sœurs, servant votre Père Ciel, et … »"
 date: 2022-06-01 06:00:01+00:515
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Comme Dieu le veut, ainsi cela sera"
 menu_title: ""
-description: "Comme Dieu le veut, ainsi cela sera"
+description: "Jeanne d'Arc, reçu par Elizabeth Mack : « Vous demandez et vous recevrez et vous demandez à vos âmes cet amour et vos désirs, ils grandissent en vous et … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

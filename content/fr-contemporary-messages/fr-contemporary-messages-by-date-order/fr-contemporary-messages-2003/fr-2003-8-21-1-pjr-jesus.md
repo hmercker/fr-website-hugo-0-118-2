@@ -1,7 +1,7 @@
 ---
 title: "Au bord d’une rivière"
 menu_title: ""
-description: "Au bord d’une rivière"
+description: "Jésus, reçu par PJR : « Si j’entendais dire que tu pourrais marcher près d’une rivière je conduirais jusqu’à elle et j’attendrais ; »"
 date: 2022-06-01 06:00:01+00:28
 draft: False
 hidden: True

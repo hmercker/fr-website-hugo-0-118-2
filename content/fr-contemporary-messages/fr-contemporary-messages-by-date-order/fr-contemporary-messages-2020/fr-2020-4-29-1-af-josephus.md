@@ -1,7 +1,7 @@
 ---
 title: "La créativité est la source de l'âme"
 menu_title: ""
-description: "La créativité est la source de l'âme"
+description: "Flavius Josèphe, reçu par Al Fike : « Je souhaite vous parler des capacités de l’âme en ce qui concerne sa créativité et ses expressions. »"
 date: 2022-06-01 06:00:01+00:1079
 draft: False
 hidden: True

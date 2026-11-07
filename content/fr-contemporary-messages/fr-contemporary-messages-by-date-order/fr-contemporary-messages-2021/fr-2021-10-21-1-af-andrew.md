@@ -1,7 +1,7 @@
 ---
 title: "Décrit le libre arbitre - Les anges n'interviendront pas"
 menu_title: ""
-description: "Décrit le libre arbitre - Les anges n'interviendront pas"
+description: "André, reçu par Al Fike : « Dieu vous offre de nombreuses possibilités de servir, d'être une lumière dans le monde. Vous serez parfois confrontés à un … »"
 date: 2022-07-10 06:25:48+00:80
 draft: False
 hidden: True

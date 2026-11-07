@@ -1,7 +1,7 @@
 ---
 title: "La relation de l’homme à la création du monde et l’origine de vie (Suite)"
 menu_title: ""
-description: "La relation de l’homme à la création du monde et l’origine de vie (Suite)"
+description: "Jésus, reçu par James Padgett : « Comme je le disais, l’homme est la créature de Dieu, créée parfaite et instantanément, n’ayant pas connu une croissance … »"
 date: 2022-06-01 06:00:01+00:139
 draft: False
 hidden: True

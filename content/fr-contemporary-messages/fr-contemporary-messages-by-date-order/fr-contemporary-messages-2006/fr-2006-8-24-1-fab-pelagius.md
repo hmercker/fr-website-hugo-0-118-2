@@ -1,7 +1,7 @@
 ---
 title: "Pelage est conforté"
 menu_title: ""
-description: "Pelage est conforté"
+description: "Pelagius, reçu par FAB : « Comme vous l'avez compris, beaucoup de mes idées ont été validées ici. Nous avons tous reçu le libre arbitre, qui détermine nos … »"
 date: 2022-06-01 06:00:01+00:38
 draft: False
 hidden: True

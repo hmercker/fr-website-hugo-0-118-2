@@ -1,7 +1,7 @@
 ---
 title: "Hélène Padgett répond à la demande d’écrire de la part de Monsieur Padgett"
 menu_title: ""
-description: "Hélène Padgett répond à la demande d’écrire de la part de Monsieur Padgett"
+description: "Hélène Padgett, reçu par James Padgett : « J’ai entendu ton appel et bien sûr j’ai répondu, mais il y avait un pauvre esprit noir qui voulait écrire. »"
 date: 2022-06-01 06:00:01+00:84
 draft: False
 hidden: True

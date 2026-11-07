@@ -1,7 +1,7 @@
 ---
 title: "Vous saurez quand faire un pas en avant"
 menu_title: ""
-description: "Vous saurez quand faire un pas en avant"
+description: "Seretta Kem, reçu par Al Fike : « Ne sentez-vous pas l’enthousiasme monter dans vos âmes à mesure que vous vous rapprochez de cette date où vous vous … »"
 date: 2022-06-01 06:00:01+00:1575
 draft: False
 hidden: True

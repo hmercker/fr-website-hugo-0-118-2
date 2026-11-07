@@ -1,7 +1,7 @@
 ---
 title: "Permettez à tout ce que vous êtes de se manifester dans le monde"
 menu_title: ""
-description: Permettez à tout ce que vous êtes de se manifester dans le monde"
+description: "Sretta Kem, reçu par Al Fike : « Que les bénédictions de l’Amour de Dieu continuent de couler en vous, vous changeant et vous transformant. »"
 date: 2026-10-28 06:00:01+00:01
 draft: False
 hidden: True

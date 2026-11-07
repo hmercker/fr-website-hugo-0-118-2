@@ -1,7 +1,7 @@
 ---
 title: "Examinez votre cœur"
 menu_title: ""
-description: "Examinez votre cœur"
+description: "Jésus, reçu par Jimbeau Walsh : « Le chemin du cœur ouvert dans l’Amour de Dieu est le chemin de l’âme transformée. Car l’esprit peut informer ce qui est … »"
 date: 2022-06-01 06:00:01+00:61
 draft: False
 hidden: True

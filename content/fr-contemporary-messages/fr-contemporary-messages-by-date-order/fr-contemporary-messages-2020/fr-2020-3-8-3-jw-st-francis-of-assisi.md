@@ -1,7 +1,7 @@
 ---
 title: "Suivez votre cœur"
 menu_title: ""
-description: "Suivez votre cœur"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Quelle joie de voir ce rassemblement d’âmes qui aspirent à ne faire qu’un dans l’Amour de Dieu. »"
 date: 2022-06-01 06:00:01+00:1021
 draft: False
 hidden: True

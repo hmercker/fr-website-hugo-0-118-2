@@ -1,7 +1,7 @@
 ---
 title: "Marchez dans ce monde avec la Vérité"
 menu_title: ""
-description: "Marchez dans ce monde avec la Vérité"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Il a été attiré comme beaucoup ici. Chacun d’entre vous avec vos dons et le fait de savoir que le temps est … »"
 date: 2022-06-01 06:00:01+00:1023
 draft: False
 hidden: True

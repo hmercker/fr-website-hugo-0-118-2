@@ -1,7 +1,7 @@
 ---
 title: "Message personnel"
 menu_title: ""
-description: "Message personnel"
+description: "James Padgett, reçu par Révérend Dave Lampron : « Padgett, un ange Céleste et l’un des esprits de votre équipe. Vous vous souviendrez que j’ai donné un … »"
 date: 2022-06-01 06:00:01+00:03
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "L’ingénierie et le passé"
 menu_title: ""
-description: "L’ingénierie et le passé"
+description: "Ingénieur Céleste Isaac, reçu par George Barnard : « « Cela fait un certain temps que nous n’avons pas partagé nos délibérations avec les personnes que … »"
 date: 2022-06-01 06:00:01+00:19
 draft: False
 hidden: True

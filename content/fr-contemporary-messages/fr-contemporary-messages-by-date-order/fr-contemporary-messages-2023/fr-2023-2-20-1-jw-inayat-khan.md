@@ -1,7 +1,7 @@
 ---
 title: "Le chant et la danse Divins"
 menu_title: ""
-description: "Le chant et la danse Divins"
+description: "Inayat Khan, reçu par Jimbeau Walsh : « Je reviens pour parler des chants et des danses, des arts et de la musique des sphères. Sur le plan terrestre, il … »"
 date: 2022-06-01 06:00:01+00:35
 draft: False
 hidden: True

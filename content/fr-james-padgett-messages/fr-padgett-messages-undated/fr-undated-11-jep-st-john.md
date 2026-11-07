@@ -1,7 +1,7 @@
 ---
 title: "Saint Jean écrit que M. Padgett est très proche du Père dans Son Amour et ne doute pas que le Maître est pas avec lui"
 menu_title: ""
-description: "Saint Jean écrit que M. Padgett est très proche du Père dans Son Amour et ne doute pas que le Maître est pas avec lui"
+description: "St Jean, reçu par James Padgett : « Vous êtes l’objet de soins particuliers de la part du Maître, et vous devez croire ce qu’il dit, car ce qu’il dit est … »"
 date: 2022-06-01 06:00:01+00:85
 draft: False
 hidden: True

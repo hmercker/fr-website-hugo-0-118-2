@@ -1,7 +1,7 @@
 ---
 title: "Choisir le droit chemin"
 menu_title: ""
-description: "Choisir le droit chemin"
+description: "St Matthieu, reçu par Al Fike : « Je crois que vous ressentez les conditions de cette obscurité dans le monde. Vous en êtes conscients et vous vivez en … »"
 date: 2022-06-01 06:00:01+00:321
 draft: False
 hidden: True

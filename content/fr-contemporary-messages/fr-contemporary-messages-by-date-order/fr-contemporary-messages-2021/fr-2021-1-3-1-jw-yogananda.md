@@ -1,7 +1,7 @@
 ---
 title: "Bienvenue à toutes les âmes avec Amour"
 menu_title: ""
-description: "Bienvenue à toutes les âmes avec Amour"
+description: "Yogananda, reçu par Jimbeau Walsh : « Comme il est important d’élever les autres, de les élever dans l’amour, de les encourager, de dire la vérité et de … »"
 date: 2022-06-01 06:00:01+00:1364
 draft: False
 hidden: True

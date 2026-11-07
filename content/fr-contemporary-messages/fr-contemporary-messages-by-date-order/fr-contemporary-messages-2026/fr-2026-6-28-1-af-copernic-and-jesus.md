@@ -1,7 +1,7 @@
 ---
 title: "La science de l’éveil de l’âme par l’Amour Divin et la bénédiction de Jésus"
 menu_title: ""
-description: "La science de l’éveil de l’âme par l’Amour Divin et la bénédiction de Jésus"
+description: "Copernic et Jésus, reçu par Albert Fike : « Copernic : Bénédictions à vous, mes amis. J’ai l’honneur aujourd’hui de vous transmettre un enseignement, un … »"
 date: 2026-10-04 06:00:01+00:01
 draft: False
 hidden: True

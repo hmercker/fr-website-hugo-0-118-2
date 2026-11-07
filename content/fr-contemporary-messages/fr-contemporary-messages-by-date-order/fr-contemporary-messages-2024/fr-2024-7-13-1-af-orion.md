@@ -1,7 +1,7 @@
 ---
 title: "Nous supplie d'être dans la Conscience de l'Âme"
 menu_title: ""
-description: "Nous supplie d'être dans la Conscience de l'Âme"
+description: "Orion, reçu par Albert Fike : « Bénédictions à vous, mes amis. Je reviens encore une fois pour parler. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Un jardin rempli de nombreuses fleurs magnifiques et uniques"
 menu_title: ""
-description: "Un jardin rempli de nombreuses fleurs magnifiques et uniques"
+description: "Augustin, reçu par Al Fike : « Vous avez pris soin de cette fleur, de ce bourgeon, pendant longtemps, et voilà qu’il s’épanouit. »"
 date: 2026-10-24 06:00:01+00:01
 draft: False
 hidden: True

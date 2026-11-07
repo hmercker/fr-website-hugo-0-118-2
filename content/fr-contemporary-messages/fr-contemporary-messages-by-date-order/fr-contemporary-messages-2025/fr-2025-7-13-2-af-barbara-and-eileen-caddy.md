@@ -1,7 +1,7 @@
 ---
 title: "Expressions d'Amour"
 menu_title: ""
-description: "Expressions d'Amour"
+description: "Barbara and Eileen Caddy, reçu par reçu par Al Fike : « Barbara : Que les bénédictions de l’Amour de Dieu vous comblent. L’amour peut s’exprimer de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

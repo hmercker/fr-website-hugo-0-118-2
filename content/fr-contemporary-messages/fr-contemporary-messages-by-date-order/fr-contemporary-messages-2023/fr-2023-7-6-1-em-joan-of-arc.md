@@ -1,7 +1,7 @@
 ---
 title: "Vous progressez"
 menu_title: ""
-description: "Vous progressez"
+description: "Jeanne d'Arc, reçu par Elizabeth Mack : « Chacun de vous a progressé sur votre chemin et nous nous en réjouissons beaucoup. Car comme le disait le Père  … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

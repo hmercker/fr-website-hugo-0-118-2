@@ -1,7 +1,7 @@
 ---
 title: "La Foi d'une Mère"
 menu_title: ""
-description: "La Foi d'une Mère"
+description: "Marie, reçu par Elizabeth Mack : « Ce fut une expérience très différente pour moi en tant que mère. Pourtant, même à cet instant, je me suis accrochée à … »"
 date: 2026-05-28 16:00:01+00:01
 draft: False
 hidden: True

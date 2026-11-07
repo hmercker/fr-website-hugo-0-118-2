@@ -1,7 +1,7 @@
 ---
 title: "J'ai une histoire à raconter !"
 menu_title: ""
-description: "J'ai une histoire à raconter !"
+description: "Marilyn Monroe, reçu par Al Fike : « Bon sang, j'ai une histoire à raconter ! J'aimerais raconter mon histoire avec une voix directe. »"
 date: 2022-06-01 06:00:01+00:229
 draft: False
 hidden: True

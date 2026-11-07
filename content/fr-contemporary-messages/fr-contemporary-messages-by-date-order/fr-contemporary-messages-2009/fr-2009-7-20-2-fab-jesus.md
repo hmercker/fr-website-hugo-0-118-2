@@ -1,7 +1,7 @@
 ---
 title: "Le Maître sur Jeannette Rankin 2"
 menu_title: ""
-description: "Le Maître sur Jeannette Rankin 2"
+description: "Jésus, reçu par FAB : « Quand j'ai dit si ses opinions semblaient en contradiction avec les recherches de ses biographes, je faisais référence à la … »"
 date: 2022-06-01 06:00:01+00:66
 draft: False
 hidden: True

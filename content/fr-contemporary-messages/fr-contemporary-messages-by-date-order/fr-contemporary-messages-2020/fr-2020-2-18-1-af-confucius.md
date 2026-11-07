@@ -1,7 +1,7 @@
 ---
 title: "Marchez toujours dans la lumière de l'Amour de Dieu"
 menu_title: ""
-description: "Marchez toujours dans la lumière de l'Amour de Dieu"
+description: "Confucius, reçu par Al Fike : « Marchez toujours dans la Lumière de l’Amour de Dieu. Cherchez Ses bénédictions sur vous. »"
 date: 2022-06-01 06:00:01+00:1002
 draft: False
 hidden: True

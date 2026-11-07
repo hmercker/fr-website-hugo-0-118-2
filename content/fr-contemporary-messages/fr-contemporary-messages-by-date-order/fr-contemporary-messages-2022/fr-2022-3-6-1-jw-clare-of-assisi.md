@@ -1,7 +1,7 @@
 ---
 title: "Tendre la main au Monde"
 menu_title: ""
-description: "Tendre la main au Monde"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Vous qui avez été bénis par l’Amour et la grâce de Dieu, vous êtes l’espoir. Votre amour reposant dans la main … »"
 date: 2022-06-01 06:00:01+00:43
 draft: False
 hidden: True

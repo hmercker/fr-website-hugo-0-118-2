@@ -1,7 +1,7 @@
 ---
 title: "L'apathie Américaine"
 menu_title: ""
-description: "L'apathie Américaine"
+description: "Jésus, reçu par FAB : « Je souhaite aborder maintenant la question de l'apathie parmi vos compatriotes américains. »"
 date: 2022-06-01 06:00:01+00:115
 draft: False
 hidden: True

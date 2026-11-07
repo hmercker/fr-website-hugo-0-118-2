@@ -1,7 +1,7 @@
 ---
 title: "Q&R : La loi de l'attraction et les attachements d'esprits sombres"
 menu_title: ""
-description: "Q&R : La loi de l'attraction et les attachements d'esprits sombres"
+description: "Flavius Josèphe, reçu par Al Fike : « Comme c’est beau que Luc ait parlé à vos âmes, parlé en mots et en amour. Je vais maintenant tenter de m’adresser à … »"
 date: 2022-06-01 06:00:01+00:787
 draft: False
 hidden: True

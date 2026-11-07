@@ -1,7 +1,7 @@
 ---
 title: "La pensée réconfortante d’un président"
 menu_title: ""
-description: "La pensée réconfortante d’un président"
+description: "John F Kennedy, reçu par FAB : « Dieu tout-puissant me rachètera. Je n’étais certainement pas un saint, et il y a eu beaucoup de choses dont j’ai dû … »"
 date: 2022-06-01 06:00:01+00:47
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Souligne (encore une fois) ce qui est nécessaire pour obtenir une Voix Directe"
 menu_title: ""
-description: "Souligne (encore une fois) ce qui est nécessaire pour obtenir une Voix Directe"
+description: "Seretta Kem, reçu par Al Fike : « Vous approchez de ce moment où vous êtes ensemble dans la prière. En effet, je dois réitérer notre demande d’être priant … »"
 date: 2023-09-01 06:00:01+00:34
 draft: False
 hidden: True

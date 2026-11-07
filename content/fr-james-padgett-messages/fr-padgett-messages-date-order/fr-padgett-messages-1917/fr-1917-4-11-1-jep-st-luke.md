@@ -1,7 +1,7 @@
 ---
 title: "A propos de sa sélection par le Père pour l’œuvre"
 menu_title: ""
-description: "A propos de sa sélection par le Père pour l’œuvre"
+description: "Saintt Luc, reçu par James Padgett : « J’étais avec vous hier soir et j’ai écrit comme vous l’avez entendu. Vous devez croire que vous avez été choisi … »"
 date: 2022-06-01 06:00:01+00:101
 draft: False
 hidden: True

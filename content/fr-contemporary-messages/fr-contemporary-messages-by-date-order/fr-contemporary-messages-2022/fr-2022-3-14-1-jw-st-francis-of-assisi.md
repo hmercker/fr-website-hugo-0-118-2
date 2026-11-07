@@ -1,7 +1,7 @@
 ---
 title: "C’est seulement une question de grâce"
 menu_title: ""
-description: "C’est seulement une question de grâce"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Chacun de vous est en un sens un refuge spirituel. Et bien que vous n’ayez pas souffert des privations de … »"
 date: 2022-06-01 06:00:01+00:48
 draft: False
 hidden: True

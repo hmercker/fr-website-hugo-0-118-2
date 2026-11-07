@@ -1,7 +1,7 @@
 ---
 title: "Sur la réincarnation"
 menu_title: ""
-description: "Sur la réincarnation"
+description: "Aristote, reçu par Alfredo : « Vous avez des doutes quant à la réincarnation ? Je sais que c’est quelque chose qui n’a jamais été clair dans votre mental. »"
 date: 2022-06-01 06:00:01+00:32
 draft: False
 hidden: True

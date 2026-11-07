@@ -1,7 +1,7 @@
 ---
 title: "Jean explique les écrits reçus par M. Morgan et l’importance relative de chacun, et que leur travail deviendra plus important lorsque M. Padgett aura terminé son travail au nom du Royaume."
 menu_title: ""
-description: "Jean explique les écrits reçus par M. Morgan et l’importance relative de chacun, et que leur travail deviendra plus important lorsque M. Padgett aura terminé son travail au nom du Royaume."
+description: "St Jean, reçu par James Padgett : « Laissez-moi écrire quelques lignes. J’ai été avec vous pendant que vous lisiez les messages que votre ami a reçus, et … »"
 date: 2022-06-01 06:00:01+00:43
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Chaque jour peut être rempli de Lumière"
 menu_title: ""
-description: "Chaque jour peut être rempli de Lumière"
+description: "Confucius, reçu par Al Fike : « Comme vous aimez vos journées ensoleillées, n’est-ce pas ? Et quelle belle journée que celle-ci, alors que vous vous … »"
 date: 2026-10-24 06:00:01+00:01
 draft: False
 hidden: True

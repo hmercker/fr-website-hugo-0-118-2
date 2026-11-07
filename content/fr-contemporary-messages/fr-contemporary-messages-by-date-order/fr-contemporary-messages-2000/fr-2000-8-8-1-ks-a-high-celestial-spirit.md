@@ -1,7 +1,7 @@
 ---
 title: "Sur les relations"
 menu_title: ""
-description: "Sur les relations"
+description: "Esprit Céleste Elevé, reçu par Kathryn Stokes : « Ceci est une réponse à une question que j’ai postée sur le babillard du site Internet de l’Amour Divin  … »"
 date: 2022-06-01 06:00:01+00:20
 draft: False
 hidden: True

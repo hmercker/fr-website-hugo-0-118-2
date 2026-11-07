@@ -1,7 +1,7 @@
 ---
 title: "Un célibataire endurci décide qu’il va essayer de se mettre dans la condition qui lui permettra de rencontrer son âme-sœur"
 menu_title: ""
-description: "Un célibataire endurci décide qu’il va essayer de se mettre dans la condition qui lui permettra de rencontrer son âme-sœur"
+description: "George E Luckett, reçu par James Padgett : « Permettez-moi de dire un mot – George E. Maintenant tout cela est peut-être vrai, et je dois dire qu’elle et … »"
 date: 2022-06-01 06:00:01+00:27
 draft: False
 hidden: True

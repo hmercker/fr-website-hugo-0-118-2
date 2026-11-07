@@ -1,7 +1,7 @@
 ---
 title: "Nous aimerons, un seul amour pour toujours et à jamais"
 menu_title: ""
-description: "Nous aimerons, un seul amour pour toujours et à jamais"
+description: "Orion, reçu par Albert Fike : « Votre ami, Orion, revient. Puissiez-vous continuer à grandir dans le grand don de l’Amour Universel de notre Créateur. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

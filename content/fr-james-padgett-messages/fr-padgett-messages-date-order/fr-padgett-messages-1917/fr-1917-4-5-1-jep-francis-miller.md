@@ -1,7 +1,7 @@
 ---
 title: "Francis Miller écrit"
 menu_title: ""
-description: "Francis Miller écrit"
+description: "Francis Miller, reçu par James Padgett : « Je ne crois pas en cet Amour Divin au sujet duquel ces esprits ont écrit, mais j’essaie de purifier mon âme des … »"
 date: 2022-06-01 06:00:01+00:97
 draft: False
 hidden: True

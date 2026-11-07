@@ -1,7 +1,7 @@
 ---
 title: "Hélène écrit à quel point elle est heureuse d’avoir renoué le contact"
 menu_title: ""
-description: "Hélène écrit à quel point elle est heureuse d’avoir renoué le contact"
+description: "Hélène Padgett, reçu par James Padgett : « Nous sommes tous si impatients de te voir écrire et si désireux de te dire notre amour et notre désir d’être … »"
 date: 2022-06-01 06:00:01+00:74
 draft: False
 hidden: True

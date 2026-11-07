@@ -1,7 +1,7 @@
 ---
 title: "Le déroulement de la chute"
 menu_title: ""
-description: "Le déroulement de la chute"
+description: "Aman, reçu par FAB : « Vous avez lu dans les messages de James Padgett : « Au fur et à mesure que nous nous déconnectons de nos âmes et de leurs pouvoirs … »"
 date: 2022-06-01 06:00:01+00:111
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Marchez dans la grâce ! C'est simple"
 menu_title: ""
-description: "Marchez dans la grâce ! C'est simple"
+description: "St François d'Assise, reçu par Jimbeau Walsh : « Que la grande paix de l’Amour de Dieu soit sur vous. Que son Esprit Saint apporte son amour dans chaque âme. »"
 date: 2022-06-01 06:00:01+00:1448
 draft: False
 hidden: True

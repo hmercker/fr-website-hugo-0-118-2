@@ -1,7 +1,7 @@
 ---
 title: "Leçon 10 : Comprendre le libre arbitre et ses limites"
 menu_title: ""
-description: "Leçon 10 : Comprendre le libre arbitre et ses limites"
+description: "Jésus, reçu par Al Fike : « Comme ce serait merveilleux si je pouvais me manifester dans la chair et vous parler directement. »"
 date: 2022-06-01 06:00:01+00:133
 draft: False
 hidden: True

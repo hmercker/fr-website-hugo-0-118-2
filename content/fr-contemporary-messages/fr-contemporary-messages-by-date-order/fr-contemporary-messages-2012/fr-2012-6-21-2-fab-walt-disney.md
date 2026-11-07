@@ -1,7 +1,7 @@
 ---
 title: "Le sens moral de Walt Disney"
 menu_title: ""
-description: "Le sens moral de Walt Disney"
+description: "Walt Disney, reçu par FAB : « Je souhaite commenter ce que j’ai dit dans ma récente canalisation du 6 Janvier 2011, à savoir que mon héritage était un … »"
 date: 2022-06-01 06:00:01+00:274
 draft: False
 hidden: True

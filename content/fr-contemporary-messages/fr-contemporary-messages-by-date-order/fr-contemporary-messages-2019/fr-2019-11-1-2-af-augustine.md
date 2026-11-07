@@ -1,7 +1,7 @@
 ---
 title: "Les tests nous aident à discerner comment gérer les énergies négatives"
 menu_title: ""
-description: "Les tests nous aident à discerner comment gérer les énergies négatives"
+description: "Augustin, reçu par Al Fike : « Vous voulez tous faire ce qui est en harmonie avec l’amour. Pourtant, vous voyez que la personne dont vous vous occupez a … »"
 date: 2022-06-01 06:00:01+00:892
 draft: False
 hidden: True

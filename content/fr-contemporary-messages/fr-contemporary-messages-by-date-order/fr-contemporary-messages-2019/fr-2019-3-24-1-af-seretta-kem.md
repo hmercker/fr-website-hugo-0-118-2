@@ -1,7 +1,7 @@
 ---
 title: "Le changement est sur ce monde"
 menu_title: ""
-description: "Le changement est sur ce monde"
+description: "Seretta Kem, reçu par Al Fike : « Le changement est sur ce monde qui est le vôtre, alors que la volonté de Dieu continue d’apporter des bénédictions, des … »"
 date: 2022-06-01 06:00:01+00:685
 draft: False
 hidden: True

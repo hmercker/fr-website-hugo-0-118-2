@@ -1,7 +1,7 @@
 ---
 title: "Dieu aime tous Ses enfants"
 menu_title: ""
-description: "Dieu aime tous Ses enfants"
+description: "Judas, reçu par Jimbeau Walsh : « Ce que vous pouvez percevoir avec vos âmes lorsque vous êtes ouverts à l’Amour de Dieu vous donnera une idée de ce qui … »"
 date: 2022-06-01 06:00:01+00:1617
 draft: False
 hidden: True

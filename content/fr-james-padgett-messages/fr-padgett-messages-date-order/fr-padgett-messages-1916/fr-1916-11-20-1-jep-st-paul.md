@@ -1,7 +1,7 @@
 ---
 title: "L’enfer et la durée de le peine"
 menu_title: ""
-description: "L’enfer et la durée de le peine"
+description: "St Paul, reçu par James Padgett : « Eh bien, comme je l’ai dit hier soir, l’enfer des prédicateurs orthodoxes, comme autrefois enseigné, c’est un enfer de … »"
 date: 2022-06-01 06:00:01+00:331
 draft: False
 hidden: True

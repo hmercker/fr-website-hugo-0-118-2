@@ -1,7 +1,7 @@
 ---
 title: "Une Introduction"
 menu_title: ""
-description: "Une Introduction"
+description: "Timothée, reçu par Elizabeth Mack : « Frères et sœurs de la Terre, sachez que notre Père est le même que le vôtre. Sachez que nous venons et cheminons … »"
 date: 2026-01-30 16:00:01+00:01
 draft: False
 hidden: True

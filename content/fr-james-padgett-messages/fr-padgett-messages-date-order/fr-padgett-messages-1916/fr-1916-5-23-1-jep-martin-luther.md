@@ -1,7 +1,7 @@
 ---
 title: "Martin Luther décrit la relation qui existait de son temps entre les laïcs et les officiels de l’église"
 menu_title: ""
-description: "Martin Luther décrit la relation qui existait de son temps entre les laïcs et les officiels de l’église"
+description: "Martin Luther, reçu par James Padgett : « Si vous pensez pouvoir le recevoir, je vais procéder. À mon époque, les membres de l’Église – je veux dire … »"
 date: 2022-06-01 06:00:01+00:228
 draft: False
 hidden: True

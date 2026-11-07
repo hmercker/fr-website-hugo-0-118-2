@@ -1,7 +1,7 @@
 ---
 title: "Nous sommes tous appelés à servir Dieu"
 menu_title: ""
-description: "Nous sommes tous appelés à servir Dieu"
+description: "André, reçu par Albert Fike : « Dieu vous appelle au service, âmes bien-aimées. Moi aussi, je vous appelle à avancer au service de l’humanité. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

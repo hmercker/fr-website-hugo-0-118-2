@@ -1,7 +1,7 @@
 ---
 title: "Saint François d’Assise sur les motivations"
 menu_title: ""
-description: "Saint François d’Assise sur les motivations"
+description: "St François d'Assise, reçu par FAB : « C »est moi, François d’Assise. Votre âge a besoin de comprendre le message simple mais puissant de Jésus. »"
 date: 2022-06-01 06:00:01+00:05
 draft: False
 hidden: True

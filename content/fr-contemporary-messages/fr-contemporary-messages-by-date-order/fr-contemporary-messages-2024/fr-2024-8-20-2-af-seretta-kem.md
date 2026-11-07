@@ -1,7 +1,7 @@
 ---
 title: "Vous continuez à progresser"
 menu_title: ""
-description: "Vous continuez à progresser"
+description: "Seretta Kem, reçu par Albert Fike : « Je tiens à vous assurer que vous continuez à progresser dans les voies de l’amour, dans les voies du développement … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

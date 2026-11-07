@@ -1,7 +1,7 @@
 ---
 title: "Éveiller les autres au but de la vie"
 menu_title: ""
-description: "Éveiller les autres au but de la vie"
+description: "Seretta Kem, reçu par Al Fike : « Vous avez donc appris beaucoup de choses aujourd’hui. Vous avez rencontré de nombreuses personnes. »"
 date: 2022-06-01 06:00:01+00:476
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Merci de nous avoir invités à prier avec vous"
 menu_title: ""
-description: "Merci de nous avoir invités à prier avec vous"
+description: "Jean le 7ème Sphérie, reçu par Elizabeth Mack : « J'attends avec impatience votre arrivée dans ces hautes sphères et dans les Cieux Célestes où j'espère … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

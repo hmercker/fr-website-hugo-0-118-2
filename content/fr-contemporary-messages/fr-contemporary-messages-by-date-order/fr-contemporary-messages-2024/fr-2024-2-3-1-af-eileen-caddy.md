@@ -1,7 +1,7 @@
 ---
 title: "Recherchez vos talents pour servir Dieu"
 menu_title: ""
-description: "Recherchez vos talents pour servir Dieu "
+description: "Eileen Caddy, reçu par Albert Fike : « Si vous connaissez mon histoire, vous savez que j’ai marché dans la foi et que j’ai cherché à servir Dieu de toutes … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

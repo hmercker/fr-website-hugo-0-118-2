@@ -1,7 +1,7 @@
 ---
 title: "Une perspective Amérindienne sur la société"
 menu_title: ""
-description: "Une perspective Amérindienne sur la société"
+description: "Uharu, reçu par FAB : « Je vais maintenant canaliser des informations supplémentaires sur ma culture terrestre. Message du 18 Juillet 2006. »"
 date: 2022-06-01 06:00:01+00:86
 draft: False
 hidden: True

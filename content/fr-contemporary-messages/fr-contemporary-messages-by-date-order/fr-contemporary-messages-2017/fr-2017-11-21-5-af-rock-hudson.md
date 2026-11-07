@@ -1,7 +1,7 @@
 ---
 title: "Nul besoin d'avoir honte de ce que vous êtes"
 menu_title: ""
-description: "Nul besoin d'avoir honte de ce que vous êtes"
+description: "Rock Hudson, reçu par Al Fike : « Ce n'est pas mon vrai nom mais c'est mon nom de scène. J'ai trouvé une grande libération dans le monde de l'esprit car … »"
 date: 2022-06-01 06:00:01+00:227
 draft: False
 hidden: True

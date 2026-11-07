@@ -1,7 +1,7 @@
 ---
 title: "Remerciez"
 menu_title: ""
-description: "Remerciez"
+description: "Jean Hugues, reçu par Elizabeth Mack : « Vous avez de nombreuses raisons d'être reconnaissants. De nombreuses bénédictions vous ont été accordées. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

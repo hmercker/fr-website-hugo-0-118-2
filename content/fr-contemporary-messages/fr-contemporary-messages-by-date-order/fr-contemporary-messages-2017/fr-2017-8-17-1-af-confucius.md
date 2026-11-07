@@ -1,7 +1,7 @@
 ---
 title: "L'amour dissout toutes les barrières"
 menu_title: ""
-description: "L'amour dissout toutes les barrières"
+description: "Confucius, reçu par Al Fike : « Cette pièce est inondée de Lumière et d'Amour. Les eaux vives de Dieu s'y déversent. »"
 date: 2022-06-01 06:00:01+00:85
 draft: False
 hidden: True

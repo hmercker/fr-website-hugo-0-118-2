@@ -1,7 +1,7 @@
 ---
 title: "Dieu attend votre invitation et votre ouverture à recevoir Sa bénédiction"
 menu_title: ""
-description: "Dieu attend votre invitation et votre ouverture à recevoir Sa bénédiction"
+description: "Keea Atta Kem, reçu par Albert Fike : « Je salue ma famille divine, cette famille d’âmes qui aspire à l’Amour de Dieu, qui reçoit cette grande bénédiction … »"
 date: 2026-10-04 06:00:01+00:01
 draft: False
 hidden: True

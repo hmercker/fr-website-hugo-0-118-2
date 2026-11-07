@@ -1,7 +1,7 @@
 ---
 title: "Sentiments"
 menu_title: ""
-description: "Sentiments"
+description: "St Jean, reçu par CC : « Je voudrais rappeler tes réflexions sur les sentiments. Tu connais le moment auquel je fais référence. »"
 date: 2022-06-01 06:00:01+00:59
 draft: False
 hidden: True

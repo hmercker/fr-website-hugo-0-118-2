@@ -1,7 +1,7 @@
 ---
 title: "Adaptez-vous, enfants de Dieu"
 menu_title: ""
-description: "Adaptez-vous, enfants de Dieu"
+description: "George, reçu par Elizabeth Mack : « Parfois, c'est un chemin sinueux. Cependant, c'est votre chemin. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

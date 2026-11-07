@@ -1,7 +1,7 @@
 ---
 title: "Il est essentiel de connaître et d'enseigner la vérité pour combattre l'erreur répandue dans le monde"
 menu_title: ""
-description: "Il est essentiel de connaître et d'enseigner la vérité pour combattre l'erreur répandue dans le monde"
+description: "Jésus, reçu par Albert Fike : « Ainsi, je ne suis pas un intermédiaire entre vous et Dieu. Bien que je porte en moi plus de l'Essence de Dieu que tout … »"
 date: 2026-02-03 16:00:01+00:01
 draft: False
 hidden: True

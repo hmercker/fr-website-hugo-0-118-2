@@ -1,7 +1,7 @@
 ---
 title: "Votre famille bénéficie de vos efforts"
 menu_title: ""
-description: "Votre famille bénéficie de vos efforts"
+description: "Barbara Davies, reçu par Al Fike : « Je souhaite venir vous parler de la façon dont vous attirez à vous les êtres qui vous sont chers, ceux qui sont dans … »"
 date: 2022-06-01 06:00:01+00:36
 draft: False
 hidden: True

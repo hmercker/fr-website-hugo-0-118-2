@@ -1,7 +1,7 @@
 ---
 title: "Questions et réponses lors de la retraite du State College"
 menu_title: ""
-description: "Questions et réponses lors de la retraite du State College"
+description: "Augustin, reçu par Albert Fike : « Je ne peux pas vous faire acquérir un plus grand amour, mais lorsque vous acquérez un plus grand amour qui est … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

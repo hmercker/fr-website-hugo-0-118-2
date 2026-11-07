@@ -1,7 +1,7 @@
 ---
 title: "Une expérience d'application de la Loi de l'Amour Divin"
 menu_title: ""
-description: "Une expérience d'application de la Loi de l'Amour Divin"
+description: "Jean le Bien Aimé, reçu par Elizabeth Mack : « La Vérité de la Loi de l'Amour Divin est qu'elle englobe toutes les autres lois et crée un environnement … »"
 date: 2026-01-31 16:00:01+00:01
 draft: False
 hidden: True

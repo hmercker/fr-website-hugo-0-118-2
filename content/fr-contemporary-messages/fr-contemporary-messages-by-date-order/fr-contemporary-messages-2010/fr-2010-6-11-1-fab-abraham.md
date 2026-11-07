@@ -1,7 +1,7 @@
 ---
 title: "La profession d’Abraham"
 menu_title: ""
-description: "La profession d’Abraham"
+description: "Abraham, reçu par FAB : « J’ai été commerçant à Ur, vous m’avez donc canalisé correctement. Cela m’a donné les moyens matériels de me rendre en Terre … »"
 date: 2022-06-01 06:00:01+00:137
 draft: False
 hidden: True

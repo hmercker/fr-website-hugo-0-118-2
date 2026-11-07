@@ -1,7 +1,7 @@
 ---
 title: "Conseils pour rapprocher le mental de l'âme et le mental matériel"
 menu_title: ""
-description: "Conseils pour rapprocher le mental de l'âme et le mental matériel"
+description: "Orion, reçu par Al Fike : « Cette clé de toutes les portes qui vous restent fermées, les perceptions qui viendront avec l’âme éveillée par la grande … »"
 date: 2023-09-01 06:00:01+00:30
 draft: False
 hidden: True

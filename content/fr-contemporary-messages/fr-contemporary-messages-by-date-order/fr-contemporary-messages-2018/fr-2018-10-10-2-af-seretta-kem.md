@@ -1,7 +1,7 @@
 ---
 title: "La Voix Directe Clarifiée - Alignement de l'âme"
 menu_title: ""
-description: "La Voix Directe Clarifiée - Alignement de l'âme"
+description: "Seretta Kem, reçu par Al Fike : « Cet instrument est correct dans ses perceptions qu’en effet la voix directe, le potentiel pour elle, est fermement en … »"
 date: 2022-06-01 06:00:01+00:508
 draft: False
 hidden: True

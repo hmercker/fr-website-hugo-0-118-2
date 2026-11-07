@@ -1,7 +1,7 @@
 ---
 title: "Nous accueille et ouvre le cercle de développement en ligne"
 menu_title: ""
-description: "Nous accueille et ouvre le cercle de développement en ligne"
+description: "Augustin, reçu par Maureen Cardoso : « C'est votre enseignant, Augustine et je m’avance pour vous accueillir dans ce que nous pouvons appeler le début de … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

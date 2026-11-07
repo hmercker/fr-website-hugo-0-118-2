@@ -1,7 +1,7 @@
 ---
 title: "Hélène est étonnée des nombreux esprits magnifiques qui l’entourent parfois"
 menu_title: ""
-description: "Hélène est étonnée des nombreux esprits magnifiques qui l’entourent parfois"
+description: "Hélène Padgett, reçu par James Padgett : « Tu ne dois pas écrire plus ce soir car tu es fatigué et tu dois dormir. Nous étions tous avec toi cet … »"
 date: 2022-06-01 06:00:01+00:86
 draft: False
 hidden: True

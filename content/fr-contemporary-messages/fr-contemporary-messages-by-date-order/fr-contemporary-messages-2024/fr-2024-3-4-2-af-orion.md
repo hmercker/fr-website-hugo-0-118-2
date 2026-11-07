@@ -1,7 +1,7 @@
 ---
 title: "Se présente et présente les intentions de ses amis stellaires pour nous aider à travers la transformation du monde"
 menu_title: ""
-description: "Se présente et présente les intentions de ses amis stellaires pour nous aider à travers la transformation du monde"
+description: "Augustin, reçu par Albert Fike : « En effet, je corresponds à cette description, je n’appartiens pas à cette planète. En effet, comme vos scientifiques … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

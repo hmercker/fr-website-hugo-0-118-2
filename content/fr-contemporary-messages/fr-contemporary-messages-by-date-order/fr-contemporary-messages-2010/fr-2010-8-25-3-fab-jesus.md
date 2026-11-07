@@ -1,7 +1,7 @@
 ---
 title: "L'Union Européenne - 3"
 menu_title: ""
-description: "L'Union Européenne - 3"
+description: "Jésus, reçu par FAB : « Permettez-moi de commenter davantage l'Union européenne, car nous voyons que vous avez besoin de plus de clarté. »"
 date: 2022-06-01 06:00:01+00:149
 draft: False
 hidden: True

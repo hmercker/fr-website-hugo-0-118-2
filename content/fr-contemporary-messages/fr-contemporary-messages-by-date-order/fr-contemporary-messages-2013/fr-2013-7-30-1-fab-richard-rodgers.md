@@ -1,7 +1,7 @@
 ---
 title: "Une autre vision de l’Amérique"
 menu_title: ""
-description: "Une autre vision de l’Amérique"
+description: "Richard Rodgers, reçu par FAB : « Alors que vous écoutez ma meilleure œuvre [Carousel], j’affirme que les promesses se réaliseront, et que l’humanité sera … »"
 date: 2022-06-01 06:00:01+00:65
 draft: False
 hidden: True

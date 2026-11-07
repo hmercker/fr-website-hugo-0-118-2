@@ -1,7 +1,7 @@
 ---
 title: "L’Esclavage"
 menu_title: ""
-description: "L’Esclavage"
+description: "Judas, reçu par H : « Plusieurs jours se sont écoulés sans possibilité pour moi de transmettre un message. J’espère que tu progresseras et te stabiliseras. »"
 date: 2022-06-01 06:00:01+00:74
 draft: False
 hidden: True

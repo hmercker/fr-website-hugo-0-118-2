@@ -1,7 +1,7 @@
 ---
 title: "Ce n’est pas une récompense ; c’est votre droit de naissance"
 menu_title: ""
-description: "Ce n’est pas une récompense ; c’est votre droit de naissance"
+description: "Augustin, reçu par Albert Fike : « Que vous soyez bénis sur le chemin du retour vers votre véritable demeure. Dans le temps à venir, vos facultés de l’âme … »"
 date: 2026-10-16 06:00:01+00:09
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Jésus parle de la description de la troisième Sphère Céleste par l’épouse de M. Padgett. L’importance de l’homme à la recherche de l’Amour Divin"
 menu_title: ""
-description: "Jésus parle de la description de la troisième Sphère Céleste par l’épouse de M. Padgett. L’importance de l’homme à la recherche de l’Amour Divin"
+description: "Jésus, reçu par James Padgett : « Je n’écrirai que quelques lignes. Je veux simplement dire que ce que vous avez lu ce soir de votre femme, sur ses … »"
 date: 2022-06-01 06:00:01+00:107
 draft: False
 hidden: True

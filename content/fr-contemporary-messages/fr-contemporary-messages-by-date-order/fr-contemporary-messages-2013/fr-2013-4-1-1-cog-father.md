@@ -1,7 +1,7 @@
 ---
 title: "Vous êtes mes anges sur terre"
 menu_title: ""
-description: "Vous êtes mes anges sur terre"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Vous êtes mes anges sur la terre. Votre amour pour moi me touche profondément. »"
 date: 2022-06-01 06:00:01+00:49
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "C'est le développement de l'âme qui est important pour l'humanité"
 menu_title: ""
-description: "C'est le développement de l'âme qui est important pour l'humanité"
+description: "Keea Atta Kem : « Cela fait un certain temps que je ne suis pas venu vous parler, mes amis, mais je voulais voir comment vous aviez progressé. »"
 date: 2022-06-01 06:00:01+00:117
 draft: False
 hidden: True

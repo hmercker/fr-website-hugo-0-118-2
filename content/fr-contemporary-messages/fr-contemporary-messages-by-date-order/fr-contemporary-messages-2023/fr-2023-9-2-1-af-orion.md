@@ -1,7 +1,7 @@
 ---
 title: "Commentaires sur les prières en préparation du Cercle de Laurelville"
 menu_title: ""
-description: "Commentaires sur les prières en préparation du Cercle de Laurelville"
+description: "Orion, reçu par Albert Fike : « Il y a une grande lumière parmi vous, mes amis. Nombreux sont ceux qui sont avec vous en ce moment, car nous saisissons … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

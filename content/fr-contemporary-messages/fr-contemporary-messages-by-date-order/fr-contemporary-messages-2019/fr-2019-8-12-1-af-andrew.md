@@ -1,7 +1,7 @@
 ---
 title: "Avez-vous libéré votre besoin de contrôle ?"
 menu_title: ""
-description: "Avez-vous libéré votre besoin de contrôle ?"
+description: "André, reçu par Al Fike : « Êtes-vous des enfants de Dieu ? Avez-vous abandonné votre besoin d’avoir le contrôle, d’être indépendant de Dieu ? »"
 date: 2022-06-01 06:00:01+00:810
 draft: False
 hidden: True

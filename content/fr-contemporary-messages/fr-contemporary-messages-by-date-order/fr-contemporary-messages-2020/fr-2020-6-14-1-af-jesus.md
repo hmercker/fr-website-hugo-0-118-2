@@ -1,7 +1,7 @@
 ---
 title: "Soyez dans la vérité de l’Amour de Dieu"
 menu_title: ""
-description: "Soyez dans la vérité de l’Amour de Dieu"
+description: "Jésus, reçu par Al Fike : « Que la bénédiction de l’Esprit Saint, qui est l’agent actif de Dieu et de Son Amour, vienne dans chacune de vos âmes, vous … »"
 date: 2022-06-01 06:00:01+00:1136
 draft: False
 hidden: True

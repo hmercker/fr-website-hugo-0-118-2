@@ -1,7 +1,7 @@
 ---
 title: "Représentations du monde des esprits au cinéma"
 menu_title: ""
-description: "Représentations du monde des esprits au cinéma"
+description: "Judas, reçu par Jimbeau Walsh : « Je souhaite répondre aux questions de la chère sœur concernant le film qu’elle a vu et sa représentation du monde des … »"
 date: 2022-06-01 06:00:01+00:1532
 draft: False
 hidden: True

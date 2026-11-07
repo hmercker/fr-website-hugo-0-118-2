@@ -1,7 +1,7 @@
 ---
 title: "Seretta Kem parle de ce qui peut venir"
 menu_title: ""
-description: "Seretta Kem parle de ce qui peut venir"
+description: "Seretta Kem, reçu par Al Fike : « Je souhaite vous parler aujourd’hui de ce qui peut advenir dans le futur pour chacun d’entre vous, alors que vous … »"
 date: 2022-06-01 06:00:01+00:536
 draft: False
 hidden: True

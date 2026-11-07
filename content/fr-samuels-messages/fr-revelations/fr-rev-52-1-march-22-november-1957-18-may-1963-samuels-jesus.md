@@ -1,7 +1,7 @@
 ---
 title: "52ème Révélation : Jésus n’a jamais cherché à rompre avec le Judaïsme ou à établir une nouvelle église"
 menu_title: ""
-description: "52ème Révélation : Jésus n’a jamais cherché à rompre avec le Judaïsme ou à établir une nouvelle église"
+description: "Jésus, reçu par Dr Samuels : « A ce propos je tiens à remercier très chaleureusement le Révérend John Paul Gibson pour son ardent travail et son intérêt … »"
 date: 2022-06-01 06:00:01+00:52
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Protection contre les blessures"
 menu_title: ""
-description: "Protection contre les blessures"
+description: "Esprit Céleste Elevé, reçu par Kathryn Stokes : « Mais comme vous le voyez, nous ne sommes pas toujours capables de vous protéger de vous-même. »"
 date: 2022-06-01 06:00:01+00:40
 draft: False
 hidden: True

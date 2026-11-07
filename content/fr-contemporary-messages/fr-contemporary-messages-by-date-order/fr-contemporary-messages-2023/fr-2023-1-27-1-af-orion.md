@@ -1,7 +1,7 @@
 ---
 title: "Orion se présente et parle de l'aide disponible"
 menu_title: ""
-description: "Orion se présente et parle de l'aide disponible"
+description: "Orion, reçu par Al Fike : « Paix et amour pour vous, mes amis. Nous voyons les choses un peu différemment de vous car nous vivons dans un environnement … »"
 date: 2022-06-01 06:00:01+00:18
 draft: False
 hidden: True

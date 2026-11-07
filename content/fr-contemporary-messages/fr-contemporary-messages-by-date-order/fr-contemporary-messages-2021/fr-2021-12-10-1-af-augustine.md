@@ -1,7 +1,7 @@
 ---
 title: "Notre collaboration pour apporter la lumière au monde est importante"
 menu_title: ""
-description: "Notre collaboration pour apporter la lumière au monde est importante"
+description: "Augustin, reçu par Al Fike : « Le travail que vous entreprenez ensemble est important. Apporter une plus grande lumière à ce monde est essentiel pour que … »"
 date: 2022-06-01 06:00:01+00:1727
 draft: False
 hidden: True

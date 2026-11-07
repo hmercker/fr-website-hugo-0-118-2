@@ -1,7 +1,7 @@
 ---
 title: "Une glorieuse journée de prière"
 menu_title: ""
-description: "Une glorieuse journée de prière"
+description: "Jésus, reçu par Jospeh B. : « Aujourd’hui a été une glorieuse journée de prière pour les personnes du monde entier. Plus de personnes que vous ne le … »"
 date: 2022-06-01 06:00:01+00:263
 draft: False
 hidden: True

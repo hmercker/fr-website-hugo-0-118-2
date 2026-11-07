@@ -1,7 +1,7 @@
 ---
 title: "Cain raconte ses expériences"
 menu_title: ""
-description: "Cain raconte ses expériences"
+description: "Cain, reçu par FAB : « Je veux commenter les choses mentionnées dans la Bible à mon sujet. Mais avant de le faire, laisse-moi vous dire que vous … »"
 date: 2022-06-01 06:00:01+00:107
 draft: False
 hidden: True

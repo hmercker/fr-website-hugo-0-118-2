@@ -1,7 +1,7 @@
 ---
 title: "Confirmation des progrès de George"
 menu_title: ""
-description: "Confirmation des progrès de George"
+description: "Kathryn Stokes, reçu par Al Fike : « Je continue à être proche de vous tous, de toute ma famille. Je continuerai à faire mes efforts et mes rondes avec … »"
 date: 2023-09-01 06:00:01+00:51
 draft: False
 hidden: True

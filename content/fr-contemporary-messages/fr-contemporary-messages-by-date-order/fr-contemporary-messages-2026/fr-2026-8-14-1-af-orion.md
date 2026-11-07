@@ -1,7 +1,7 @@
 ---
 title: "Des choses merveilleuses se produiront une fois que vous serez en parfaite harmonie avec la volonté de Dieu"
 menu_title: ""
-description: "Des choses merveilleuses se produiront une fois que vous serez en parfaite harmonie avec la volonté de Dieu"
+description: "Orion, reçu par Albert Fike : « Vous êtes souvent confrontés au dilemme de devoir agir selon la guidance que vous recevez, d'agir selon la volonté de Dieu. »"
 date: 2026-10-04 06:00:01+00:01
 draft: False
 hidden: True

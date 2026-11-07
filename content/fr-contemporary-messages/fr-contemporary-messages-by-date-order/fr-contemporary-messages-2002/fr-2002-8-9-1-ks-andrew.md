@@ -1,7 +1,7 @@
 ---
 title: "La foi non compromise"
 menu_title: ""
-description: "La foi non compromise"
+description: "André, reçu par Kathryn Stokes : « Merci d’avoir répondu à notre désir de délivrer un message par votre intermédiaire en ce moment. »"
 date: 2022-06-01 06:00:01+00:83
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le salut de l'Amérique"
 menu_title: ""
-description: "Le salut de l'Amérique"
+description: "George Washington, reçu par FAB : « Le navire de l'État va jeter l'ancre dans un port sûr. Et tout ce que notre pays représente vraiment sera accompli. »"
 date: 2022-06-01 06:00:01+00:181
 draft: False
 hidden: True

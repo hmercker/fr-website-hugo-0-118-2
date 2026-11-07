@@ -1,7 +1,7 @@
 ---
 title: "Ce cercle est comme un collier de lumière"
 menu_title: ""
-description: "Ce cercle est comme un collier de lumière"
+description: "André, reçu par Al Fike : « Que la grâce de l’amour de Dieu continue à remplir vos âmes, à accroître votre lumière, à vous apporter tout ce que Dieu … »"
 date: 2022-06-01 06:00:01+00:927
 draft: False
 hidden: True

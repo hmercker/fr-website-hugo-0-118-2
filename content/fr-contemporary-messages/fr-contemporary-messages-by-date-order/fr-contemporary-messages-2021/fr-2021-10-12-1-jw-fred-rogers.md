@@ -1,7 +1,7 @@
 ---
 title: "Travailler avec les petits enfants"
 menu_title: ""
-description: "Travailler avec les petits enfants"
+description: "Fred Rogers, reçu par Jimbeau Walsh : « Je vous le dis, cela vous briserait le cœur de voir la condition de certains d’entre eux, victimes d’abus, de … »"
 date: 2022-06-01 06:00:01+00:1677
 draft: False
 hidden: True

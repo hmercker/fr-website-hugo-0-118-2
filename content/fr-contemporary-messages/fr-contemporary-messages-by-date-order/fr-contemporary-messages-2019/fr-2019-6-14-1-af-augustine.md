@@ -1,7 +1,7 @@
 ---
 title: "Le sens de la vie se dévoile avec l'Amour de Dieu"
 menu_title: ""
-description: "Le sens de la vie se dévoile avec l'Amour de Dieu"
+description: "Augustin, reçu par Al Fike : « Pour vraiment comprendre le sens de la vie, il faut aller dans la conscience de l'âme, les perceptions de l'âme et la … »"
 date: 2022-06-01 06:00:01+00:744
 draft: False
 hidden: True

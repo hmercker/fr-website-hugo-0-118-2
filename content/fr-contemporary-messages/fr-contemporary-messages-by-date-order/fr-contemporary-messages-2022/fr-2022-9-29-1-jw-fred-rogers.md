@@ -1,7 +1,7 @@
 ---
 title: "Amis imaginaires"
 menu_title: ""
-description: "Amis imaginaires"
+description: "Fred Rogers, reçu par Jimbeau Walsh : « J’ai été attiré dans votre cercle aujourd’hui par votre lecture qui incluait le petit garçon et la belle écriture … »"
 date: 2022-06-01 06:00:01+00:182
 draft: False
 hidden: True

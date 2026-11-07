@@ -1,7 +1,7 @@
 ---
 title: "Hélène rassure M. Padgett que Bunyan a vraiment écrit. Et elle veut qu’il lise le message de sa grand-mère"
 menu_title: ""
-description: "Hélène rassure M. Padgett que Bunyan a vraiment écrit. Et elle veut qu’il lise le message de sa grand-mère"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, tu as beaucoup écrit ce soir, et tu dois arrêter car il est tard. Les esprits qui ont écrit … »"
 date: 2022-06-01 06:00:01+00:17
 draft: False
 hidden: True

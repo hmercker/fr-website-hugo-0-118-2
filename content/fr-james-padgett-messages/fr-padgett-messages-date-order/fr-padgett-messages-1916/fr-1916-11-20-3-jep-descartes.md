@@ -1,7 +1,7 @@
 ---
 title: "Un philosophe français rejette l’idée de l’Amour Divin et place sa foi dans la raison et dans le développement intellectuel"
 menu_title: ""
-description: "Un philosophe français rejette l’idée de l’Amour Divin et place sa foi dans la raison et dans le développement intellectuel"
+description: "Descartes, reçu par James Padgett : « Laissez-moi vous dire un mot. Je ne m’imposerai pas longtemps, je veux seulement vous dire que vous n’êtes pas aussi … »"
 date: 2022-06-01 06:00:01+00:333
 draft: False
 hidden: True

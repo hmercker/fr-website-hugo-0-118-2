@@ -1,7 +1,7 @@
 ---
 title: "Grandissez fort, mes petits"
 menu_title: ""
-description: "Grandissez fort, mes petits"
+description: "Jésus : « Mes petits-enfants, le monde a été trop longtemps privé de cette connaissance et de cette compréhension. »"
 date: 2022-06-01 06:00:01+00:42
 draft: False
 hidden: True

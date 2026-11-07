@@ -1,7 +1,7 @@
 ---
 title: "La première vie de Robert Kennedy"
 menu_title: ""
-description: "La première vie de Robert Kennedy"
+description: "Robert Kennedy, reçu par FAB : « J'ai eu très tôt le sentiment d'une grande destinée, même si ce n'était pas totalement conscient. »"
 date: 2022-06-01 06:00:01+00:91
 draft: False
 hidden: True

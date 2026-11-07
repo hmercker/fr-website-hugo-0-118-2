@@ -1,7 +1,7 @@
 ---
 title: "Noyé dans la mer de l'amour"
 menu_title: ""
-description: "Noyé dans la mer de l'amour"
+description: "Yogananda, reçu par Jimbeau Walsh : « Moi aussi, je vous salue, mes amis. Il y a beaucoup de mythes et beaucoup d'idées, beaucoup de choses pleines de … »"
 date: 2023-09-01 06:00:01+00:28
 draft: False
 hidden: True

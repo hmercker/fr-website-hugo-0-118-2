@@ -1,7 +1,7 @@
 ---
 title: "Leçon sur le jugement"
 menu_title: ""
-description: "Leçon sur le jugement"
+description: "Augustin, reçu par Al Fike : « Vous avez demandé un message sur le jugement. Je vais donc parler de l’envie de juger vos frères et sœurs dans ce monde. »"
 date: 2022-06-01 06:00:01+00:51
 draft: False
 hidden: True

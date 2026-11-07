@@ -1,7 +1,7 @@
 ---
 title: "Je dois faire plus pour Dieu"
 menu_title: ""
-description: "Je dois faire plus pour Dieu"
+description: "St Jean : « Quand nous sentons ce grand amour au milieu de nous, nous ne pouvons nous empêcher de dire : \"Je dois faire plus pour Dieu\", et la plus grande … »"
 date: 2022-06-01 06:00:01+00:132
 draft: False
 hidden: True

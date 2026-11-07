@@ -1,7 +1,7 @@
 ---
 title: "La sélection de Lincoln, et la pensée positive"
 menu_title: ""
-description: "La sélection de Lincoln, et la pensée positive"
+description: "Abraham Lincoln, reçu par FAB : « J'ai parlé à plusieurs esprits gardiens, qui m'ont expliqué cela. Et pendant qu'ils le faisaient, je me suis souvenu … »"
 date: 2022-06-01 06:00:01+00:48
 draft: False
 hidden: True

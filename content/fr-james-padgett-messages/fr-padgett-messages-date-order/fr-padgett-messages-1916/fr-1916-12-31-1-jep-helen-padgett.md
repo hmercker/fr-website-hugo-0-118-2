@@ -1,7 +1,7 @@
 ---
 title: "M. Padgett et le Dr Stone se rendent dans une église Presbytérienne pour le service de la veille du Nouvel An"
 menu_title: ""
-description: "M. Padgett et le Dr Stone se rendent dans une église Presbytérienne pour le service de la veille du Nouvel An"
+description: "Hélène Padgett, reçu par James Padgett : « Nous étions avec toi ce soir lors des services religieux (de la veille du Nouvel An) et nous avons essayé de … »"
 date: 2022-06-01 06:00:01+00:31
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Cette lumière atteint des coins qu'elle n'a jamais atteints auparavant"
 menu_title: ""
-description: "Cette lumière atteint des coins qu'elle n'a jamais atteints auparavant"
+description: "Anna (mère de Marie) et Jeanne d'Arc, reçu par Elizabeth Mack : « Je me tiendrai à vos côtés et je serai avec vous. Vous pouvez faire appel à moi. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

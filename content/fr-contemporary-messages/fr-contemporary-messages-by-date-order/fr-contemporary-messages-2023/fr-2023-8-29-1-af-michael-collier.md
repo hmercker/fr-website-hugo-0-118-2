@@ -1,7 +1,7 @@
 ---
 title: "Préparation de la retraite de Laurelville"
 menu_title: ""
-description: "Préparation de la retraite de Laurelville"
+description: "Michael Collier, reçu par Albert Fike : « Je m'appelle Michael Collier et je sais que ce n'est pas habituel pour moi de prendre la parole dans ce groupe. »"
 date: 2023-09-01 06:00:01+00:69
 draft: False
 hidden: True

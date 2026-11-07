@@ -1,7 +1,7 @@
 ---
 title: "Calena raconte son voyage spirituel et encourage chacun à suivre le seul vrai chemin vers Dieu"
 menu_title: ""
-description: "Calena raconte son voyage spirituel et encourage chacun à suivre le seul vrai chemin vers Dieu"
+description: "Calena Raizman, reçu par Albert Fike : « Mes amis dans l’amour, je m’adresse tout particulièrement à mon cher ami et époux. Je souhaite partager avec vous … »"
 date: 2026-04-03 16:00:01+00:01
 draft: False
 hidden: True

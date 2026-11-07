@@ -1,7 +1,7 @@
 ---
 title: "Instructions sur la façon de se préparer à la Voix Directe (2021 Voix Directe II)"
 menu_title: ""
-description: "Instructions sur la façon de se préparer à la Voix Directe (2021 Voix Directe II)"
+description: "Seretta Kem, reçu par Al Fike : « Pour tous ceux d’entre vous qui insistent et qui désirent venir faire partie de ce Cercle de Lumière en chair et en os … »"
 date: 2022-06-01 06:00:01+00:1554
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Sur l'abondance matérielle - 3"
 menu_title: ""
-description: "Sur l'abondance matérielle - 3"
+description: "Jésus, reçu par FAB : « Permettez-moi de vous en dire plus sur l'abondance matérielle et répondre à ce que vous percevez comme une contradiction dans mon … »"
 date: 2022-06-01 06:00:01+00:117
 draft: False
 hidden: True

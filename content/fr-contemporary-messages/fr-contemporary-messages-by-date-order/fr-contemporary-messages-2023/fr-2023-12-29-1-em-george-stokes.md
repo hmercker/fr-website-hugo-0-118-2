@@ -1,7 +1,7 @@
 ---
 title: "Nous croyons en vous"
 menu_title: ""
-description: "Nous croyons en vous"
+description: "George Stokes, reçu par Elizabeth Mack : « Vous venez fidèlement à ces cercles. Vous présentez fidèlement vos demandes de prière, sachant que le Père y … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

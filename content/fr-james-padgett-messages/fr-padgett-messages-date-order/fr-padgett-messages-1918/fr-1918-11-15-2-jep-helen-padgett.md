@@ -1,7 +1,7 @@
 ---
 title: "Affirme que John Wesley a écrit"
 menu_title: ""
-description: "Affirme que John Wesley a écrit"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, mon cher, tu as travaillé dur ce soir, et tu as reçu un long message de John Wesley, et je ne te … »"
 date: 2022-06-01 06:00:01+00:66
 draft: False
 hidden: True

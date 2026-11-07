@@ -1,7 +1,7 @@
 ---
 title: "Hélène explique qu’Aigle Blanc est responsable des esprits des ténèbres et ne leur permet d’écrire qu’au moment opportun, et rend compte des progrès réalisés par les esprits qu’il a aidés"
 menu_title: ""
-description: "Hélène explique qu’Aigle Blanc est responsable des esprits des ténèbres et ne leur permet d’écrire qu’au moment opportun, et rend compte des progrès réalisés par les esprits qu’il a aidés"
+description: "Hélène Padgett, reçu par James Padgett : « Eh bien, ces esprits veulent tellement écrire, mais Aigle Blanc ne les pas laisse pas faire, car il leur dit … »"
 date: 2022-06-01 06:00:01+00:144
 draft: False
 hidden: True

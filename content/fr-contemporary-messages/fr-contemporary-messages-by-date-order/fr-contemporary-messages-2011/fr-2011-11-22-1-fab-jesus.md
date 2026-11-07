@@ -1,7 +1,7 @@
 ---
 title: "Le sommeil et la responsabilité"
 menu_title: ""
-description: "Le sommeil et la responsabilité"
+description: "Jésus, reçu par FAB : « Il s’intéresse à l’âme dans le sommeil. Eh bien, je peux seulement dire, tout simplement, que certaines lois affectant l’aspect … »"
 date: 2022-06-01 06:00:01+00:207
 draft: False
 hidden: True

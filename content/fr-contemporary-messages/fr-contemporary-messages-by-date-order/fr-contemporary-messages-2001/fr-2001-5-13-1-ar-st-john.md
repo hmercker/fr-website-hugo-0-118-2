@@ -1,7 +1,7 @@
 ---
 title: "La vue et le son de l’Amour"
 menu_title: ""
-description: "La vue et le son de l’Amour"
+description: "St Jean, reçu par Amada Reza : « Je veux partager avec vous la raison pour laquelle nous, simples hommes, avons pu devenir les enseignants de la vérité et … »"
 date: 2022-06-01 06:00:01+00:10
 draft: False
 hidden: True

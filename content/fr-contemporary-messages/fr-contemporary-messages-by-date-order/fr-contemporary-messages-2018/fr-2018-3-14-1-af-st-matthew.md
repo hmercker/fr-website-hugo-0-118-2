@@ -1,7 +1,7 @@
 ---
 title: "Cherchez à être une pure expression de la lumière"
 menu_title: ""
-description: "Cherchez à être une pure expression de la lumière"
+description: "St Matthieu, reçu par Al Fike : « Nous avons parlé des changements qui arrivent dans ce monde, des difficultés qui peuvent découler de ces changements et … »"
 date: 2022-06-01 06:00:01+00:361
 draft: False
 hidden: True

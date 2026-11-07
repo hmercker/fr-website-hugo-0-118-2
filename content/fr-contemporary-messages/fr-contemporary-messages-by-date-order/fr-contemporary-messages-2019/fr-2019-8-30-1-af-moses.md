@@ -1,7 +1,7 @@
 ---
 title: "L'humanité devra choisir"
 menu_title: ""
-description: "L'humanité devra choisir"
+description: "Moïse, reçu par Al Fike : « Les vents du changement continuent de souffler sur votre monde et beaucoup de ce qui a été compris par le passé, beaucoup de … »"
 date: 2022-06-01 06:00:01+00:820
 draft: False
 hidden: True

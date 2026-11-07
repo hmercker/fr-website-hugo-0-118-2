@@ -1,7 +1,7 @@
 ---
 title: "Soyez calmes dans les tempêtes à venir"
 menu_title: ""
-description: "Soyez calmes dans les tempêtes à venir"
+description: "André, reçu par Al Fike : « Que l’Amour du Père trouve un afflux constant dans vos âmes. Puissiez-vous être dans ce lieu de prière où l’Amour du Père vous … »"
 date: 2022-06-01 06:00:01+00:290
 draft: False
 hidden: True

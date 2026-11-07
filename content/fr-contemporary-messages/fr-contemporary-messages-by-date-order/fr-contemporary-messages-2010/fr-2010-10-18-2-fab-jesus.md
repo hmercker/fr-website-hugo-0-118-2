@@ -1,7 +1,7 @@
 ---
 title: "Le message de Jésus au monde"
 menu_title: ""
-description: "Le message de Jésus au monde"
+description: "Jésus, reçu par FAB : « R voudrait savoir ce que j'aimerais dire au monde en cette période électorale. Elle aimerait également savoir ce que je suggère … »"
 date: 2022-06-01 06:00:01+00:164
 draft: False
 hidden: True

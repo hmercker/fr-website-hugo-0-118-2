@@ -1,7 +1,7 @@
 ---
 title: "Une clarication concernant Swenderborg"
 menu_title: ""
-description: "Une clarication concernant Swenderborg"
+description: "Jésus, reçu par Victor Summers : « Les déclarations faites par M. Swedenborg dans ce paragraphe ont été, dans le passé, énigmatiques pour un certain … »"
 date: 2022-06-01 06:00:01+00:01
 draft: False
 hidden: True

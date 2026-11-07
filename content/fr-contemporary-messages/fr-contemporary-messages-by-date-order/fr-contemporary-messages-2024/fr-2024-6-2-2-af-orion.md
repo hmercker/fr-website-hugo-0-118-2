@@ -1,7 +1,7 @@
 ---
 title: "La prière est un activateur dans chaque partie de l'univers"
 menu_title: ""
-description: "La prière est un activateur dans chaque partie de l'univers"
+description: "Orion, reçu par Albert Fike : « Vous avez appris à utiliser cet agent d’activation pour votre bien et celui de votre planète. »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

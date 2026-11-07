@@ -1,7 +1,7 @@
 ---
 title: "Félicitations à vous tous et à vous toutes"
 menu_title: ""
-description: "Félicitations à vous tous et à vous toutes"
+description: "Professeur Salyards, reçu par Al Fike : « Bénédictions à vous, c’est votre professeur Salyards, votre vieil ami, celui qui a un vif intérêt dans votre … »"
 date: 2022-06-01 06:00:01+00:31
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "La différence entre l'âme et l'esprit"
 menu_title: ""
-description: "La différence entre l'âme et l'esprit"
+description: "St Matthieu, reçu par Al Fike : « Je souhaite parler de la différence entre vos esprits, l’esprit matériel (le mental) et l’âme, puisque ce sujet a été … »"
 date: 2022-06-01 06:00:01+00:401
 draft: False
 hidden: True

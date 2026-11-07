@@ -1,7 +1,7 @@
 ---
 title: "La mort et la résurrection de Jésus"
 menu_title: ""
-description: "La mort et la résurrection de Jésus"
+description: "Archange Gabriel, reçu par RL : « Cette apparence peut avoir été de transmettre son antiquité.] J’étais là et j’ai aidé à descendre le Christ de la croix. »"
 date: 2022-06-01 06:00:01+00:08
 draft: False
 hidden: True

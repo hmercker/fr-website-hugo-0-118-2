@@ -1,7 +1,7 @@
 ---
 title: "Les changements terrestres et l’état de votre âme"
 menu_title: ""
-description: "Les changements terrestres et l’état de votre âme"
+description: "Seretta Kem, reçu par Al Fike : « Je vois parmi vous une grande Lumière et un profond désir de servir Dieu et les débuts de nouveaux éveils en vous alors … »"
 date: 2022-06-01 06:00:01+00:254
 draft: False
 hidden: True

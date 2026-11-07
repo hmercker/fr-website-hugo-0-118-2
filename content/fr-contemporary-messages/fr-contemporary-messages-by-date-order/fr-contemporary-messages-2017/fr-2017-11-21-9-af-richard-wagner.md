@@ -1,7 +1,7 @@
 ---
 title: "Vos efforts seront récompensés"
 menu_title: ""
-description: "Vos efforts seront récompensés"
+description: "Richard Wagner, reçu par Al Fike : « Je souhaite apporter de la belle musique à ce monde. Tant d'entre nous qui étaient connus dans votre monde pour nos … »"
 date: 2022-06-01 06:00:01+00:231
 draft: False
 hidden: True

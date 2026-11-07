@@ -1,7 +1,7 @@
 ---
 title: "L’Amour Divin tend la main à tous les hommes. M. Padgett est l’instrument pour recevoir les vérités"
 menu_title: ""
-description: "L’Amour Divin tend la main à tous les hommes. M. Padgett est l’instrument pour recevoir les vérités"
+description: "Jésus, reçu par James Padgett : « Laissez votre esprit être libre de toute mauvaise pensée et de tout péché. L’Amour de Dieu tend la main à chaque homme … »"
 date: 2022-06-01 06:00:01+00:20
 draft: False
 hidden: True

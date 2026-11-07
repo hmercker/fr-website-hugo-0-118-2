@@ -1,7 +1,7 @@
 ---
 title: "Vous devez chaque jour communier avec le Grand Esprit"
 menu_title: ""
-description: "Vous devez chaque jour communier avec le Grand Esprit"
+description: "Abdullah Latif : « Les bénédictions de Dieu se déversent sur vous alors que je me tiens au centre de votre cercle, le sentiment de force qui se déverse … »"
 date: 2022-06-01 06:00:01+00:154
 draft: False
 hidden: True

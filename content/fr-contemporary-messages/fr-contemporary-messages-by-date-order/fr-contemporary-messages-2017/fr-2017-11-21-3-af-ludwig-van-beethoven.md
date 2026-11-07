@@ -1,7 +1,7 @@
 ---
 title: "Le don de la musique fera partie de ce plan"
 menu_title: ""
-description: "Le don de la musique fera partie de ce plan"
+description: "Ludwig van Beethoven, reçu par Al Fike : « Je souhaite moi aussi exprimer la musique de mon cœur et de mon âme. Et vous serez surpris de voir à quel point … »"
 date: 2022-06-01 06:00:01+00:225
 draft: False
 hidden: True

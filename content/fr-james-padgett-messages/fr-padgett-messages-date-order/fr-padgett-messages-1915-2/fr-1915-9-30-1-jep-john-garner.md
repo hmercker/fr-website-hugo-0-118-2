@@ -1,7 +1,7 @@
 ---
 title: "Garner, le prédicateur, donne des encouragements"
 menu_title: ""
-description: "Garner, le prédicateur, donne des encouragements"
+description: "Garner, reçu par James Padgett : « Laissez les soucis aller et s’enterrer, et tournez vos pensées et vos aspirations d’âme vers Dieu, car ce sont les … »"
 date: 2022-06-01 06:00:01+00:280
 draft: False
 hidden: True

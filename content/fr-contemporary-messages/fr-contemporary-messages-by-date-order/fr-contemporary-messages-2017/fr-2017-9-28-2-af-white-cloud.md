@@ -1,7 +1,7 @@
 ---
 title: "L'amour réveillera votre âme"
 menu_title: ""
-description: "L'amour réveillera votre âme"
+description: "Nuage Blanc, reçu par Al Fike : « Aimez-vous vraiment la terre sur laquelle vous habitez, ces contrées d'eaux, d'arbres et de montagnes ? »"
 date: 2022-06-01 06:00:01+00:126
 draft: False
 hidden: True

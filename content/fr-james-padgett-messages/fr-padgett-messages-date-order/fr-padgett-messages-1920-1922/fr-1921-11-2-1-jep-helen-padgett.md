@@ -1,7 +1,7 @@
 ---
 title: "Hélène raconte comment elle a aimé les lettres d’amour de Ned"
 menu_title: ""
-description: "Hélène raconte comment elle a aimé les lettres d’amour de Ned"
+description: "Hélène Padgett, reçu par James Padgett : « Bien des fois, après notre séparation, j’ai relu ces merveilleuses lettres d’amour dans lesquelles tu … »"
 date: 2022-06-01 06:00:01+00:71
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Serez-vous le changement dont le monde a tant besoin ?"
 menu_title: ""
-description: "Serez-vous le changement dont le monde a tant besoin ?"
+description: "Augustin, reçu par Al Fike : « Le monde a besoin que les âmes s'avancent et déclarent la disponibilité de ce don de l'Amour du Père, car le trésor de Dieu … »"
 date: 2022-06-01 06:00:01+00:241
 draft: False
 hidden: True

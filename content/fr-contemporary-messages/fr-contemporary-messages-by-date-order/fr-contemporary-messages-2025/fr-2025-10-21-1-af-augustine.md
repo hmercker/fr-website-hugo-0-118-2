@@ -1,7 +1,7 @@
 ---
 title: "La Puissance de Vos Prières : Instruments de la Lumière Divine"
 menu_title: ""
-description: "La Puissance de Vos Prières : Instruments de la Lumière Divine"
+description: "Augustin, reçu par Albert Fike : « Le monde bénéficie de vos prières, chers et précieux étudiants de la vérité. Vos prières sont puissantes. »"
 date: 2025-12-12 16:00:01+00:01
 draft: False
 hidden: True

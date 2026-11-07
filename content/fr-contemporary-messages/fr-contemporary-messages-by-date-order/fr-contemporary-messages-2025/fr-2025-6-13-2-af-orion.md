@@ -1,7 +1,7 @@
 ---
 title: "Le Destin de l'Humanité dans l'Univers"
 menu_title: ""
-description: "Le Destin de l'Humanité dans l'Univers"
+description: "Orion, reçu par Albert Fike : « Puisse un raz-de-marée d'Amour divin submerger chacun de vous, vous baigner, vous élever et vous amener à une plus grande … »"
 date: 2023-09-01 06:00:01+00:01
 draft: False
 hidden: True

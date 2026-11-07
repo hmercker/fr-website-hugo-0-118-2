@@ -1,7 +1,7 @@
 ---
 title: "La spiritualité des premiers Amérindiens"
 menu_title: ""
-description: "La spiritualité des premiers Amérindiens"
+description: "Mala, reçu par FAB : « Nous avions un concept de la vie assez avancé, comparé à vos vues modernes. Les gens assimilent souvent « préhistorique » à « … »"
 date: 2022-06-01 06:00:01+00:56
 draft: False
 hidden: True

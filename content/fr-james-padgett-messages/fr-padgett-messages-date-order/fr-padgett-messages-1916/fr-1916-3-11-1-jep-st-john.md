@@ -1,7 +1,7 @@
 ---
 title: "Saint-Jean avise M. Padgett d’un plan d’indépendance qui sera divulgué en détail à une date ultérieure"
 menu_title: ""
-description: "Saint-Jean avise M. Padgett d’un plan d’indépendance qui sera divulgué en détail à une date ultérieure"
+description: "St Jean, reçu par James Padgett : « Permettez-moi d’écrire quelques lignes pour partager quelque chose qui pourrait être important pour vous. »"
 date: 2022-06-01 06:00:01+00:169
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Le Père de M. Padgett l’informe que son âme se développe très rapidement"
 menu_title: ""
-description: "Le Père de M. Padgett l’informe que son âme se développe très rapidement"
+description: "John Padgett, reçu par James Padgett : « Je sens que je dois te dire cela car je vois que ton âme se développe très rapidement, et plus l’Amour de Dieu … »"
 date: 2022-06-01 06:00:01+00:07
 draft: False
 hidden: True

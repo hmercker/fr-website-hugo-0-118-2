@@ -1,7 +1,7 @@
 ---
 title: "Pas une petite chose pour le monde entier"
 menu_title: ""
-description: "Pas une petite chose pour le monde entier"
+description: "Claire d'Assise, reçu par Jimbeau Walsh : « Mes chères souris aimables, quel bonheur d’être avec vous. D’entendre vos préoccupations et de sentir la joie … »"
 date: 2022-06-01 06:00:01+00:1329
 draft: False
 hidden: True

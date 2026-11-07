@@ -1,7 +1,7 @@
 ---
 title: "Préjugés contre les Amérindiens"
 menu_title: ""
-description: "Préjugés contre les Amérindiens"
+description: "Uharu, reçu par FAB : « Vous êtes en train de lire les stéréotypes que les Blancs ont imposés aux Amérindiens. Il est tout à fait vrai que dans la grande … »"
 date: 2022-06-01 06:00:01+00:156
 draft: False
 hidden: True

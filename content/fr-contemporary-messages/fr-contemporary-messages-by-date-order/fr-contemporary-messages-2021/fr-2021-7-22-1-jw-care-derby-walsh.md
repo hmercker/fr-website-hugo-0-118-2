@@ -1,7 +1,7 @@
 ---
 title: "Suivez la joie"
 menu_title: ""
-description: "Suivez la joie"
+description: "Care Darby Walsh, reçu par Jimbeau Walsh : « Que l’amour de Dieu bénisse chacun d’entre vous et vous apporte la paix. J’ai marché pieds nus sur la terre … »"
 date: 2022-06-01 06:00:01+00:1578
 draft: False
 hidden: True

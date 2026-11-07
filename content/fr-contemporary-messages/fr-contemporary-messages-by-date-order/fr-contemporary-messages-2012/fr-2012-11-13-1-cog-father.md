@@ -1,7 +1,7 @@
 ---
 title: "Laisse Mon Amour t’envahir"
 menu_title: ""
-description: "Laisse Mon Amour t’envahir"
+description: "Le Père Céleste, reçu par Enfant de Dieu : « Mon cher enfant, plusieurs sujets t’ont préoccupé et tu souhaites que nous en parlions. Continuons avec le … »"
 date: 2022-06-01 06:00:01+00:297
 draft: False
 hidden: True
