@@ -9,7 +9,7 @@ weight:
 ---
 ### L’Amour Divin est tout ce dont vous avez besoin, et bien plus encore
 
-Estelle Roberts - reçu par Albert Fike le xx Septembre 2026, Cercle de Lumière en ligne, Sechelt, Colombie-Britannique, Canada.
+Estelle Roberts - reçu par Albert Fike le xx Septembre 2026, Retraite de l’Église spiritualiste de Harrow, Harrow, Londres, Royaume-Uni.
 
 Vous voyez la puissance de l’Amour de Dieu se manifester en ce lieu, parmi vous qui êtes en quête de vérité. Je ne connaissais pas cet Amour lorsque je vivais sur Terre, lorsque je fréquentais ce bâtiment ; mais, à mesure que j’ai progressé dans le monde des esprits — et ce que cet instrument a décrit est tout à fait exact —, j’ai commencé à découvrir les qualités de l’âme et son cheminement. J’ai effectivement choisi cette voie : celle de l’amour pour Dieu. À vous, ici présents, qui éprouvez des sentiments profonds, qui possédez une grande sensibilité et dont l’âme aspire à être pleinement vivante, je suggère de suivre ce chemin — la voie divine — en quête de ce don d’Amour, ce don venant de Dieu. Car cela vous sera d’une aide précieuse lorsque vous arriverez ici, dans le monde des esprits.
 

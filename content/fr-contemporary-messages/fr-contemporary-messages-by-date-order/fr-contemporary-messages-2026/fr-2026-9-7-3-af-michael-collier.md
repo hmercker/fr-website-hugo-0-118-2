@@ -9,7 +9,7 @@ weight:
 ---
 ### Questions-réponses avec Michael Collier
 
-Michael Collier - reçu par Albert Fike le 7 Septembre 2026, Cercle de Lumière en ligne, Sechelt, Colombie-Britannique, Canada.
+Michael Collier - reçu par Albert Fike le 7 Septembre 2026, Retraite de Bassingham, Bassingham, Royaume-Uni.
 
 Michael Collier : Bénédictions et salutations à vous, mes amis. Je suis Michael Collier. Bienvenue dans mon pays. Bien que, là où je réside, l’Angleterre n’existe pas. Il s’agit d’une communauté merveilleuse et ininterrompue, composée de belles âmes partageant les mêmes aspirations ; elles connaissent bien l’Amour de Dieu et le célèbrent dans tout ce qu’elles entreprennent — et je peux vous assurer qu’elles entreprennent beaucoup de choses, vraiment beaucoup.
 

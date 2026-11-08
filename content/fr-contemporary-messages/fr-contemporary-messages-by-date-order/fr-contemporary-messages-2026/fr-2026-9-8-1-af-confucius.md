@@ -9,7 +9,7 @@ weight:
 ---
 ### L’amour est la réponse
 
-Confucius - reçu par Albert Fike le 8 Septembre 2026, Cercle de Lumière en ligne, Sechelt, Colombie-Britannique, Canada.
+Confucius - reçu par Albert Fike le 8 Septembre 2026, Retraite de Bassingham, Bassingham, Royaume-Uni.
 
 En vérité, Dieu vous aime, mes bien-aimés. Je suis Confucius. Vous parlez d’amour. Vous affirmez l’amour. Vous vivez l’amour. N’est-ce pas là le remède dont le monde a besoin pour sa subsistance spirituelle et son élévation ?
 

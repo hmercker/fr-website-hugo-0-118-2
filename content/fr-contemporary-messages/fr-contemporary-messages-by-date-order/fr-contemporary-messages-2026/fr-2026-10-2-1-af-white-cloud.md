@@ -1,0 +1,26 @@
+---
+title: "Vénération pour la Terre"
+menu_title: ""
+description: "Vénération pour la Terre"
+date: 2026-11-08 06:00:01+00:01
+draft: False
+hidden: True
+weight:
+---
+### Vénération pour la Terre
+
+Nuage Blanc - reçu par Albert Fike le xx Octobre 2026, Cercle de Lumière en ligne, Sechelt, Colombie-Britannique, Canada.
+
+Que Dieu vous bénisse, mes chers amis. Je suis Nuage Blanc. En vérité, la Terre est régénérée par Dieu ; pourtant, l’humanité continue de puiser en elle. Cette contradiction se manifeste à chaque instant, à chaque respiration. La Terre est vivante, elle déborde de vie, mais l’humanité choisit de ne pas le voir, ni de lui rendre hommage. Je ne dis pas, mes amis, que vous manquez de respect envers la Terre — je sais, au contraire, que vous lui portez une profonde vénération. Mais, dans l’ensemble, la grande majorité de l’humanité persiste dans une attitude d’ignorance, mue par des désirs purement matériels. Ce faisant, elle met la Terre à genoux. Tant de destructions, tant de déséquilibres… les problèmes et les situations actuels sont accablants, et ils pèsent lourdement sur la Terre.
+
+Mes amis, continuez à prier pour ce monde magnifique. Continuez à prier pour vous-mêmes, qui y vivez. Vous avez besoin de toute l’élévation et de tout le soutien que vous pouvez recevoir. Car le monde réagit ; il se transforme en réponse aux efforts collectifs de l’humanité. Il existe donc, mes amis, une véritable lutte. Une profonde contradiction se manifeste au sein de l’humanité, tandis que la Terre — ainsi que ceux qui lui sont alliés — déploie des efforts considérables pour guérir et prévenir toute destruction supplémentaire. Gardez cela à l’esprit dans votre vie quotidienne. Aimez-vous la Terre ? La considérez-vous comme un acquis, ou bien participez-vous activement à ce qui engendre la disharmonie et la destruction dans le monde ?
+
+L’humanité est dotée du libre arbitre. Les choix vous appartiennent. Dieu vous a fait — à vous, êtres dotés d’une âme, créatures de Sa création — ce don inestimable. Le dessein de ce don est de vous permettre de venir à Dieu, de votre plein gré et de tout votre cœur, pour être auprès de Lui, connaître Son Amour et, par cette connaissance, percevoir le monde à travers le regard du divin. Comprenez le monde en puisant dans les perceptions et la sagesse de votre âme. Si vous agissez ainsi, comment pourriez-vous profaner votre magnifique monde, votre foyer ? C’est impossible. Pourtant, chacun d’entre vous — et, hélas, l’humanité tout entière — se trouve pris dans un tel réseau de disharmonie et d’ignorance qu’il est difficile de ne pas se laisser entraîner par ces conditions.
+
+Vous devez faire preuve de sagesse, mes amis. Traversez ce monde avec amour ; recherchez l’Amour de Dieu afin d’acquérir cette sagesse et de cultiver un profond respect pour le monde. À mesure que vous vous rapprocherez de Dieu, ces perceptions, cette attitude et cet Amour s’épanouiront et prendront le dessus dans votre vie. C’est là que résident les effets guérisseurs et les bénédictions nécessaires qui doivent accompagner vos prières et votre désir de devenir ces formidables instruments, capables d’apporter la guérison et le redressement qui s’imposent. Mes amis, nous œuvrerons ensemble. Nombre d’entre nous aspirent à guérir le monde, car il constitue le point de départ pour toutes les âmes qui doivent encore venir s’incarner ici-bas.
+
+En vérité, si les desseins de Dieu s’étaient accomplis, il n’y aurait aucun souci, et l’humanité continuerait de s’épanouir sur cette terre. Mais, hélas, la souffrance, les injustices, le piétinement du monde et celui des uns par les autres ont engendré une situation terrible — une réalité que Dieu n’a jamais voulue. Laissez la plénitude du Toucher divin s’épanouir en vous et rayonnez-la dans le monde. Soyez ce canal d’amour et de sagesse. Agissez en accord avec la compréhension de votre âme, et soyez empreints de grâce aux yeux de Dieu comme aux yeux de vos frères et sœurs.
+
+Vous découvrirez que votre simple existence sert d’enseignement aux autres. Votre manière d’incarner l’amour deviendra un exemple pour autrui ; c’est ainsi que le changement pourra s’opérer dans le monde. Votre dévouement, votre engagement et votre amour apporteront guérison et transformation, mes amis. Poursuivez sur cette voie. Demeurez auprès du Grand Esprit, du Créateur céleste, et sachez que, par ce biais, Dieu se servira de vous pour guérir et apporter ce qui est nécessaire. Puisse Sa bénédiction continuer de vous toucher profondément, mes amis, et vous apporter la paix, la joie et la lumière qui nourriront votre être, qui nourriront votre âme.
+
+Je suis Nuage Blanc. Je viens pour vous encourager, mes amis. Car comment le monde pourrait-il guérir, sinon par des instruments dont Dieu peut se servir pour opérer cette guérison ? Que Dieu vous bénisse tous dans Son amour. Je suis avec vous dans vos efforts pour apporter la lumière au monde. Je continuerai à être avec vous. Que Dieu vous bénisse tous. Que Dieu vous bénisse tous.

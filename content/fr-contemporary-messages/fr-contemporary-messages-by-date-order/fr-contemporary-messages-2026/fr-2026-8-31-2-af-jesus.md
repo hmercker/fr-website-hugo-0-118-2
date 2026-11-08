@@ -9,7 +9,7 @@ weight:
 ---
 ### Obstacles de l’esprit et de l’âme
 
-Jésus - reçu par Albert Fike le 31 Août 2026, Cercle de Lumière en ligne, Sechelt, Colombie-Britannique, Canada.
+Jésus - reçu par Albert Fike le 31 Août 2026, Cercle de Lumière « One Nation », Sechelt, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, mes bien-aimés. Je suis votre frère et ami, Jésus. Je viens me joindre à vous dans vos prières pour vous assurer que le chemin du service est dégagé et bien éclairé. En effet, des anges sont avec vous et vous accompagnent sur cette voie ; Dieu éclaire le chemin pour chacun d’entre vous, même si, à vos yeux, il peut sembler moins clair et parsemé d’obstacles. Pourtant, en accomplissant votre œuvre — d’une âme vers d’autres âmes, en tant qu’âme agissant comme canal de l’Amour de Dieu dans le monde — vous accomplissez un travail considérable. À mesure que vous grandissez dans l’Amour du Père, votre puissance en matière de lumière et vos capacités s’accroissent. Les obstacles que vous percevez relèvent du mental ; mais, en réalité, les obstacles dont je parle n’existent pas — ils ne concernent que l’esprit et l’âme.
 

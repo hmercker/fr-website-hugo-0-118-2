@@ -9,7 +9,7 @@ weight:
 ---
 ### C’est une voie qui englobe tout ; il n’existe rien de plus élevé
 
-Augustin - reçu par Maureen Cardoso le 7 Septembre 2026, Cercle de Lumière en ligne, Sechelt, Colombie-Britannique, Canada.
+Augustin - reçu par Maureen Cardoso le 7 Septembre 2026, Retraite de Bassingham, Bassingham, Royaume-Uni.
 
 Que Dieu vous bénisse. C’est votre enseignant, Augustin. Nous prenons plaisir à observer votre curiosité, vos connaissances et votre sagesse, au fil de vos questions, de vos réponses et de vos échanges, car c’est ainsi que vous progressez, dans une certaine mesure. Un mouvement se produit au sein de l’âme en réponse à ce qui a été exprimé. De cette façon, vous vous aidez les uns les autres. Lorsqu’une question est posée par quelqu’un que vous pourriez considérer comme « nouveau » dans la découverte de ces connaissances et de ces vérités, ceux qui possèdent davantage d’expérience, qui ont progressé dans leur âme et qui portent en elle une certaine sagesse, peuvent alors répondre. Vous vous apportez ainsi une aide mutuelle, car il y a une différence entre le fait, pour l’âme, de porter en elle une sagesse, et le fait que cette sagesse s’exprime à travers les mots et les concepts de l’individu.
 

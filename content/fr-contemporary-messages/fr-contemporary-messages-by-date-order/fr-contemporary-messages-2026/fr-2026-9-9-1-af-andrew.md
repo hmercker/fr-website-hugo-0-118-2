@@ -9,7 +9,7 @@ weight:
 ---
 ### C’est dans le service que réside l’accomplissement
 
-André - reçu par Albert Fike le 9 Septembre 2026, Cercle de Lumière en ligne, Sechelt, Colombie-Britannique, Canada.
+André - reçu par Albert Fike le 9 Septembre 2026, Retraite de Bassingham, Bassingham, Royaume-Uni.
 
 Le soleil brille sur vous, mes âmes bien-aimées. Je suis André, et le soleil brille en vous — un soleil plus éclatant que tout autre, qui ne cessera de grandir pour l’éternité. Cette lumière intérieure continuera de croître à mesure que vous recevrez davantage de cette bénédiction qu’est l’Amour du Père. Ô, mes amis bien-aimés, réjouissez-vous de la lumière qui vous est offerte. Réjouissez-vous des occasions que Dieu nous donne à tous de servir, d’être un canal d’amour dans ce monde, d’être une lumière.
 

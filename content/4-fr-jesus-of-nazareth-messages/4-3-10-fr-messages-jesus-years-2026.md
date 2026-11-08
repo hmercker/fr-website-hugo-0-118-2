@@ -65,6 +65,14 @@ Jésus | [Laissez les aspirations de votre âme rayonner vers Dieu](/fr-contempo
 Jésus | [Le ministère de l’âme s’accomplit par le partage de vos expériences et la création de liens personnels](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-6-1-af-jesus/) | 6 Septembre 2026
 Michael Collier & Jésus | [Après cette période de répit, il est temps d’entamer le travail](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-10-2-af-michael-collier-jesus/) | 10 Septembre 2026
 Jésus | [Jésus inaugure la retraite de Harrow](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-11-1-af-jesus/) | 11 Septembre 2026
+Jésus | [Même si tous ne vous écoutent pas, soyez une lumière tandis que vous parcourez ces contrées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-17-1-af-jesus/) | 17 Septembre 2026
+Jésus | [Cette grande vérité est le chemin vers l’union avec Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-19-2-af-jesus/) | 19 Septembre 2026 
+Jésus | [Votre rassemblement ici est divinement béni ; Jésus inaugure la retraite de State College](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-28-1-af-jesus/) | 28 Septembre 2026
+Jésus | [La grâce abondante et les bénédictions de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-4-1-af-jesus/) | 4 Octobre 2026 
+Jésus | [Apporter les eaux vives de l’Amour Divin à l’humanité](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-11-1-af-jesus/) | 11 Octobre 2026
+Jésus | [Avancer ensemble : accomplir le dessein de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-15-1-af-jesus/) | 15 Octobre 2026
+Jésus | [Soyez des instruments de vérité, de lumière et d’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-23-1-af-jesus/) | 23 Octobre 2026 
+Jésus | [L’amour sans jugement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-25-1-af-jesus/) | 25 Octobre 2026
 
 
 

@@ -14,3 +14,4 @@ weight:
 St François d'Assise | [Soyez la Lumière de l'Amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-1-2-1-af-st-francis-of-assisi/) | 2 Janvier 2026
 St François d'Assise | [Un ennemi devient ami par l'Amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-2-2-1-jw-st-francis-of-assisi/) | 2 Février 2026
 St François d'Assise | [Indulgences et distractions](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-6-1-jw-st-francis-of-assisi/) | 6 Juillet 2026
+Francois d'Assise | [Le septième sens et la prière](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-26-1-jw-francis-of-assisi/) | 26 Octobre 2026

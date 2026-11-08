@@ -9,7 +9,7 @@ weight:
 ---
 ### Après cette période de répit, il est temps d’entamer le travail
 
-Michael Collier et Jésus - reçu par Albert Fike le 10 Septembre 2026, Cercle de Lumière en ligne, Sechelt, Colombie-Britannique, Canada.
+Michael Collier et Jésus - reçu par Albert Fike le 10 Septembre 2026, Retraite de Bassingham, Bassingham, Royaume-Uni.
 
 Michael Collier : Le travail se poursuit, mes amis. Je suis Michael Collier. Vous avez bénéficié du luxe de ce répit, de la générosité de votre cher hôte et de toute la bonté que cette terre a à offrir. Vous vous sentez ressourcés. À présent, il est temps de travailler, de vous consacrer à votre tâche, de mettre en œuvre vos dons, vos connaissances et votre amour au service des âmes dans le besoin que vous allez bientôt rencontrer. Je vous exhorte à rester dans la prière, à réfléchir à ce qui se présente à vous et à considérer ces occasions comme de grandes bénédictions. Je sais que c’est ce que vous faites.
 

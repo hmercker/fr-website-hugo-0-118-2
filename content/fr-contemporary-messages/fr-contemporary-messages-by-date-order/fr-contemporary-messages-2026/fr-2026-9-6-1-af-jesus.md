@@ -9,7 +9,7 @@ weight:
 ---
 ### Le ministère de l’âme s’accomplit par le partage de vos expériences et la création de liens personnels
 
-Jésus - reçu par Albert Fike le 6 Septembre 2026, Cercle de Lumière en ligne, Sechelt, Colombie-Britannique, Canada.
+Jésus - reçu par Albert Fike le 6 Septembre 2026, Retraite de Bassingham, Bassingham, Royaume-Uni.
 
 Je viens, mes bien-aimés. Une fois de plus, je viens être avec vous dans la prière, être avec vous dans l’amour. Je suis votre frère et ami, Jésus, et je viens vous parler de votre progression continue dans l’Amour de Dieu. J’étais présent lorsque vous avez évoqué votre amour pour Dieu. J’étais présent lorsque vous avez parlé de la prière et de votre cheminement vers Dieu. Cela m’a procuré une grande joie de vous entendre vous exprimer ainsi, avec sincérité, en partageant ce qui vient de votre cœur, avec clarté et amour. Car c’est là être un instrument de Dieu.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### Lorsque vous vous sentez en déséquilibre, prenez un moment pour retrouver la paix de l’âme
 
-Marie - reçu par Maureen Cardoso le 9 Septembre 2026, Cercle de Lumière en ligne, Sechelt, Colombie-Britannique, Canada.
+Marie - reçu par Maureen Cardoso le 9 Septembre 2026, Retraite de Bassingham, Bassingham, Royaume-Uni.
 
 Que Dieu vous bénisse. Je suis Marie, et j’ai attendu de pouvoir toucher vos cœurs de cette manière. Je vous encourage à demeurer en paix, à laisser la paix régner sur votre existence et à mener une vie empreinte de paix. Lorsque vous vous retrouvez hors de cet état, prenez un instant pour revenir à la paix qui réside au sein de votre âme. C’est ainsi que vous puiserez la force, le désir et l’amour nécessaires pour rayonner comme une lumière dans le monde, quels que soient l’endroit où vous vous trouvez ou les circonstances que vous traversez. Car la paix est ce qui doit régner sur votre vie ; c’est un attribut magnifique de l’âme — une âme emplie de l’Amour de Dieu, telle une eau calme et vivante qui demeure en vous.
 

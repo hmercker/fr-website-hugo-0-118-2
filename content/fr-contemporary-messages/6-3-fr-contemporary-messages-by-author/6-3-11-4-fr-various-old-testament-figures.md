@@ -24,6 +24,7 @@ Aaron | [Les anges ne peuvent pas faire leur travail sans l'aide d'instruments s
 Aaron | [Je serai avec vous pendant que vos dons s'ouvrent au service de Dieu ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-10-15-1-af-aaron/) | 15 Octobre 2024
 Aaron | [Soyez clairs dans vos désirs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-3-4-1-af-aaron/) | 4 Mars 2025
 Aaron | [La clé de la guérison de l'humanité réside dans l'Amour divin, et non dans les efforts humains](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-14-2-af-aaron/) | 14 Août 2026 
+Aaron | [Le pouvoir du libre arbitre et l’éveil de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-9-2-af-aaron/) | 9 Octobre 2026
 Jésus, Fleur de Lotus et Aaron | [Bénédictions d’amour](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-12-15-1-af-jesus-aaron-and-lotus-blossom/) | 15 Décembre 2024
 Abraham   | [Abraham a toujours été proche de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-4-24-2-fab-abraham/) | 24 Avril 2003
 Abraham   | [La profession d’Abraham](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2010/fr-2010-6-11-1-fab-abraham/) | 11 Juin 2010
@@ -31,6 +32,7 @@ Abraham   | [Abraham et la Chaldée](/fr-contemporary-messages/fr-contemporary-m
 Daniel | [Le don de discernement](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-28-1969-10-3-anonymous-daniel/) | 3 Octobre 1969
 Daniel | [Expérience de Daniel avec l’Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2007/fr-2007-8-26-1-fab-daniel/) | 26 Août 2007
 Daniel | [Rapport de progression](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-11-3-2-em-daniel/) | 3 Novembre 2025 
+Daniel  | [Ne compliquez pas la simplicité de l’Amour et de la Vérité de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-13-1-af-daniel/) | 13 Octobre 2026 
 David | [Le roi David et la guerre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-2-8-1-fab-king-david/) | 8 Février 2003
 David | [Participez au moins par Vos prières](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2003/fr-2003-3-20-1-pjr-king-david/) | 20 Mars 2003
 David | [David, roi des Juifs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-18-2-af-king-david/) | 18 Novembre 2017

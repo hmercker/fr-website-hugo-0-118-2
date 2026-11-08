@@ -9,7 +9,7 @@ weight:
 ---
 ### Bien que nous commencions par le plan physique, beaucoup sont bénis dans l’esprit
 
-Jésus - reçu par Albert Fike le 2 Septembre 2026, Cercle de Lumière en ligne, Sechelt, Colombie-Britannique, Canada.
+Jésus - reçu par Albert Fike le 2 Septembre 2026, Retraite des Quatre, Sechelt, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse. Je viens. Je suis votre frère et ami, Jésus. Ceux qui sont mes disciples seront bénis en conséquence ; ils seront protégés, guidés, inspirés et rendus capables d’agir comme des canaux de l’amour de Dieu dans le monde. À mesure que chacun de vous s’engage à servir, ces bénédictions se manifesteront, mes bien-aimés ; vous connaîtrez alors la lumière, l’élévation et la plénitude de la présence de Dieu à vos côtés. Tout ce qui est nécessaire pour servir — pour devenir ce canal de vérité et d’amour dans le monde — vous sera accordé.
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### La semence de l’Amour de Dieu a été plantée ; continuez à en prendre soin
 
-Mylora - reçu par Albert Fike le 14 Septembre 2026, Cercle de Lumière en ligne, Sechelt, Colombie-Britannique, Canada.
+Mylora - reçu par Albert Fike le 14 Septembre 2026, Retraite de l’Église spiritualiste de Wimbledon, Wimbledon, Londres, Royaume-Uni.
 
 Que Dieu vous bénisse, mes amis. Je m’appelle Mylora et je viens de ces contrées, il y a bien, bien des siècles. La semence a été plantée. Il vous appartient désormais de l’arroser, d’en prendre soin, de découvrir ce qu’elle apporte à votre vie, et de prendre conscience que Dieu vous a fait un don. Dans ce don, vous trouverez bien des joies ; de nombreuses choses émergeront à mesure que vous explorerez la puissance, la beauté et les merveilles de l’amour de Dieu — cette substance tangible issue de l’Âme de Dieu, à laquelle vous pouvez accéder à tout moment, en toute circonstance et en tout lieu. Vous pouvez demander ce don.
 

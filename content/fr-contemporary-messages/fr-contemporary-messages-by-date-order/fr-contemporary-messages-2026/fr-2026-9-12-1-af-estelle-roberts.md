@@ -9,7 +9,7 @@ weight:
 ---
 ### Ancrez-vous en Dieu avant de passer dans le monde spirituel
 
-Estelle Roberts - reçu par Albert Fike le 12 Septembre 2026, Cercle de Lumière en ligne, Sechelt, Colombie-Britannique, Canada.
+Estelle Roberts - reçu par Albert Fike le 12 Septembre 2026, Retraite de l’Église spiritualiste de Harrow, Harrow, Londres, Royaume-Uni.
 
 Salutations du monde spirituel. Je suis Estelle Roberts. Bienvenue dans cette magnifique église, ce petit sanctuaire de lumière au sein d’un monde très agité. Il est bien regrettable que davantage de personnes ne soient pas venues, qu’elles ne puissent prendre un moment dans leur journée pour chercher du réconfort pour leur âme, pour rechercher la vérité auprès de ces âmes chères et lumineuses, venues partager, apporter du réconfort et transmettre la vérité — pour vous et pour ce monde. Tant de gens ne croient pas en Dieu, et pourtant, nos sept principes affirment très clairement que Dieu est réel et qu’Il ​​est présent. Mes amis, si vous n’êtes pas ancrés en Dieu avant de passer dans le monde spirituel, cela constitue un frein majeur à votre progression. Il est essentiel de comprendre la puissance de l’Amour de Dieu, le Toucher de Dieu et les bénédictions qu’Il ​​réserve à chaque âme.
 

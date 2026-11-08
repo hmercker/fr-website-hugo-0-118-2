@@ -9,7 +9,7 @@ weight:
 ---
 ### Laissez les aspirations de votre âme rayonner vers Dieu
 
-Jésus - reçu par Albert Fike le 5 Septembre 2026, Cercle de Lumière en ligne, Sechelt, Colombie-Britannique, Canada.
+Jésus - reçu par Albert Fike le 5 Septembre 2026, Retraite de Bassingham, Bassingham, Royaume-Uni.
 
 Que le don de l’Amour du Père soit vôtre, âmes bien-aimées. Je viens. Je suis votre frère et votre ami. Je suis Jésus. Je viens pour ouvrir ce rassemblement et affirmer que ce que vous faites et ce que vous désirez relève de ce qu’il y a de plus élevé : la Vérité qu’est l’Amour de Dieu.
 

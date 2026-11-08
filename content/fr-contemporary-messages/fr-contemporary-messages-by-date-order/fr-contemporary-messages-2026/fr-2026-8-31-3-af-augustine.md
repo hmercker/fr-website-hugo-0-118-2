@@ -9,7 +9,7 @@ weight:
 ---
 ### Lorsque vous priez ensemble, chacun de vous apporte une dimension unique que nul autre ne peut offrir
 
-Augustin - reçu par Albert Fike le 31 Août 2026, Cercle de Lumière en ligne, Sechelt, Colombie-Britannique, Canada.
+Augustin - reçu par Albert Fike le 31 Août 2026, Retraite des Quatre, Sechelt, Colombie-Britannique, Canada.
 
 Que Dieu vous bénisse, mes chers élèves. C’est Augustin, votre enseignant. Il est bon que vous preniez le temps de prier ensemble, en personne. Vos prières, lorsque vous êtes ainsi réunis, revêtent une qualité et une substance particulières. Elles créent une lumière autour de vous et à travers vous, qui pénètre dans ce monde et dissipe une grande part des ténèbres. Puisque vous faites tous partie de ce vaste réseau — la « Trame de Lumière » (Lattice of Light) — vous contribuez, ensemble, à charger cette trame de manière efficace et puissante.
 

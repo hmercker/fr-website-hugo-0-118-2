@@ -164,3 +164,4 @@ Keea Atta Kem | [Comment cette bénédiction d’amour crée une prise de consci
 Keea Atta Kem | [Dieu attend votre invitation et votre ouverture à recevoir Sa bénédiction](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-10-2-af-keea-atta-kem/) | 10 Juillet 2026
 Keea Atta Kem | [Dieu saisit chaque occasion pour bénir les autres](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-7-21-2-af-keea-atta-kem/) | 21 Juillet 2026 
 Keea Atta Kem | [L’espoir des anges pour nous, depuis la retraite de Bassingham](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-4-2-mc-keea-atta-kem/) | 4 Septembre 2026
+Keea Atta Kem | [Connaissez l’instrument de votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-2-2-mc-keea-atta-kem/) | 2 Octobre 2026

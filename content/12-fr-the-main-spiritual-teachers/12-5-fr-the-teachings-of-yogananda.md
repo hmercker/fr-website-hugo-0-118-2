@@ -152,6 +152,6 @@ Yogananda | [Diffuseurs de lumière dans un monde en plein chaos](/fr-contempora
 Yogananda | [La Joie Ailée](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-18-1-jw-yogananda/) | 18 Mai 2026
 Yogananda | [Laissez les choses de l'âme vous stimuler](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-5-31-1-mc-yogananda/) | 31 Mai 2026
 Yogananda | [Les Gunas et au-delà](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-3-1-jw-yogananda/) | 3 Août 2026
-Yogananda | [Nous ne souhaitons pas que vous rattachiez vos prières à une religion quelconque](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-14-2-af-yogananda/) | 14 Octobre 2026
-Yogananda | [La véritable paix au-delà de la peur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-19-2-af-yogananda/) | 19 Octobre 2026
+Yogananda | [Nous ne souhaitons pas que vous rattachiez vos prières à une religion quelconque](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-14-1-jw-yogananda/) | 14 Octobre 2026
+Yogananda | [La véritable paix au-delà de la peur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-19-1-jw-yogananda/) | 19 Octobre 2026
 

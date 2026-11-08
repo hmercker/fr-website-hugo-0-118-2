@@ -9,7 +9,7 @@ weight:
 ---
 ### Le processus de nettoyage de l’âme et la possibilité de purification sur Terre
 
-Orion - reçu par Albert Fike le 29 Août 2026, Cercle de Lumière en ligne, Sechelt, Colombie-Britannique, Canada.
+Orion - reçu par Albert Fike le 29 Août 2026, Voix Directe, Sechelt, Colombie-Britannique, Canada.
 
 Bénédictions à vous, mes amis. Je suis Orion. Les changements de conscience ne se produisent pas aisément ni facilement dans votre monde. Cela exige certains sacrifices. Cela demande une forme d’abandon, une disposition à accueillir et à embrasser quelque chose de nouveau. Lorsque vous demandez à servir de lumière dans le monde, à libérer en vous ce qui n’appartient pas à la lumière, et à permettre à la Main de Dieu d’agir à travers vous, sachez que cela ne s’accomplit pas si facilement.
 

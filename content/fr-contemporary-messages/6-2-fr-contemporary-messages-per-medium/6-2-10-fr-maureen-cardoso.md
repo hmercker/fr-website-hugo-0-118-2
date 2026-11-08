@@ -188,5 +188,7 @@ Augustin | [C’est une voie qui englobe tout ; il n’existe rien de plus élev
 Marie | [Lorsque vous vous sentez en déséquilibre, prenez un moment pour retrouver la paix de l’âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-9-2-mc-mary/) | 9 Septembre 2026
 Marie | [Permettez à cette substance vivante de l’Amour Divin de vous transformer](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-12-2-mc-mary/) | 12 Septembre 2026 
 Marie | [Marie se présente en tant que gardienne de l’Église spiritualiste de Wimbledon](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-14-2-mc-mary/) | 14 Septembre 2026
+Keaa Atta Kem | [La Volonté de Dieu n’est pas un mystère, mais c’est quelque chose que vous devez sincèrement désirer connaître](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-28-3-mc-keaa-atta-kem/) | 28 Septembre 2026
+Keea Atta Kem | [Connaissez l’instrument de votre âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-2-2-mc-keea-atta-kem/) | 2 Octobre 2026
 
 [Lien vers Messages Contemporains selon le Médium de Réception](/fr-contemporary-messages/6-2-fr-contemporary-messages-per-medium/)

@@ -9,7 +9,7 @@ weight:
 ---
 ### L’influence de notre cheminement sur nos proches dans le monde spirituel
 
-Melvina - reçu par Maureen Cardoso le 23 Août 2026, Cercle de Lumière en ligne, Sechelt, Colombie-Britannique, Canada.
+Melvina - reçu par Maureen Cardoso le 23 Août 2026, Beams of Light, Abbotsford, Colombie-Britannique, Canada.
 
 Que la bénédiction de l’Amour de Dieu emplisse vos âmes. Je m’appelle Melvina. Je suis un Ange Céleste et je suis la grand-mère maternelle de cet instrument. Je suis très heureuse de pouvoir communier ainsi avec vous tous, et de partager avec vous la grande bénédiction de l’Amour de Dieu. Car nous avons cela en commun : nous cherchons tous, avec aspiration, à ce que l’Amour de Dieu emplisse nos âmes. C’est ce que j’ai pu constater, depuis le monde spirituel, en observant le cheminement de cet instrument dans l’Amour divin. Nous avons toujours entretenu une relation empreinte d’amour. J’ai pu être présente à ses côtés à divers moments de son parcours terrestre, pour lui apporter mon soutien. Il lui était, en effet, facile de me reconnaître, même avant que je ne devienne un Ange Céleste.
 

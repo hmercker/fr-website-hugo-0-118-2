@@ -9,7 +9,7 @@ weight:
 ---
 ### L’espoir des anges pour nous, depuis la retraite de Bassingham
 
-Keea Atta Kem - reçu par Maureen Cardoso le 4 Septembre 2026, Cercle de Lumière en ligne, Sechelt, Colombie-Britannique, Canada.
+Keea Atta Kem - reçu par Maureen Cardoso le 4 Septembre 2026, Retraite de Bassingham, Bassingham, Royaume-Uni.
 
 Que Dieu soit avec vous. Je suis Keea Atta Kem. Quel bonheur de voir comment vous vous rassemblez, votre essence pure communiant avec Dieu et les uns avec les autres.
 

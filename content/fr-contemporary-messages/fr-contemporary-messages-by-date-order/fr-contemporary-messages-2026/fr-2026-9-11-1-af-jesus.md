@@ -9,7 +9,7 @@ weight:
 ---
 ### Jésus inaugure la retraite de Harrow
 
-Jésus - reçu par Albert Fike le 11 Septembre 2026, Cercle de Lumière en ligne, Sechelt, Colombie-Britannique, Canada.
+Jésus - reçu par Albert Fike le 11 Septembre 2026, Retraite de l’Église spiritualiste de Harrow, Harrow, Londres, Royaume-Uni.
 
 Que l’Amour du Père trouve sa demeure en vos âmes. Je viens. Je suis votre frère. Je suis votre ami. Je suis Jésus. Je viens pour être près de vous.
 

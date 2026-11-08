@@ -9,7 +9,7 @@ weight:
 ---
 ### Nous ne souhaitons pas que vous rattachiez vos prières à une religion quelconque
 
-Yogananda - reçu par Albert Fike le 14 Octobre 2026, Voix directe, Sechelt, Colombie-Britannique, Canada.
+Yogananda - reçu par Jimbeau Walsh le 14 Octobre 2026, Voix directe, Sechelt, Colombie-Britannique, Canada.
 
 Je suis ici, votre frère, Yogananda. J’ai attendu avant de venir afin que vous puissiez simplement demeurer dans la grâce de Dieu ; je souhaite simplement vous encourager à faire en sorte que les aspirations de vos âmes occupent une place centrale dans votre cercle de prière. Bien que vous puissiez décrire vos croyances ou votre vie spirituelle en termes d’Amour Divin, de christianisme ou de spiritisme — et bien que nous soyons tous des disciples du Maître et de son enseignement — nous ne souhaitons pas que vous rattachiez vos prières à une religion ou à un groupe particulier ; considérez-les plutôt comme un don de Dieu offert à ceux qui se présentent.
 

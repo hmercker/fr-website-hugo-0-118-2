@@ -9,7 +9,7 @@ weight:
 ---
 ### Cette église sera préservée dans la lumière et l’amour
 
-Ruth de Wimbledon - reçu par Albert Fike le xx Septembre 2026, Cercle de Lumière en ligne, Sechelt, Colombie-Britannique, Canada
+Ruth de Wimbledon - reçu par Albert Fike le 14 Septembre 2026, Retraite de l’Église spiritualiste de Wimbledon, Wimbledon, Londres, Royaume-Uni.
 
 Je m’appelle Ruth. J’ai été membre de cette église il y a quelques décennies, et je suis heureuse d’être de nouveau parmi vous, avec ces belles âmes qui se sont rassemblées. Je tiens à vous assurer que cette église sera préservée et qu’elle prospérera, à condition que vous offriez ce que les gens recherchent — non pas ce que vous pensez être leurs besoins, mais ce qu’ils désirent au plus profond de leur cœur. Si vous leur ouvrez votre cœur, ils seront réceptifs et vous écouteront. Mais avant tout, il doit y avoir de l’amour. En vérité, cette église ne manque pas d’amour ; elle en est emplie.
 

@@ -141,3 +141,4 @@ St Matthieu | [Considérez avec patience et flexibilité les différents niveaux
 St Matthieu | [Vivre chaque jour comme un instrument de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-3-2-af-st-matthew/) | 3 Mars 2026
 St Matthieu | [Suivre les directives pour s'unir ouvre de grandes possibilités](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-3-21-1-af-st-matthew/) | 21 Mars 2026 
 St Matthieu | [La douceur de la progression](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-20-1-em-st-mathhew/) | 20 Août 2026 
+St Matthieu | [Le don du présent : une leçon sur la perception du temps et de la conscience](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-16-1-af-st-matthew/) | 16 Octobre 2026

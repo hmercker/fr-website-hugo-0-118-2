@@ -9,7 +9,7 @@ weight:
 ---
 ### Vous devez tenir compte de nos avertissements et vous préparer à la tempête du changement
 
-Augustin - reçu par Albert Fike le 1<sup>er</sup> Septembre 2026, Cercle de Lumière en ligne, Sechelt, Colombie-Britannique, Canada.
+Augustin - reçu par Albert Fike le 1<sup>er</sup> Septembre 2026, Voix Directe, Sechelt, Colombie-Britannique, Canada.
 
 Que la grâce de l’Amour du Père soit avec vous, mes chers étudiants. Je suis votre enseignant, Augustine. Le moment approche rapidement où l’on aura besoin de vous dans le monde. Cela fait bien des années que nous mettons en garde contre ces temps, par l’intermédiaire de divers groupes, canaux et médiums. Ce moment est désormais arrivé, bien que beaucoup d’entre vous ne ressentent pas l’urgence de la situation. Pourtant, le changement arrive bel et bien. Les conditions s’intensifient. Le besoin se fait pressant dans un monde empli de chaos, d’ignorance et d’obscurité — autant de conditions qui mettent l’âme à l’épreuve. Vous persévérez, mes chers étudiants. Vous continuez à rechercher Dieu et à rechercher votre propre âme. Ses bénédictions continuent de se déverser sur vous et en vous. Il en sera ainsi, et cela s’intensifiera à mesure que Dieu portera Son attention sur ce monde et suscitera des conditions, des bénédictions et une lumière pour soutenir ce monde à travers le tumulte et les conditions si contraires à Sa création.
 

@@ -84,6 +84,7 @@ Nuage Blanc | [Demander les bénédictions et les dons de Dieu](/fr-contemporary
 Nuage Blanc | [Priez avec nous pour plus d'équilibre et d'harmonie](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2021/fr-2021-12-3-1-af-white-cloud/) | 3 Décembre 2021
 Nuage Blanc | [Guérison de la Terre Mère ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-5-3-2-af-white-cloud/) | 3 Mai 2024
 Nuage Blanc | [Ouvrir davantage l'expression de vos dons ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2025/fr-2025-4-30-2-af-white-cloud/) | 30 Avril 2025 
+Nuage Blanc | [Vénération pour la Terre](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-2-1-af-white-cloud/) | 2 Octobre 2026
 Plume Blanche | [Être un agent de changement pour la Terre ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2023/fr-2023-9-1-1-af-white-feather/) | 1 Septembre 2023
 Plume Blanche | [Combien il est important de réveiller vos frères et sœurs](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-8-20-1-af-white-feather/) | 20 Août 2024
 Plume Blanche | [Concentrez-vous sur Dieu et mettez toutes les distractions de côté ](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2024/fr-2024-9-17-1-af-white-feather/) | 17 Septembre 2024

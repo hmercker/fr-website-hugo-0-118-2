@@ -284,7 +284,7 @@ Judas | [La joie spirituelle s'obtient dans la grâce](/fr-contemporary-messages
 Judas | [Libre arbitre et Volonté de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-17-1-jw-judas/) | 17 Août 2026
 Judas | [Aller vers Dieu pour ceux qui ne vont pas vers Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-8-31-1-jw-judas/) | 31 Août 2026
 Judas | [Élever chacun au sein du collectif spirituel de l'Amour Divin](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-4-1-jw-judas/) | 4 Septembre 2026
-Judas  & Luc | [Cercles de prière en présentiel (Amour Divin)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-9-2-af-judas-luc/) | 9 Octobre 2026
+Judas  & Luc | [Cercles de prière en présentiel (Amour Divin)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-9-1-af-judas-luc/) | 9 Octobre 2026
 
 
 

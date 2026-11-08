@@ -53,6 +53,9 @@ St Luc | [La guérison](/fr-contemporary-messages/fr-contemporary-messages-by-da
 Arthur Conan Doyle | [Détectives de l'âme](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-13-1-jw-arthur-conan-doyle/) | 13 Septembre 2026
 George Vale Owen | [Il est temps pour les Églises spiritualistes de s'élever dans l'amour de Dieu](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-9-14-1-jw-george-vale-owen/) | 14 Septembre 2026
 Care Darby Walsh | [Permettre à votre âme, à votre vie, d'être transformées](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-5-1-jw-care-darby-walsh/) | 5 Octobre 2026
+Claire d'Assise | [Le silence est d’or](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-12-1-jw-clare-of-assisi/) | 12 Octobre 2026
+Yogananda | [Nous ne souhaitons pas que vous rattachiez vos prières à une religion quelconque](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-14-1-jw-yogananda/) | 14 Octobre 2026
+Yogananda | [La véritable paix au-delà de la peur](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2026/fr-2026-10-19-1-jw-yogananda/) | 19 Octobre 2026 
 
 
 

@@ -9,7 +9,7 @@ weight:
 ---
 ### La reine Victoria décrit son cheminement dans le monde spirituel et exprime son espoir de voir la Vérité de Dieu partagée
 
-Reine Victoria <sup id="a1">[1](#f1)</sup> - reçu par Albert Fike le 4 Septembre 2026, Cercle de Lumière en ligne, Sechelt, Colombie-Britannique, Canada.
+Reine Victoria <sup id="a1">[1](#f1)</sup> - reçu par Albert Fike le 4 Septembre 2026, Retraite de Bassingham, Bassingham, Royaume-Uni.
 
 Puisse l’Amour du Père se déverser en votre âme, pour vous changer, vous guérir et vous transformer. Je suis Victoria, autrefois reine de ce pays, et je viens vous encourager, âmes bien-aimées, chercheurs de vérité et de lumière, à apporter cette Vérité de l’Amour de Dieu dans ce pays qui en a tant besoin. Tant de personnes parcourent cette terre, dépourvues d’amour et en proie à une grande souffrance. Bien qu’il existe un confort matériel — bien plus important qu’à l’époque où j’étais sur Terre —, il y a peu de réconfort pour l’âme, peu de réconfort les uns envers les autres. Comme tout votre monde, celui-ci est submergé par le matérialisme et le désir d’en posséder toujours plus, afin d’apaiser la douleur et la solitude si répandues dans le cœur des hommes et des femmes.
 
@@ -34,7 +34,7 @@ Je suis Victoria, et je viens vers vous pour vous encourager. Je remercie ceux q
 ---|---|---
 Reine Victoria | [Parle de la loyauté (Reine d'Angleterre)](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1969/fr-58-1969-anonymous-queen-victoria/) |   1969
 Reine Victoria | [Soyez fidèles, mais surtout, soyez forts et sages dans l'amour de Dieu.](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-1970/fr-162-1970-anonymous-queen-victoria/) |   1970
-Reine Victoria | [Beaucoup travaillent ensemble pour la Voix Directe](fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-3-2-af-queen-victoria/) | 2017
+Reine Victoria | [Beaucoup travaillent ensemble pour la Voix Directe](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2017/fr-2017-11-3-2-af-queen-victoria/) |  3 Novembre 2017
 Reine Victoria | [Désire l’harmonie, la lumière, l’amour et la joie pour tous dans son pays : Guernesey](/fr-contemporary-messages/fr-contemporary-messages-by-date-order/fr-contemporary-messages-2022/fr-2022-5-15-5-af-queen-victoria/) | 15 Mai 2022
 
 
